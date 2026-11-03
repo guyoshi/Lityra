@@ -55,7 +55,7 @@ Isabelle, que ouvira o comentário sobre ter medo de água, parou ao lado da mes
 
 — Três meses? — Banjo arregalou os olhos.
 
-— Para conseguir juntar os grãos de areia sem espalhar tudo. E ele já contou para metade do Edifício que eu tomo banho de luvas! — Isabelle apontou para Denis, que tentou esconder o sorriso. — Pois eu não vejo a hora de inaugurarem o Parque das Sete Marés, em Aranthis. Dizem que abre daqui a quatro anos. Vou passar o dia inteiro nas atrações aquáticas, só para você parar de dizer que tenho medo de água.
+— Para conseguir juntar os grãos de areia sem espalhar tudo. E ele já contou para metade do Edifício que eu tomo banho de luvas! — Isabelle apontou para Denis, que tentou esconder o sorriso. — Pois eu não vejo a hora de inaugurarem o Tchibumlândia, em Aranthis. Dizem que abre daqui a quatro anos. Vou passar o dia inteiro nas atrações aquáticas, só para você parar de dizer que tenho medo de água.
 
 — Um pequeno erro de informação — disse ele, levantando-se.
 
