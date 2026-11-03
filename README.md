@@ -124,3 +124,15 @@ Configuração inicial, feita uma única vez:
 5. No app, abra **Ajustes → Modo admin** e entre com o e-mail e a senha dessa conta.
 
 O login tem recuperação de senha por e-mail. Uma conta autenticada que não possua o documento `admins/{UID}` é desconectada e não recebe acesso ao painel.
+
+
+## Sincronização automática e manual dos manuscritos
+
+**Fonte canônica:** `guyoshi/dimensoesinfinitas`, arquivos `00 - Texto/capitulos/*.md` de cada livro. Este repositório chama-se **`guyoshi/Lityra`** e é o espelho público da leitura. O nome antigo `editorlivroapp` não deve mais ser usado como endereço GitHub.
+
+- **Automática:** qualquer push na branch `main` que altere um arquivo em `**/00 - Texto/**` inicia o workflow [Sync canonical manuscripts to Lityra](https://github.com/guyoshi/dimensoesinfinitas/actions/workflows/sync-beta-reader.yml). Esse workflow publica todos os capítulos canônicos, manifestos, catálogo e capas no Lityra.
+- **Publicação manual:** no mesmo workflow do GitHub Actions, clicar **Run workflow** → branch **main** → **Run workflow**. É necessária autenticação GitHub com permissão de executar Actions.
+- **Atualização no dispositivo:** no Lityra, entrar no **Painel ADM → Sincronizar conteúdo → Atualizar conteúdo publicado**. O botão busca a versão já publicada, confere os manifestos e renova cache da biblioteca e das imagens. **Não** dispara o GitHub Actions nem sincroniza manuscritos privados sozinho. Há um link direto para a publicação manual na mesma página do painel.
+- **Token para publicação:** no repositório de origem, configurar secret `LITYRA_SYNC_TOKEN` com permissão `Contents: Read and write` ao repositório `guyoshi/Lityra`. Por compatibilidade, o workflow continua a aceitar `EDITORLIVROAPP_SYNC_TOKEN` quando o novo não existir.
+
+**Importante:** o identificador de projeto Firebase legado `editorlivroapeditorlivroappp` faz parte das configurações existentes de autenticação e Firestore. A troca de nome do repositório **não** exige renomear nem apagar esse projeto, pois isso quebraria o acesso administrativo e os comentários.
