@@ -111,7 +111,7 @@ O dassi parou. Para a surpresa deles, estavam de novo diante do prédio de trein
 
 — Hoje anuncio os aprendizes que passaram nos dois primeiros desafios e participarão do último — disse Garmande. — É uma honra.
 
-Ele começou a citar nomes. Brenda, Isabelle, Ferris. Depois:
+Ele começou a citar nomes. Brenda, Isabelle, Ferris. Isabelle não participara da travessia do Rio Celeste, e ainda assim seu nome estava na lista. Garmande não ofereceu nenhuma explicação. Depois:
 
 — Breno, Beatriz, Banjo e... Bruno.
 
