@@ -36,6 +36,12 @@ Por cima da cabeça do velho, letras de luz giravam num arco imenso de metal lí
 
 — Bem-vindos — disse Velho-Sábio, sorrindo.
 
+— Espera aí — disse Bruno. — O senhor fala português?
+
+— Falo como sempre falei. Aqui, a magia ajuda as pessoas a se entenderem, mesmo quando vêm de lugares diferentes.
+
+Bruno abriu a boca para perguntar mais, mas Beatriz se adiantou:
+
 — Que lugar é esse? — perguntou ela.
 
 — Um que vocês vão conhecer andando.
