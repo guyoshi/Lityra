@@ -55,11 +55,15 @@ Isabelle, que ouvira o comentário sobre ter medo de água, parou ao lado da mes
 
 — Três meses? — Banjo arregalou os olhos.
 
-— Para conseguir juntar os grãos de areia sem espalhar tudo. E ele já contou para metade do Edifício que eu tomo banho de luvas! — Isabelle apontou para Denis, que tentou esconder o sorriso. — Pois eu não vejo a hora de inaugurarem a Ilha Pirilouca, em Aranthis. Dizem que abre daqui a quatro anos. Vai ser um parque de diversões numa ilha, no meio do lago, com montanhas-russas, brinquedos mágicos e até atrações na água. Vou nelas primeiro, só para você parar de dizer que tenho medo de água.
+— Para conseguir juntar os grãos de areia sem espalhar tudo. E ele já contou para metade do Edifício que eu tomo banho de luvas! — Isabelle apontou para Denis, que tentou esconder o sorriso.
 
 — Um pequeno erro de informação — disse ele, levantando-se.
 
 — Você chama tudo de pequeno erro — retrucou Shirley.
+
+Emiris aproveitou a pausa para mudar de assunto.
+
+— Vocês ouviram falar da Ilha Pirilouca, em Aranthis? Dizem que inaugura daqui a quatro anos. Vai ser um parque de diversões numa ilha, no meio de um lago, com montanhas-russas e brinquedos mágicos. Já estou contando os dias.
 
 Denis abriu um sorriso largo e deu um abraço forçado nos quatro irmãos.
 
