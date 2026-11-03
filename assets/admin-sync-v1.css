@@ -16,3 +16,5 @@
 .sync-metrics strong{display:block;font-size:1.12rem;}
 .sync-results details{margin-top:10px;}
 .sync-results li{margin:5px 0;}
+.sync-content a{color:var(--accent);font-weight:600;text-decoration:underline;text-underline-offset:2px;}
+.sync-content a:focus-visible{outline:2px solid currentColor;outline-offset:3px;border-radius:3px;}
