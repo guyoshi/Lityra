@@ -18,15 +18,16 @@
     sheet.className="admin-dashboard-sheet";
     sheet.hidden=true;
     sheet.innerHTML='<section class="admin-dashboard sync-dashboard">'
-      +'<header class="admin-dashboard-head"><div><h2>Sincronizar conteúdo</h2><p>Atualize livros e imagens que já estão publicados no Lityra.</p></div>'
+      +'<header class="admin-dashboard-head"><div><h2>Sincronizar conteúdo</h2><p>Atualize os livros publicados e confira a publicação de novos capítulos.</p></div>'
       +'<div class="admin-head-actions"><button id="adminContentSyncBack" class="link-btn admin-back-btn" type="button">← Painel</button>'
       +'<button id="adminContentSyncClose" class="icon-btn" type="button" aria-label="Fechar">✕</button></div></header>'
-      +'<div class="sync-content"><p class="sync-description">Busca a lista mais recente de livros e capítulos, renova as capas e artes disponíveis e limpa o cache de arquivos do app. O progresso de leitura, os comentários e as permissões permanecem intactos.</p>'
+      +'<div class="sync-content"><p class="sync-description">Atualiza no aparelho os livros, capítulos, capas e artes já publicados no Lityra, sem alterar progresso ou comentários. Para enviar alterações do GitHub ao Lityra, use primeiro a publicação manual abaixo (ou aguarde a publicação automática).</p>'
       +'<label class="sync-option"><input id="adminSyncAuditImages" type="checkbox"> Conferir se cada imagem publicada está acessível <small>(pode consumir dados móveis)</small></label>'
-      +'<button id="adminContentSyncRun" class="btn-primary sync-run" type="button">↻ Sincronizar agora</button>'
+      +'<button id="adminContentSyncRun" class="btn-primary sync-run" type="button">↻ Atualizar conteúdo publicado</button>'
+      +'<p class="sync-description"><strong>Alterou capítulos no GitHub?</strong> <a href="https://github.com/guyoshi/dimensoesinfinitas/actions/workflows/sync-beta-reader.yml" target="_blank" rel="noopener noreferrer">Publicar manualmente no Lityra (GitHub Actions)</a>. Na página do GitHub, selecione <strong>Run workflow</strong>, branch <strong>main</strong>. Depois que terminar, volte e toque em <strong>Atualizar conteúdo publicado</strong>.</p>'
       +'<p id="'+STATUS_ID+'" class="sync-status" role="status" aria-live="polite">Nenhuma sincronização executada nesta sessão.</p>'
       +'<div id="adminContentSyncResults" class="sync-results" hidden></div>'
-      +'<p class="sync-disclaimer">Novos livros devem constar em <code>data/books.json</code> e ter um manifesto publicado. Imagens precisam existir no endereço configurado. Este botão não envia arquivos do telefone nem altera o GitHub.</p></div></section>';
+      +'<p class="sync-disclaimer">Novos livros devem constar em <code>data/books.json</code> e ter um manifesto publicado. Imagens precisam existir no endereço configurado. A publicação manual exige acesso ao GitHub. Este botão apenas atualiza o que já foi publicado; não envia arquivos do telefone nem altera o repositório.</p></div></section>';
     document.body.appendChild(sheet);
     sheet.querySelector("#adminContentSyncClose").onclick=()=>{sheet.hidden=true;};
     sheet.querySelector("#adminContentSyncBack").onclick=()=>{
@@ -147,7 +148,7 @@
       status("Atualizando cache e biblioteca…");
       if("caches" in window){
         const keys=await caches.keys();
-        await Promise.all(keys.filter(key=>/^jesed-(?:shell|content)-/.test(key)).map(key=>caches.delete(key)));
+        await Promise.all(keys.filter(key=>/^(?:jesed|lityra)-(?:shell|content)-/.test(key)).map(key=>caches.delete(key)));
       }
       try{sessionStorage.setItem(VERSION_KEY,String(stamp));}catch(_){}
       if(window.LityraContentAPI?.refresh)await window.LityraContentAPI.refresh(books);
