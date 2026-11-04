@@ -34,7 +34,7 @@ Bruno se virou na cama, rindo apesar do sono.
 
 — A gente entendeu que ele é bonitinho, Banjo. Agora dorme!
 
-Como se tivesse ouvido a deixa, Átila empurrou a porta com o focinho e entrou abanando o rabo. Banjo o abraçou e tentou erguê-lo; conseguiu levantá-lo só um pouco, soltando um gemido de esforço antes de se sentar com o cachorro no colo.
+Como se tivesse ouvido a deixa, Átila empurrou a porta com o focinho e entrou abanando o rabo. Banjo o abraçou e tentou erguê-lo. Conseguiu levantá-lo só um pouco, soltando um gemido de esforço antes de se sentar com o cachorro no colo.
 
 — Cachorro Átila, ao resgate!
 
@@ -44,13 +44,27 @@ Como se tivesse ouvido a deixa, Átila empurrou a porta com o focinho e entrou a
 
 Banjo obedeceu, mas Átila permaneceu junto da cama, como se estivesse esperando a próxima missão.
 
-Depois vinham o Edifício Arcano, o elevador de vidro, as aulas. Aprenderam a consultar os avisos luminosos das placas de vidro nas galerias, a esperar a indicação de acesso antes de abrir portas e a não tocar nos painéis de identificação do Edifício. Ao entardecer, no jardim da casa, Velho-Sábio treinava os quatro, e a grama mudava de cor conforme o humor de quem pisava. Breno aprendeu a firmar os pés. Bruno aprendeu que o gelo, quando ele estava distraído, virava escorregador. Beatriz aprendeu a acender uma vela sem acender a toalha. Banjo aprendeu que as folhas do jardim gostavam de conversa e perdeu uma tarde inteira ouvindo.
+Depois vinham o Edifício Arcano, o elevador de vidro, as aulas. Aprenderam a consultar os avisos luminosos das placas de vidro nas galerias, a esperar a indicação de acesso antes de abrir portas e a não tocar nos painéis de identificação do Edifício. Ao entardecer, no jardim da casa, Velho-Sábio treinava os quatro, e a grama mudava de cor conforme o humor de quem pisava. Breno aprendeu a firmar os pés. Bruno aprendeu que o gelo, quando ele estava distraído, virava escorregador. Beatriz tentava aquecer o pavio de uma vela, mas ele não acendia, por mais que ela se esforçasse. Banjo aprendeu que as folhas do jardim gostavam de conversa e perdeu uma tarde inteira ouvindo.
 
-Mas os progressos não vieram de primeira. Breno atravessava a ponta dos dedos numa tábua e, na tentativa seguinte, batia a mão na madeira. Bruno recebia a tarefa de congelar uma gota e acabava cobrindo a tigela inteira de geada. Banjo tentava levantar uma folha sem erguer todas as outras; bastava Átila latir para perder a concentração. Beatriz conseguia manter uma chama pequena por alguns instantes, mas uma provocação do irmão fazia a luz crescer ou apagar.
+Mas os progressos não vieram de primeira. Breno atravessava a ponta dos dedos numa tábua e, na tentativa seguinte, batia a mão na madeira. Bruno recebia a tarefa de congelar uma gota e acabava cobrindo a tigela inteira de geada. Banjo tentava descobrir se era sua mão ou uma corrente de ar que fazia as folhas tremerem. Bastava Átila latir para perder a concentração. Beatriz às vezes conseguia aquecer o pavio por um instante, mas, quando Bruno a provocava, nem isso saía direito.
 
 Velho-Sábio repetia os exercícios durante dias. Não permitia que aumentassem a força antes de conseguir manter o controle. Também os fazia conversar enquanto praticavam: uma pergunta inesperada era suficiente para quebrar o foco de quase todos.
 
-Certa tarde, proibiu qualquer magia e pediu apenas que atravessassem o jardim carregando copos cheios numa bandeja, sem deixar ninguém para trás. Breno tentou comandar o ritmo, Bruno saiu na frente e quase derrubou tudo. Foi Banjo quem encontrou o caminho mais regular; Beatriz sugeriu que andassem mais devagar. Só conseguiram na terceira tentativa.
+Numa dessas tardes, depois de voltarem para casa, Banjo estendeu a mão para uma frutinha de casca verde-acinzentada e polpa branca que ficara do outro lado da mesa. Lembrou-se do copo que havia flutuado no quarto e das folhas que tremiam quando estendia a mão, embora ainda não soubesse se ele próprio as mexia. Se tivesse movido o copo, talvez conseguisse trazer a fruta até si. Concentrou-se, mas ela nem se mexeu.
+
+Beatriz estendeu a mão também, mais para desafiar Banjo do que por achar que conseguiria mover a fruta. Lembrou-se do calor que sentira no coral e tentou levá-lo até a ponta dos dedos. A palma esquentou, mas a fruta não saiu do lugar.
+
+Bruno olhou para a jarra. Já tinha visto o gelo aparecer no volante e no espelho e, durante o treino, congelara uma poça inteira sem conseguir parar. Dessa vez queria esfriar só um pedacinho. Encostou o dedo no vidro, e uma rodinha de geada se formou sob ele.
+
+Breno observou os irmãos e pousou a mão na beirada da mesa. Lembrou-se das páginas do livro de história, na Terra, e do instante em que o carro atravessara a árvore. Sabia que aquilo tinha acontecido, mas ainda não conseguia repetir o efeito sempre que queria.
+
+— Se eu tentar atravessar a mesa e ficar preso, vocês me ajudam a sair?
+
+— Melhor começar pelo guardanapo — disse Bruno.
+
+Banjo acabou indo buscar a fruta andando mesmo. Nenhum deles percebeu que, durante a conversa, uma mulher do lado de fora mantinha com a mão erguida uma cesta de compras suspensa para abrir o portão. Assim que baixou o braço, a cesta desceu suavemente até o chão.
+
+Certa tarde, proibiu qualquer magia e pediu apenas que atravessassem o jardim carregando copos cheios numa bandeja, sem deixar ninguém para trás. Breno tentou comandar o ritmo, Bruno saiu na frente e quase derrubou tudo. Foi Banjo quem encontrou o caminho mais regular. Beatriz sugeriu que andassem mais devagar. Só conseguiram na terceira tentativa.
 
 — O que mudou? — perguntou o mago.
 
@@ -102,11 +116,15 @@ Aos domingos havia jantar, e o jantar era ordem de Velho-Sábio. Nada de treino,
 
 Contaram. Foi a primeira vez que alguém descreveu um purê de tubérculo como "um abraço morno com pedacinhos", e Kali anotou a frase.
 
-Tayo, aos poucos, deixou de ser um mapa e virou um distrito com gente que os reconhecia. Em Brisália, Beatriz sabia que Pelan, da padaria, sempre dava um pão a mais; Banjo cumprimentava o homem da previsão do tempo pelo nome; Bruno tinha opinião sobre todos os dassis da rua; e Breno, que detestaria admitir, já não procurava as saídas quando entrava num lugar novo.
+Tayo, aos poucos, deixou de ser um mapa e virou um distrito com gente que os reconhecia. Em Brisália, Beatriz sabia que Pelan, da padaria, sempre dava um pão a mais. Banjo cumprimentava o homem da previsão do tempo pelo nome. Bruno tinha opinião sobre todos os dassis da rua. E Breno, que detestaria admitir, já não procurava as saídas quando entrava num lugar novo.
 
 Às vezes, depois das aulas, passavam pelo Largo dos Ponteiros, onde o relógio público mudava de cor e as crianças disputavam quem conseguiria fazê-lo tocar fora de hora. No Parque do Arco Manso, Banjo descobriu uma árvore que deixava as folhas cair apenas quando alguém lhe contava uma coisa engraçada. Bruno tentou fazê-la rir por dez minutos e saiu debaixo dela com um único graveto no cabelo. Beatriz conseguiu uma chuva de folhas contando que o irmão tinha ensaiado uma reverência para o próprio reflexo. Bruno jurou que a árvore estava roubando.
 
-Em outra saída, encontraram Eshley e Shirley perto do Parque do Arco Manso. Acabaram passando a tarde tentando inventar nomes para flores que mudavam de cor quando alguém espirrava. Eshley defendia nomes bonitos; Shirley inventava os mais absurdos. Beatriz ria até perder o ar, e Banjo tentou convencer uma flor a escolher o próprio nome. Não descobriram nada útil para os desafios. Foi justamente por isso que a tarde pareceu curta.
+Em outra saída, encontraram Eshley e Shirley perto do Parque do Arco Manso. Acabaram passando a tarde tentando inventar nomes para flores que mudavam de cor quando alguém espirrava.
+
+— E se eu espirrar duas vezes, ela muda de cor duas vezes? — perguntou Beatriz, chegando o rosto perto de uma flor. — Alguém me arranja uma pena? Quero fazer cócegas no nariz.
+
+Shirley começou a rir antes mesmo de responder. Eshley defendia nomes bonitos, Shirley inventava os mais absurdos, e Beatriz ria até perder o ar com os nomes delas. Banjo tentou convencer uma flor a escolher o próprio nome. Não descobriram nada útil para os desafios. Foi justamente por isso que a tarde pareceu curta.
 
 Numa tarde livre, Velho-Sábio cumpriu a promessa de levá-los ao Riacho de Lurim. Na margem, havia bicicletas estreitas de rodas azuladas. Quem pedalava seguia por cima da água, deixando dois riscos que desapareciam logo atrás.
 
@@ -188,7 +206,7 @@ Breno se agachou ao lado dela.
 
 — Calma, Bia. A gente está seguro. E eu estou aqui.
 
-— Velho-Sábio disse que o meu dom precisa de emoção forte — ela murmurou. — Mas só o que eu sinto é medo.
+— Até agora, tudo aconteceu quando fiquei nervosa — ela murmurou. — Mas aqui em cima eu só tô com medo.
 
 — Então tenta outra coisa. Pensa em algo que te tire do sério.
 
@@ -232,7 +250,7 @@ Breno olhou para os próprios braços e flexionou os dedos, devagar. Um zumbido 
 
 Velho-Sábio se aproximou com um sorriso orgulhoso.
 
-— A sua densidade, Breno, não serve só para atravessar as coisas. Também serve para endurecer. E você, Beatriz... — Ele inclinou a cabeça. — O seu fogo está vivo. Aceite que ele é seu.
+— Breno, parece que você também consegue endurecer a pele, não só atravessar as coisas. — Velho-Sábio voltou-se para Beatriz e olhou suas mãos. — E agora a gente sabe que aquele calor podia virar fogo. Precisamos descobrir como fazer isso sem assustar todo mundo.
 
 Beatriz ainda tremia.
 
@@ -272,7 +290,7 @@ Em poucos minutos, a ponte, recomposta quando as placas móveis da sala de trein
 
 — Isso é uma torrada de guerra — declarou, mordendo. — Tá crua no meio.
 
-Bruno juntou frio entre os dedos para provar que podia melhorar o resultado. A casca ficou branca de geada e se partiu; Beatriz precisou afastar a mão antes de queimar os próprios dedos tentando aquecê-la outra vez.
+Bruno juntou frio entre os dedos para provar que podia melhorar o resultado. A casca ficou branca de geada e se partiu. Beatriz precisou afastar a mão antes de queimar os próprios dedos tentando aquecê-la outra vez.
 
 — Melhorou muito — disse Banjo, examinando o pão encharcado. — Agora é uma torrada molhada.
 
@@ -283,7 +301,7 @@ Bruno juntou frio entre os dedos para provar que podia melhorar o resultado. A c
 Velho-Sábio, na pedra, fingiu que dormia, para ninguém ver que estava sorrindo.
 
 
-Na hora do descanso, Velho-Sábio sentou-se numa pedra e deixou que treinassem sozinhos. Antes, mostrou-lhes uma técnica simples fora de sua afinidade de Harmonia: fez um seixo subir um palmo, mantendo-o imóvel por instantes. Banjo repetiu o gesto quase sem pensar; Breno tentou, suou e só conseguiu fazê-lo estremecer.
+Na hora do descanso, Velho-Sábio sentou-se numa pedra e deixou que treinassem sozinhos. Antes, mostrou-lhes uma técnica simples fora de sua afinidade de Harmonia: fez um seixo subir um palmo, mantendo-o imóvel por instantes. Banjo repetiu o gesto quase sem pensar. Breno tentou, suou e só conseguiu fazê-lo estremecer.
 
 — Mas ele faz isso o tempo todo! — protestou Breno.
 
