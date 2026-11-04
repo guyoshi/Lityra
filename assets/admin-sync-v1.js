@@ -3,6 +3,8 @@
   const SHEET_ID="adminContentSyncSheet";
   const STATUS_ID="adminContentSyncStatus";
   const VERSION_KEY="lityra:asset-cache-version";
+  const LAST_REFRESH_KEY="lityra:admin:last-content-refresh";
+  const SYNC_STATUS_PATH="data/sync-status.json";
   const admin=()=>!!window.Comments?.isAdmin?.();
   const $=selector=>document.querySelector(selector);
   const safe=value=>String(value??"").replace(/[&<>"']/g,ch=>({"&":"&amp;","<":"&lt;",">":"&gt;",'"':"&quot;","'":"&#39;"}[ch]));
@@ -24,7 +26,9 @@
       +'<div class="sync-content"><p class="sync-description">Atualiza no aparelho os livros, capítulos, capas e artes já publicados no Lityra, sem alterar progresso ou comentários. Para enviar alterações do GitHub ao Lityra, use primeiro a publicação manual abaixo (ou aguarde a publicação automática).</p>'
       +'<label class="sync-option"><input id="adminSyncAuditImages" type="checkbox"> Conferir se cada imagem publicada está acessível <small>(pode consumir dados móveis)</small></label>'
       +'<button id="adminContentSyncRun" class="btn-primary sync-run" type="button">↻ Atualizar conteúdo publicado</button>'
-      +'<p class="sync-description"><strong>Alterou capítulos no GitHub?</strong> <a href="https://github.com/guyoshi/dimensoesinfinitas/actions/workflows/sync-beta-reader.yml" target="_blank" rel="noopener noreferrer">Publicar manualmente no Lityra (GitHub Actions)</a>. Na página do GitHub, selecione <strong>Run workflow</strong>, branch <strong>main</strong>. Depois que terminar, volte e toque em <strong>Atualizar conteúdo publicado</strong>.</p>'
+      +'<small id="adminContentSyncDates" class="sync-last-update" aria-live="polite">Consultando última sincronização…</small>'
+      +'<a class="btn-ghost sync-publish" href="https://github.com/guyoshi/dimensoesinfinitas/actions/workflows/sync-beta-reader.yml" target="_blank" rel="noopener noreferrer">↗ Iniciar publicação no GitHub</a>'
+      +'<p class="sync-description sync-link-note">Por segurança, o GitHub pedirá que confirme <strong>Run workflow</strong> na branch <strong>main</strong>. Depois de publicar, volte aqui e use <strong>Atualizar conteúdo publicado</strong>. O Lityra nunca pede nem guarda seu token.</p>'
       +'<p id="'+STATUS_ID+'" class="sync-status" role="status" aria-live="polite">Nenhuma sincronização executada nesta sessão.</p>'
       +'<div id="adminContentSyncResults" class="sync-results" hidden></div>'
       +'<p class="sync-disclaimer">Novos livros devem constar em <code>data/books.json</code> e ter um manifesto publicado. Imagens precisam existir no endereço configurado. A publicação manual exige acesso ao GitHub. Este botão apenas atualiza o que já foi publicado; não envia arquivos do telefone nem altera o repositório.</p></div></section>';
@@ -41,6 +45,32 @@
   function show(){
     if(!admin())return;
     ensureSheet().hidden=false;
+    refreshSyncDates();
+  }
+  function formatDate(value){
+    const date=new Date(value);
+    if(!value||Number.isNaN(date.getTime()))return null;
+    return date.toLocaleString("pt-PT",{timeZone:"Europe/Lisbon",day:"2-digit",month:"2-digit",year:"numeric",hour:"2-digit",minute:"2-digit"});
+  }
+  function lastLocalRefresh(){
+    try{return formatDate(localStorage.getItem(LAST_REFRESH_KEY));}catch(_){return null;}
+  }
+  async function refreshSyncDates(){
+    if(!admin())return;
+    const el=$("#adminContentSyncDates");
+    if(!el)return;
+    const local=lastLocalRefresh();
+    let published=null;
+    try{
+      const response=await fetch(stampUrl(SYNC_STATUS_PATH,Date.now()),{cache:"no-store",credentials:"same-origin"});
+      if(response.ok){
+        const data=await response.json();
+        published=formatDate(data?.lastPublishedAt);
+      }
+    }catch(_){ /* A rede não deve impedir o acesso ao painel ADM. */ }
+    if(!admin()||!el.isConnected)return;
+    el.textContent="Última publicação: "+(published||"não disponível")
+      +" · Atualizado neste aparelho: "+(local||"ainda não");
   }
   function status(value){
     const el=$("#"+STATUS_ID);
@@ -168,6 +198,8 @@
           +(missing.length?'<details><summary>'+missing.length+' imagem(ns) não encontrada(s)</summary><ul>'+missing.map(name=>"<li>"+safe(name)+"</li>").join("")+"</ul></details>":""):"<p>Imagens renovadas sob demanda. Ative a conferência para checar os arquivos individualmente.</p>");
       result.hidden=false;
       status("Sincronização concluída. Os arquivos publicados aparecerão ao abrir a biblioteca e os capítulos.");
+      try{localStorage.setItem(LAST_REFRESH_KEY,new Date().toISOString());}catch(_){}
+      refreshSyncDates();
     }catch(error){
       status("Não foi possível concluir: "+(error?.message||"falha de rede")+". Nada foi apagado do progresso.");
     }finally{
