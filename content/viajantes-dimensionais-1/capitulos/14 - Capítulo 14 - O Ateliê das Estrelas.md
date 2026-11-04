@@ -283,6 +283,8 @@ Beatriz gritou e se escondeu atrás de Breno. A joaninha, ofendida, subiu de vol
 
 — Uma bandeja simpática — insistiu Bruno.
 
+— Se isso é joaninha, eu nem quero saber o tamanho das baratas daqui! — Beatriz espiou o alto da barraca para ter certeza de que o bicho tinha ido embora.
+
 Beatriz estendeu os dedos para secar a manga molhada de Banjo, mas a onda de calor veio forte demais.
 
 — Já secou! Já secou! — reclamou ele, sacudindo o braço.
@@ -518,7 +520,7 @@ Naquela noite, Breno sonhou com o corredor.
 
 Era o de sempre: a pedra úmida, o silêncio que engolia os passos, a porta alta e entalhada, a mão de metal segurando o crânio no lugar da maçaneta, o frio subindo pelas pernas, o rosnado no fundo da cabeça. Mas, dessa vez, ele chegou até ali sem parar. Estendeu a mão e tocou a madeira. E, pela primeira vez, olhou os entalhes com atenção.
 
-Eram figuras retorcidas, sim, como sombras presas na madeira. Mas, no centro da porta, quase apagado pelo tempo, havia um círculo dividido ao meio: de um lado, uma chama; do outro, uma flor.
+Eram figuras retorcidas, sim, como sombras presas na madeira. Mas, no centro da porta, quase apagado pelo tempo, havia um círculo dividido ao meio: de um lado, uma chama. Do outro, uma flor.
 
 O rosnado cresceu. Breno quis recuar, e os pés não se mexeram. Do outro lado da porta, alguém inspirou fundo.
 
