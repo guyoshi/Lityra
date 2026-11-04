@@ -48,7 +48,7 @@ Em casa, Bruno e Banjo tiraram os sapatos no quarto, ainda calados. O cheiro de 
 
 Os dois se olharam e riram. Foi um alívio, como abrir uma janela num quarto abafado.
 
-À tarde, Velho-Sábio os parabenizou pela corrida e avisou que o próximo desafio exigiria magia de verdade. Nas duas semanas seguintes, o treino foi intenso, e aconteceu o que costuma acontecer quando se treina bastante: os dedos ficaram mais firmes, as respostas mais rápidas. Breno conseguiu atravessar trechos finos de parede depois de várias tentativas, mas ainda precisava parar, respirar e recuperar a solidez com cuidado. Bruno conseguiu segurar uma lasca de gelo por um minuto inteiro sem que virasse um castelo, embora a perdesse quando se distraía. Beatriz fez chamas pequenas que às vezes obedeciam ao assovio e, às vezes, cresciam de repente, obrigando-a a recomeçar. Banjo fez folhas pousarem em fila na mesa da cozinha, uma ao lado da outra, como cartas de baralho. Certa manhã, conseguiu recuperar do chão uma colher que caíra atrás do armário; na seguinte, tentou repetir o truque diante de Bruno e puxou junto um punhado de poeira. Bruno começou a rir, mas depois prendeu a própria manga numa película de gelo que produzira sem olhar. Banjo considerou aquilo uma vitória.
+À tarde, Velho-Sábio os parabenizou pela corrida e avisou que o próximo desafio exigiria magia de verdade. Nas duas semanas seguintes, o treino foi intenso, e aconteceu o que costuma acontecer quando se treina bastante: os dedos ficaram mais firmes, as respostas mais rápidas. Breno conseguiu atravessar trechos finos de parede depois de várias tentativas, mas ainda precisava parar, respirar e recuperar a solidez com cuidado. Bruno conseguiu segurar uma lasca de gelo por um minuto inteiro sem que virasse um castelo, embora a perdesse quando se distraía. Beatriz fez chamas pequenas que às vezes obedeciam ao assovio e, às vezes, cresciam de repente, obrigando-a a recomeçar. Banjo fez folhas pousarem em fila na mesa da cozinha, uma ao lado da outra, como cartas de baralho. Certa manhã, conseguiu recuperar do chão uma colher que caíra atrás do armário. Na seguinte, tentou repetir o truque diante de Bruno e puxou junto um punhado de poeira. Bruno começou a rir, mas depois prendeu a própria manga numa película de gelo que produzira sem olhar. Banjo considerou aquilo uma vitória.
 
 Entre uma aula e outra, a vida foi criando hábitos. Às quartas, Eshley e Maria apareciam lá em casa para desenhar lanternas, e a sala ficava coberta de papel dourado e de cola que cheirava a mel. Num desses dias, os seis foram até o Parque do Arco Manso depois do lanche. Eshley arremessou uma bolinha luminosa, das que tinham sobrado das lanternas, para ver se ela passava entre os galhos. A bolinha ficou presa e passou a iluminar um ninho vazio.
 
@@ -56,7 +56,13 @@ Entre uma aula e outra, a vida foi criando hábitos. Às quartas, Eshley e Maria
 
 — Até eu descobrir como tirar — respondeu Eshley.
 
-Banjo estendeu a mão, e um galho se inclinou o suficiente para devolver a esfera. Maria aplaudiu. Bruno, que havia passado os últimos cinco minutos oferecendo soluções cada vez mais perigosas, declarou que a ideia dele era praticamente igual. Naquela noite, ainda havia papel dourado preso nos cabelos de Beatriz, e ninguém soube dizer de onde viera. O jantar de domingo continuou de pé, mesmo com todo mundo cansado. Foi num deles que Bruno ganhou a primeira partida de Tepone contra o mago, com uma trapaça tão descarada que Velho-Sábio pagou o mico de bom grado, imitando uma volha por dois minutos inteiros. Kali pediu a gravação. Ninguém deixou. Todo mundo sabia que ela tinha feito uma mesmo assim. Velho-Sábio passou a deixar um bilhete na porta de cada quarto de manhã, com um desenho que se mexia. O de Breno dizia: "Durma mais." O de Beatriz tinha um coelho que acenava. O de Bruno dizia apenas: "Acorda. Você também." Bruno guardou o dele na gaveta e fingiu que nunca o tinha lido.
+Banjo estendeu a mão, e um galho se inclinou o suficiente para devolver a esfera. Maria aplaudiu. Bruno, que havia passado os últimos cinco minutos oferecendo soluções cada vez mais perigosas, declarou que a ideia dele era praticamente igual. Quando saíram do parque, Maria apontou um pedacinho de papel dourado preso no cabelo de Beatriz e tentou tirá-lo.
+
+— Não tira, não! — Beatriz procurou o próprio reflexo numa vitrine. — Agora faz parte do penteado.
+
+O papel continuou ali até chegarem em casa.
+
+O jantar de domingo continuou de pé, mesmo com todo mundo cansado. Foi num deles que Bruno ganhou a primeira partida de Tepone contra o mago, com uma trapaça tão descarada que Velho-Sábio pagou o mico de bom grado, imitando uma volha por dois minutos inteiros. Kali pediu a gravação. Ninguém deixou. Todo mundo sabia que ela tinha feito uma mesmo assim. Velho-Sábio passou a deixar um bilhete na porta de cada quarto de manhã, com um desenho que se mexia. O de Breno dizia: "Durma mais." O de Beatriz tinha um coelho que acenava. O de Bruno dizia apenas: "Acorda. Você também." Bruno guardou o dele na gaveta e fingiu que nunca o tinha lido.
 
 A desconfiança de Bruno com o anel de McCroys ficou quieta nesse tempo, como brasa debaixo de cinza.
 
@@ -118,7 +124,7 @@ Os outros aprendizes chegavam, lutando contra as correntezas que giravam em torn
 
 — SEGURA, MANINHA! — gritou ele.
 
-No meio do turbilhão, Beatriz perdeu o controle, e a lárida a derrubou. Ela foi arrastada pela água. Banjo estendeu a mão, mas hesitou. Até uma colher às vezes escapava do seu controle; e se não conseguisse segurá-la?
+No meio do turbilhão, Beatriz perdeu o controle, e a lárida a derrubou. Ela foi arrastada pela água. Banjo estendeu a mão, mas hesitou. Até uma colher às vezes escapava do seu controle. E se não conseguisse segurá-la?
 
 — Banjo! — gritou Beatriz.
 
@@ -256,7 +262,7 @@ Breno abriu a boca para responder, mas uma figura passou rápida ao lado deles. 
 
 — Olha ali! — gritou Breno, apontando para cima.
 
-Numa faixa invertida do rio, Banjo e Beatriz passavam de cabeça para baixo, acenando desesperadamente. Banjo subiu de pé na lárida e estendeu a mão, tentando usar a telecinese para levitá-los até lá. Conseguiu erguer por um instante a ponta da lárida de Bruno, bem mais pesada que as folhas e as colheres dos treinos. Bruno e Breno sentiram um solavanco, mas Banjo tentou levantar também os dois ocupantes de uma vez. A tensão foi demais: a lárida inclinou, ele perdeu o foco e todos despencaram na água com um splash. Banjo veio à superfície envergonhado; por um instante achara que seria capaz de salvar todos de uma vez.
+Numa faixa invertida do rio, Banjo e Beatriz passavam de cabeça para baixo, acenando desesperadamente. Banjo subiu de pé na lárida e estendeu a mão, tentando usar a telecinese para levitá-los até lá. Conseguiu erguer por um instante a ponta da lárida de Bruno, bem mais pesada que as folhas e as colheres dos treinos. Bruno e Breno sentiram um solavanco, mas Banjo tentou levantar também os dois ocupantes de uma vez. A tensão foi demais: a lárida inclinou, ele perdeu o foco e todos despencaram na água com um splash. Banjo veio à superfície envergonhado. Por um instante achara que seria capaz de salvar todos de uma vez.
 
 — Na próxima, avisa antes de chamar esse elevador quebrado! — zombou Bruno, cuspindo água.
 
