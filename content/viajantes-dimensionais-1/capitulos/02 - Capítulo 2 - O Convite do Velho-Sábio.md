@@ -290,7 +290,7 @@ Breno olhou para o tio pelo retrovisor, viu uma sombra de compreensão passar pe
 
 Frank limpou a garganta.
 
-— Eu não sei. Primeiro saiam do carro; depois conversamos.
+— Eu não sei. Primeiro saiam do carro. Depois conversamos.
 
 Os irmãos saíram do carro, atordoados. Bruno pigarreou, balançando o volante ainda preso à mão.
 
@@ -362,15 +362,17 @@ Beatriz segurou o riso. Banjo ergueu a cartolina e apontou, um por um, para os i
 
 Mas ninguém riu de verdade. Beatriz abraçou os joelhos.
 
-— Isso tudo depois de tocar naquela bolinha esquisita... Isso só prova algo... nós... temos... super poderes. 
+Banjo olhou de um irmão para o outro, com os olhos brilhando.
 
-— Você deu um nome. Ainda não provou nada — disse Bruno.
+— E se a bolinha azul tiver feito tudo isso? Tipo... a gente encostou nela e ganhou superpoderes!
 
-Banjo parecia encantado com o que acabara de dizer. 
+— Calma, Banjo. Você inventou uma explicação, não quer dizer que seja verdade — disse Bruno.
+
+Banjo ainda sorria, imaginando todas as possibilidades. Beatriz apertou os joelhos contra o peito.
 
 — Eu não quero quebrar mais nada. Hoje, só de cantar, quase destruí a sala toda. E se eu machucar alguém?
 
-— A gente podia descobrir como controlar — disse Banjo. — e poderiamos usar pra ajudar as pessoas e os bichinhos.
+— Então a gente aprende a controlar! — disse Banjo. — Imagina poder ajudar as pessoas. E os bichinhos também.
 
 — Não sabemos o que é isso, Banjo — disse Breno. — E eu sugiro que a gente não faça nada por enquanto. Ninguém conta nada pra ninguém.
 
@@ -474,7 +476,7 @@ Ele colocou o rádio sobre a cama, entre os quatro.
 
 — Na caverna, as luzes dele piscaram junto com a esfera — lembrou Banjo.
 
-Breno girou o botão de sintonia. Só ouviu um chiado baixo. Bruno ergueu a antena; nada mudou.
+Breno girou o botão de sintonia. Só ouviu um chiado baixo. Bruno ergueu a antena. Nada mudou.
 
 — O velho disse que ele não estava quebrado — falou Beatriz. — Talvez a gente esteja tentando do jeito errado.
 
