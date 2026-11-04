@@ -19,23 +19,23 @@ O treino da tarde começou numa sala um andar acima. Era ampla e quase simples, 
 
 Velho-Sábio ficou no centro e estendeu a mão para que os irmãos se aproximassem.
 
-— Hoje, cada um vai conhecer o que traz dentro. Alguma coisa estranha aconteceu com vocês desde que chegaram, não foi?
+— Hoje quero entender o que aconteceu com vocês depois que tocaram no estírio. Não o que acham que deveriam conseguir fazer, mas aquilo que já aconteceu de verdade.
 
 Eles se entreolharam. Breno foi o primeiro.
 
 — Na aula de história, tentei virar a página de um livro e a minha mão atravessou. Como se ele fosse fumaça. Ou eu fosse.
 
-— Interessante — disse o velho. — Você pode ter domínio sobre a própria densidade. Com treino, passará por coisas sólidas como se fossem ar.
+— Talvez seu corpo tenha mudado de densidade naquele instante — disse o velho. — Vamos testar devagar. Uma coisa é acontecer sem querer. Outra é conseguir repetir.
 
 Bruno cruzou os braços, fingindo que não ligava.
 
-— O volante de um carro ficou grudado na minha mão e congelou. Não sei o que foi.
+— O volante ficou cheio de gelo e grudou na minha mão. E ontem o espelho também ficou gelado quando encostei nele. Só que eu não sei fazer isso de propósito.
 
-— Um controle natural sobre o frio. — Velho-Sábio sorriu. — Grande poder pede grande autocontrole, Bruno.
+— Talvez sua magia consiga retirar calor das coisas — disse Velho-Sábio. — É uma possibilidade. Vamos testar antes de tirar conclusões.
 
 Banjo ergueu a mão, tímido.
 
-— Eu... consigo falar com bicho. Ou eles me entendem. Os marimbondos, o Pitu, da Eshley...
+— Eu acho que os bichos me entendem. Ou eu entendo eles. Não sei direito. Teve o negócio dos marimbondos e depois o Pitu, da Eshley...
 
 — O Aquaman de Belfex! — gargalhou Bruno. — Vai que serve contra uma horda de pombos.
 
@@ -43,21 +43,21 @@ Banjo ergueu a mão, tímido.
 
 Beatriz falou em seguida, com o queixo erguido.
 
-— Eu estourei todas as lâmpadas do lustre do coral. E esquentei a sala inteira.
+— No coral, as lâmpadas estouraram enquanto eu cantava. E a sala ficou quente demais. — Beatriz olhou para as mãos. — Eu acho que tive alguma coisa a ver com isso, mas não sei o quê.
 
 O mago a observou por um instante mais longo do que o dos outros.
 
-— Seu dom ainda não escolheu uma forma, Beatriz. Pode ser algo mais sutil. Ou maior do que parece.
+— Pode ter sido sua magia — respondeu Velho-Sábio. — Mas ainda não sabemos o que ela faz quando você tenta usá-la. É isso que precisamos descobrir.
 
 Ela fez um bico, mas o sorriso desafiador voltou.
 
 — Então vamos descobrir.
 
-Ele bateu o cajado no chão. As paredes giraram, abriram-se, e a sala se desdobrou em quatro paisagens, uma em cada canto.
+Velho-Sábio tocou com o cajado um círculo embutido no piso. As divisórias da sala de treino deslizaram pelos trilhos, e os painéis de projeção acenderam quatro ambientes preparados para os exercícios, um em cada canto.
 
 Num deles, uma duna alaranjada se estendia sob um sol baixo, e no meio dela flutuava um bloco de pedra do tamanho de um armário. No outro, uma geleira azulada refletia uma aurora tímida, com uma poça de água parada no centro. No terceiro, uma clareira de musgo macio, com árvores de troncos curvos. O último era a borda de um vulcão adormecido, e um rio de brasa corria lá embaixo, muito devagar, como um pensamento.
 
-— Hoje vamos trabalhar o que sai mais naturalmente de vocês: as afinidades — disse o velho. — Depois, quando conseguirem começar e interromper os próprios efeitos, treinaremos técnicas que não pertencem a elas. Por enquanto, cada um no seu.
+— Vamos começar pelo que parece vir com mais facilidade para cada um — disse o velho. — Uma coisa de cada vez. E, antes de tentar algo maior, precisam aprender a parar.
 
 Breno foi para a duna. Velho-Sábio se pôs ao lado dele.
 
@@ -71,7 +71,7 @@ Na geleira, Bruno pisou no gelo com ar de quem já sabia o que fazer.
 
 — Está vendo a poça? — disse Velho-Sábio. — Congele só o centro. O resto, não.
 
-Bruno estendeu a mão. Um tilintar cristalino soou, como um sino de gelo, e a poça inteira congelou de uma vez. Ele puxou a mão, mas a geada escapou da borda, subiu por um pedregulho e formou uma torre torta de gelo, pouco mais alta que seu joelho. Bruno tentou acrescentar uma escadinha; surgiu apenas um caroço branco, que se partiu e caiu dentro da poça. A torre durou alguns instantes antes de tombar com um estalo.
+Bruno estendeu a mão. Um tilintar cristalino soou, como um sino de gelo, e a poça inteira congelou de uma vez. Ele puxou a mão, mas a geada escapou da borda, subiu por um pedregulho e formou uma torre torta de gelo, pouco mais alta que seu joelho. Bruno tentou acrescentar uma escadinha. Surgiu apenas um caroço branco, que se partiu e caiu dentro da poça. A torre durou alguns instantes antes de tombar com um estalo.
 
 — Só um pedacinho, só um pedacinho — resmungou. — Ótimo. Agora é a ruína de um castelo.
 
@@ -93,27 +93,27 @@ Banjo fez que sim, sem conseguir responder.
 
 No vulcão, Beatriz estava de frente para uma pilha de pedras sobre uma plataforma.
 
-— Bagunce isso. Só um pouco. Não use as mãos.
+— Tenta lembrar daquela sensação no coral, antes de as lâmpadas estourarem. Não quero outra explosão. Só presta atenção se o ar perto das pedras fica mais quente.
 
 Beatriz se concentrou. A pilha não se mexeu. Ela cerrou os dentes, os olhos fixos, e sentiu o nó quente no peito subir, mas a pilha continuava ali, imóvel e orgulhosa.
 
-— Não é justo — murmurou. — Parece que nada responde.
+— Não é justo. Acho que essa pedra tá me provocando — resmungou Beatriz, apontando para a do meio. — Fica aí parada só pra me irritar. E eu nem sei como fiz aquilo no coral.
 
 Foi quando o ar em volta dela esquentou. Um estalo, como o de uma brasa se partindo, e um cheiro de pão queimado subiu da plataforma. Uma rachadura fina correu pela pedra do meio, e acima dela uma das luzes do teto estourou, pop, soltando uma chuva de faíscas.
 
 Beatriz se encolheu. O mago observava com a cabeça inclinada.
 
-— Quando o dom escolher a forma, ele escolhe. Não adianta puxar. — Ele sorriu. — Mas ele já está olhando pra você, Beatriz.
+— O ar esquentou outra vez — disse Velho-Sábio, observando a pedra rachada e a luz quebrada. — Vamos parar por aqui antes que alguma coisa estoure perto de você.
 
 Num intervalo, Bruno olhou para o castelo torto e para a duna ao lado, e teve uma ideia.
 
 — Breno, vem aqui. Não pensa. Só vem.
 
-Antes que o irmão respondesse, ele encostou a mão na areia. O tilintar do sino de gelo correu por uma faixa estreita da duna; a areia ganhou uma crosta de gelo irregular, escorregadia o bastante para uma descida curta, mas cheia de ressaltos que ameaçavam derrubar quem passasse. Banjo foi o primeiro a se jogar, com um grito de alegria. Beatriz foi atrás, rindo, com o capuz lilás voando. Bruno desceu de pé, com os braços abertos, num equilíbrio perfeito. E Breno, depois de contar até três, deslizou sentado, com a cara mais séria do mundo. Quando o zumbido grave subiu no peito dele, atravessou sem querer um monte de neve fofa e saiu do outro lado coberto de gelo, gargalhando.
+Antes que o irmão respondesse, ele encostou a mão na areia. O tilintar do sino de gelo correu por uma faixa estreita da duna. A areia ganhou uma crosta de gelo irregular, escorregadia o bastante para uma descida curta, mas cheia de ressaltos que ameaçavam derrubar quem passasse. Banjo foi o primeiro a se jogar, com um grito de alegria. Beatriz foi atrás, rindo, com o capuz lilás voando. Bruno desceu de pé, com os braços abertos, num equilíbrio perfeito. E Breno, depois de contar até três, deslizou sentado, com a cara mais séria do mundo. Quando o zumbido grave subiu no peito dele, atravessou sem querer um monte de neve fofa e saiu do outro lado coberto de gelo, gargalhando.
 
 Era a primeira vez, desde a caverna, que Breno ria assim. Os irmãos ficaram olhando, e ninguém disse nada, para não estragar.
 
-Foi assim por horas. Breno atravessou o bloco duas vezes e perdeu três. Bruno tentou fazer outras torres, mas só conseguiu três montinhos desalinhados; uma quarta estrutura quebrou antes que ele lhe acrescentasse uma bandeira. Banjo sentou-se no musgo e ficou escutando, sem tentar nada. Beatriz fez rachaduras, faíscas, uma xícara de calor no ar, e nenhuma pedra voou. Quando enfim o cansaço chegou, chegou de uma vez só: as pernas pesaram, as cabeças latejaram, e o estômago de Banjo roncou tão alto que o vulcão pareceu responder.
+Foi assim por horas. Breno atravessou o bloco duas vezes e perdeu três. Bruno tentou fazer outras torres, mas só conseguiu três montinhos desalinhados. Uma quarta estrutura quebrou antes que ele lhe acrescentasse uma bandeira. Banjo sentou-se no musgo e ficou escutando, sem tentar nada. Beatriz fez rachaduras, faíscas, uma xícara de calor no ar, e nenhuma pedra voou. Quando enfim o cansaço chegou, chegou de uma vez só: as pernas pesaram, as cabeças latejaram, e o estômago de Banjo roncou tão alto que o vulcão pareceu responder.
 
 — Posso... dar uma pausa? — pediu Breno, sentando-se na duna.
 
@@ -156,7 +156,7 @@ Nesse instante, o som de botas atravessou a praça. Três vigilantes de capa cin
 
 As crianças saíram, uma a uma, com a cabeça baixa. Banjo ficou olhando a praça se esvaziar.
 
-— Esse é o Korvo? — sussurrou. — O que o Denis falou?
+— Esse é o Korvo? — sussurrou. — O que o Cachorro falou?
 
 — É — disse Velho-Sábio, ajustando o manto. — A lenda tem metade de verdade. E é a metade que dá medo.
 
@@ -177,7 +177,9 @@ Em casa, Kali acendeu a tela da sala quando os irmãos entraram. As roupas amass
 
 — Arcanismo é o nome do treino? — perguntou Banjo.
 
-— É o estudo e a prática da magia. M.A. significa Magia Arcana: o tipo de magia que cada pessoa usa. Pode ser elemental, cinestésica ou de outra natureza. Afinidade é o que vem mais facilmente; técnica é aquilo que você aprende a fazer. Aprender uma técnica não troca a sua afinidade.
+— É o estudo e a prática da magia — respondeu Kali. — E M.A. é a sigla de Magia Arcana. Vocês vão ver essas duas letras por todo o Edifício.
+
+— Eu achei que significava "muito azar" — resmungou Bruno, lembrando da bagunça do treino.
 
 — E como vocês sabem se alguém já domina a própria magia? — perguntou Bruno.
 
@@ -187,9 +189,23 @@ Em casa, Kali acendeu a tela da sala quando os irmãos entraram. As roupas amass
 
 Banjo se virou para Velho-Sábio, que pousava o cajado junto à porta.
 
-— E aquele menino da história? Ele perdeu o controle?
+— E aquele menino da história? — perguntou Banjo. — Ele perdeu o controle, igual a gente nos exercícios?
 
-— É mais complicado do que um erro de treino — disse o velho. — Errar ao usar a magia, como vocês erraram hoje, não torna ninguém mau. Mas alguém pode começar a procurar tanta força que deixa de perceber quando já não escolhe o que faz com ela. Esse é o perigo da magia negra. — O velho olhou para as mãos de Banjo. — Hoje você ouviu aquela criaturinha, mas se assustou com a força que veio depois. Primeiro aprenda a reconhecer a sua magia. O resto vocês compreenderão com o tempo.
+— Não foi igual — respondeu Velho-Sábio. — Vocês erraram e tentaram de novo. Korvo continuou procurando mais poder, até começar a deixar a magia decidir por ele.
+
+Beatriz, que até então escutava em silêncio, ergueu os olhos.
+
+— A magia pode mandar na pessoa?
+
+— Pode, quando ela deixa de perceber que está entregando o próprio controle. Aqui chamamos esse caminho de magia negra.
+
+— Então, se eu perder o controle outra vez, vou virar uma maga negra? — perguntou Beatriz, apertando as mãos.
+
+— Não, Bia. Um acidente não faz isso. — Velho-Sábio sentou-se perto dela. — É por isso que treinamos devagar, para vocês aprenderem a reconhecer o que acontece e a parar quando for preciso.
+
+Bruno se lembrou da mancha que vira entre as mãos de Erick e Nicolas. Será que aquilo tinha alguma coisa a ver com magia negra? Não fazia ideia. Olhou de relance para Breno, mas, depois da discussão no refeitório, preferiu guardar a pergunta para si.
+
+Banjo olhou para as mãos, lembrando-se da criaturinha que ouvira mais cedo. Ainda não entendia tudo, mas parecia um bom motivo para não tentar coisas maiores sozinho.
 
 Breno subiu para o quarto e ficou parado diante da janela, com os punhos fechados.
 
@@ -261,6 +277,8 @@ Depois dos cumprimentos formais, Garmande foi direto:
 — Tenho visto vigilantes rondando a minha casa. Hoje um deles estava perto da porta. Cada dia confio menos em deixá-la sozinha. — Olhou para Brenda por um segundo.
 
 — Eu sei me defender, pai — ela rebateu, sem tirar as mãos dos bolsos.
+
+Bruno olhou de Brenda para Garmande. Pai? A garota que tinha chamado sua atenção no refeitório era filha do homem que decidia quem continuava nos desafios? Banjo cutucou o braço dele, como se avisasse para não dizer nenhuma besteira. Pela primeira vez, Bruno achou melhor ficar quieto.
 
 — Sei que sabe. Tem mais força mágica do que eu, Brenda. Mas eu aprendi há muito tempo que força e experiência são coisas diferentes.
 
