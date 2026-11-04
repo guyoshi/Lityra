@@ -24,11 +24,11 @@ Foi só depois do banho que acharam as roupas, penduradas no guarda-roupa do qua
 
 — Sério, Beatriz? — zombou Bruno, de capa amarelo-fosforescente nos ombros. — Você parece a mascote de uma loja de brinquedos.
 
-— E você é uma placa de trânsito ambulante — devolveu Beatriz, puxando o capuz até o nariz.
+— E você é uma placa de trânsito ambulante — devolveu Beatriz, puxando o capuz até o nariz. — Esse aqui eu não tiro. Cabe até um lanche dentro desse capuz!
 
 Os dois se olharam, tentaram manter a cara séria por mais um segundo e desabaram na cama, rindo. Bruno ainda levou um travesseiro na cara. Breno balançou a cabeça. Fazia muito tempo que não via os dois rirem juntos.
 
-Lá embaixo, a cozinha já cheirava a pão quente. No forno, uma grelha deslizante erguia os pães até a portinhola; quando ficaram prontos, uma pequena pá articulada empurrou os primeiros para o cesto da mesa, ainda fumegando. Banjo ficou olhando o mecanismo como se tivesse descoberto um tesouro. Havia também um líquido esverdeado, com grãos roxos e crocantes boiando dentro, que parecia luz derretida (suco de esmeralda-doce, segundo Velho-Sábio), e frutas chamadas fresnos, de polpa doce e cítrica ao mesmo tempo.
+Lá embaixo, a cozinha já cheirava a pão quente. No forno, uma grelha deslizante erguia os pães até a portinhola. Quando ficaram prontos, uma pequena pá articulada empurrou os primeiros para o cesto da mesa, ainda fumegando. Banjo ficou olhando o mecanismo como se tivesse descoberto um tesouro. Havia também um líquido esverdeado, com grãos roxos e crocantes boiando dentro, que parecia luz derretida (suco de esmeralda-doce, segundo Velho-Sábio), e frutas chamadas fresnos, de polpa doce e cítrica ao mesmo tempo.
 
 Velho-Sábio tomava chá na ponta da mesa, lendo um jornal preso num gancho. A manchete mudava toda vez que ele agitava a mão.
 
@@ -92,7 +92,7 @@ Um minuto depois, o cachorro desceu devagar, com um chinelo de Bruno pendurado n
 
 Átila largou. O chinelo ficou no tapete, babado e satisfeito. Do alto da escada, Bruno gritou que ia cobrar aquilo do seguro.
 
-Saíram pela rua ainda fresca de Brisália. Perto do Largo dos Ponteiros, uma mulher recolhia pequenas lanternas que tinham passado a noite presas aos galhos de uma árvore. Mais adiante, o cheiro de pão recém-saído do forno vinha de uma porta aberta. Beatriz diminuiu o passo; Breno precisou chamá-la duas vezes.
+Saíram pela rua ainda fresca de Brisália. Perto do Largo dos Ponteiros, uma mulher recolhia pequenas lanternas que tinham passado a noite presas aos galhos de uma árvore. Mais adiante, o cheiro de pão recém-saído do forno vinha de uma porta aberta. Beatriz diminuiu o passo. Breno precisou chamá-la duas vezes.
 
 O dassi parou no ponto, flutuando a um palmo do chão com uma suavidade quase elegante. Antes de entrar, Velho-Sábio deixou cair numa fenda do casco um pêndulo, a moeda de Tayo, vermelha e furada no meio. A moeda tilintou e o dassi estremeceu de satisfação.
 
@@ -170,7 +170,7 @@ Banjo olhou para os irmãos. Parecia que alguém tinha acabado de lhe contar um 
 
 Pegaram um corredor de paredes escuras e portas douradas, de onde vinham estalos baixos e contínuos, como se pequenas explosões estivessem sendo guardadas ali dentro. O elevador não tinha botões. Subiu sozinho, silencioso, numa luz de faixas que corriam pelas paredes, e quando as portas se abriram, mostrou um salão claro e vibrante, cheio de jovens.
 
-— Estes são os outros aprendizes — disse Velho-Sábio. — Alguns são dimensais, como vocês. Outros nasceram em Belfex e se destacaram nas escolas daqui. Todos têm uma afinidade mágica, mas ninguém precisa ficar preso a ela para sempre: com estudo, é possível aprender outras técnicas. Eu volto mais tarde. Enturmem-se.
+— Estes são os outros aprendizes — disse Velho-Sábio. — Alguns são dimensais, como vocês. Outros nasceram em Belfex e se destacaram nas escolas daqui. Vão descobrir que nem todos aprendem do mesmo jeito. Eu volto mais tarde. Conheçam o pessoal.
 
 Ele se afastou, e os quatro ficaram junto à porta, sem saber para que lado ir. Um garoto de cabelos cacheados e óculos grandes demais vinha na direção deles com dois copos nas mãos. Quase esbarrou em Banjo, mas conseguiu salvar os copos.
 
@@ -194,7 +194,7 @@ Perto da janela, uma garota de pele morena e cabelos castanhos e cacheados abriu
 
 — Maria, me salva?
 
-A amiga, de cabelos escuros e ondulados, óculos redondos e olhos verde-oliva, soltou o tecido com cuidado. Usava uma capa verde e um colar com um cristal em forma de gota; a garota das estrelas trazia outro igual.
+A amiga, de cabelos escuros e ondulados, óculos redondos e olhos verde-oliva, soltou o tecido com cuidado. Usava uma capa verde e um colar com um cristal em forma de gota. A garota das estrelas trazia outro igual.
 
 — Obrigada — a menina viu os irmãos, e se aproximou — Ei, oi. Eu sou a Eshley, e esta é a Maria — disse a primeira, já sorrindo para os irmãos. 
 
@@ -226,13 +226,13 @@ O sorriso de Banjo sumiu. Breno deu um passo para perto dele, mas Bruno responde
 
 — Pare de bancar o durão, Erick — disse uma garota de rabo de cavalo ruivo-dourado e cacheado, sardas e olhos azul-esverdeados. Ela se colocou ao lado de Beatriz. — Ele e o Nicolas apanharam do Ferris no último treino. Sou a Shirley, aliás.
 
-Erick fechou a cara. Nicolas o puxou pelo braço, sem tirar os olhos de Bruno, e os dois se afastaram. Eshley soltou o ar pelo nariz; Shirley deu de ombros, como se aquela cena já fosse conhecida. Mais ao fundo, uma garota de postura elegante observava o salão sozinha. Bruno percebeu que ela também tinha visto a discussão, mas ela desviou o olhar antes que ele pudesse sustentar o seu.
+Erick fechou a cara. Nicolas o puxou pelo braço, sem tirar os olhos de Bruno, e os dois se afastaram. Eshley soltou o ar pelo nariz. Shirley deu de ombros, como se aquela cena já fosse conhecida. Mais ao fundo, uma garota de postura elegante observava o salão sozinha. Bruno percebeu que ela também tinha acompanhado a discussão. Seus olhares se encontraram por um instante, mas a garota logo desviou o rosto.
 
 Passos firmes ecoaram pelo salão. A porta principal se abriu e um homem alto, de manto com detalhes dourados, entrou. Os murmúrios morreram.
 
 — Garmande Koraveli — sussurrou alguém.
 
-— Aos que chegam pela primeira vez, sejam bem-vindos. Aos que voltaram para mais um ciclo, é bom vê-los de novo — disse Garmande, deixando o olhar percorrer o salão. — Vocês não vieram para uma sala de aula comum. Cada tutor acompanhará um grupo pequeno e exigirá que vocês descubram tanto o que fazem bem quanto o que ainda precisam aprender. Vão treinar lado a lado, mas nem todos enfrentarão a mesma etapa. Os novos dimensais terão três desafios de integração. Se os concluírem, poderão permanecer em Belfex. Quem já passou por eles seguirá adiante, sem repeti-los; os jovens nascidos aqui também terão seus próprios desafios para avançar. Nas próximas semanas, seus tutores os prepararão. Quero ver do que cada um é capaz.
+— Aos que chegam pela primeira vez, sejam bem-vindos. Aos que voltaram para mais um ciclo, é bom vê-los de novo — disse Garmande, deixando o olhar percorrer o salão. — Vocês não vieram para uma sala de aula comum. Cada tutor acompanhará um grupo pequeno e exigirá que vocês descubram tanto o que fazem bem quanto o que ainda precisam aprender. Vão treinar lado a lado, mas nem todos enfrentarão a mesma etapa. Os novos dimensais terão três desafios de integração. Se os concluírem, poderão permanecer em Belfex. Quem já passou por eles seguirá adiante, sem repeti-los. Os jovens nascidos aqui também terão seus próprios desafios para avançar. Nas próximas semanas, seus tutores os prepararão. Quero ver do que cada um é capaz.
 
 Um segundo homem entrou no salão. Era alto e magro, de barba curta, queixo pontudo e manto preto cheio de correntes de prata penduradas nas mangas. Os olhos eram frios e pareciam medir cada pessoa.
 
@@ -276,7 +276,7 @@ Emiris apontou para a tigela de frutas, mudando de assunto. Eshley a empurrou pa
 
 — E passou, não passou?
 
-Maria pegou uma verde. Logo todos tinham escolhido uma. Banjo e Eshley morderam as amarelas quase juntos, e os demais os imitaram. Eshley começou a rir primeiro; Banjo olhou para ela e não conseguiu perguntar do quê, porque já estava rindo também.
+Maria pegou uma verde. Logo todos tinham escolhido uma. Banjo e Eshley morderam as amarelas quase juntos, e os demais os imitaram. Eshley começou a rir primeiro. Banjo olhou para ela e não conseguiu perguntar do quê, porque já estava rindo também.
 
 Beatriz, que mordera uma vermelha, esperou que ele recuperasse o fôlego. Quando Banjo riu de novo, ela empurrou a cadeira para trás, zangada.
 
@@ -310,19 +310,21 @@ Bruno acompanhou com os olhos uma garota de postura elegante que atravessava o t
 
 — Isso quer dizer que o Cachorro também estava por aqui depois do edifício fechar, certo? — observou Emiris.
 
-Bruno olhou para a mesa mais distante. McCroys almoçava sozinho; ninguém se sentava perto dele. Um passarinho de penas azuis pousou no cotovelo do mago. Sem olhar para a ave, McCroys partiu um pedacinho do próprio pão e o deixou sobre a mesa. Então ergueu os olhos e encontrou os de Bruno. Sustentou o olhar por um instante, imóvel. Bruno baixou a cabeça para o prato com a sensação de que o homem tinha ouvido a conversa inteira.
+Bruno olhou para a mesa mais distante. McCroys almoçava sozinho. Ninguém se sentava perto dele. Um passarinho de penas azuis pousou no cotovelo do mago. Sem olhar para a ave, McCroys partiu um pedacinho do próprio pão e o deixou sobre a mesa. Então ergueu os olhos e encontrou os de Bruno. Sustentou o olhar por um instante, imóvel. Bruno baixou a cabeça para o prato com a sensação de que o homem tinha ouvido a conversa inteira.
 
-Depois do almoço, Velho-Sábio os levou a uma galeria acima das salas de treino. Lá embaixo, aprendizes mais adiantados passavam uma fita de água pelo ar, de mão em mão, sem deixar cair uma gota. Um dos jovens guiava a água com facilidade; o seguinte precisava fazer força para mantê-la no ar. — Mesma técnica, afinidades diferentes — explicou Velho-Sábio. — O que é simples para um pode custar meses de treino a outro. A fita se rompeu quando chegou à última garota. Ela enxugou o rosto com a manga, respirou fundo e recomeçou; os outros esperaram por ela.
+Depois do almoço, Velho-Sábio os levou a uma galeria acima das salas de treino. Lá embaixo, aprendizes mais adiantados passavam uma fita de água pelo ar, de mão em mão, sem deixar cair uma gota. Um dos jovens guiava a água com facilidade. O seguinte precisava fazer força para mantê-la no ar.
 
-Banjo se inclinou sobre o parapeito para ver melhor, e Breno o puxou pela gola. Bruno abriu a boca como se fosse comentar alguma coisa, mas a fita voltou a subir e ele ficou olhando. Os irmãos passaram o resto da tarde conhecendo o Edifício Arcano. Quando saíram, o sol já descia entre as torres de Tayo. Pegaram o dassi de volta; dessa vez, Banjo mal teve forças para apontar as criaturas que cruzavam o céu. Desceram perto da casa de Velho-Sábio, onde Átila veio recebê-los à porta, farejando as roupas de cada um.
+— Mesma técnica, afinidades diferentes — explicou Velho-Sábio. — O que é simples para um pode custar meses de treino a outro.
 
-Na volta, Banjo tentou puxar com a mão uma pêra que ficara no outro lado da mesa. Não aconteceu nada. Beatriz quis imitar o gesto e só conseguiu deixar a palma quente; Bruno encostou o dedo na jarra e viu formar-se uma rodinha de geada. Breno olhou os três, depois olhou para a própria mão.
+— Peraí. Afinidade quer dizer que a magia gosta mais de uma pessoa do que de outra? — perguntou Beatriz.
 
-— Se eu atravessar a mesa, vocês me ajudam a sair?
+— Não é bem isso. Quer dizer que algumas coisas são mais fáceis para uns do que para outros.
 
-— Melhor começar pelo guardanapo — disse Bruno.
+Beatriz voltou a olhar para os aprendizes, tentando descobrir qual deles tinha a magia mais teimosa.
 
-Banjo pegou a pêra andando mesmo. Nenhum deles percebeu que, durante a conversa, uma mulher do lado de fora mantinha com a mão erguida uma cesta de compras suspensa para abrir o portão; assim que baixou o braço, a cesta desceu suavemente até o chão.
+A fita se rompeu quando chegou à última garota. Ela enxugou o rosto com a manga, respirou fundo e recomeçou. Os outros esperaram por ela.
+
+Banjo se inclinou sobre o parapeito para ver melhor, e Breno o puxou pela gola. Bruno abriu a boca como se fosse comentar alguma coisa, mas a fita voltou a subir e ele ficou olhando. Os irmãos passaram o resto da tarde conhecendo o Edifício Arcano. Quando saíram, o sol já descia entre as torres de Tayo. Pegaram o dassi de volta. Dessa vez, Banjo mal teve forças para apontar as criaturas que cruzavam o céu. Desceram perto da casa de Velho-Sábio, onde Átila veio recebê-los à porta, farejando as roupas de cada um.
 
 Quando o relógio de estrelas formou os números do jantar no teto da casa, os irmãos chegaram à mesa com os pés doloridos e as cabeças cheias de cores.
 
@@ -351,26 +353,34 @@ responde com a luz que o escuro não consome.
 Há sempre uma janela acesa no caminho:
 ninguém atravessa a noite sozinho."
 
-A melodia deslizou pela sala como uma brisa morna. Breno sentiu os ombros se soltarem. Beatriz fechou os olhos, com um meio sorriso, e abriu devagar os dedos aquecidos. Banjo apoiou o queixo na mesa, hipnotizado; quando uma luz passou perto de sua mão, sentiu um formigamento que permaneceu mesmo depois que ela se afastou. Até Bruno ouvia em silêncio, com os olhos grudados no velho.
+A melodia deslizou pela sala como uma brisa morna. Breno sentiu os ombros relaxarem. Beatriz fechou os olhos, com um meio sorriso, e percebeu que suas mãos estavam ficando quentes. Banjo apoiou o queixo na mesa, encantado com as luzes. Quando uma delas passou perto de seus dedos, sentiu um formigamento na palma. Afastou a mão, mas a sensação continuou. Até Bruno ouvia em silêncio, com os olhos grudados no velho.
 
-Quando a canção acabou, o silêncio caiu como um cobertor. As luzinhas ficaram um tempo paradas no ar e depois subiram, uma a uma, até o teto, onde se encaixaram entre as estrelas.
+Quando a canção terminou, as luzinhas pairaram sobre a mesa por mais alguns instantes. Depois subiram, uma a uma, até o teto, onde se juntaram às estrelas.
 
-Banjo olhou para a palma da mão.
+Banjo abriu a mão diante do rosto.
 
-— De manhã, no espelho, ouvi aquele sussurro. Agora minha mão formigou quando o senhor cantou. O que foi aquilo?
+— De manhã, naquele espelho, ouvi um monte de vozes baixinho. Agora, enquanto o senhor cantava, minha mão começou a formigar. Foi por causa das luzes?
 
-— Eu senti um calor também — disse Beatriz, abrindo os dedos outra vez.
+— A minha ficou quente — acrescentou Beatriz, mostrando a palma. — Igual quando eu estava no coral.
 
-— Foi a magia de vocês — disse Velho-Sábio. — Eu conduzi as luzes, mas não pus esse calor nem esse formigamento em ninguém. A magia já estava aí; o estírio a despertou. Nem sempre ela aparece como um clarão. Às vezes vem como um som, um arrepio, alguma coisa que muda no corpo antes de ganhar forma no mundo.
+Velho-Sábio olhou para as mãos dos dois.
 
-— E como a gente faz isso de novo? — perguntou Banjo.
+— As luzes fui eu que fiz. O que vocês sentiram veio da magia de vocês. Às vezes ela se manifesta antes mesmo de vocês tentarem usá-la.
 
-— Primeiro, aprendendo a reconhecer quando acontece. Depois, a conduzir sem forçar. É natural, mas leva tempo. — Velho-Sábio sorriu e empurrou a cesta de pão para o meio da mesa. — Amanhã começamos. Por hoje, terminem de comer.
+Banjo mexeu os dedos, como se esperasse sentir o formigamento outra vez.
 
-Voltaram a comer. Foi o jantar mais comprido da vida deles, com mais risos do que palavras. Mais tarde, no quarto, Beatriz encostou a testa na janela. Lá fora, a noite de Belfex tinha uma lua só, grande e quase dourada, e a cidade respirava luz.
+— E dá pra fazer acontecer quando a gente quiser?
 
-— Você viu o teto? — cochichou Banjo, deitado de barriga para cima. — As luzinhas da canção ficaram lá.
+— É isso que vamos aprender — respondeu Velho-Sábio. — Primeiro vocês precisam reconhecer essas sensações. Depois, descobrir como controlá-las.
 
-Era verdade. Entre as constelações, quatro estrelas novas brilhavam bem juntinhas, e nenhum dos irmãos as reconhecia de manhã. Breno olhou para elas por um bom tempo. Depois olhou para o rádio do pai na mesinha ao lado da cama. 
+Ele aproximou a cesta de pão de Banjo.
+
+— Mas não esta noite. Comam antes que esfrie.
+
+O jantar continuou entre conversas e risadas. Mais tarde, no quarto, Beatriz encostou a testa na janela. Acima das luzes espalhadas por Tayo, a lua de Belfex parecia imensa, muito maior do que aquela que conhecia da Terra. Naquela noite, tinha um brilho quase dourado.
+
+— Vocês viram o teto? — cochichou Banjo, deitado de barriga para cima. — As luzinhas da canção ficaram lá.
+
+Os irmãos ergueram os olhos. Quatro estrelas novas brilhavam bem juntinhas entre as constelações da casa. Breno observou-as por um bom tempo. Depois olhou para o rádio do pai na mesinha ao lado da cama.
 
 Quando enfim adormeceu, não sonhou com nada.
