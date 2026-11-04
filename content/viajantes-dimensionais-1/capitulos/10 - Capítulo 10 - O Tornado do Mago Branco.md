@@ -185,7 +185,7 @@ Breno cerrou os punhos.
 
 Velho-Sábio sustentou o olhar deles, sem raiva.
 
-— Em Belfex há, sim, um desejo genuíno de acolher os dimensais. Mas toda causa atrai ambições. Os desafios existem em parte para identificar os mais fortes. Aqueles que treinam com vocês e nasceram em Belfex, como Brenda, Ferris, Emiris e Isabelle, destacaram-se nas escolas da cidade e receberam vagas na formação especial. Eles estudaram magia durante anos; aqui, tutores experientes orientam cada pequeno grupo de perto. Alguns de vocês aprendem em semanas o que lhes tomou meses, mas eles conhecem técnicas que vocês ainda nem conseguem tentar. Não são todos os colegas que nasceram aqui: Lucía, por exemplo, também é dimensal. As origens são diferentes; as regras da magia, não. Quem perde continua aqui e volta à escola. Vocês, não. — Ele suspirou. — Não sou eu quem define as regras. Se pudesse, mudaria.
+— Em Belfex há, sim, um desejo genuíno de acolher os dimensais. Mas toda causa atrai ambições. Os desafios existem em parte para identificar os mais fortes. Aqueles que treinam com vocês e nasceram em Belfex, como Brenda, Ferris, Emiris e Isabelle, destacaram-se nas escolas da cidade e receberam vagas na formação especial. Eles estudaram magia durante anos. Aqui, tutores experientes orientam cada pequeno grupo de perto. Alguns de vocês aprendem em semanas o que lhes tomou meses, mas eles conhecem técnicas que vocês ainda nem conseguem tentar. Não são todos os colegas que nasceram aqui: Lucía, por exemplo, também é dimensal. As origens são diferentes. As regras da magia, não. Quem perde continua aqui e volta à escola. Vocês, não. — Ele suspirou. — Não sou eu quem define as regras. Se pudesse, mudaria.
 
 — Mas o que essas provas testam? — perguntou Bruno. — Uma corrida? Um nado? Mal usamos magia.
 
@@ -256,7 +256,7 @@ No andar de cima, no salão de espera, erguia-se no centro uma árvore majestosa
 
 — A Árvore da Vigília — disse Velho-Sábio. — Ela está aqui há séculos e se tornou o símbolo da Vigilância. Reparem nas árvores bordadas nos uniformes. Suas raízes representam o compromisso dos vigilantes com a cidade. É o coração da Central.
 
-Banjo parou, hipnotizado. As folhas balançavam sem vento, e o som delas parecia um sussurro. Ele deu alguns passos, e uma sensação estranha subiu por dentro, nem medo nem curiosidade, algo no meio. Não eram palavras ou pensamentos; era um sentimento vindo da natureza, cálido e difícil de entender. Os dedos formigaram.
+Banjo parou, hipnotizado. As folhas balançavam sem vento, e o som delas parecia um sussurro. Ele deu alguns passos, e uma sensação estranha subiu por dentro, nem medo nem curiosidade, algo no meio. Não eram palavras ou pensamentos. Era um sentimento vindo da natureza, cálido e difícil de entender. Os dedos formigaram.
 
 — Vamos, Banjoca! — chamou Bruno.
 
