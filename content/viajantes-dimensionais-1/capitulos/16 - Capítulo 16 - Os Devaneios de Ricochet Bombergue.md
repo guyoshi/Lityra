@@ -48,7 +48,7 @@ Foi então que uma sombra saltou entre as rochas. Um animal de pelo avermelhado 
 
 — Bruno!
 
-Acima deles, dezenas de aves de peito cor de cobre e asas finas, quase transparentes, deslizavam em círculos, tão próximas umas das outras que o céu parecia atravessado por uma fita ondulante de luz. Banjo chamou Bruno e Breno para olhar; por um instante até Breno esqueceu a pressa. Três das aves baixaram até as rochas, sem bater uma pena. Na ponta de cada asa havia um pequeno leque luminoso que se abria ao mudar de direção. Banjo ficou imóvel para não assustá-las. Uma pousou na rocha, inclinou a cabeça para ele e deixou cair uma pena que demorou tanto a descer que Bruno tentou apanhá-la duas vezes.
+Acima deles, dezenas de aves de peito cor de cobre e asas finas, quase transparentes, deslizavam em círculos, tão próximas umas das outras que o céu parecia atravessado por uma fita ondulante de luz. Banjo chamou Bruno e Breno para olhar. Por um instante até Breno esqueceu a pressa. Três das aves baixaram até as rochas, sem bater uma pena. Na ponta de cada asa havia um pequeno leque luminoso que se abria ao mudar de direção. Banjo ficou imóvel para não assustá-las. Uma pousou na rocha, inclinou a cabeça para ele e deixou cair uma pena que demorou tanto a descer que Bruno tentou apanhá-la duas vezes.
 
 — Auripenas — murmurou Banjo, lembrando o nome que ouvira numa aula. — Elas planam até quando não tem vento.
 
@@ -56,7 +56,7 @@ Acima deles, dezenas de aves de peito cor de cobre e asas finas, quase transpare
 
 Farol saltou do ombro de Banjo, cheirou o ar por onde o veado passara, deu uma volta no próprio rabo, que soltou um rastro de faíscas douradas, e foi na frente, com a cauda erguida como uma bandeira acesa. Nenhum dos três conseguiu discutir. Seguiram o petrisco.
 
-Subiram e desceram colinas durante horas. A língua de Banjo começou a grudar no céu da boca; Bruno tinha os lábios rachados e Breno procurava água entre as pedras, sem encontrar mais que terra úmida. Nem tinham lembrado de levar uma garrafa ao fugir de Tayo. Quando o sol já pendia para o oeste, Bruno parou numa clareira de pedras lisas, cruzou os braços e disse o que estava na cabeça dos três.
+Subiram e desceram colinas durante horas. A língua de Banjo começou a grudar no céu da boca. Bruno tinha os lábios rachados e Breno procurava água entre as pedras, sem encontrar mais que terra úmida. Nem tinham lembrado de levar uma garrafa ao fugir de Tayo. Quando o sol já pendia para o oeste, Bruno parou numa clareira de pedras lisas, cruzou os braços e disse o que estava na cabeça dos três.
 
 — Tem uma coisa que a gente precisa resolver. As gemas.
 
@@ -342,7 +342,7 @@ Tinha cabelos castanhos e desgrenhados, com mechas verdes trançadas ao acaso e 
 
 — E você é...? — perguntou Breno, de braços cruzados.
 
-— Ricochet Bombergue, ao seu dispor! — Ele fez uma reverência que quase o derrubou. Banjo franziu a testa. Havia um jeito de Ricochet arredondar certas vogais que lembrava os filmes franceses que vira na Terra. Como alguém em Belfex poderia falar assim? Não chegou a perguntar; o inventor já estava falando outra vez. — Inventor, colecionador de histórias e degustador oficial de biscoitos. — Estendeu a mão para Breno, mas a recolheu rápido. — Cuidado! Se apertar forte demais, eu posso explodir. Brincadeira! Ou será que não?
+— Ricochet Bombergue, ao seu dispor! — Ele fez uma reverência que quase o derrubou. Banjo franziu a testa. Havia um jeito de Ricochet arredondar certas vogais que lembrava os filmes franceses que vira na Terra. Como alguém em Belfex poderia falar assim? Não chegou a perguntar. O inventor já estava falando outra vez. — Inventor, colecionador de histórias e degustador oficial de biscoitos. — Estendeu a mão para Breno, mas a recolheu rápido. — Cuidado! Se apertar forte demais, eu posso explodir. Brincadeira! Ou será que não?
 
 Gargalhou de cabeça jogada para trás. Indicou três cadeiras que não combinavam entre si: uma alta demais, outra que era um tronco esculpido, outra com rodinhas. Uma bandeja deslizou de uma calha escondida na parede até a mesa, acompanhada pelo ruído de pequenas engrenagens.
 
@@ -538,4 +538,4 @@ Ele encheu dois cantis com filtros de carvão e cristal, mostrou como renovar a 
 
 Banjo parou. Não se lembrava de ter dito o próprio nome. Talvez um dos irmãos tivesse dito, e ele tivesse ouvido sem prestar atenção. Quem sabe.
 
-Ele guardou o saco de biscoitos junto de Farol, que cheirou os biscoitos com enorme interesse, e foi atrás dos irmãos. Breno levava os cantis; Bruno ficou responsável pelo embrulho de frutas. Nenhum deles reclamou da divisão, o que teria surpreendido Velho-Sábio.
+Ele guardou o saco de biscoitos junto de Farol, que cheirou os biscoitos com enorme interesse, e foi atrás dos irmãos. Breno levava os cantis. Bruno ficou responsável pelo embrulho de frutas. Nenhum deles reclamou da divisão, o que teria surpreendido Velho-Sábio.
