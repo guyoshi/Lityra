@@ -96,7 +96,7 @@ Voltaram para casa de dassi. Pelas janelas, viram fitas do festival ainda presas
 
 Ao tirarem as roupas da viagem, Bruno encontrou uma marca de queimadura na barra da capa azul, e Breno largou sobre a cadeira o colete cinza, rasgado no pântano. Tinham saído de Tayo vestidos para uma festa. As peças de Peryth agora pareciam ter vivido uma aventura inteira.
 
-Depois de um banho quente e roupas limpas, os quatro se sentaram à mesa. Havia um banquete simples, e eles comeram como quem não via comida há uma semana. Só Beatriz beliscava devagar, com os olhos longe. Átila, deitado debaixo da cadeira de Banjo, aceitava tudo o que caía. Farol, enroscado na borda do prato de Banjo, tentava furtar migalhas sem deixar o rabo tocar na sopa; Átila o observava com uma paciência desconfiada.
+Depois de um banho quente e roupas limpas, os quatro se sentaram à mesa. Havia um banquete simples, e eles comeram como quem não via comida há uma semana. Só Beatriz beliscava devagar, com os olhos longe. Átila, deitado debaixo da cadeira de Banjo, aceitava tudo o que caía. Farol, enroscado na borda do prato de Banjo, tentava furtar migalhas sem deixar o rabo tocar na sopa. Átila o observava com uma paciência desconfiada.
 
 Velho-Sábio os observava da cabeceira, com um sorriso leve. A barba de três pontas tinha mergulhado na sopa, e ele fingiu que era de propósito.
 
@@ -554,7 +554,7 @@ Tudo era familiar e pequeno. O sofá gasto, a mesa de centro, o barulho dos pás
 
 — Vocês... estão aqui?
 
-Beatriz correu para ele. Frank a abraçou tão depressa que quase perdeu o equilíbrio. Os outros chegaram juntos, e por um momento os cinco ficaram enroscados no meio da sala. Banjo reconheceu o cheiro de café na camisa do tio. Farol espiou pela gola dele e se escondeu de novo. Uma pétala azul se soltou do cabelo de Beatriz e pousou no ombro de Frank, que não percebeu. Bruno riu contra o ombro dele; Breno fechou os olhos e apertou os irmãos um pouco mais. Frank não pediu explicações. Passou a mão pelos cabelos de cada um, como se precisasse ter certeza de que eram reais.
+Beatriz correu para ele. Frank a abraçou tão depressa que quase perdeu o equilíbrio. Os outros chegaram juntos, e por um momento os cinco ficaram enroscados no meio da sala. Banjo reconheceu o cheiro de café na camisa do tio. Farol espiou pela gola dele e se escondeu de novo. Uma pétala azul se soltou do cabelo de Beatriz e pousou no ombro de Frank, que não percebeu. Bruno riu contra o ombro dele. Breno fechou os olhos e apertou os irmãos um pouco mais. Frank não pediu explicações. Passou a mão pelos cabelos de cada um, como se precisasse ter certeza de que eram reais.
 
 Quando enfim os soltou, Breno pousou o rádio do pai na mesa. Frank olhou para o aparelho e depois para os quatro. Banjo tentou sorrir.
 
