@@ -1,4 +1,4 @@
-A semana entre o segundo desafio e o último passou devagar, do jeito esticado de quando todo mundo espera por uma coisa que não sabe nomear. Breno acordava antes do despertador e conferia, sem querer, se os irmãos ainda estavam nas camas. Beatriz treinava as chamas no jardim até o sol sumir. Banjo escrevia num caderno novo o nome de todas as folhas que conversavam com ele, e a lista já passava de trinta. Bruno cantava desafinado um refrão de rock da terceira dimensão enquanto esfregava a gosma da cozinha. O teto, feito de placas naturalmente ressonantes, devolvia a última nota em ecos cada vez mais graves; ele resolveu acompanhar batucando a colher na bancada. Velho-Sábio fingiu não ouvir. Era o máximo de música terrestre que a casa conseguia repetir, e Bruno reclamava da falta de um rádio.
+A semana entre o segundo desafio e o último passou devagar, do jeito esticado de quando todo mundo espera por uma coisa que não sabe nomear. Breno acordava antes do despertador e conferia, sem querer, se os irmãos ainda estavam nas camas. Beatriz treinava as chamas no jardim até o sol sumir. Banjo escrevia num caderno novo o nome de todas as folhas que conversavam com ele, e a lista já passava de trinta. Bruno cantava desafinado um refrão de rock da terceira dimensão enquanto esfregava a gosma da cozinha. O teto, feito de placas naturalmente ressonantes, devolvia a última nota em ecos cada vez mais graves. Ele resolveu acompanhar batucando a colher na bancada. Velho-Sábio fingiu não ouvir. Era o máximo de música terrestre que a casa conseguia repetir, e Bruno reclamava da falta de um rádio.
 
 Num dos dias daquela semana, os quatro saíram sozinhos para comprar o lanche no Largo dos Ponteiros. Velho-Sábio apenas pediu que voltassem antes do jantar. Breno perguntou três vezes aonde iriam; Bruno respondeu que era só uma padaria, e Beatriz lembrou que sabiam perfeitamente voltar para casa.
 
@@ -6,7 +6,7 @@ Pelan lhes vendeu pãezinhos ainda quentes. Banjo se distraiu com uma criatura q
 
 — Bruno! — Ela provou um gole e estreitou os olhos.
 
-Ele examinou o céu com a expressão mais inocente que conseguiu. Banjo riu tão alto que atraiu a atenção de uma senhora, que fazia três laranjas flutuarem até sua sacola enquanto segurava a mão de uma criança.
+Ele examinou o céu com a expressão mais inocente que conseguiu. Banjo riu tão alto que atraiu a atenção de uma senhora, que fazia três fresnos flutuarem até sua sacola enquanto segurava a mão de uma criança.
 
 — Você acha que a cidade vai engolir a gente se parar de vigiar? — Bruno perguntou a Breno.
 
@@ -174,9 +174,9 @@ O salão explodiu. Os senavelitas nativos gritaram, ergueram os punhos, trocaram
 
 Os dimensais se entreolharam, perdidos. Só Lucía, perto de uma das estantes, deu um sorriso curto e satisfeito, como quem acertou uma aposta.
 
-— Gímiga? — sussurrou Beatriz.
+— Gímiga? — Beatriz puxou de leve a manga de Emiris. — Como é que joga? Tem bola? Por que todo mundo tá gritando?
 
-— É um esporte mágico — disse Emiris, de olhos brilhando, e por um instante ele pareceu um garoto qualquer. — Você precisa ver o Turbina jogar.
+— É um esporte mágico — disse Emiris, de olhos brilhando, e por um instante ele pareceu um garoto qualquer. — Calma, já vão explicar. Você precisa ver o Turbina jogar.
 
 Passos firmes ecoaram no salão, e todos se calaram. Entrou um homem de cabelos brancos e bigode grisalho, com um rosto marcado pelo tempo e olhos de falcão. Andava como quem ainda sentia o vento debaixo dos pés.
 
@@ -233,7 +233,7 @@ Ao lado de Banjo sentou-se Shirley, de olhos vidrados, tremendo.
 
 Bruno e Breno ocuparam os dois últimos bancos. Atrás, Velho-Sábio embarcou em outro karto e acenou com a cabeça. Então o carrinho disparou.
 
-A aceleração foi tão súbita que Beatriz soltou um grito e Banjo, uma gargalhada. O mundo se virou num rio de cores. As luzes dos túneis passavam em faixas, e o karto subia, mergulhava, dava voltas por entre os prédios. Por uma abertura entre as torres, viram um trecho de ruas tomadas por letreiros luminosos e pinturas enormes nas paredes; até o começo da noite aquela parte de Tayo parecia preparada para uma festa. Por um trecho, atravessou uma nuvem baixa e saiu do outro lado com a cabeça de toda a cidade a seus pés: telhados de cobre e jardins suspensos, pontes de luz, e o vulcão ao longe fumegando num céu cor de rosa.
+A aceleração foi tão súbita que Beatriz soltou um grito e Banjo, uma gargalhada. O mundo se virou num rio de cores. As luzes dos túneis passavam em faixas, e o karto subia, mergulhava, dava voltas por entre os prédios. Por uma abertura entre as torres, viram um trecho de ruas tomadas por letreiros luminosos e pinturas enormes nas paredes. Até o começo da noite aquela parte de Tayo parecia preparada para uma festa. Por um trecho, atravessou uma nuvem baixa e saiu do outro lado com a cabeça de toda a cidade a seus pés: telhados de cobre e jardins suspensos, pontes de luz, e o vulcão ao longe fumegando num céu cor de rosa.
 
 — Meu estômago ficou lá atrás! — berrou Bruno, agarrado ao assento.
 
@@ -241,7 +241,7 @@ A aceleração foi tão súbita que Beatriz soltou um grito e Banjo, uma gargalh
 
 — SE DANÇAR FOSSE ASSIM, EU TERIA FICADO EM CASA!
 
-O karto entrou por uma abertura num prédio azul, e a luz mudou. Era um pequeno aquário de Tayo, construído ao redor da rede de túbulas. Perto da estação interna, alguns visitantes desembarcavam para explorar os corredores; quem quisesse conhecê-lo precisava chegar por ali. O karto seguiu sem parar, atravessando uma galeria aquática ladeada por reservatórios transparentes; peixes e criaturas marinhas de todas as cores flutuavam dos dois lados num balé lento, com as barrigas iluminadas. Beatriz grudou o rosto no vidro. Uma raia do tamanho de um dassi passou rente ao carrinho e a olhou diretamente com um olho dourado. Breno, que não falara nada até então, sussurrou:
+O karto entrou por uma abertura num prédio azul, e a luz mudou. Era um pequeno aquário de Tayo, construído ao redor da rede de túbulas. Perto da estação interna, alguns visitantes desembarcavam para explorar os corredores. Quem quisesse conhecê-lo precisava chegar por ali. O karto seguiu sem parar, atravessando uma galeria aquática ladeada por reservatórios transparentes. Peixes e criaturas marinhas de todas as cores flutuavam dos dois lados num balé lento, com as barrigas iluminadas. Beatriz grudou o rosto no vidro. Uma raia do tamanho de um dassi passou rente ao carrinho e a olhou diretamente com um olho dourado. Breno, que não falara nada até então, sussurrou:
 
 — Eu poderia morar aqui.
 
