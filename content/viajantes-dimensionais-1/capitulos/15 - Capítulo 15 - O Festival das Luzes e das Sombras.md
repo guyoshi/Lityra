@@ -78,7 +78,13 @@ Banjo estendeu uma caixinha.
 
 Dentro havia uma pulseira de pedrinhas brilhantes que mudavam de cor conforme a luz. Beatriz exclamou que era linda e abraçou o irmão com tanta força que o petrisco, no ombro dele, protestou com um guincho.
 
-Velho-Sábio entregou-lhe um balão luminoso, que flutuava na palma da mão e emitia uma luz quente, como se tivesse um coração.
+Ainda segurando a pulseira, Beatriz ergueu a cabeça.
+
+— Já que eu tenho onze anos, posso escolher o jantar de hoje? Pelo menos hoje!
+
+— Pode — respondeu Velho-Sábio, aproximando-se com outro presente. — Mas primeiro veja isto.
+
+Ele entregou-lhe um balão luminoso, que flutuava na palma da mão e emitia uma luz quente, como se tivesse um coração.
 
 — Em Tayo, é costume soltar balões luminosos com desejos escritos neles. Dizem que levam o desejo até as estrelas, onde ele pode se realizar. — Ele sorriu. — Mas há uma regra: o desejo não se conta a ninguém. Quem conta, vê o balão cair.
 
@@ -541,7 +547,7 @@ Quase chegaram. A poucos metros da abertura, uma energia invisível os atingiu, 
 
 — ANDEM LOGO!
 
-Os três saltaram. Durante a queda, Bruno estendeu as mãos e conjurou uma rampa de gelo que se formou no ar como um escorregador reluzente. Deslizaram por ela, aos berros, enquanto o dassi capotava no chão atrás deles, soltando faíscas. Aterrissaram de bunda no chão frio de pedras lisas, inteiros e doloridos.
+Os três saltaram. Durante a queda, Bruno estendeu as mãos, retirou o calor da humidade ao redor e fez o gelo crescer numa rampa inclinada, brilhante como um escorregador. Deslizaram por ela, aos berros, enquanto o dassi capotava no chão atrás deles, soltando faíscas. Aterrissaram de bunda no chão frio de pedras lisas, inteiros e doloridos.
 
 — Vamos pro portão... — disse Breno, ofegante, tentando se levantar.
 
@@ -599,6 +605,6 @@ Breno ergueu a cabeça de repente e enxugou as lágrimas com raiva. Quando o cam
 
 — O quê?! — perguntou Bruno, mas Banjo já se agarrava ao irmão mais velho.
 
-Com um grito de esforço, Breno ativou o poder. A intangibilidade envolveu os três como um véu prateado, e eles começaram a atravessar a enorme porta fechada. O primeiro contato com a porta devolveu solidez aos dedos de Bruno, que bateu no metal. Breno teve de recomeçar, respirando como no exercício da tábua, e manter os irmãos agarrados a ele sem deixar que um deles perdesse o contato. Nunca havia sustentado duas pessoas; o mundo em volta tremia e o cansaço lhe obscurecia a visão. Era um esforço colossal para Breno, que nunca tentara nada daquela escala. Viu Velho-Sábio agitar o bastão, tarde demais. Atravessaram a parede metálica, correram na direção oposta à cidade e, em segundos, estavam do outro lado.
+Com um grito de esforço, Breno ativou o poder. A intangibilidade envolveu os três como um véu prateado, e eles começaram a atravessar a enorme porta fechada. O primeiro contato com a porta devolveu solidez aos dedos de Bruno, que bateu no metal. Breno teve de recomeçar, respirando como no exercício da tábua, e manter os irmãos agarrados a ele sem deixar que um deles perdesse o contato. Nunca havia sustentado duas pessoas. O mundo em volta tremia e o cansaço lhe obscurecia a visão. Era um esforço colossal para Breno, que nunca tentara nada daquela escala. Viu Velho-Sábio agitar o bastão, tarde demais. Atravessaram a parede metálica, correram na direção oposta à cidade e, em segundos, estavam do outro lado.
 
 Mas a gravidade os puxou de uma vez, e começaram a rolar montanha abaixo, com o mundo girando ao redor, a terra fria e úmida manchando as roupas. Quando enfim pararam, estavam deitados num vasto campo de montanhas, fora de Tayo. Os muros da cidade se erguiam, imponentes, atrás deles. Diante, só havia o completo desconhecido.
