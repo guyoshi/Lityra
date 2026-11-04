@@ -24,27 +24,31 @@ O mago assentiu e empurrou uma segunda xícara na direção dele, que já estava
 
 Breno se sentou, segurou a xícara com as duas mãos, e o calor foi subindo pelos braços. Ficaram um tempo em silêncio, ouvindo a chaleira. Velho-Sábio o observava de lado, com o jeito de quem tenta ler sombras num rosto.
 
-— Posso fazer uma pergunta indelicada?
+Velho-Sábio acompanhou por um instante o movimento do polegar de Breno na borda da xícara.
 
-Breno assentiu.
+— Está pensando em casa?
 
-— Como seus pais morreram?
+— Nos meus pais. — Breno respirou fundo. — Contei aos meus colegas como a gente os encontrou. Mas tem uma coisa que não consegui dizer.
 
-O aperto no peito veio de uma vez. Mas era madrugada, a cozinha era quente, e a pergunta tinha sido feita com tanto cuidado que Breno percebeu que podia responder.
+Velho-Sábio esperou.
 
-— Eu não sei direito — começou, olhando o chá. — Naquela noite eles disseram que iam dar uma volta. Faziam isso de vez em quando. Minha mãe estava sorrindo, como sempre. Meu pai olhou pra mim e pediu pra eu cuidar dos meus irmãos. Eu brinquei. Disse que eles sabiam se cuidar e que não precisavam de mim. — Ele riu sem humor. — Minha mãe riu e me deu um abraço. Foi o último.
+— Naquela noite eles saíram pra dar uma volta. Minha mãe estava sorrindo. Meu pai me pediu pra cuidar dos meus irmãos, e eu brinquei que eles já sabiam se cuidar sozinhos. — Breno baixou os olhos para o chá. — Minha mãe riu e me deu um abraço. Foi o último.
 
-A xícara tremeu um pouco. Velho-Sábio esperou.
+A xícara tremeu entre seus dedos. Ele a pousou na mesa.
 
-— Eles não voltaram. O Bruno me acordou de madrugada, dizendo que tinha algo errado. Pela janela eu vi luzes vermelhas e azuis na nossa rua. Quando abri a porta, havia dois corpos cobertos, em macas. Eram eles. Os policiais disseram que foi infarto, um logo depois do outro, na porta de casa. Ninguém entendeu. — Ele engoliu em seco. — Eu não deixei o Banjo e a Beatriz saírem do quarto. Mas eles souberam. E eu vi como eles choraram. Aquilo acabou comigo.
+— Quando o Bruno me acordou, eu ainda achei que eles iam voltar. Depois vi as luzes da polícia pela janela. Não deixei Banjo e Beatriz descerem com a gente, mas logo eles souberam. Às vezes ainda ouço os dois chorando.
 
-As lágrimas vieram sem pedir licença. Velho-Sábio deixou que viessem. Pousou uma mão firme no ombro dele.
+Breno passou a mão pelo rosto, tentando conter as lágrimas. Velho-Sábio pousou a mão em seu ombro e ficou ali, sem apressá-lo.
 
-— Sinto muito, Breno. É mais do que qualquer um deveria carregar sozinho. Mas seus pais ficariam orgulhosos de quem vocês são. Sabe que força é essa que eu vejo em você? — Breno negou. — São seus irmãos. É por eles que você anda.
+— O tio Frank fez o que podia — disse Breno, depois de um tempo. — Só que eu era o mais velho. Meu pai tinha pedido...
 
-Breno sorriu, um sorriso molhado e torto.
+A frase morreu antes do fim. Velho-Sábio apertou de leve seu ombro.
 
-— Obrigado, Velho-Sábio.
+— Gostaria que eles vissem Belfex — murmurou Breno.
+
+— Acho que teriam gostado — respondeu o velho.
+
+Breno tentou sorrir e enxugou o rosto com a manga.
 
 — Termine o chá. Ele ajuda a dormir.
 
@@ -185,7 +189,7 @@ Eles se aproximaram do dassi preto, e Erick lançou uma saraivada de bolas de fo
 
 — Não — sussurrou Beatriz.
 
-Ela esticou as mãos para o vidro. Sentiu o calor responder, aquele estalo de brasa que já conhecia, e o cheiro de pão queimado encheu a cabine. Tentou empurrar as bolas de fogo para longe, mas não sabia como segurar algo que não criara. Uma chama pequena escapou de sua palma e se juntou à primeira explosão, que se abriu de lado, iluminando a pista. As demais bateram na turbulência quente, se espalharam pela frente do dassi preto e obrigaram os gêmeos a desviar às cegas. Beatriz recolheu as mãos, assustada: não comandara o fogo dos outros; apenas o atrapalhara, e nem isso sabia repetir.
+Ela esticou as mãos para o vidro. Sentiu o calor responder, aquele estalo de brasa que já conhecia, e o cheiro de pão queimado encheu a cabine. Tentou empurrar as bolas de fogo para longe, mas não sabia como segurar algo que não criara. Uma chama pequena escapou de sua palma e se juntou à primeira explosão, que se abriu de lado, iluminando a pista. As demais bateram na turbulência quente, se espalharam pela frente do dassi preto e obrigaram os gêmeos a desviar às cegas. Beatriz recolheu as mãos, assustada: não comandara o fogo dos outros. Apenas o atrapalhara, e nem isso sabia repetir.
 
 O dassi preto girou descontrolado, e os gêmeos perderam o rumo. O vermelho passou voando, e o dassi branco de Brenda, que tentava desviar das chamas espalhadas sobre a pista, derrapou, rodou e ficou para trás, soltando fumaça.
 
@@ -242,7 +246,7 @@ No refeitório, a empolgação ainda corria solta. Eshley e Maria vieram com os 
 
 — Eu avisei — disse Denis, aparecendo com uma bandeja e puxando uma cadeira sem pedir. — Mas o melhor vocês não sabem. Agora há pouco vi o pai do Emiris no corredor, aquele de uniforme da Vigilância, falando com o Garmande em voz baixa. Saiu de lá com uma cara de pedra. Eu acho que...
 
-— Denis — cortou Eshley.
+— Cachorro — cortou Eshley.
 
 — Eu só estou dizendo!
 
