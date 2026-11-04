@@ -34,7 +34,7 @@ Quando se alinharam no campo, o Fulgor Dourado de verde e o Garras de Ferro de a
 
 — Que a partida comece! — gritou Aradon, erguendo o bastão.
 
-Uma barreira de luz se fechou em volta das Zonas de Coleta, e as Marqes brilharam lá dentro como estrelas presas num redemoinho. Emiris e Tessara tomaram suas posições, atentos. Tessara pressionou as palmas contra a borda da Zona de Arremesso e fez a placa de apoio firmar-se, preparada para suportar os saltos do time; aquele era o tipo de ancoragem em que confiava. Cinquenta espectadores bateram palmas sobre as arquibancadas flutuantes. Na lateral do campo, Garien, o vigilante das balas de mel, aplaudia com educação; mas, quando Emiris entrou em campo, as palmas dele ficaram um pouco mais fortes, como as de um tio coruja. Velho-Sábio, Garmande, Tango e Lioro ocupavam a primeira fileira, e Beatriz achou o rosto do mago entre todos, calmo demais para quem acompanhava uma partida. Mais acima, McCroys continuava sozinho, com um espaço vazio de cada lado. Perto dele, dois aprendizes da escola de Tayo seguravam uma faixa de TURBINA e discutiam, em voz alta, quem tinha mais chance entre os dezoito.
+Uma barreira de luz se fechou em volta das Zonas de Coleta, e as Marqes brilharam lá dentro como estrelas presas num redemoinho. Emiris e Tessara tomaram suas posições, atentos. Tessara pressionou as palmas contra a borda da Zona de Arremesso e fez a placa de apoio firmar-se, preparada para suportar os saltos do time. Aquele era o tipo de ancoragem em que confiava. Cinquenta espectadores bateram palmas sobre as arquibancadas flutuantes. Na lateral do campo, Garien, o vigilante das balas de mel, aplaudia com educação. Mas, quando Emiris entrou em campo, as palmas dele ficaram um pouco mais fortes, como as de um tio coruja. Velho-Sábio, Garmande, Tango e Lioro ocupavam a primeira fileira, e Beatriz achou o rosto do mago entre todos, calmo demais para quem acompanhava uma partida. Mais acima, McCroys continuava sozinho, com um espaço vazio de cada lado. Perto dele, dois aprendizes da escola de Tayo seguravam uma faixa de TURBINA e discutiam, em voz alta, quem tinha mais chance entre os dezoito.
 
 A primeira esfera azul acendeu quase antes que o som parasse.
 
@@ -73,7 +73,7 @@ Breno, decidido a surpreender Denis na Zona de Arremesso, saltou para o pilar do
 
 — Isso é trapaça! — guinchou. — Amanhã a cidade inteira vai saber!
 
-Mas Ferris surgiu como uma sombra e lançou uma descarga elétrica curta contra Breno. Era uma técnica secundária que ele aprendera com muito treino, diferente dos deslocamentos luminosos que lhe vinham naturalmente. A carga percorreu o metal de seu corpo e o fez perder o apoio; a rede de segurança o devolveu dois pilares atrás, de barriga para baixo.
+Mas Ferris surgiu como uma sombra e lançou uma descarga elétrica curta contra Breno. Era uma técnica secundária que ele aprendera com muito treino, diferente dos deslocamentos luminosos que lhe vinham naturalmente. A carga percorreu o metal de seu corpo e o fez perder o apoio. A rede de segurança o devolveu dois pilares atrás, de barriga para baixo.
 
 — Valeu, Ferris — disse Denis.
 
@@ -181,11 +181,11 @@ O Garras de Ferro reagiu com tudo o que restava. Isabelle ergueu uma tempestade 
 
 — Falta! — ecoou a voz de Aradon.
 
-Todo o Garras de Ferro congelou por cinco segundos.
+Os marcadores de penalização nas bordas do campo acenderam. Por cinco segundos, os apoios móveis sob o Garras de Ferro ficaram travados, impedindo os jogadores de avançar. Era uma punição do estádio, não uma magia lançada sobre os corpos deles.
 
 — Agora, Bea! — gritou Breno.
 
-Beatriz pegou a Marqe que as meninas tinham perdido e correu com Banjo logo atrás, aproveitando cada segundo do congelamento. Quando o feitiço soltou o Garras de Ferro, Brenda foi a primeira a reagir e lançou uma onda de água que quase a derrubou, mas Breno se jogou na frente e absorveu o golpe como uma muralha, com um som de sino. Bruno deslizou pelo chão e congelou os pés de Brenda.
+Beatriz pegou a Marqe que as meninas tinham perdido e correu com Banjo logo atrás, aproveitando cada segundo do congelamento. Quando a penalização terminou e os apoios voltaram a mover-se, Brenda foi a primeira a reagir e lançou uma onda de água que quase a derrubou, mas Breno se jogou na frente e absorveu o golpe como uma muralha, com um som de sino. Bruno deslizou pelo chão e congelou os pés de Brenda.
 
 — Desculpa, gata — disse ele, e sorriu de um jeito que quase parecia sincero.
 
