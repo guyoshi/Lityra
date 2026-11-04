@@ -8,6 +8,9 @@
 .sync-option small{color:var(--ink-soft);}
 .sync-run{min-height:46px;cursor:pointer;}
 .sync-run:disabled{opacity:.55;cursor:wait;}
+.sync-publish{display:inline-flex;align-items:center;justify-content:center;min-height:42px;text-align:center;text-decoration:none!important;font-weight:600;}
+.sync-last-update{display:block;margin:-6px 0 0;color:var(--ink-soft);font-size:.7rem;line-height:1.5;font-variant-numeric:tabular-nums;}
+.sync-link-note{font-size:.76rem;}
 .sync-status{margin:0;padding:12px;border:1px solid var(--line);border-radius:12px;background:var(--bg-elev);font-size:.83rem;line-height:1.5;}
 .sync-results{border:1px solid var(--line);border-radius:12px;padding:12px;font-size:.83rem;overflow-wrap:anywhere;}
 .sync-results[hidden]{display:none;}
