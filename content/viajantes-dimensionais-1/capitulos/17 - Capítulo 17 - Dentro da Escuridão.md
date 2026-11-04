@@ -1,6 +1,6 @@
 Os irmãos seguiram o rio Tidan durante toda a tarde, guiados pelo som manso da água. O sol afundou atrás das colinas, pintando o céu de laranja e roxo, e o caminho foi ficando mais irregular, com pedras escorregadias e vegetação rasteira que agarrava os tornozelos. Ninguém falava. Ricochet dissera que o silêncio seria o melhor amigo deles, e até Bruno, por uma vez, resolveu obedecer.
 
-Numa curva mais aberta do rio, pararam para dividir os biscoitos de Ricochet e beber dos cantis. Breno racionou a comida; Banjo protestou que três biscoitos não alimentavam nem Farol, mas comeu os seus sem deixar uma migalha. Bruno guardou o último para depois, sob o olhar desconsolado do irmão.
+Numa curva mais aberta do rio, pararam para dividir os biscoitos de Ricochet e beber dos cantis. Breno racionou a comida. Banjo protestou que três biscoitos não alimentavam nem Farol, mas comeu os seus sem deixar uma migalha. Bruno guardou o último para depois, sob o olhar desconsolado do irmão.
 
 Alguma coisa estalou perto da bota de Bruno. Era um animalzinho do tamanho de um coelho, coberto de pelo lilás-claro, com orelhas em forma de leque e bigodes que brilhavam em pequenos pontos azuis. Tinha uma cauda comprida, enrolada como uma interrogação. Sentado numa pedra, observava Bruno com uma expressão descaradamente satisfeita.
 
@@ -40,7 +40,7 @@ A Floresta de Elthenor começou de repente, como uma parede. As árvores eram al
 
 — A gente dorme aqui — decidiu Breno, parando junto ao rio. — Sem fogueira. O Ricochet disse para não chamar atenção.
 
-Reabasteceram os cantis na água corrente de uma nascente entre pedras, usando os filtros que Ricochet lhes dera e esperando o tempo indicado antes de beber. Breno conferiu a vedação duas vezes; mesmo com o filtro, preferia não arriscar água parada do pântano. Comeram o que restava de algumas frutas secas; Banjo ficou olhando o embrulho vazio por tanto tempo que Bruno lhe entregou metade da sua parte sem fazer comentário. A caminhada e a sede tinham deixado os três irritadiços e lentos.
+Reabasteceram os cantis na água corrente de uma nascente entre pedras, usando os filtros que Ricochet lhes dera e esperando o tempo indicado antes de beber. Breno conferiu a vedação duas vezes. Mesmo com o filtro, preferia não arriscar água parada do pântano. Comeram o que restava de algumas frutas secas. Banjo ficou olhando o embrulho vazio por tanto tempo que Bruno lhe entregou metade da sua parte sem fazer comentário. A caminhada e a sede tinham deixado os três irritadiços e lentos.
 
 — Dormir escondido, ele disse — resmungou Bruno, deitando-se de lado entre duas raízes. — Isso aqui não é exatamente escondido. É uma floresta de filme de terror.
 
@@ -48,7 +48,7 @@ Reabasteceram os cantis na água corrente de uma nascente entre pedras, usando o
 
 — Eu estou tentando. A floresta é que não colabora.
 
-Antes de dormir, quando Bruno e Breno já não prestavam atenção nele, Banjo experimentou mover uma pedrinha sem usar as mãos. Ela subiu dois dedos, caiu, depois subiu de novo. Tentou uma folha, um graveto, duas pedras juntas. A segunda pedra bateu na primeira e fez barulho; ele congelou, esperando uma bronca que não veio. Sozinho, podia repetir quantas vezes quisesse sem a preocupação de fazer bonito diante de ninguém. Sorriu para a pequena pedra suspensa e a devolveu ao chão com cuidado.
+Antes de dormir, quando Bruno e Breno já não prestavam atenção nele, Banjo experimentou mover uma pedrinha sem usar as mãos. Ela subiu dois dedos, caiu, depois subiu de novo. Tentou uma folha, um graveto, duas pedras juntas. A segunda pedra bateu na primeira e fez barulho. Ele congelou, esperando uma bronca que não veio. Sozinho, podia repetir quantas vezes quisesse sem a preocupação de fazer bonito diante de ninguém. Sorriu para a pequena pedra suspensa e a devolveu ao chão com cuidado.
 
 Em poucos minutos, os dois mais velhos dormiam. Banjo não conseguia. Farol, aninhado no colarinho dele, estava inquieto, com as orelhas enormes viradas para trás e a cauda apagada. Era a primeira vez que Banjo via o petrisco sem brilho nenhum. Ele não gostava daquele sinal.
 
@@ -154,7 +154,7 @@ Entraram agachados, a entrada estreita engolindo as sombras deles. Lá fora, pas
 
 — E a gente não sai — respondeu Breno.
 
-Recuaram para dentro. O petrisco voltou a se acender, aos poucos, iluminando apenas a faixa de pedras imediatamente à frente deles; tudo além de alguns passos continuava negro. Banjo o ergueu com cuidado, e a cauda revelou a parede úmida e uma passagem estreita que antes não tinham visto. A temperatura despencou. O som do rio sumiu, trocado por um silêncio denso.
+Recuaram para dentro. O petrisco voltou a se acender, aos poucos, iluminando apenas a faixa de pedras imediatamente à frente deles. Tudo além de alguns passos continuava negro. Banjo o ergueu com cuidado, e a cauda revelou a parede úmida e uma passagem estreita que antes não tinham visto. A temperatura despencou. O som do rio sumiu, trocado por um silêncio denso.
 
 — A gente espera aqui até o amanhecer — disse Breno, sentando numa pedra plana.
 
@@ -234,7 +234,7 @@ Farol soltou uma faísca bem pequena, de aviso, e Faka deu um pulinho para trás
 
 Banjo forçou um sorriso. Alguém costumava chamá-lo daquele jeito, e ouvir isso de uma aranha foi estranho e, por algum motivo, um pouco bom. Ajeitou Farol no ombro e seguiu Faka, rezando para que ela fosse aliada, e não só mais uma armadilha na caverna.
 
-O corredor era úmido e cheirava a teia, um cheiro metálico e doce. Quando Faka se adiantava demais, Banjo precisava erguer Farol para reencontrar as patas dela entre as sombras; longe dos poucos cogumelos luminosos, a caverna permanecia inteiramente escura. Gotas pingavam das estalactites num ritmo constante, e a cada curva apareciam mais fios prateados, formando cortinas que tremiam ao menor ar. Cogumelos de um verde-azulado brilhavam entre as pedras. Faka ia na frente, saltitando, e a luz de Farol arrancava reflexos de cada fio.
+O corredor era úmido e cheirava a teia, um cheiro metálico e doce. Quando Faka se adiantava demais, Banjo precisava erguer Farol para reencontrar as patas dela entre as sombras. Longe dos poucos cogumelos luminosos, a caverna permanecia inteiramente escura. Gotas pingavam das estalactites num ritmo constante, e a cada curva apareciam mais fios prateados, formando cortinas que tremiam ao menor ar. Cogumelos de um verde-azulado brilhavam entre as pedras. Faka ia na frente, saltitando, e a luz de Farol arrancava reflexos de cada fio.
 
 — Estamos quase — disse ela, baixando a voz. — Seja respeitoso.
 
