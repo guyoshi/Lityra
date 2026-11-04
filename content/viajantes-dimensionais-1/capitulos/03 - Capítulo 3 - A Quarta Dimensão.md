@@ -1,6 +1,6 @@
 A música cresceu.
 
-Começou no rádio, pequena e familiar. Então vieram sons que nenhum instrumento parecia fazer, e o quarto perdeu as bordas. Os irmãos subiam de mãos dadas, embora já não houvesse cima. Num lampejo, viram uma cidade cujas casas mostravam por fora todos os cômodos fechados; no seguinte, criaturas luminosas nadavam num mar suspenso no escuro. Houve um lugar sem luz, atravessado por vozes de cores diferentes. Cada mundo sumia antes que conseguissem entender o que viam. Seus corpos pareceram se esticar em direções que não conheciam. Beatriz apertou a mão de Breno. Uma película fria se rompeu diante deles com um estalo de sino, e a música desapareceu.
+Começou no rádio, pequena e familiar. Então vieram sons que nenhum instrumento parecia fazer, e o quarto perdeu as bordas. Os irmãos subiam de mãos dadas, embora já não houvesse cima. Num lampejo, viram uma cidade cujas casas mostravam por fora todos os cômodos fechados. No seguinte, criaturas luminosas nadavam num mar suspenso no escuro. Houve um lugar sem luz, atravessado por vozes de cores diferentes. Cada mundo sumia antes que conseguissem entender o que viam. Seus corpos pareceram se esticar em direções que não conheciam. Beatriz apertou a mão de Breno. Uma película fria se rompeu diante deles com um estalo de sino, e a música desapareceu.
 
 E então o peso voltou aos pés. Eles estavam de pé.
 
@@ -112,7 +112,7 @@ Erla fez um som seco e se voltou para os irmãos.
 
 — Venham. Posição para o teste.
 
-Erla apoiou a ponta do cajado no chão e permaneceu imóvel, os olhos fixos nos quatro. A luz esverdeada cresceu ao ritmo de sua respiração e envolveu os irmãos; quando ela afastou a mão, o brilho vacilou, e Erla voltou a firmá-la. Banjo sentiu o suor na nuca e uma coceira nas mãos.
+Erla apoiou a ponta do cajado no chão e permaneceu imóvel, os olhos fixos nos quatro. A luz esverdeada cresceu ao ritmo de sua respiração e envolveu os irmãos. Quando ela afastou a mão, o brilho vacilou, e Erla voltou a firmá-la. Banjo sentiu o suor na nuca e uma coceira nas mãos.
 
 Quando abriu os olhos, estava sozinho num campo vasto, com a grama alta ondulando e um céu dourado quase irreal. Ouviu um choro abafado e encontrou um coelho preso numa armadilha de corda, tremendo. Ajoelhou-se e tentou soltá-lo, mas seus dedos escorregavam, e o nó apertava mais. O céu foi escurecendo, e uma sombra se levantou atrás dele.
 
@@ -142,7 +142,7 @@ Banjo ergueu o rosto. Pela primeira vez, ele sorriu um pouco.
 
 O velho assentiu, sorrindo, e fez sinal para que os garotos o seguissem.
 
-De volta ao salão sob a cúpula, Banjo tentava esquecer o campo escuro. Um homem passou por eles com os braços cheios de caixas. Ergueu dois dedos, e as caixas saíram de suas mãos, empilharam-se no ar e seguiram atrás dele. Ninguém ao redor pareceu achar estranho. Banjo parou para olhar; quando voltou a andar, já pensava nas caixas, não no coelho.
+De volta ao salão sob a cúpula, Banjo tentava esquecer o campo escuro. Um homem passou por eles com os braços cheios de caixas. Ergueu dois dedos, e as caixas saíram de suas mãos, empilharam-se no ar e seguiram atrás dele. Ninguém ao redor pareceu achar estranho. Banjo parou para olhar. Quando voltou a andar, já pensava nas caixas, não no coelho.
 
 No centro do salão, um caminho de luz subia quase na vertical até o alto da cúpula. Velho-Sábio entrou nele e chamou os irmãos. Banjo agarrou o braço de Bruno no primeiro passo. No segundo, o chão do salão já parecia uma parede atrás deles, mas seus pés continuavam firmes. Subiram entre tubos de plasma e pessoas que desciam na direção contrária, algumas de ponta-cabeça em relação a eles. Lá no alto, as placas de vidro da cúpula se apartaram diante deles. O caminho prosseguia do lado de fora. O vento tocou o rosto de Beatriz, e ela viu a cidade.
 
@@ -186,7 +186,7 @@ Velho-Sábio olhou para a cidade lá embaixo.
 
 — Quando chegarmos, eu respondo. Por enquanto, só olhem.
 
-E eles olharam. A cúpula da Central diminuiu atrás deles. As torres de Tayo passaram à altura dos olhos e depois ficaram abaixo de seus pés; entre elas, dassis de todas as cores deslizavam por ruas invisíveis. Por baixo de uma curva do trajeto, viram um parque com caminhos entre árvores imensas, uma rua cheia de letreiros coloridos e, mais longe, as três torres que haviam avistado da Central. Os veículos não precisavam de piloto: cada dassi seguia sua rota, desviando dos outros com uma segurança que, para Bruno, continuava parecendo uma péssima ideia. Acima, as nuvens tinham as bordas violetas do fim do dia. Um bando de pássaros de asas translúcidas cruzou a frente do veículo, tão perto que Banjo viu o céu através das penas. Um deles acompanhou o dassi por alguns instantes e virou a cabeça para espiá-lo.
+E eles olharam. A cúpula da Central diminuiu atrás deles. As torres de Tayo passaram à altura dos olhos e depois ficaram abaixo de seus pés. Entre elas, dassis de todas as cores deslizavam por ruas invisíveis. Por baixo de uma curva do trajeto, viram um parque com caminhos entre árvores imensas, uma rua cheia de letreiros coloridos e, mais longe, as três torres que haviam avistado da Central. Os veículos não precisavam de piloto: cada dassi seguia sua rota, desviando dos outros com uma segurança que, para Bruno, continuava parecendo uma péssima ideia. Acima, as nuvens tinham as bordas violetas do fim do dia. Um bando de pássaros de asas translúcidas cruzou a frente do veículo, tão perto que Banjo viu o céu através das penas. Um deles acompanhou o dassi por alguns instantes e virou a cabeça para espiá-lo.
 
 — Olha! Ele está voando com a gente! — Banjo se levantou da plataforma e encostou a mão no casco transparente.
 
@@ -214,7 +214,7 @@ A rua era silenciosa, mas viva em pequenos detalhes. As árvores balançavam sem
 
 — Este distrito se chama Brisália — contou Velho-Sábio. — Minha casa fica aqui há bastante tempo.
 
-Banjo olhou até o fim da rua, onde duas pessoas passavam com cestos e cumprimentavam o mago. Entre os telhados, uma faixa de água refletia as últimas luzes da tarde.
+Banjo olhou até o fim da rua, onde duas pessoas passavam com cestos e cumprimentavam Velho-Sábio. Entre os telhados, uma faixa de água refletia as últimas luzes da tarde.
 
 — Tem um rio ali?
 
@@ -238,9 +238,27 @@ O jardim era um espetáculo próprio. Plantinhas saltitavam no chão como se dan
 
 — Que orelhas grandes! — disse Beatriz.
 
-— E que vontade de aprontar — respondeu o velho.
+Banjo coçou o pescoço de Átila, que fechou os olhos, satisfeito.
+
+— Vocês têm cachorros aqui também? — perguntou. — Achei que os bichos seriam todos diferentes.
+
+— Alguns são diferentes, sim — respondeu Velho-Sábio. — Mas há animais que vivem tanto aqui quanto na Terra. E há outros que vocês só vão encontrar em Belfex.
+
+— E tem animais da Terra que não existem aqui? — perguntou Banjo.
+
+— Tem, claro. Os mundos não são cópias um do outro.
+
+Banjo olhou para o cachorro, que agora tentava alcançar a manga de sua roupa com os dentes.
+
+— Ainda bem que pelo menos os cachorros vieram iguais.
+
+— E com a mesma vontade de aprontar — respondeu o velho.
 
 Átila deu a volta no Velho-Sábio e, sem a menor cerimônia, abocanhou a barra do manto dele.
+
+— Se ele gosta tanto de morder roupa, a gente podia dar o casaco do Bruno pra ele — sugeriu Beatriz.
+
+— O meu, não! — Bruno puxou a própria capa para longe do cachorro.
 
 — Átila. Larga — disse Velho-Sábio, sem nem olhar para baixo.
 
@@ -318,7 +336,7 @@ Breno colocou o rádio do pai na mesinha ao lado da cama. Velho-Sábio acompanho
 
 — O que é isso? 
 
-—  Um mago que controla Magia Arcana. 
+— Um senavelita é alguém que usa Magia Arcana. É assim que chamamos os magos de Belfex.
 
 Breno continuava olhando para o rádio.
 
