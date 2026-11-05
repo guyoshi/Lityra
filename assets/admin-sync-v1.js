@@ -5,6 +5,7 @@
   const VERSION_KEY="lityra:asset-cache-version";
   const LAST_REFRESH_KEY="lityra:admin:last-content-refresh";
   const SYNC_STATUS_PATH="data/sync-status.json";
+  const SYNC_REPORT_PATH="data/sync-report.json";
   const admin=()=>!!window.Comments?.isAdmin?.();
   const $=selector=>document.querySelector(selector);
   const safe=value=>String(value??"").replace(/[&<>"']/g,ch=>({"&":"&amp;","<":"&lt;",">":"&gt;",'"':"&quot;","'":"&#39;"}[ch]));
@@ -27,6 +28,7 @@
       +'<label class="sync-option"><input id="adminSyncAuditImages" type="checkbox"> Conferir se cada imagem publicada está acessível <small>(pode consumir dados móveis)</small></label>'
       +'<button id="adminContentSyncRun" class="btn-primary sync-run" type="button">↻ Atualizar conteúdo publicado</button>'
       +'<small id="adminContentSyncDates" class="sync-last-update" aria-live="polite">Consultando última sincronização…</small>'
+      +'<div id="adminContentSyncReport" class="sync-report" role="status" aria-live="polite" hidden></div>'
       +'<a class="btn-ghost sync-publish" href="https://github.com/guyoshi/dimensoesinfinitas/actions/workflows/sync-beta-reader.yml" target="_blank" rel="noopener noreferrer">↗ Iniciar publicação no GitHub</a>'
       +'<p class="sync-description sync-link-note">Por segurança, o GitHub pedirá que confirme <strong>Run workflow</strong> na branch <strong>main</strong>. Depois de publicar, volte aqui e use <strong>Atualizar conteúdo publicado</strong>. O Lityra nunca pede nem guarda seu token.</p>'
       +'<p id="'+STATUS_ID+'" class="sync-status" role="status" aria-live="polite">Nenhuma sincronização executada nesta sessão.</p>'
@@ -55,6 +57,36 @@
   function lastLocalRefresh(){
     try{return formatDate(localStorage.getItem(LAST_REFRESH_KEY));}catch(_){return null;}
   }
+  function issueText(issue){
+    const label=issue?.bookId||issue?.item||"Item";
+    return label+": "+(issue?.message||"Aviso sem detalhes.");
+  }
+  function renderSyncReport(report){
+    const issues=Array.isArray(report?.issues)?report.issues:[];
+    const badge=$("#adminContentSyncAlert");
+    if(badge){
+      badge.hidden=!issues.length;
+      badge.setAttribute("aria-label",issues.length+" aviso(s) na última sincronização");
+      badge.title=issues.length+" aviso(s) na última sincronização";
+    }
+    const box=$("#adminContentSyncReport");
+    if(!box)return;
+    box.hidden=!issues.length;
+    if(!issues.length){box.innerHTML="";return;}
+    const generated=formatDate(report?.generatedAt);
+    box.innerHTML='<details open><summary><strong>! '+issues.length+' aviso(s) na última publicação</strong></summary>'
+      +(generated?'<small>Relatório de '+safe(generated)+'</small>':"")
+      +'<ul>'+issues.map(issue=>'<li><span class="sync-report-area">'+safe(issue?.area||"item")+'</span> '+safe(issueText(issue))+'</li>').join("")+'</ul></details>';
+  }
+  async function refreshSyncReport(){
+    if(!admin())return;
+    try{
+      const response=await fetch(stampUrl(SYNC_REPORT_PATH,Date.now()),{cache:"no-store",credentials:"same-origin"});
+      if(!response.ok)throw new Error("HTTP "+response.status);
+      const report=await response.json();
+      if(admin())renderSyncReport(report);
+    }catch(_){ /* A primeira publicação com relatório pode ainda não ter ocorrido. */ }
+  }
   async function refreshSyncDates(){
     if(!admin())return;
     const el=$("#adminContentSyncDates");
@@ -71,6 +103,7 @@
     if(!admin()||!el.isConnected)return;
     el.textContent="Última publicação: "+(published||"não disponível")
       +" · Atualizado neste aparelho: "+(local||"ainda não");
+    refreshSyncReport();
   }
   function status(value){
     const el=$("#"+STATUS_ID);
@@ -207,5 +240,6 @@
     }
   }
   document.addEventListener("lityra:admin-sync-open",show);
+  document.addEventListener("lityra:admin-home-open",refreshSyncReport);
   document.addEventListener("beta:admin",event=>{if(!event.detail?.on){const sheet=$("#"+SHEET_ID);if(sheet)sheet.hidden=true;}});
 })();
