@@ -119,7 +119,7 @@ Foi assim por horas. Breno atravessou o bloco duas vezes e perdeu três. Bruno t
 
 Velho-Sábio sorriu.
 
-— Esse é o preço. A magia cobra fome, sono e cansaço. Quem a usa sem preparo pode se esgotar de um jeito que não volta. Por isso treinamos.
+— A magia cobra fome, sono e cansaço. Por isso treinamos.
 
 — Mas eu consegui fazer uma torre — comentou Bruno.
 
@@ -127,7 +127,7 @@ Velho-Sábio sorriu.
 
 — E se a gente precisar numa luta? — perguntou Bruno, ainda fingindo que não estava exausto. — Sei lá. Quando não dá pra escolher.
 
-— Por isso treinamos. Quem usa a magia com estratégia dura mais do que quem a usa com força. E ninguém é dono dela. Ela passa por nós. — Ele bateu o cajado no chão, e as quatro paisagens se dobraram uma sobre a outra, como páginas de um livro, até restar uma sala simples com uma mesa posta, uma travessa de bolinhos quentes e quatro copos de leite de amêndoa que borbulhavam. — Comam.
+— Por isso treinamos. Quem usa a magia com estratégia dura mais do que quem a usa com força. — Ele bateu o cajado no chão, e as quatro paisagens se dobraram uma sobre a outra, como páginas de um livro, até restar uma sala simples com uma mesa posta, uma travessa de bolinhos quentes e quatro copos de leite de amêndoa que borbulhavam. — Comam.
 
 Foi o lanche mais silencioso e mais feliz do mundo. Banjo comeu seis bolinhos. Bruno admitiu que sua torre de gelo tinha desmoronado antes de ficar pronta. Beatriz riu pela primeira vez em horas, e a plataforma do vulcão, lá ao fundo, soltou um suspiro quentinho, como um gato satisfeito.
 
@@ -181,7 +181,7 @@ Em casa, Kali acendeu a tela da sala quando os irmãos entraram. As roupas amass
 
 — Eu achei que significava "muito azar" — resmungou Bruno, lembrando da bagunça do treino.
 
-— E como vocês sabem se alguém já domina a própria magia? — perguntou Bruno.
+— E como a gente sabe se já domina a magia? — perguntou Beatriz.
 
 — Pelo que a pessoa consegue fazer quando as coisas não saem como esperava — respondeu Kali. — Por exemplo, Bruno, o seu talento para deixar tudo gelado é impressionante. O de descongelar a própria arrogância ainda está em desenvolvimento.
 
@@ -211,11 +211,11 @@ Breno subiu para o quarto e ficou parado diante da janela, com os punhos fechado
 
 — Ei, irmão. Tá tudo bem? — perguntou Banjo.
 
-— Estou começando a achar que não foi uma boa ideia a gente ter vindo.
+— A mulher da praça nem terminou a história. Calaram ela sem dizer uma palavra.
 
 — Como assim?
 
-— Tem um mago perigoso à solta. Dizem que há décadas. Tem seguidores que fariam qualquer coisa. E nem todo mundo nos quer aqui, Banjo. Somos "dimensais". A qualquer momento alguém pode achar que a gente é culpado de alguma coisa. A gente tá correndo risco.
+— Os vigilantes passaram e todo mundo fechou a janela. Eu não gostei, Banjo. Acho que a gente não devia ter vindo.
 
 — Mas a gente acabou de chegar! — disse Banjo. — E Velho-Sábio cuida da gente.
 

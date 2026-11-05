@@ -2,7 +2,7 @@
 
 O sopro amanhecera cinzento, e a fome mais uma vez arrastava Jokara pela floresta. 
 
-Já conhecia bem aquele pedaço de floresta. Sabia onde as árvores se inclinavam mais, criando sombras que escondiam cogumelos rasteiros; sabia a curva dos troncos maiores, que guardavam ninhos em fendas altas, sempre com dois ou três ovos que ela aprendia a colher sem quebrar. Sabia onde o chão ficava fofo demais e escondia lodo.
+Já conhecia bem aquele pedaço de floresta. Sabia onde as árvores se inclinavam mais, criando sombras que escondiam cogumelos rasteiros. Sabia a curva dos troncos maiores, que guardavam ninhos em fendas altas, sempre com dois ou três ovos que ela aprendia a colher sem quebrar. Sabia onde o chão ficava fofo demais e escondia lodo.
 
 O riacho não ficava longe dali. Jokara filtrava a água com tecidos velhos de Etérea, e o gosto de ferro nunca saía. Tinha uma pedra com musgo onde costumava sentar-se, ao lado de uma raiz exposta em arco que lembrava as passagens de Nivelia.
 
@@ -70,7 +70,7 @@ O homem se aproximou mais da margem, apoiando-se nas mãos. A água escorria pel
 
 — Aqui embaixo tudo cobra rápido. Se não encontramos água, sentimos no mesmo sopro. Se não caçamos, a fome decide por nós. Se entramos numa trilha errada, talvez não haja uma segunda chance. — Sorriu de novo. — Você continua viva. Então já deve ter aprendido algumas coisas também.
 
-— Eu aprendi… muita coisa aqui embaixo — disse Jokara. — Achei… achei que nunca mais ouviria uma voz que não fosse a minha. — A voz dela quebrou; lágrimas escorreram de novo. — Eu não sabia se poderia continuar. Mas agora… agora eu acho que posso.
+— Eu aprendi… muita coisa aqui embaixo — disse Jokara. — Achei… achei que nunca mais ouviria uma voz que não fosse a minha. — A voz dela quebrou. Lágrimas escorreram de novo. — Eu não sabia se poderia continuar. Mas agora… agora eu acho que posso.
 
 Gabasteri inclinou a cabeça e olhou por um instante para a perna ausente da menina.
 

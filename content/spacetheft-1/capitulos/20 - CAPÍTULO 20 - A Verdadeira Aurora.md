@@ -280,7 +280,7 @@ Mas Jelles não iria lutar. Ele recuou e apertou e então correu, apertando um b
 
 O metal do piso se partiu, e uma escotilha se abriu abaixo de mim. O vento sugou o ar da sala, e eu mal tive tempo de saltar para o lado antes de ser jogado para o vazio.
 
-Estava em uma sala escura. Quando as luzes se acenderam, me vi diante de meia dúzia de Dales, que atacaram antes que eu pudesse reagir. Levei vários golpes e derrubei três; os outros me deram trabalho, principalmente o que tinha uma arma de choque. Passei por eles e fugi pelos corredores sob os alarmes. Ao dobrar uma esquina, dei de cara com um garotinho. Era Dock, o garoto a quem eu ensinara alguns golpes de espada um tempo atrás. E, adivinhe… ele carregava uma espada.
+Estava em uma sala escura. Quando as luzes se acenderam, me vi diante de meia dúzia de Dales, que atacaram antes que eu pudesse reagir. Levei vários golpes e derrubei três. Os outros me deram trabalho, principalmente o que tinha uma arma de choque. Passei por eles e fugi pelos corredores sob os alarmes. Ao dobrar uma esquina, dei de cara com um garotinho. Era Dock, o garoto a quem eu ensinara alguns golpes de espada um tempo atrás. E, adivinhe… ele carregava uma espada.
 
 — Olá, garoto. Preciso que saia da minha frente. Não quero te machucar, ok? — perguntei, olhando para o jovem que um dia treinei.
 

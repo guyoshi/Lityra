@@ -127,7 +127,7 @@ Os dassis entraram em Tayo como flechas coloridas. Contornaram torres, mergulhar
 
 — Os Três Mirantes! — gritou Banjo, apontando.
 
-— Banjo, olha pra frente! — Breno puxou os comandos para evitar uma curva fechada.
+— Depois você conta os mirantes, Banjo! — Breno puxou os comandos para evitar uma curva fechada.
 
 À frente, o dassi amarelo de Eshley e Maria ziguezagueava, e uma rajada de gelo bateu na lateral dele, arremessando cristais pela pista.
 
@@ -238,7 +238,7 @@ Bruno olhou feio para ele, e foi quando percebeu, no dedo do homem, um anel negr
 
 No refeitório, a empolgação ainda corria solta. Eshley e Maria vieram com os olhos brilhando.
 
-— Vocês viram quem venceu? — perguntou Beatriz, puxando uma cadeira.
+— Vocês sabem quem era o ruivo que ganhou? — perguntou Beatriz, puxando uma cadeira.
 
 — O Ferris Montfort — disse Eshley. — Um dos doze filhos de Kalev Montfort, o senavelita mais forte vivo.
 

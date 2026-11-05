@@ -62,7 +62,7 @@ Subiram e desceram colinas durante horas. A língua de Banjo começou a grudar n
 
 Breno hesitou, mas abriu o saquinho que Velho-Sábio lhe entregara. Pedras ásperas rolaram para a palma de sua mão, em seis cores: verde, laranja, vermelha, azul, roxa e amarela. E havia mais de uma de cada.
 
-— Quinze — contou ele. — Três verdes, três laranjas, três vermelhas, duas azuis, duas roxas e duas amarelas. Cada cor tem uma função, e Velho-Sábio disse que a gente descobre testando. Mas aposto que cada pedra só funciona uma vez.
+— Quinze, de seis cores — contou ele. — Cada cor tem uma função, e Velho-Sábio disse que a gente descobre testando. Mas aposto que cada pedra só funciona uma vez.
 
 — E se uma for exatamente o que a gente precisa, e a gente não souber? — insistiu Bruno. — Eu não quero descobrir o que uma pedra faz no meio de uma emergência.
 
@@ -122,7 +122,7 @@ Como se tivesse ouvido, a criatura se desfez, de repente, deixando só uma onda 
 
 — Eu sei muito bem — disse Banjo, olhando para o céu. — Subi uns quinze metros.
 
-— As outras ficam fechadas até não haver outra saída — continuou Breno. — E aí a gente descobre na hora, com o risco que isso tiver. Sou o mais velho, Bruno. Quem decide aqui sou eu. Entenderam?
+— As outras ficam fechadas até não haver outra saída — continuou Breno. — E aí a gente descobre na hora, com o risco que isso tiver. Ninguém joga pedra nenhuma sem avisar os outros. Entendido?
 
 Bruno ergueu as duas mãos.
 
@@ -140,7 +140,7 @@ Farol desceu do ombro, cheirou um dos frutos, torceu o focinho e espirrou uma fa
 
 Bruno mordeu a fruta, fez uma careta e largou o resto no chão. Breno provou a sua com cautela.
 
-— Ugh. Isso aqui está chato. Eu estou chato. Vocês estão chatos. A viagem está chata. O mundo é chato.
+— Ugh. Isso aqui está chato — resmungou Bruno. — Eu estou chato. Vocês estão chatos. A viagem está chata. O mundo é chato.
 
 — Você está reclamando mais que o normal — disse Breno, franzindo a testa. — A fruta fez isso?
 
@@ -508,7 +508,9 @@ Lá fora, Ricochet os levou a um morro ao lado da casa e abriu os braços, como 
 
 — Os téorixes — respondeu Ricochet, de olhos arregalados. — Eles não enxergam, mas ouvem tudo.
 
-Banjo e Bruno se entreolharam. – E depois da floresta? – perguntou Breno.
+Banjo e Bruno se entreolharam.
+
+— E depois da floresta? — perguntou Breno.
 
 — Depois, sigam o rio até o pântano. Espero que encontrem a sua irmãzinha. Eu adoraria acompanhá-los numa jornada tão épica, mas tenho um compromisso importante com velhos amigos.
 

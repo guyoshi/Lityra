@@ -6,7 +6,7 @@ Ele deslizou sua espada curvada rente ao rosto de Alekta, quase acariciando sua 
 
 — Deveríamos matá-la aqui mesmo — sugeriu com crueldade.
 
-— Na verdade, fui eu quem a soltou — intervim rapidamente. — Não há necessidade de matá-la; eu a libertei porque queria levá-la comigo. Ela não tinha intenção de fugir, resistiu até o fim, mas eu a forcei.
+— Na verdade, fui eu quem a soltou — intervim rapidamente. — Não há necessidade de matá-la. Eu a libertei porque queria levá-la comigo. Ela não tinha intenção de fugir, resistiu até o fim, mas eu a forcei.
 
 O pirata careca caminhou até mim, malicioso.
 
@@ -50,7 +50,7 @@ Os homens se acomodaram, e o de rabo-de-cavalo assumiu o controle. A partida foi
 
 — Ótimo, Kove, vamos nessa — respondeu o homem careca.
 
-Quando os painéis confirmaram o alinhamento, Kove ativou o motor de dobra. Uma bolha espacial se formou, e passamos a deslizar pelo tecido do espaço-tempo, as estrelas virando um borrão luminoso enquanto nós ficávamos estáticos.
+Quando os painéis confirmaram o alinhamento, Kove ativou o motor de dobra. Uma bolha espacial se formou, e passamos a deslizar pelo tecido do espaço-tempo, as estrelas se apertando num cone à frente, com um azul quase invisível nas de diante, enquanto nós ficávamos estáticos dentro da bolha.
 
 Levamos quase 60 ectons até a temida “Fera Sideral”. Primeiro vi a estrutura alongada e sombria, com letras amarelas desbotadas na lateral do casco. Quando penetramos a bolha espaço-temporal e as janelas se abriram, expondo-nos à atmosfera artificial da nave, os detalhes ficaram nítidos. Eu nunca tinha visto uma nave daquele tipo. Era imensa, mas o que realmente chamava a atenção era a atividade frenética dos piratas: fogo, marteladas, gargalhadas e gritos de dor, um caos total.
 
@@ -64,9 +64,9 @@ Um dos tripulantes me desamarrou e puxou a corda, como tinha feito com Alekta.
 
 Ao pisar fora da nave, tive certeza de que nunca vira nada igual. O ar era mais denso, uma mistura nauseante de suor, fumaça e um cheiro metálico de podridão enferrujada que grudava na pele. Os piratas, desgrenhados e sujos, se moviam como sombras famintas, os olhares vazios.
 
-Homens eram torturados a poucos metros, os gritos rasgando o caos de marteladas e risadas insanas, e corpos eram distendidos por cordas que arranhavam o chão de metal, deixando um rastro viscoso. Mais adiante, altas chamas lambiam o lixo e a fumaça deixava o ambiente claustrofóbico. O cheiro de carne queimada e putrefação lembrava a crueldade de cada centímetro daquela nave.
+Homens eram torturados a poucos metros, os gritos rasgando o caos de marteladas e risadas insanas, e corpos eram distendidos por cordas que arranhavam o chão de metal, deixando um rastro viscoso. Mais adiante, altas chamas lambiam o lixo e a fumaça deixava o ambiente claustrofóbico.
 
-Meus primeiros passos foram interrompidos por uma dor aguda; senti como se até mesmo minhas entranhas entrassem em curto-circuito. Ao me recuperar, percebi que tinha sido eletrocutado, provavelmente para destruir qualquer dispositivo eletrônico que eu carregasse. Então, uma mão firme agarrou meu braço humano, puxando-me para frente.
+Meus primeiros passos foram interrompidos por uma dor aguda. Senti como se até mesmo minhas entranhas entrassem em curto-circuito. Ao me recuperar, percebi que tinha sido eletrocutado, provavelmente para destruir qualquer dispositivo eletrônico que eu carregasse. Então, uma mão firme agarrou meu braço humano, puxando-me para frente.
 
 — Você parece forte, precisamos de ajuda para carregar os sacos de titânio — um homem alto e musculoso, coberto de tatuagens, disse-me diretamente.
 
@@ -78,7 +78,7 @@ Subi as escadas e o homem me soltou diante de uma pilha de rochas, onde outros h
 
 — Leve as pedras para lá — ordenou o homem, apontando para uma das áreas elevadas da nave.
 
-Lancei um olhar furioso em sua direção antes de me aproximar das pedras. O rosto dos outros homens refletia o cansaço; estavam todos suados e sujos. De repente, um estalo cortou o ar e uma dor lancinante atravessou minhas costas, derrubando-me no chão.
+Lancei um olhar furioso em sua direção antes de me aproximar das pedras. O rosto dos outros homens refletia o cansaço. Estavam todos suados e sujos. De repente, um estalo cortou o ar e uma dor lancinante atravessou minhas costas, derrubando-me no chão.
 
 — AAAH, FILHO DA PUTA! — gritei, ao me virar e ver Nosteratos segurando um chicote, rindo desdenhosamente.
 
@@ -98,11 +98,11 @@ Ele se afastou, fixando os olhos nos meus de um jeito que me causou desconforto.
 
 Os homens dispararam para as escadas, e eu os segui, mais devagar. No meio do caminho, desviaram para um corredor de luzes vermelhas. Lá dentro cheirava a excremento e estava escuro como a noite. Passei por homens deitados no chão e sujeira acumulada até um salão imenso, também banhado de luz vermelha. Não dava para ver o teto.
 
-No centro, uma mesa cercada por uma multidão faminta avançando sobre os restos de comida. Alguns subiam na mesa, outros brigavam, a confusão era total. Mergulhei na multidão. Uma cotovelada me acertou o estômago, um chute pegou a perna. Ah, meu amigo, eu não ia ficar parado. Agarrei o sujeito à frente e o soquei, puxando-o para trás; fiz o mesmo com outro, distribuindo cotoveladas. Tentaram me puxar, mas meu braço de metal fazia estrago, e eu sabia usá-lo. Quando cheguei à mesa, só havia restos e ossos. Minha barriga roncava. Muitos brigavam por um pedaço de carne, outros corriam enquanto comiam para não serem pegos.
+No centro, uma mesa cercada por uma multidão faminta avançando sobre os restos de comida. Alguns subiam na mesa, outros brigavam, a confusão era total. Mergulhei na multidão. Uma cotovelada me acertou o estômago, um chute pegou a perna. Ah, meu amigo, eu não ia ficar parado. Agarrei o sujeito à frente e o soquei, puxando-o para trás. Fiz o mesmo com outro, distribuindo cotoveladas. Tentaram me puxar, mas meu braço de metal fazia estrago, e eu sabia usá-lo. Quando cheguei à mesa, só havia restos e ossos. Minha barriga roncava. Muitos brigavam por um pedaço de carne, outros corriam enquanto comiam para não serem pegos.
 
 — CHEGA! — ecoou uma voz poderosa pelas sombras.
 
-Num instante todos recuaram e se encostaram à parede. Eu não me movi. Aproveitei o silêncio para pegar um pedaço de carne que sobrara num canto e o devorei. Foi então que um som de metal batendo no chão ressoou, e apertei os olhos para discernir a origem nas sombras. Emergiu um homem de barbas compridas e grisalhas, cabelos encaracolados com tranças curtas, pele pálida e um nariz torto marcado por cicatriz. Só o olho esquerdo era visível, circundado por uma mancha escura; sobre o direito repousava uma lente vermelha presa por três cintas que se cruzavam sobre uma bandana vermelha. Brincos e pedras preciosas adornavam as orelhas e as órbitas dos olhos. O chapéu na cabeça não deixava dúvida: era o capitão da Fera Sideral.
+Num instante todos recuaram e se encostaram à parede. Eu não me movi. Aproveitei o silêncio para pegar um pedaço de carne que sobrara num canto e o devorei. Foi então que um som de metal batendo no chão ressoou, e apertei os olhos para discernir a origem nas sombras. Emergiu um homem de barbas compridas e grisalhas, cabelos encaracolados com tranças curtas, pele pálida e um nariz torto marcado por cicatriz. Só o olho esquerdo era visível, circundado por uma mancha escura. Sobre o direito repousava uma lente vermelha presa por três cintas que se cruzavam sobre uma bandana vermelha. Brincos e pedras preciosas adornavam as orelhas e as órbitas dos olhos. O chapéu na cabeça não deixava dúvida: era o capitão da Fera Sideral.
 
 Ele avançava com dificuldade sobre uma perna de aço, segurando firme uma pistola. A respiração pesada e o olhar ameaçador intimidavam todos ali, exceto a mim. E era na minha direção que ele vinha. O metal ressoou no chão até ele parar bem à minha frente, me encarando. Ficamos imóveis por quase três ectons, até que ele recuou um passo, virou-se para a tripulação e começou a falar.
 
@@ -142,7 +142,7 @@ O animal pareceu captar a intenção em seu olhar e virou-se para a tripulação
 
 Alekta me lançou um olhar fulminante. Por um momento, pensei que receberia um soco, mas ela conteve-se.
 
-— Você é um idiota se acha que tem alguma chance de sair vivo daqui — disparou ela, sua voz carregada de desdém.
+— Você é um idiota se acha que tem alguma chance de sair vivo daqui — disparou ela.
 
 — O mesmo poderia ser dito sobre você e o planeta de onde você não queria sair. Acredite, salvei sua vida.
 
@@ -152,13 +152,13 @@ Alekta me lançou um olhar fulminante. Por um momento, pensei que receberia um s
 
 — Você é maluco? — Alekta elevou a voz enquanto caminhávamos lado a lado. — Se o capitão quisesse te matar, teria feito ali mesmo.
 
-— Eu não me curvo a ninguém mais — declarei, firme em minha convicção.
+— Eu não me curvo a ninguém mais — declarei.
 
 — Desse jeito, logo não vai ter mais cabeça para abaixar — ela retrucou, mantendo o passo ao meu lado pelo corredor.
 
 — De onde você é? — perguntou Alekta, mudando de assunto de repente.
 
-— Eu era um Dale de Lebargan — respondi, marcando cada palavra com um tom de nostalgia.
+— Eu era um Dale de Lebargan — respondi.
 
 A mulher parou por um instante, claramente surpresa.
 
@@ -182,7 +182,7 @@ Arqueei uma sobrancelha, questionando o que ela queria insinuar com aquilo.
 
 Alekta estreitou os olhos e mordeu o lábio inferior, com malícia.
 
-— O que fazia naquele planeta? — ela continuou a inquirir
+— O que fazia naquele planeta? — ela continuou a inquirir.
 
 — O capitão de Lebargan tentou me matar. Mas infelizmente ele não conseguiu. E agora, eu que vou matá-lo.
 
@@ -196,7 +196,7 @@ Alekta sorriu, puxando-me então por um corredor oculto pouco antes de chegarmos
 
 Deixei que ela prosseguisse, soltando lentamente os botões da minha calça. Tirei a camiseta e a joguei no chão. Era a minha vez de dominar. Segurei Alekta pelo maxilar, desafiador.
 
-— Toque em mim sem eu permitir... — Alekta recuou, seu olhar firme, mas então ela me surpreendeu, um brilho de perigo nos olhos. — e eu corto o seu pau fora.
+— Toque em mim sem eu permitir... — Alekta recuou, o olhar firme. — e eu corto o seu pau fora.
 
 Merda. Essa mulher não era de brincadeira. Gostei. Ela então se ajoelhou e abaixou minhas calças até os joelhos.
 

@@ -166,7 +166,7 @@ Num trecho de água rasa, encoberto por folhas e lama, jazia o corpo de um anima
 
 Ele ficou um instante olhando a água escura.
 
-— Eu devia ter percebido, Banjo. Ontem, na cela, o Bruno ficou quieto demais depois do cristal. Eu perguntei, ele disse que não era nada, e eu deixei passar. — A voz dele falhou. — Eu sempre acho que protejo todo mundo e não enxergo o que está na minha frente.
+— Eu devia ter percebido, Banjo. Ontem, na cela, o Bruno ficou quieto demais depois do cristal. Eu perguntei, ele disse que não era nada, e eu deixei passar.
 
 Banjo hesitou e pôs a mão no braço do irmão.
 

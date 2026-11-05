@@ -1,0 +1,155 @@
+{
+  "generatedAt": "2026-11-05T17:55:27Z",
+  "sourceRepository": "guyoshi/dimensoesinfinitas",
+  "sourceCommit": "83594e15e433feb0b1b0fd9adca9c485e615153f",
+  "status": "warning",
+  "summary": {
+    "warnings": 24
+  },
+  "issues": [
+    {
+      "area": "chapter",
+      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
+      "bookId": "a-uniao-1",
+      "item": "02 - Capítulo 1.md"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "a-uniao-2",
+      "item": "A União/2 - Chamas da Noite/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "a-uniao-3",
+      "item": "A União/3 - Nova Era/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "a-uniao-4",
+      "item": "A União/4 - Livro 4/00 - Texto/capitulos"
+    },
+    {
+      "area": "chapter",
+      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
+      "bookId": "herdeiros-das-cinzas",
+      "item": "01 - Capítulo 1.md"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "ciclo-de-jesed-5",
+      "item": "Ciclo de Jesed/5 - Coração de Poeira/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "diario-sobrenatural-4",
+      "item": "Diário Sobrenatural/4 - A Convergência dos Profanos/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "diario-sobrenatural-5",
+      "item": "Diário Sobrenatural/5 - A Travessia dos Evanescentes/00 - Texto/capitulos"
+    },
+    {
+      "area": "chapter",
+      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
+      "bookId": "misterio-oculto-1",
+      "item": "02 - Capítulo 2 - A Filmagem.md"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "misterio-oculto-2",
+      "item": "Mistério Oculto/2 - Fábula de Fogo/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "misterio-oculto-3",
+      "item": "Mistério Oculto/3 - Cidade Crepúsculo/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "misterio-oculto-4",
+      "item": "Mistério Oculto/4 - Trilhos do Tempo/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "misterio-oculto-5",
+      "item": "Mistério Oculto/5 - Destino Disruptivo/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "spacetheft-4",
+      "item": "Spacetheft/4 - Livro 4/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "spacetheft-5",
+      "item": "Spacetheft/5 - Livro 5/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "spacetheft-6",
+      "item": "Spacetheft/6 - Livro 6/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "viajantes-dimensionais-2",
+      "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "viajantes-dimensionais-3",
+      "item": "Viajantes Dimensionais/3 - O Senhor da Morte/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "viajantes-dimensionais-4",
+      "item": "Viajantes Dimensionais/4 - Livro 4/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "viajantes-dimensionais-5",
+      "item": "Viajantes Dimensionais/5 - Livro 5/00 - Texto/capitulos"
+    },
+    {
+      "area": "book",
+      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "bookId": "viajantes-dimensionais-6",
+      "item": "Viajantes Dimensionais/6 - Livro 6/00 - Texto/capitulos"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "a-uniao-1",
+      "item": "A União/1 - A União"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "diario-sobrenatural-3",
+      "item": "Diário Sobrenatural/3 - O Limiar da Noite"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-2",
+      "item": "Spacetheft/2 - Livro 2"
+    }
+  ]
+}

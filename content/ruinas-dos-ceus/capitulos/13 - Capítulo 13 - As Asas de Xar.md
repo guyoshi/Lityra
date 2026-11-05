@@ -1,30 +1,22 @@
-
-
 O sonho começou com Jokara voando.
 
 Não havia planador em suas mãos, nem dor no corpo. Etérea se abria abaixo dela, inteira e dourada, e pela primeira vez o vento parecia aceitá-la sem pedir esforço. Ela ria. O pai estava numa varanda muito distante, segurando a linha de uma vintela.
 
 Só depois Jokara percebeu que a linha vinha até ela.
 
-Descia do céu, atravessava as nuvens e terminava amarrada em seu tornozelo esquerdo.
-
-Ou onde o tornozelo deveria estar.
+Descia do céu, atravessava as nuvens e terminava amarrada em seu tornozelo esquerdo. Ou onde o tornozelo deveria estar.
 
 Abaixo do joelho não havia perna. Havia uma raiz escura, comprida, mergulhando pelas nuvens em direção à superfície.
 
-Jokara tentou subir. O vento a puxou para cima; a raiz, para baixo.
+Jokara tentou subir. O vento a puxou para cima. A raiz, para baixo.
 
 — Pai! — gritou.
 
-Yoral continuava sorrindo, mas não a ouvia.
-
-Atrás dele estavam Mirel, Efepar e Professor Taliver. Mais longe, Nestira segurava Liri pela mão. Todos moviam os lábios. Nenhuma voz chegava até Jokara.
+Yoral continuava sorrindo, mas não a ouvia. Atrás dele estavam Mirel, Efepar e Professor Taliver. Mais longe, Nestira segurava Liri pela mão. Todos moviam os lábios. Nenhuma voz chegava até Jokara.
 
 Então os sinos de Etérea começaram a tocar sem vento.
 
-Um por um, soltaram-se das casas e caíram para cima.
-
-Jokara olhou para baixo.
+Um por um, soltaram-se das casas e caíram para cima. Jokara olhou para baixo.
 
 Sob as nuvens não havia floresta. Havia outra Etérea, invertida, presa à terra pelas raízes. As casas estavam soterradas até as janelas. Os planadores tinham asas de folhas apodrecidas. E no centro daquele mundo de cabeça para baixo, Loutes a observava.
 
@@ -34,9 +26,7 @@ A linha que a prendia ao pai se rompeu.
 
 Jokara não caiu.
 
-A raiz em sua perna se enterrou mais fundo.
-
-Do chão, começou a subir fogo.
+A raiz em sua perna se enterrou mais fundo. Do chão, começou a subir fogo.
 
 Jokara acordou gritando, coberta de suor frio. A brasa do fogo improvisado estava quase apagada. Loutes, sentado, olhava para ela.
 
@@ -44,13 +34,9 @@ Jokara acordou gritando, coberta de suor frio. A brasa do fogo improvisado estav
 
 Eles estavam de volta ao local onde o abrigo queimara, tentando erguer algo novo com galhos recolhidos, mas o terreno já não os queria ali. O fogo que destruíra a cabana espalhara-se pela encosta, chamuscando árvores, deixando frutas em cinzas e afastando os animais. Não havia mais nada ali para eles.
 
-Ao amanhecer, recolheram o pouco que tinham. Jokara, com paciência e mãos calejadas, tecera uma mochila improvisada a partir de cipós trançados e pedaços de pano queimado. Guardaram nela restos de raízes, uma pedra lascada, a adaga escurecida e alguns pedaços de carne seca que ainda resistiam. Loutes carregou parte do peso. O resto levava ela, apoiada no bastão.
+Ao amanhecer, recolheram o pouco que tinham. Jokara, com paciência e mãos calejadas, tecera uma mochila improvisada a partir de cipós trançados e pedaços de pano queimado. Guardaram nela restos de raízes, uma pedra lascada, a adaga escurecida e alguns pedaços de carne seca que ainda resistiam. Loutes carregou parte do peso. O resto levava ela, apoiada no bastão. A caminhada foi lenta.
 
-A caminhada foi lenta.
-
-No primeiro sopro, atravessaram uma faixa de lama seguindo aquilo que parecia ser o caminho mais limpo. Jokara afundou até a coxa e quase perdeu o bastão. No segundo, escolheu onde as folhas estavam intactas e descobriu tarde demais por quê: nenhum animal passava por ali porque o solo escondia espinhos sob o musgo. No terceiro, encontrou marcas de patas acompanhando o riacho e decidiu seguir na direção oposta.
-
-Tentava. Errava. Guardava o erro.
+No primeiro sopro, atravessaram uma faixa de lama seguindo aquilo que parecia ser o caminho mais limpo. Jokara afundou até a coxa e quase perdeu o bastão. No segundo, escolheu onde as folhas estavam intactas e descobriu tarde demais por quê: nenhum animal passava por ali porque o solo escondia espinhos sob o musgo. No terceiro, encontrou marcas de patas acompanhando o riacho e decidiu seguir na direção oposta. Tentava. Errava. Guardava o erro.
 
 Logo aprendeu que o perigo raramente anunciava a própria forma. Um galho quebrando rente ao chão fazia sua mão procurar a adaga. Folhas se mexendo no alto significavam outra coisa. O pior era quando todos os sons cessavam juntos. Nessas horas, Jokara e Loutes paravam também, imóveis, até a floresta decidir voltar a respirar.
 
@@ -62,11 +48,9 @@ Deixou a água repousar numa tigela rachada até a terra descer ao fundo. Ainda 
 
 Então aqueceu pedras pequenas no fogo e as mergulhou, uma a uma, no recipiente. A água chiou, soltou vapor e, depois de várias trocas, começou a ferver. Esperaram esfriar.
 
-Não sabiam se aquilo expulsava todos os males invisíveis da superfície. Mas naquele Sopro do Silêncio beberam sem febre.
+Não sabiam se aquilo expulsava todos os males invisíveis da superfície. Mas naquele Sopro do Silêncio beberam sem febre. Jokara guardou o método.
 
-Jokara guardou o método.
-
-Nos sopros seguintes, construiu pequenas regras para si mesma: não colher frutos antes de ver o que os animais faziam com eles; não atravessar água onde não conseguisse ver o fundo; nunca apoiar a mão numa fenda sem antes tocá-la com um graveto; nunca assumir que um silêncio era paz.
+Nos sopros seguintes, construiu pequenas regras para si mesma: não colher frutos antes de ver o que os animais faziam com eles, não atravessar água onde não conseguisse ver o fundo, nunca apoiar a mão numa fenda sem antes tocá-la com um graveto, nunca assumir que um silêncio era paz.
 
 A fome continuava, mas até ela começava a virar aprendizado. Em vez de escalar qualquer árvore em busca de ovos, observava primeiro os ninhos por algum tempo. Descobriu que certas aves abandonavam o lugar quando predadores se aproximavam e que outras gritavam justamente para atrair atenção. Uma tentativa terminou com os dois correndo de um animal que defendera o próprio ninho. Na seguinte, voltaram com três ovos intactos.
 
@@ -92,9 +76,7 @@ Jokara parou à beira da lagoa, os olhos fixos.
 
 — É… bonito demais. Eu tinha esquecido que este lugar também podia ser bonito.
 
-Ela se ajoelhou e enfiou as mãos na água. A água era tão clara que bebeu sem pensar. Loutes a imitou.
-
-Depois, Jokara olhou para ele e sorriu.
+Ela se ajoelhou e enfiou as mãos na água. A água era tão clara que bebeu sem pensar. Loutes a imitou. Depois, Jokara olhou para ele e sorriu.
 
 — Vamos entrar. Precisamos nos lavar… precisamos sentir algo que não seja só terra molhada e cinza.
 
@@ -128,9 +110,7 @@ Abriu os olhos e viu que Loutes tinha voltado para a margem.
 
 Ele ficou olhando a água escorrer entre os próprios dedos.
 
-Jokara fechou os olhos outra vez e deixou-se boiar.
-
-Na cabeça dela, começou uma canção antiga, baixinha.
+Jokara fechou os olhos outra vez e deixou-se boiar. Na cabeça dela, começou uma canção antiga, baixinha.
 
 "Que o vento leve a dor… que o sopro seja maior…"
 
@@ -162,17 +142,13 @@ Subiram as pedras ao lado da cachoeira. Jokara conhecia aquela voz. Não podia s
 
 "À mente que no fundo… o vento sabe…"
 
-Rio acima, a voz ficava mais clara.
-
-Jokara parou. Entre duas pedras, curvada à beira do rio, estava uma garota. De costas, lavava peças de roupa contra as águas, cantando baixo. Os cabelos molhados caíam-lhe pelos ombros, escuros, pesados. Cantava distraída, como quem canta lavando roupa.
+Rio acima, a voz ficava mais clara. Jokara parou. Entre duas pedras, curvada à beira do rio, estava uma garota. De costas, lavava peças de roupa contra as águas, cantando baixo. Os cabelos molhados caíam-lhe pelos ombros, escuros, pesados. Cantava distraída, como quem canta lavando roupa.
 
 A garota, ainda de costas, ergueu a voz:
 
 — Mariv, traga suas roupas. Eu lavo pra você.
 
-Jokara ficou parada a poucos passos.
-
-Então a garota mergulhou o rosto na água e ergueu-o de volta, os cabelos colados à pele. Virou-se. E viu Jokara.
+Jokara ficou parada a poucos passos. Então a garota mergulhou o rosto na água e ergueu-o de volta, os cabelos colados à pele. Virou-se. E viu Jokara.
 
 A roupa escorregou da mão dela e a correnteza levou.
 
@@ -188,9 +164,7 @@ Jokara não perguntou de quem falava. Apertou a irmã com força, chorando tamb�
 
 — Está tudo bem. Está tudo bem.
 
-Alisava os cabelos molhados de Nestira como a mãe fazia com as duas quando eram pequenas.
-
-Ficaram assim muito tempo.
+Alisava os cabelos molhados de Nestira como a mãe fazia com as duas quando eram pequenas. Ficaram assim muito tempo.
 
 Uma voz de rapaz veio da trilha:
 
@@ -222,9 +196,7 @@ Então Nestira viu Loutes, parado mais atrás. Correu até ele e o abraçou.
 
 Apertou-o contra o peito. Loutes deixou-se abraçar com os braços caídos ao lado do corpo.
 
-Eles decidiram se afastar um pouco da correnteza da cachoeira. Subiram alguns metros pela encosta e encontraram uma clareira estreita, coberta por musgos e folhas caídas, onde Nestira e Mariv tinham deixado suas coisas, numa mochila trançada por Nestira, muito mais bem-feita do que a de Jokara. Sentaram-se em círculo: as irmãs lado a lado, Loutes encolhido, Mariv de frente, estendendo as roupas úmidas numa pedra.
-
-Foi Jokara quem falou primeiro.
+Eles decidiram se afastar um pouco da correnteza da cachoeira. Subiram alguns metros pela encosta e encontraram uma clareira estreita, coberta por musgos e folhas caídas, onde Nestira e Mariv tinham deixado suas coisas, numa mochila trançada por Nestira, muito mais bem-feita do que a de Jokara. Sentaram-se em círculo: as irmãs lado a lado, Loutes encolhido, Mariv de frente, estendendo as roupas úmidas numa pedra. Foi Jokara quem falou primeiro.
 
 — Eu… — Respirou fundo, olhando para a irmã. — Eu achei que não haveria mais ninguém. Que só restariam eu e Loutes. Quando encontrei outro sobrevivente, pensei que talvez ainda restasse alguma sorte pra gente.
 
@@ -242,15 +214,11 @@ Jokara deu de ombros.
 
 — Ele parecia… forte. Sobreviveu sozinho. Disse que cada um precisava aprender a lutar por si. — Forçou um sorriso fraco. — Mas foi embora no mesmo sopro. Disse que não queria atrapalhar.
 
-Nestira ficou séria, mas não disse nada.
-
-Depois de um tempo, limpou o rosto com as mãos.
+Nestira ficou séria, mas não disse nada. Depois de um tempo, limpou o rosto com as mãos.
 
 — Eu… não sei mais o que pensar dos ventos, Jokara. Quando caí, passei muito tempo achando que tinham nos abandonado. Ou pior, que eu tinha feito alguma coisa para merecer aquilo.
 
-Jokara apertou a mão da irmã.
-
-Nestira olhou para Mariv antes de continuar.
+Jokara apertou a mão da irmã. Nestira olhou para Mariv antes de continuar.
 
 — Ele não me convenceu de nada. Acho que foi justamente isso.
 
@@ -262,9 +230,7 @@ Nestira riu, sem vontade.
 
 — Eu não parava de rezar. Repetia as mesmas palavras até doer a garganta. Achava que, se dissesse certo, alguma coisa ia responder.
 
-No primeiro abrigo que tentaram erguer, a chuva atravessava todas as folhas. Mariv tinha as mãos cortadas de tanto puxar fibras e Nestira permanecia sentada junto a uma raiz, com os joelhos contra o peito, repetindo uma oração que já não sabia se acreditava.
-
-Ele não pediu que parasse.
+No primeiro abrigo que tentaram erguer, a chuva atravessava todas as folhas. Mariv tinha as mãos cortadas de tanto puxar fibras e Nestira permanecia sentada junto a uma raiz, com os joelhos contra o peito, repetindo uma oração que já não sabia se acreditava. Ele não pediu que parasse.
 
 Apenas colocou um feixe de fibras no colo dela.
 
@@ -286,9 +252,7 @@ Nestira quase se ofendeu. Ainda assim, segurou as fibras.
 
 Depois amarrou uma.
 
-Depois outra.
-
-Quando percebeu, já estava em pé.
+Depois outra. Quando percebeu, já estava em pé.
 
 Nos sopros seguintes, aprenderam a sobreviver juntos. Certa vez, uma fera de pelo grosso avançou sobre eles perto do abrigo. Mariv conseguiu derrubá-la com uma lança improvisada antes que alcançasse Nestira. Depois, as mãos dele demoraram a parar de tremer.
 
@@ -312,9 +276,7 @@ Mariv corou.
 
 — Eu sei.
 
-Jokara viu os dois sorrirem e sentiu uma pontada de ciúme. Tinha acabado de recuperar a irmã, e a irmã já tinha histórias em que ela não estava. Envergonhou-se no mesmo instante.
-
-Mariv coçou a nuca.
+Jokara viu os dois sorrirem e sentiu uma pontada de ciúme. Tinha acabado de recuperar a irmã, e a irmã já tinha histórias em que ela não estava. Envergonhou-se no mesmo instante. Mariv coçou a nuca.
 
 — Se existe alguma razão para ainda estarmos vivos, eu ainda não sei qual é. Só sei que encontrar Nestira fez a queda deixar de parecer o fim.
 
@@ -340,11 +302,9 @@ Nestira balançava a cabeça, repetindo em sussurros: “eu devia ter segurado�
 
 — Você salvou Mariv… graças a você, ele está vivo. E graças a ele você está aqui, forte. Eu também só estou aqui por causa de Loutes.
 
-Loutes, a poucos passos, olhava as duas.
+Loutes, a poucos passos, olhava as duas. O resto do sopro foi o melhor desde a queda. As irmãs não se desgrudaram. Nestira não tirava os olhos de Jokara, e Jokara ria de coisas pequenas: do jeito como Mariv improvisava um cesto com raízes, ou da insistência silenciosa de Loutes em carregar mais peso do que cabia em seus braços pequenos.
 
-O resto do sopro foi o melhor desde a queda. As irmãs não se desgrudaram. Nestira não tirava os olhos de Jokara, e Jokara ria de coisas pequenas: do jeito como Mariv improvisava um cesto com raízes, ou da insistência silenciosa de Loutes em carregar mais peso do que cabia em seus braços pequenos.
-
-À tarde, colheram frutos de casca rugosa que Mariv garantiu não serem venenosos; caçaram um pequeno animal de pelo cinzento, que Jokara limpou com sua adaga; e comeram quase sem conversa. Ao cair do Sopro do Silêncio, ergueram um abrigo simples de folhas largas e galhos.
+À tarde, colheram frutos de casca rugosa que Mariv garantiu não serem venenosos, caçaram um pequeno animal de pelo cinzento, que Jokara limpou com sua adaga, e comeram quase sem conversa. Ao cair do Sopro do Silêncio, ergueram um abrigo simples de folhas largas e galhos.
 
 Antes de dormir, Jokara deitou-se ao lado de Loutes, um pouco afastada do fogo.
 
@@ -361,5 +321,3 @@ Cada sílaba saiu separada, arrastada. Jokara se sentou de supetão. Loutes a ol
 Jokara sorriu e pousou a mão em seu ombro.
 
 — Bom Sopro do Silêncio, Loutes.
-
-

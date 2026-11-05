@@ -160,7 +160,7 @@ Não sei se foi a voz dele, ou o fato de ele ter dito *queria*, que me fez ouvir
 
 Uma porta lateral, à esquerda do altar, que bateu na parede com um estrondo, e a igreja inteira respondeu com um eco de louça quebrando. Alguém entrou arrastando uma perna.
 
-Eu o reconheci pelo andar antes do rosto. O ombro esquerdo caído, a perna que não acompanhava. O cabelo colado de suor e de sangue seco, um lado do rosto inchado e arroxeado, a camisa aberta num rasgo. As mãos vazias.
+Eu o reconheci pelo andar antes do rosto. O ombro esquerdo caído, a perna que não acompanhava. O cabelo colado de suor e de sangue seco, um lado do rosto inchado e arroxeado, a camisa aberta num rasgo. Uma mochila pequena e rasgada pendia de um ombro só. As mãos vazias.
 
 — Não faz isso.
 
@@ -291,7 +291,7 @@ O Filipo parou. Eu vi que ele tinha ouvido, porque a cabeça dele inclinou, no g
 
 Eu ouvi aquilo e uma coisa dentro de mim virou, devagar, como chave numa fechadura que eu mesmo tinha emperrado. *Se queimar, a gente sai. As duas.* A Mel tinha me dito isso no arco, olhando para a cidade, com as mãos apertadas de quem ensaiou. Ela não tinha dito *embaixo*. Não tinha dito *Mãe*. Tinha dito vidro, e pressa, e medo, e eu escutei tudo como se escuta quem a gente ama: sem pedir prova. Foi o Filipo quem pediu a prova, e eu respondi que conhecia a cara de quem tá com medo. Eu conhecia a cara. Não sabia nada do resto.
 
-Ela tinha me usado. Repeti a palavra para mim, devagar, e o peito fechou, e a bombinha ficou onde estava.
+Ela tinha me usado. Repeti a palavra para mim, devagar, e o peito fechou, e a bombinha ficou onde estava. *Quem te quer de verdade não te manda correr.* Cem vezes a palavra *queima*, e eu tinha lido medo.
 
 E não era a primeira vez. Ela já tinha me feito quebrar a proteção da casa da Olívia, e eu tinha chamado aquilo de confiança, porque confiança era o nome mais bonito que eu tinha à mão.
 
@@ -430,6 +430,8 @@ O Junior pesava no meu ombro e tinha parado de ajudar com as pernas. Encostei el
 Fui. Eu ouvia a igreja ir e vir como se ouve chuva do outro lado de uma janela fechada. Tinha a conta feita desde sempre: todo mundo me escolhe por último, ou por engano, ou até aparecer alguém melhor. Ela estendeu a mão e eu segurei. Era quente, e tinha o peso exato de uma mão. Ela me beijou, ou eu a ela, não sei a ordem; teve gosto de cera e do pão de queijo do último banco da igreja da minha avó, e durou uma respiração inteira, sem chiado. Foi o melhor segundo da minha vida, e eu sabia exatamente quanto ele custava.
 
 — Eu te amo, Pedro — ela disse, com a voz de verdade, a que quase nunca usava comigo. — Fica. Deixa o Filipo acender. Deixa ele.
+
+A voz da Jennifer chegou de longe, de uma estrada de terra, com as mãos dela nos meus braços. *Você não depende do amor de ninguém para ser alguém.* Eu tinha achado que era gentileza. Com a mão da Mel quente na minha, achei que podia ser fato.
 
 — Eu sempre quis que alguém me escolhesse. — A piada nem chegou a começar; ficou do lado de fora, esperando. — Tu é a coisa que eu mais quis na vida. — Engoli. — Só que o que eu mais quis nunca foi quem eu mais amo.
 
@@ -609,10 +611,14 @@ Eu quis dizer o nome dela outra vez. A palavra foi na minha garganta e não saiu
 
 O Filipo se levantou primeiro. Foi até o carro, apoiando uma mão no capô, e abriu a porta de trás para o Junior. Eu fiquei sentado na estrada, com a bombinha vazia numa mão e o celular da Jennifer na outra. Queria que ela estivesse ali. Ela saberia dizer se o que eu senti no beijo valia alguma coisa, vindo de uma mentira. Ela sempre soube ver o que os outros não viam, e eu tinha a vontade tola de ligar e perguntar.
 
-Guardei o celular da Jennifer no bolso com a tela para baixo. Ajudei o Junior a entrar no carro. O Pollux e a Lídia seguiram na caminhonete, devagar, os faróis acesos em pleno dia. O Filipo ligou a ignição, e o rádio chiou, e ninguém o desligou.
+Guardei o celular da Jennifer no bolso com a tela para baixo. Ajudei o Junior a entrar no carro, e ele não largou a mochila nem para sentar.
+
+— Vai com eles — o Pollux disse à Lídia, sem olhar para ela. — Eu sigo atrás.
+
+Ela discutiu com os olhos, perdeu e entrou no banco de trás, do outro lado do Junior. O Pollux seguiu na caminhonete, devagar, os faróis acesos em pleno dia. O Filipo ligou a ignição, e o rádio chiou, e ninguém o desligou.
 
 Entre duas estações, no meio do chiado, uma voz de menina riu baixinho, como quem fecha uma porta com cuidado.
 
 — Te vejo logo, meu príncipe.
 
-Olhei para o Filipo. Ele dirigia com os olhos na estrada e a mão onde sempre esteve, no volante; se tinha ouvido, não disse. O Junior dormia contra o vidro. Eu apertei a bombinha vazia, uma vez, sem necessidade, só para ter o que apertar. Pelo retrovisor, o campo onde ficava Alvorada Alegre já era só campo. Durante todo o caminho, o rádio não saiu da estação errada, e nenhum de nós teve coragem de mudar.
+Olhei para o Filipo. Ele dirigia com os olhos na estrada e a mão onde sempre esteve, no volante; se tinha ouvido, não disse. A Lídia, atrás, apertou os lábios e olhou para fora. O Junior dormia contra o vidro, abraçado à mochila. Eu apertei a bombinha vazia, uma vez, sem necessidade, só para ter o que apertar. Pelo retrovisor, o campo onde ficava Alvorada Alegre já era só campo. Durante todo o caminho, o rádio não saiu da estação errada, e nenhum de nós teve coragem de mudar.

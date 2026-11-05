@@ -82,7 +82,7 @@ Na porta, Yrisea colocou as sandálias e olhou uma última vez para Jokara.
 
 Depois que ela saiu, Mirel ficou algum tempo parada. Antes de subir, fez o que fazia todas as noites desde que Jokara era criança: tocou o pequeno sino junto ao batente e esperou que o vento respondesse. Ele soou fraco, mas soou.
 
-Nos sopros seguintes, Jokara comia pouco e lia sem conseguir se concentrar. Praticava com o bastão dentro de casa. Em certas manhãs, atravessava os cômodos sem pensar; em outras, a dor no pé que perdera a fazia parar no meio do caminho. Evitava sair. Os Oradores passaram a circular pela casa dos Amarëa, perguntando a Mirel pela recuperação da filha. Nunca entravam sem convite, mas vinham quase todos os dias. Efepar começou a usar a passagem lateral junto às raízes, sem admitir que os evitava.
+Nos sopros seguintes, Jokara comia pouco e lia sem conseguir se concentrar. Praticava com o bastão dentro de casa. Em certas manhãs, atravessava os cômodos sem pensar. Em outras, a dor no pé que perdera a fazia parar no meio do caminho. Evitava sair. Os Oradores passaram a circular pela casa dos Amarëa, perguntando a Mirel pela recuperação da filha. Nunca entravam sem convite, mas vinham quase todos os dias. Efepar começou a usar a passagem lateral junto às raízes, sem admitir que os evitava.
 
 Ninguém a tratava como ameaça. Tratavam-na como alguém que precisava ser protegida de si mesma, e às vezes ela achava que tinham razão.
 

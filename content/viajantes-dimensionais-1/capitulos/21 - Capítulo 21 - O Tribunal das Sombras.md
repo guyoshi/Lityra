@@ -170,7 +170,7 @@ Korvo desceu os degraus devagar, deixando o facão cravado na mesa, e parou dian
 
 Beatriz não respondeu. Ela se lembrava da sensação como se tivesse acontecido há um minuto: o fogo acordando, o mundo todo ficando pequeno, e o medo, o medo de ter sentido que podia fazer qualquer coisa. Ficou com as mãos geladas.
 
-— Você fala em liberdade, mas usou a minha cara para separar meus irmãos — disse Bruno, dando um passo à frente. A voz estava firme, apesar do tremor no queixo. — Agora quer dizer à Bia quem ela deve ser. Isso não é liberdade. Você só quer que todo mundo faça o que você manda.
+— Você fala de liberdade, mas usou a minha cara para separar meus irmãos — disse Bruno, dando um passo à frente. A voz estava firme, apesar do tremor no queixo. — E agora quer dizer à Bia quem ela tem que ser. Se liberdade é fazer o que você manda, eu passo.
 
 O sorriso de Korvo desapareceu devagar. Por um instante, o rosto dele ficou duro como pedra. Depois virou-se de costas.
 

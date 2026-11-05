@@ -6,7 +6,7 @@ Ela atravessou o caminho curvo da orla leste e seguiu as trilhas que levavam ao 
 
 Ali, em meio ao círculo de árvores antigas que formavam uma espécie de fronteira natural, estavam os Oradores.
 
-Homens e mulheres de mantos claros, ajoelhados ou de braços erguidos, agradecendo ao vento em gestos coreografados. Alguns traçavam sinais no ar; outros murmuravam numa língua antiga que Jokara só entendia em parte.
+Homens e mulheres de mantos claros, ajoelhados ou de braços erguidos, agradecendo ao vento em gestos coreografados. Alguns traçavam sinais no ar. Outros murmuravam numa língua antiga que Jokara só entendia em parte.
 
 Ela escondeu-se atrás de uma raiz curva, de onde podia observar sem ser vista.
 

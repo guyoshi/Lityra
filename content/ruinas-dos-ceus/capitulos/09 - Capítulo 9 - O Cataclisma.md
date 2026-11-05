@@ -94,7 +94,7 @@ Jokara agarrou o braço de Efepar e avançou pela poeira. O bastão batia à fre
 
 Jokara e Efepar passaram pelas pontes de pedra negra, entre colunas enfeitadas com espirais de vidro azul, subindo os caminhos em direção a Ilha de Nivelia. Antes de avistarem o pórtico, ouviram: pontes se partindo, madeira de casas torcendo, a base da colina escorrendo como areia molhada.
 
-Perto do pórtico, o caos havia engolido qualquer aparência de cerimônia. Alguns Oradores tentavam abrir passagem entre os feridos; outros gritavam direções contraditórias para quem procurava Talyen. Mas, junto à base de uma coluna rachada, Yrisea permanecia sentada.
+Perto do pórtico, o caos havia engolido qualquer aparência de cerimônia. Alguns Oradores tentavam abrir passagem entre os feridos. Outros gritavam direções contraditórias para quem procurava Talyen. Mas, junto à base de uma coluna rachada, Yrisea permanecia sentada.
 
 Estava de olhos fechados.
 

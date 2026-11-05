@@ -84,7 +84,7 @@ Hardman bufou, passando as mãos pelo cabelo como se fosse uma mãe exausta.
 
 Desaceleramos em duas rotações em torno do planeta e começamos a descer.
 
-A luz da anã branca refletia no casco da Princesa do Inverno, num contraste absurdo entre claridade extrema e escuridão absoluta. Do lado da estrela, era como mergulhar numa lâmina de prata líquida; do lado oposto, o universo era só um abismo negro pontilhado de estrelas.
+A luz da anã branca refletia no casco da Princesa do Inverno, num contraste absurdo entre claridade extrema e escuridão absoluta. Do lado da estrela, era como mergulhar numa lâmina de prata líquida. Do lado oposto, o universo era só um abismo negro pontilhado de estrelas.
 
 — Isso tá me dando dor de cabeça — murmurou O’reilly, apertando os olhos.
 
@@ -106,7 +106,7 @@ Hardman ajustou os filtros espectrais, e os sensores da nave começaram a cuspir
 
 A luz da anã branca refratava nas partículas de sódio e potássio da atmosfera, espalhando tons dourados e esverdeados pelo céu pálido, como um espectro fantasmagórico envolvendo o horizonte.
 
-A gravidade aumentava gradativamente, puxando a Princesa do Inverno; tivemos que manter os estabilizadores ativos para a nave não ser sugada direto para o solo.
+A gravidade aumentava gradativamente, puxando a Princesa do Inverno. Tivemos que manter os estabilizadores ativos para a nave não ser sugada direto para o solo.
 
 — O que vocês acham que tem lá embaixo? — perguntou Buni, observando com olhos arregalados.
 
@@ -186,7 +186,7 @@ O silêncio entre nós foi imediato.
 
 — O que explica por que Jelles quer tanto chegar aqui — Eric cruzou os braços.
 
-Hardman e Kord tentaram do jeito que sabiam. Picareta, broca de mineração, o maçarico da nave no máximo. Kord martelou até o suor embaçar o visor; a broca soltou faíscas e perdeu a ponta, e o chão não ganhou nem um arranhão. Hardman passou a luva onde o maçarico havia apontado e olhou para ela como quem lê uma sentença. O Olho do Domongo, que Eric trouxera consigo, continuava vibrando e apontando para baixo, e o bracelete piscava feito um sino. Sem máquina nenhuma, Jelles não precisaria de mapa para nos achar.
+Hardman e Kord tentaram do jeito que sabiam. Picareta, broca de mineração, o maçarico da nave no máximo. Kord martelou até o suor embaçar o visor. A broca soltou faíscas e perdeu a ponta, e o chão não ganhou nem um arranhão. Hardman passou a luva onde o maçarico havia apontado e olhou para ela como quem lê uma sentença. O Olho do Domongo, que Eric trouxera consigo, continuava vibrando e apontando para baixo, e o bracelete piscava feito um sino. Sem máquina nenhuma, Jelles não precisaria de mapa para nos achar.
 
 O nome de Jelles fez minha mão coçar. O bracelete de Eric estava em minhas mãos, e sua luz piscava como um farol silencioso, alertando a Lebargan de nossa posição. Então O’reilly se virou para mim:
 
@@ -270,7 +270,7 @@ No horizonte, o brilho da anã branca sumiu de repente, sem transição, como se
 
 — A Lebargan pode chegar a qualquer momento. E quando ela chegar, saberemos. Mas por enquanto, melhor voltarmos à nave — murmurei.
 
-A noite foi longa. O interior da Princesa do Inverno estava mais silencioso do que o normal. O grupo já se recolhera, e eu aproveitava o raro momento de paz no canto da cabine, observando as luzes dos controles piscarem no escuro. Estávamos atentos a qualquer sinal da Lebargan; num planeta plano como aquele, o ataque viria de cima, então mantínhamos os escudos ligados.
+A noite foi longa. O interior da Princesa do Inverno estava mais silencioso do que o normal. O grupo já se recolhera, e eu aproveitava o raro momento de paz no canto da cabine, observando as luzes dos controles piscarem no escuro. Estávamos atentos a qualquer sinal da Lebargan. Num planeta plano como aquele, o ataque viria de cima, então mantínhamos os escudos ligados.
 
 Então Eric puxou uma cadeira e sentou ao meu lado, cruzando os braços como se tivesse muito a dizer, mas sem vontade de começar.
 

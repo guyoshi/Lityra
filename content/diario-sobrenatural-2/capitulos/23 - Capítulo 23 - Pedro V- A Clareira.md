@@ -24,7 +24,7 @@ Ele virou para mim com um olhar que não era só raiva. Era desespero disfarçad
 
 — Tu não faz ideia do que ela tá passando.
 
-— Eu faço ideia do que eu tô passando — ele rebateu, se aproximando um passo. — Eu estive preso por meses naquela merda de cidade. Eu vi o que tem lá. Eu carreguei gente que já não tava mais… gente. E eu tô aqui, parado, porque ela “ainda não tá pronta”.
+— Eu faço ideia do que eu tô passando — ele rebateu, se aproximando um passo. — Eu estive preso naquela merda de cidade, e lá dentro o tempo anda errado, dura mais do que devia. Eu vi o que tem lá. Eu passei por cima de gente que já não tava mais… gente. E eu tô aqui, parado, porque ela “ainda não tá pronta”.
 
 — E não vem com papo de “do jeito certo”. Do jeito certo meu pai não tinha morrido.
 

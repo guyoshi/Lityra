@@ -10,7 +10,7 @@ Ao pousar, liguei a respiração artificial. Sem ela, já estaria tossindo meu p
 
 — Gravidade próxima do nível 1, pressão atmosférica estável, nenhuma toxina detectada, desinfecção por contato e isolamento térmico ativados. Tudo em ordem para o desembarque.
 
-Essa cautela me salvou mais de uma vez. Quando ainda estava na Ala 66, achava que todo planeta tinha ar e gente sorridente. Hoje? Espero só não explodir ao respirar. A maioria dos mundos são hostis. Já pisei em planeta que derrete bota e em planeta onde o vento chega a dois mil quilômetros por hora. Perdemos um companheiro num lugar onde chovia vidro das nuvens. Conseguem imaginar como deve ter sido doloroso?
+Essa cautela me salvou mais de uma vez. Quando ainda estava na Ala 66, achava que todo planeta tinha ar e gente sorridente. Hoje? Espero só não explodir ao respirar. A maioria dos mundos são hostis. Já pisei em planeta que derrete bota e em planeta onde o vento chega a dois mil quilômetros por hora. Perdemos um companheiro num lugar onde chovia vidro das nuvens. Conseguem imaginar como deve ter sido doloroso? A pior parte nem foi a chuva. O traje do Orten aguentou a tempestade inteira, as agulhas de vidro quicando na viseira como granizo de cristal. O que o matou foi achar um caco bonito demais: tirou a luva para guardá-lo de souvenir, e a chuva, que até então só fazia barulho, passou a fazer buraco. Acharam o Orten sentado numa pedra, sorrindo, a mão aberta no colo com o souvenir ainda dentro. Desde então, na Lebargan, ninguém tira a luva por planeta nenhum, por mais bonito que seja.
 
 De volta ao planeta, ao abrir a escotilha, saí sob a luz fraca da anã vermelha.
 
@@ -22,11 +22,11 @@ A vegetação se erguia em árvores sinuosas rumo ao céu alienígena, finas, ma
 
 Segui as coordenadas do capitão, marcadas no radar do bracelete, pela paisagem surreal. Contra o horizonte tingido de nuvens roxas, uma estrutura de uns cem metros chamou minha atenção: um arco colossal de rocha, coberto de vegetação sombria, subindo até as nuvens. No chão, bem na frente dele, havia uma construção pequena em forma de cúpula. A abertura circular dela deixava claro que aquilo era obra alienígena.
 
-À medida que me aproximava, o receptor em meu bracelete captou fragmentos de uma comunicação: “Como ele. Você come aquilo. É bom!” Confirmava-se, então, a presença de vida inteligente. Esperava sinceramente que não fossem hostis; o derramamento de sangue não estava nos meus planos.
+À medida que me aproximava, o receptor em meu bracelete captou fragmentos de uma comunicação: “Como ele. Você come aquilo. É bom!” Confirmava-se, então, a presença de vida inteligente. Esperava sinceramente que não fossem hostis. O derramamento de sangue não estava nos meus planos.
 
 “Vou te dar aquilo. Você come,” um segundo ser ofereceu. Meu tradutor, embora imperfeito, captava o essencial das suas intenções.
 
-Deslizei para dentro da construção escura, acionando a lanterna do bracelete. A luz revelou criaturas que soltaram urros assustados assim que me viram. Eu apaguei a luz instantaneamente, como se tivesse ofendido os olhos sensíveis deles. Ah, sempre uma nova surpresa ao conhecer novas formas de vida!
+Deslizei para dentro da construção escura, acionando a lanterna do bracelete. A luz revelou criaturas que soltaram urros assustados assim que me viram. Apaguei a luz na hora, por cortesia com os olhos sensíveis deles. Ah, sempre uma nova surpresa ao conhecer novas formas de vida!
 
 As criaturas pareciam tremer e continuavam a gritar de pânico, encolhidas no canto da construção. Uma delas decidiu que seria uma ótima ideia atirar algo grande em mim. Quase me acertou em cheio! Caramba, que forma de vida bizarra era aquela? Violeta, com dezenas de esferas negras onde normalmente se encontra a cabeça, e uma abertura larga e vertical no meio delas. Seria aquilo uma boca? Dos lados de seu corpo, desdobravam-se tentáculos adornados com mais dez tentáculos na ponta, cada um com ainda mais cinco mini-tentáculos, todos agitando-se em um balé caótico de medo e confusão. Sua pele parecia uma mistura de plástico velho com couro de sofá usado, com placas endurecidas protegendo suas costas.
 
@@ -42,7 +42,7 @@ Ainda assim, o pânico reinava. A paciência é para os fracos, e a minha, já e
 
 A frustração me levou a disparar um tiro de advertência no ar, esquecendo-me completamente, pra variar, da porra da amônia atmosférica. As chamas dançaram furiosamente pelo teto, como se estivessem aplaudindo minha burrice temporária, antes de extinguirem-se, deixando um silêncio carregado de tensão. Quem precisa de fogo quando se tem a minha aura para intimidar, certo?
 
-Os alienígenas cessaram a agitação, mas continuaram vigilantes. A anatomia desses polvos com pernas não me interessava; minha missão era outra, e não virar biólogo intergaláctico.
+Os alienígenas cessaram a agitação, mas continuaram vigilantes. A anatomia desses polvos com pernas não me interessava. Minha missão era outra, e não virar biólogo intergaláctico.
 
 — Vejam, esta arma que tenho é uma Incendiária, uma arma que dispara chamas. Acho que devem saber o que é fogo. Se eu atiro em vocês, não terão nem tempo de gritar. Seus corpos se carbonizam quase instantaneamente. Se há algum apreço por suas vidas, por esses tentáculos peculiares que gostam de usar para arremessar objetos, sugiro uma cooperação imediata.
 
@@ -108,11 +108,11 @@ Alcançando o topo após uma escalada tensa, o cheiro pungente de enxofre invadi
 
 A resposta veio na forma de uma vibração mais intensa. Movendo-me cautelosamente, arma em punho, percebi uma sombra se agitando à minha direita. Ao virar-me, deparei com a imensa figura do Domongo, uma serpente colossal coberta de placas azul-cobalto e violeta, com fendas magenta brilhando entre elas. No centro da fronte ardia um único olho laranja, maior que uma manga: o objeto de minha busca. A boca enorme se abriu, revelando duas fileiras de dentes claros e afiados. Pele dura feito pedra e, mesmo assim, voando. Claramente, o universo estava de brincadeira comigo.
 
-Esquivando-me de seu ataque rasante, senti a aspereza do solo sob mim, escorregando pelo chão pedregoso. O Domongo se virou para mim. O corpo disforme exalava um cheiro metálico, como se tivesse sangue de ferro, embora não houvesse veias visíveis. Então guardei minha arma e, com adaga em mãos, lancei-me ao seu encalço. No instante em que passou raspando minha cabeça, saltei como se minha vida dependesse disso. Minha adaga gritou contra a pele dura enquanto eu me pendurava desesperadamente. Não recomendo isso a ninguém, especialmente se você gostar de estar vivo.
+Esquivando-me de seu ataque rasante, senti a aspereza do solo sob mim, escorregando pelo chão pedregoso. O Domongo se virou para mim. O corpo disforme exalava um cheiro metálico, de sangue de ferro, embora não houvesse veias visíveis. Então guardei minha arma e, com adaga em mãos, lancei-me ao seu encalço. No instante em que passou raspando minha cabeça, saltei com tudo o que tinha. Minha adaga gritou contra a pele dura enquanto eu me pendurava desesperadamente. Não recomendo isso a ninguém, especialmente se você gostar de estar vivo.
 
 Ali, pendurado numa adaga em uma serpente voadora a mais de cinquenta metros de altura, eu tinha um dilema: montar nele e tentar alcançar o olho. A queda seria fatal.
 
-Escalei por seu dorso enquanto a criatura girava pelos ares, provavelmente para me atacar de novo. Iria se frustrar quando visse que eu não estava mais no arco. A pele era dura e fria ao toque, e a adaga não tirava sangue nem fluido nenhum; era como furar uma couraça, não um bicho vivo.
+Escalei por seu dorso enquanto a criatura girava pelos ares, provavelmente para me atacar de novo. Iria se frustrar quando visse que eu não estava mais no arco. A pele era dura e fria ao toque, e a adaga não tirava sangue nem fluido nenhum. Era como furar uma couraça, não um bicho vivo.
 
 Equilibrei-me sobre a criatura, que, em um movimento abrupto, inclinou-se para um mergulho. Rolando por sua extensão, detive minha queda fincando a adaga novamente. Meu objetivo era claro: alcançar seu olho singular. No momento exato em que o domongo desviava do arco mais uma vez, me lancei em direção à sua cabeça. Mas ali, minha adaga encontrou uma resistência ainda maior, recusando-se a perfurar. Deslizei pelo seu corpo, perdendo minha ferramenta na neblina abaixo. Senti meu coração acelerar. Não que estivesse com medo, claro. Mas porra, pendurado a cem metros do chão em uma cobra voadora gigante faz até os melhores pensarem duas vezes.
 
@@ -128,7 +128,7 @@ Tirei o cabelo do rosto e cambaleei antes de me levantar. Aproximei-me do monstr
 
 — Eu sei, eu sei. Não adianta me olhar assim, eu preciso do seu olho, cara.
 
-Sem minha adaga, tirar o olho ia ser tão fácil quanto ensinar matemática avançada a um micrófilo. Sem escolha, envolvi o olho com as mãos, e puxei-o fortemente, arrancando-o com um puxão vigoroso, rompendo as conexões nervosas. Uma onda da mesma substância negra e viscosa atingiu meu rosto, mas não me detive. Limpei os resíduos de minha visão e admirei a esfera cobiçada, grande demais para caber numa mão só, um sorriso de vitória adornando meus lábios.
+Sem minha adaga, tirar o olho ia ser tão fácil quanto ensinar matemática avançada a um micrófilo. Sem escolha, envolvi o olho com as mãos, e puxei-o fortemente, arrancando-o com um puxão vigoroso, rompendo as conexões nervosas. Uma onda da mesma substância negra e viscosa atingiu meu rosto, mas não me detive. Limpei os resíduos de minha visão e admirei a esfera cobiçada, grande demais para caber numa mão só, sorrindo de vitória.
 
 — Missão cumprida. Quase morri duas vezes, o que é um dia normal pra mim, e ainda conquistei a inimizade eterna de uma raça de moluscos esquisitos, que devem ser mais irritantes que uma pulga espacial. Nada mal para uma missão de início de hepton.
 
@@ -140,7 +140,7 @@ Fomos treinados para isso, para sermos eficazes, implacáveis. Sem rastros, sem 
 
 Respirei fundo. Podia só apertar um botão no bracelete e garantir que a regra fosse cumprida. A hesitação não era uma opção para um Dale. Não publicamente, pelo menos. Mas hesitei. Um segundo que se arrastou em um ecton.
 
-Eram seres assustados, indefesos. Um deles tinha até uma colcha de tecido com desenhos jogada sobre o ombro, como um cobertor infantil. A imagem da pequena escultura de tentáculo, um brinquedo, que um deles segurava mais cedo, me veio à mente. Droga, odeio quando eles parecem ter famílias. O medo em seus olhos não era de um inimigo ardiloso, mas de uma presa inocente. Que tipo de lenda eu era, se minhas conquistas se baseavam em massacres desnecessários?
+Eram seres assustados, indefesos. Um deles tinha até uma colcha de tecido com desenhos jogada sobre o ombro, como um cobertor infantil. A imagem da pequena escultura de tentáculo, um brinquedo, que um deles segurava mais cedo, me veio à mente. Droga, odeio quando eles parecem ter famílias. Tremiam, sem uma arma à vista. Que lenda eu seria, matando polvoides desarmados por causa de um protocolo?
 
 — Por Trimonius, por que essa parte nunca é fácil? — murmurei.
 

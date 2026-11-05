@@ -20,7 +20,13 @@ Na quinta à noite, ele serviu o jantar mais simples de todos, sopa e pão, e di
 
 — Durmam bem. O que vier, vocês já têm.
 
-A sexta-feira amanheceu clara e silenciosa. No pátio do Edifício Arcano, os aprendizes que restavam formavam grupos pequenos e falavam baixo, e todos olhavam, de tempos em tempos, para a porta por onde Garmande ia sair. Isabelle enrolava uma faixa no pulso, enquanto Brenda lhe mostrava como separar alguns grãos de areia de um punhado de terra sem levantar uma nuvem inteira. — Eu levei meses para fazer isso sem jogar areia na cara da Karoli — admitiu Isabelle. — E hoje você ainda faz — comentou Brenda. Isabelle empurrou seu ombro, rindo. Ninguém sabia qual seria o último desafio. "Todo ano é diferente", repetiam os senavelitas. "E nunca avisam."
+A sexta-feira amanheceu clara e silenciosa. No pátio do Edifício Arcano, os aprendizes que restavam formavam grupos pequenos e falavam baixo, e todos olhavam, de tempos em tempos, para a porta por onde Garmande ia sair. Isabelle enrolava uma faixa no pulso, enquanto Brenda lhe mostrava como separar alguns grãos de areia de um punhado de terra sem levantar uma nuvem inteira.
+
+— Eu levei meses para fazer isso sem jogar areia na cara da Karoli — admitiu Isabelle.
+
+— E hoje você ainda faz — comentou Brenda.
+
+Isabelle empurrou seu ombro, rindo. Ninguém sabia qual seria o último desafio. "Todo ano é diferente", repetiam os senavelitas. "E nunca avisam."
 
 Depois da reunião da Sociedade, ninguém tinha voltado ao assunto. Mas Bruno não tirava os olhos da mão de McCroys, que conversava com os gêmeos do outro lado do pátio. O dedo continuava sem anel, e a pele ali ficara mais clara, marcando o lugar onde ele estivera. Erick percebeu o olhar e devolveu uma careta. Bruno virou o rosto primeiro, e isso o irritou mais do que a careta.
 
@@ -123,15 +129,15 @@ Ele ficou vermelho até as orelhas. Shirley riu baixinho e pôs a mão no ombro 
 
 — Eu nunca beijei ninguém — confessou Banjo, quase num sussurro, e não soube por que disse aquilo justamente a ela.
 
-— Ei. — Havia ternura na voz dela, sem nenhum deboche. — Um beijo é só uma boca encostando na outra. O que faz o coração disparar é a vontade de estar perto, mesmo quando não dá. — Ela parou, e um brilho travesso apareceu nos olhos. — Espera. Você não sente isso por mim, né?
+— Ei. — Havia ternura na voz dela, sem nenhum deboche. — Um beijo é só uma boca encostando na outra. Calma. — Ela parou, e um brilho travesso apareceu nos olhos. — Espera. Você não tá me dizendo isso porque quer o primeiro comigo, né?
 
-— Não, não! — Banjo balançou a cabeça com força. — Eu só queria conhecer você melhor. Você parece tão segura. Eu queria ser mais assim. Bruno é corajoso, Breno é determinado, Beatriz é... a Beatriz. E eu sou só o Banjo, o que se esconde atrás dos outros.
+— Não, não! — Banjo balançou a cabeça com força. — Eu só queria conhecer você melhor. Você parece tão segura. Eu queria ser mais assim. Bruno é corajoso, Breno é determinado, Beatriz é... a Beatriz. E eu sou o Banjo.
 
 — Eu não acredito nisso. — Shirley o puxou pela mão até o meio da área vazia. — Vem. Vou te mostrar uma coisa.
 
 Do bolso, tirou um aparelho do tamanho de uma moeda e apertou. Uma melodia fina e lenta encheu o espaço.
 
-— Vamos dançar. Confiança não é ser o melhor em tudo, é ser você mesmo sem medo. — Ela colocou a mão dele na própria cintura. — E aprender a conduzir.
+— Vamos dançar. Coragem a gente treina assim: pisando no pé dos outros. — Ela colocou a mão dele na própria cintura. — Você conduz.
 
 Banjo tropeçou duas vezes e pisou no pé dela, mas ela só riu, e na terceira volta ele já olhava para ela, e não para os próprios pés. Quando a música acabou, estava ofegante e sorrindo.
 
@@ -143,13 +149,13 @@ O sorriso dela murchou um pouco.
 
 — Eles não te apoiam?
 
-— Na terceira dimensão, eles nunca entenderam por que eu queria vir para Tayo. Queriam que eu seguisse o caminho que já tinham traçado. — Ela soltou uma risada amarga. — Eu nunca fui boa nisso. Então a gente se afastou.
+— Eles queriam que eu seguisse o caminho que já tinham traçado. Eu fui pelo outro. — Ela soltou uma risada curta. — A gente se afastou.
 
 Banjo sentiu um nó na garganta. Sempre achara que só ele se sentia perdido, e ali estava Shirley, de quem ele só via a luz, carregando um peso do tamanho do dele.
 
 — Deve ter sido difícil.
 
-— Foi. — Ela deu de ombros, firme de novo. — Agora que você sabe, da próxima vez me conduz direito. E quem sabe usa essa confiança para conquistar alguém que faça o seu coração disparar de verdade.
+— Foi. — Ela deu de ombros, firme de novo. — Da próxima vez me conduz direito, Banjo.
 
 
 Quando a luz do pátio já tinha dourado e começado a esfriar, Garmande mandou chamar os dezoito. Subiram juntos pelo elevador de vidro, apertados, em silêncio, até o sétimo andar. Velho-Sábio foi com os irmãos e pôs a mão no ombro de Breno.

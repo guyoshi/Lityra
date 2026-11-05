@@ -1,10 +1,10 @@
-O deserto, que antes parecia uma monotonia cinzenta, revelava sua complexidade sob a luz das duas luas. Montanhas de gelo cintilavam a oeste, as cristas afiadas como dentes de um predador cósmico, enquanto vulcões pedregosos cuspiam fumaça a leste. A faixa habitável era uma fina linha onde a vida teimava em florescer. A diferença abrupta de temperatura criava tempestades elétricas que podiam liquefazer um corpo ao menor contato. Eu já enfrentara uma em Geores, mas a caminho de Moldar pegamos uma dez vezes pior. Tivemos de nos agachar sob a concha de aço que os vigias fechavam sobre o cardiçal, quase um abraço de ferro. Um dos homens faleceu no caminho, provavelmente por choque térmico, passando de uma onda de calor para uma geada em algumas dezenas de ectons. O cardiçal respirava fundo sob nós, como o bater de um coração gigantesco, e o cheiro quente e terroso de seu pelo lembrava que viajávamos numa besta orgânica, uma peculiaridade de Moldar que eu jamais esqueceria.
+O deserto, que antes parecia uma monotonia cinzenta, revelava sua complexidade sob a luz das duas luas. Montanhas de gelo cintilavam a oeste, as cristas afiadas como dentes de um predador cósmico, enquanto vulcões pedregosos cuspiam fumaça a leste. A faixa habitável era uma fina linha onde a vida teimava em florescer. A diferença abrupta de temperatura criava tempestades elétricas que podiam liquefazer um corpo ao menor contato. Eu já enfrentara uma em Geores, mas a caminho de Moldar pegamos uma dez vezes pior. Tivemos de nos agachar sob a concha de aço que os vigias fechavam sobre o cardiçal, quase um abraço de ferro. Um dos homens faleceu no caminho, provavelmente por choque térmico, passando de uma onda de calor para uma geada em algumas dezenas de ectons. O cardiçal respirava fundo sob nós, como o bater de um coração gigantesco, e o cheiro quente e terroso de seu pelo lembrava que viajávamos numa besta orgânica.
 
 Percorremos o deserto por um bom tempo. O velho médico, calmo e misterioso, contava suas histórias, uma após a outra, sem que soubéssemos seu nome: um médico aposentado que dedicava seus últimos dias a vagar por mundos, colecionando histórias e males. O fedor de ozônio pós-tempestade ainda pairava no ar seco.
 
 Adormeci com a vibração do cardiçal e acordei sob um céu em mosaico de cinzas e púrpura pálido, onde duas luas distantes espreitavam, a luz fraca mal rompendo o véu de poeira. Insetos estridulavam como engrenagens enferrujadas no ar gelado, e o cardiçal seguia com seus longos passos, as patas maciças levantando pequenas nuvens de poeira iridescente. Virei-me e vi Vivian encolhida no canto, os olhos grandes e abertos, os fios ruivos e finos espalhados pelo rosto. Era magrinha e tinha feições de uma garota de uns quatorze momentos. Difícil acreditar que já passara dos vinte.
 
-— Não consegue dormir? — perguntei à ela.
+— Não consegue dormir? — perguntei a ela.
 
 Vivian se virou para mim e sacudiu a cabeça.
 
@@ -62,7 +62,7 @@ Na noite da terceira volta, finalmente vi luzes ao fundo. Moldar não parecia t�
 
 Os vigias abriram as escadas para que descêssemos, e então seguimos para a cidade iluminada.
 
-Ao redor da cidade, haviam diversas naves estacionadas, das mais diversas. Pequeninhas, grandes, até megaestruturas, claro que nenhuma se comparava com a Lebargan, nem mesmo com a Fera Sideral.
+Ao redor da cidade, havia diversas naves estacionadas, das mais diversas. Pequeninhas, grandes, até megaestruturas, claro que nenhuma se comparava com a Lebargan, nem mesmo com a Fera Sideral.
 
 Uma delas, pequena, de casco branco e liso demais, eu conhecia de cor: patrulha dale. Virei o rosto como quem acabou de ver a ex. Hardman notou e não disse nada, o que foi pior.
 
@@ -72,7 +72,7 @@ Uma delas, pequena, de casco branco e liso demais, eu conhecia de cor: patrulha 
 
 Enquanto nos aproximávamos da cidade, tinha sentido meus cabelos arrepiarem, assim como meus pelos. Havia muita energia rondando por ali, e eu sabia bem o que era aquilo.
 
-— Descarga da Justiça, ou como alguns conhecem, Justa-Elétrica — disse Hardman — um sistema que impede itens de ser roubados. Qualquer sinal de roubo, e o ser é eletrocutado até a morte.
+— Campo eletrostático de alta tensão em todo o perímetro. Descarga da Justiça, ou como alguns conhecem, Justa-Elétrica — disse Hardman. — Cada objeto leva uma etiqueta de identidade. Se sai do perímetro sem ela, o circuito se fecha pelo corpo de quem o carrega. O ladrão vira o condutor, e o ser é eletrocutado até a morte.
 
 No mesmo instante, um grito agudo cortou o ar. Vimos um cínzedo, magro e desgrenhado, cair no chão a poucos metros, convulsionando. Seu corpo brilhou em um tom azulado por um segundo, e o cheiro de algo queimado invadiu minhas narinas. Quando o brilho cessou, o corpo estava imóvel, uma fina fumaça subindo de suas extremidades. Piratas ao redor se afastaram, silenciosos, um lembrete cruel da regra.
 
@@ -112,7 +112,7 @@ Não era uma “gostosura”. Eram DUAS. Ou melhor, duas cabeças no mesmo corpo
 
 — Boa pergunta. Caly, onde o jovem pode encontrar o Mestre Estelar?
 
-— Ele anda bem escondido ultimamente. Talvez... ele costumava frequentar o Ritmo da Morte às terceiras voltas. E olha só, hoje é a terceira volta. Aliás, hoje é a terceira final anual das competições das máquinas. Certamente vocês o encontrarão por lá. É só procurar por um homem de grandes cabelos vermelhos.
+— Ele anda bem escondido ultimamente. Talvez... ele costumava frequentar o Ritmo da Morte às terceiras voltas. E olha só, hoje é a terceira volta. Aliás, hoje é a terceira final do momento das competições das máquinas. Certamente vocês o encontrarão por lá. É só procurar por um homem de grandes cabelos vermelhos.
 
 — Ritmo da morte? — perguntou Kord.
 
@@ -162,7 +162,7 @@ Me virei para responder e notei a ausência de um dos membros do grupo.
 
 — Não a perdemos — disse Kord — lá está ela.
 
-Kord apontava para um comércio logo a frente o qual podíamos ver pelas portas de vidro. Vivian estava dentro, gesticulando pacientemente com o comerciante, suas mãos descrevendo a situação do grupo com clareza. Um momento depois, ela saiu, sorrindo, e carregando um saquinho de pães. Ela caminhou até nós e abriu o saco, oferecendo o de comer com um olhar que dizia: “Aqui está a solução para o problema de vocês, sem precisar de força”.
+Kord apontava para um comércio logo a frente o qual podíamos ver pelas portas de vidro. Vivian estava dentro, gesticulando pacientemente com o comerciante, suas mãos descrevendo a situação do grupo com clareza. Um momento depois, ela saiu, sorrindo, e carregando um saquinho de pães. Ela caminhou até nós e abriu o saco, oferecendo o de comer.
 
 — O que... como conseguiu isso, garota? — perguntou Hardman, surpreso.
 
@@ -274,7 +274,7 @@ O homem ergueu o canto da boca. Os dentes eram tão brancos que o ambiente parec
 
 — Queremos fazer parte de sua frota — falei — mas tínhamos certeza que não nos daria ouvidos se simplesmente chegássemos em você.
 
-— É claro que não lhes daria ouvidos. Vocês não têm cara de quem quer apenas tripular uma nave. Têm cara de quem quer saqueá-la. Pelo sangue quente e pela forma como se impõe, você deve ser um Dale. O mais baixo parece ter mãos bem grossas, um mecânico de naves, talvez? O grandão mais velho, pelas tatuagens, parece ser de Sajir, aquele planeta superpopuloso; o da direita nem queria estar aqui; o outro só aparenta ser grande e forte, mas tem olhos de criança. A garota não para de me estudar: é muda ou surda? E pelo aspecto e pelo cheiro, parecem ter vindo da prisão. Se conheceram lá, foi?
+— É claro que não lhes daria ouvidos. Vocês não têm cara de quem quer apenas tripular uma nave. Têm cara de quem quer saqueá-la. Pelo sangue quente e pela forma como se impõe, você deve ser um Dale. O mais baixo parece ter mãos bem grossas, um mecânico de naves, talvez? O grandão mais velho, pelas tatuagens, parece ser de Sajir, aquele planeta superpopuloso. O da direita nem queria estar aqui. O outro só aparenta ser grande e forte, mas tem olhos de criança. A garota não para de me estudar: é muda ou surda? E pelo aspecto e pelo cheiro, parecem ter vindo da prisão. Se conheceram lá, foi?
 
 Eu não fazia ideia de como ele tinha conseguido aquelas informações sobre nós, mas não estava gostando nada disso.
 
@@ -356,7 +356,7 @@ Seguimos pela porta e o corredor à frente começou a se moldar, indicando nosso
 
 — Eu não durmo com ninguém — falei — se virem. Vou para minha cama. Boa noite!
 
-Entrei numa das portas enquanto eles se decidiam. Sobre a cama havia uma bandeja de insetos assados. Pareciam apetitosos e eu estava faminto: crocantes por fora, macios por dentro, desmanchavam na boca, deliciosos e apimentados. Já vira aqueles insetos à venda em Geores, mas nunca provara. Deitei, respirei fundo e apaguei a luz no interruptor. Fiquei horas ali, pensando, até minha bexiga mandar eu sair. Será que havia banheiro naquele hotel?
+Entrei numa das portas enquanto eles se decidiam. Sobre a cama havia uma bandeja de insetos assados. Pareciam apetitosos e eu estava faminto: crocantes por fora, macios por dentro, desmanchavam na boca, deliciosos e apimentados. Já vira aqueles insetos à venda em Geores, mas nunca provara. Pelo sabor, talvez eu devesse ter perguntado o que eram antes de comer. Deitei, respirei fundo e apaguei a luz no interruptor. Fiquei horas ali, pensando, até minha bexiga mandar eu sair. Será que havia banheiro naquele hotel?
 
 Levantei e abri a porta. Luzes apagadas em dois dos quartos, mas a do primeiro ainda acesa. Quem ainda não dormira? Talvez Hardman? Talvez eu tivesse sido bruto com eles, saindo daquela forma. Aproximei-me da porta e ouvi murmúrios. Encostei o ouvido nela.
 
@@ -370,9 +370,9 @@ O quê? Que merda estava acontecendo ali?
 
 — Sim, se não fosse por ele, não estaríamos correndo o risco de sermos mortos por assassinos de aluguel contratados por um mercador maluco — disse Kord — E que eu saiba, não foi ele que construiu o Temparalizador.
 
-— Pega leve Kord — disse O’reilly — Todos nós erramos em nossas escolhas. Mas é inegável, que o cara foi meio que uma esperança para que conseguissemos sair da Fera.
+— Pega leve Kord — disse O’reilly — Todos nós erramos em nossas escolhas. Mas é inegável, que o cara foi meio que uma esperança para que conseguíssemos sair da Fera.
 
-— Esperança não salva vidas. Atitudes o fazem. E as atitudes dele só tem nos ferrado. Aliás, quando vai contar à ele? — perguntou Kord — porque quando ele souber, vai ficar violento. E se ele tocar em você, eu o mato.
+— Esperança não salva vidas. Atitudes o fazem. E as atitudes dele só têm nos ferrado. Aliás, quando vai contar a ele? — perguntou Kord — porque quando ele souber, vai ficar violento. E se ele tocar em você, eu o mato.
 
 — Eu não sei. Talvez quando estivermos na nave. Podemos pedir duas naves ao Mestre, ele segue o rumo dele, e nós o nosso.
 
@@ -386,7 +386,7 @@ Hardman estava sem palavras. Seus olhos assustados entregaram toda a cena.
 
 — Eu... Eu não confiava em você, Jasmey, precisava de uma garantia de que não me mataria quando fugimos, pra isso precisei contar uma mentirinha. Se não fosse essa mentirinha, poderia ter me matado assim que saímos da Fera.
 
-Ah, meu sangue... fervia como a lava de um vulcão. Tinha certeza que meu rosto tinha corado naquele momento.
+Ah, meu sangue... fervia como a lava de um vulcão.
 
 — Porra, agora que eu quero mesmo te matar. Merda! Vocês só me fizeram perder tempo.
 

@@ -358,17 +358,17 @@ Ele assentiu.
 
 — E o que é? — a Manu perguntou.
 
-— Eu não faço ideia. Mas agora tudo faz sentido. O Agouro estar de volta explica as sombras surgirem.
+— Eu não faço ideia. Mas agora tudo faz sentido. O Varkhel estar de volta explica as sombras surgirem.
 
-— O Agouro? — perguntei.
+— Varkhel? — perguntei.
 
-— É assim que vocês o chamam. Conheci essa criatura muito antes de vocês nascerem.
+— Vocês o chamam de Agouro. O nome que eu conheci é Varkhel. É a mesma criatura, e eu a conheci muito antes de vocês nascerem.
 
 — O Agouro não está mais aqui — eu disse, porque eu precisava acreditar nisso. — Ele queria abrir um portal para libertar outros demônios, mas não conseguiu. Nós o derrotamos.
 
 O velho abanou a cabeça, e o modo como ele fez isso não foi de discordância, foi de luto.
 
-— Não, vocês não o fizeram. Essas sombras vieram de algum lugar, e se o que diz for verdade, o Agouro é muito mais poderoso do que essas criaturas que rondam a cidade. Poucos teriam força para atraí-las até aqui.
+— Não, vocês não o fizeram. Essas sombras vieram de algum lugar, e se o que diz for verdade, o Varkhel é muito mais poderoso do que essas criaturas que rondam a cidade. Poucos teriam força para atraí-las até aqui.
 
 E foi então que o som veio.
 
@@ -462,7 +462,7 @@ Ela me olhou aflita.
 
 Ela sorriu. Fui para o quarto ao fundo, mas antes de entrar o instinto — o mesmo que ignorei um ano atrás — pediu para eu não ser idiota. Fui até a cozinha do Pollux, abri gavetas, encontrei um facão grande e o escondi embrulhado num pano por dentro da roupa, como se fosse possível esconder a realidade com tecido.
 
-O quarto era apertado, de janelas bloqueadas e chão empoeirado. Abri o armário: vazio, exceto por roupa de cama. Ao pegar um cobertor, o lençol caiu. Me agachei para pegar e vi num canto um pequeno objeto brilhante: uma pedrinha roxa, como pedra de anel ou brinco. Não sabia o que era, mas algo na cor e na presença me fez guardá-la no bolso sem pensar demais.
+O quarto era apertado, de janelas bloqueadas e chão empoeirado. Abri o armário: vazio, exceto por roupa de cama. Peguei um cobertor.
 
 Arrastei um colchão para o chão, deitei e me cobri. Deixei lençol e cobertor para a Manu na cama. Só então percebi o quanto estava cansado, carregando um ano inteiro dentro do corpo como chumbo.
 

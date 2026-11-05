@@ -30,7 +30,7 @@ Ela me lançou um olhar desconfiado e retomou o trabalho sem uma palavra. O corr
 
 Curvei-me, abraçando os joelhos, e mergulhei em pensamentos. Quanto tempo me deixariam ali? O capitão realmente honraria nosso acordo?
 
-A mulher se aproximou, empurrando o pano de chão sob meus pés sem pedir licença. Levantei-me para que ela limpasse onde eu estivera. A tensão era palpável; ela claramente desconfortável diante daqueles homens todos. Encostei-me à parede fria enquanto ela avançava em direção ao desdentado. Este, num gesto de vileza inaudita, se levantou, abaixou as calças revelando seu cu peludo e se agachou para cagar no chão ao lado dela. A risada grotesca que se seguiu só aumentou a humilhação.
+A mulher se aproximou, empurrando o pano de chão sob meus pés sem pedir licença. Levantei-me para que ela limpasse onde eu estivera. Encostei-me à parede fria enquanto ela avançava em direção ao desdentado. Este, num gesto de vileza inaudita, se levantou, abaixou as calças revelando seu cu peludo e se agachou para cagar no chão ao lado dela. A risada grotesca que se seguiu só aumentou a humilhação.
 
 — Porra, tá sujo aqui. Faz-me um favor, querida? — gracejou ele, enquanto outros três se dobravam em risadas. Ao fundo, notei que apenas um não ria: um homem de pele escura e cabelos em trança, deslocado entre os outros.
 
@@ -46,7 +46,7 @@ Permaneci agachado por quase dez ectons, até ouvir um som grave ecoando acima d
 
 — E agora, puta? — disse ele — primeiro a gente se diverte com você, todos nós, e depois eu entupo sua boca com merda.
 
-Ele caminhou até ela, acompanhado pelos outros, já desafivelando os cintos, e entendi de uma vez o risco que ela corria: a única mulher solta num corredor de homens recém-libertos. Levantei-me e corri para interceptá-lo. Agarrei-o pelo colarinho e soquei seu rosto. O de rabo de cavalo tentou me atacar, mas acertei seu estômago e o fiz recuar. Outro golpe me prensou contra a parede; usei o braço de metal para me impulsionar, girei e acertei um soco devastador no rosto do agressor, desfigurando-o. Então o desdentado, ainda com vestígios de sua merda no ombro, se lançou sobre mim e caímos. Ele tentou me golpear o rosto, mas segurei seus braços, virei-o sob mim e apertei o braço de metal sobre o dele até ouvir os ossos quebrarem. Outro chute atingiu meu rosto, me lançando ao chão, com dor aguda na têmpora.
+Ele caminhou até ela, acompanhado pelos outros, já desafivelando os cintos, e entendi de uma vez o risco que ela corria: a única mulher solta num corredor de homens recém-libertos. Levantei-me e corri para interceptá-lo. Agarrei-o pelo colarinho e soquei seu rosto. O de rabo de cavalo tentou me atacar, mas acertei seu estômago e o fiz recuar. Outro golpe me prensou contra a parede. Usei o braço de metal para me impulsionar, girei e acertei um soco devastador no rosto do agressor, desfigurando-o. Então o desdentado, ainda com vestígios de sua merda no ombro, se lançou sobre mim e caímos. Ele tentou me golpear o rosto, mas segurei seus braços, virei-o sob mim e apertei o braço de metal sobre o dele até ouvir os ossos quebrarem. Outro chute atingiu meu rosto, me lançando ao chão, com dor aguda na têmpora.
 
 O desdentado se levantou, segurando o braço quebrado, enquanto dois outros me prensaram contra a parede, segurando meus braços. Minhas pernas estavam livres: chutei o estômago de um deles e escapei. Agarrei o rabo de cavalo do outro e bati sua cabeça na parede repetidamente, até o rosto se tornar irreconhecível entre o sangue. Ele caiu, desacordado, talvez morto. O último agressor tentou me atacar de novo, mas um pontapé no peito o derrubou. Saltei sobre ele e o enforquei com o braço de metal, aplicando força implacável até sentir os ossos cederem. Levantei-me e ele não se mexia mais. Ao lado, o desdentado gemia de dor, olhando-me com fúria.
 
@@ -58,7 +58,7 @@ Olhei a mulher, visivelmente apavorada, e depois me virei para ele, caminhando e
 
 Ergui-me, o rosto salpicado de sangue, e girei para ver se mais alguém queria me atacar. Num canto, três prisioneiros tremiam de olhos arregalados: um homem com tranças, outro calvo de olhos delineados e um terceiro anão. O das tranças, que até então permanecera sentado, ergueu-se devagar e recuou na direção da mulher.
 
-— Aí, não quero problemas, irmão — proferiu ele, a voz embargada pelo temor.
+— Aí, não quero problemas, irmão — proferiu ele.
 
 — Meu problema não é com você — respondi, fixando o olhar na mulher que, acuada num canto, gemia sons indistintos, as mãos trêmulas erguidas em rendição.
 
@@ -70,7 +70,7 @@ A mulher, respirando de maneira ofegante e ainda tremendo, assentiu rapidamente,
 
 — E você? — indaguei, encarando-o — não o ajudou?
 
-— O quê? Aqueles filhos da puta abusam à força de todo homem novo que desce pra cá. Nunca que eu me aliaria a eles — ele retrucou com firmeza, um rancor evidente na voz — depois, eles deixam o cara em paz. Eles gostam só de sangue novo.
+— O quê? Aqueles filhos da puta abusam à força de todo homem novo que desce pra cá. Nunca que eu me aliaria a eles — ele retrucou com firmeza — depois, eles deixam o cara em paz. Eles gostam só de sangue novo.
 
 — Como é? Então você...
 
@@ -120,7 +120,7 @@ Voltei-me para os outros dois homens.
 
 — Pensei que fosse me chamar de mentiroso. A maioria aqui não acredita que a Lebargan seja real — respondi.
 
-— Eu achava que era um mito — confessou Leitham. — Mas já a vi uma vez, numa missão. Perseguia suspeitos que roubaram um artefato num planeta chamado Solmar; vi quando entraram na nave, antes dela desaparecer. Era a maior que eu já tinha visto: toda dourada, lenta como uma baleia, com um farol vermelho no topo.
+— Eu achava que era um mito — confessou Leitham. — Mas já a vi uma vez, numa missão. Perseguia suspeitos que roubaram um artefato num planeta chamado Solmar. Vi quando entraram na nave, antes dela desaparecer. Era a maior que eu já tinha visto: toda dourada, lenta como uma baleia, com um farol vermelho no topo.
 
 Ri pelo nariz. Dourada, lenta, com farol: ele tinha visto uma barcaça de festa, não a Lebargan. Deixei que continuasse.
 
@@ -130,13 +130,15 @@ Ri pelo nariz. Dourada, lenta, com farol: ele tinha visto uma barcaça de festa,
 
 — Eu não concordava com a forma como a Lebargan estava sendo operada — expliquei — e você, por que a pergunta?
 
-— Porque eu também já vi a Lebargan. Foram os Dales que destruíram meu planeta. A arma que aquela nave carrega, aquele gás... arrasou com tudo que tínhamos. Todos morreram. Homens, mulheres, crianças, animais, plantas... nosso planeta agora é um deserto sem vida — disse o homem, a voz carregada de tristeza.
+— Porque eu também já vi a Lebargan. Foram os Dales que destruíram meu planeta. A arma que aquela nave carrega, aquele gás... arrasou com tudo que tínhamos. Todos morreram. Homens, mulheres, crianças, animais, plantas... nosso planeta agora é um deserto sem vida — disse o homem.
 
-Olhei para o chão, abatido pela culpa. A Lebargan havia devastado incontáveis mundos, e eu me encontrava perdido, incapaz de formular uma resposta. Tudo que pude fazer foi encará-lo, hesitante.
+Olhei para o chão, sem resposta. A Lebargan havia devastado incontáveis mundos.
 
 — Então Tzough apareceu em meu planeta, capturando os sobreviventes para escravizá-los. Todos resistiram bravamente, mas foram brutalmente assassinados. Eu... aceitei me submeter a ele, e é por isso que estou aqui — concluiu Zekko.
 
-— Lamento profundamente o que foi forçado a suportar — disse-lhe, com a voz embargada —, mas preciso que entenda que os verdadeiros inimigos não são os Dales. Eles estão sob o comando de um capitão chamado Jelles. Zekko não respondeu; simplesmente sentou-se, fixando o olhar na parede, visivelmente pensativo. Ver sua angústia me atormentava, lembrando-me do mal que causara antes de finalmente despertar para a realidade.
+— Lamento profundamente o que foi forçado a suportar — disse-lhe, com a voz embargada —, mas preciso que entenda que os verdadeiros inimigos não são os Dales. Eles estão sob o comando de um capitão chamado Jelles.
+
+Zekko não respondeu. Simplesmente sentou-se, fixando o olhar na parede, visivelmente pensativo. Ver sua angústia me atormentava.
 
 O alarme soou novamente e luzes vermelhas despertaram do alto teto acima de nós.
 
@@ -146,9 +148,9 @@ Recuei e caminhei até as correntes, prendendo-as em minha perna. Assim que as l
 
 — Nada mal! — exclamou um dos piratas, de sobrancelhas densas, virando-se em minha direção. — O capitão já decidiu. Venha conosco.
 
-E le desprendeu minhas correntes, encarando-me fixamente enquanto eu me erguia.
+Ele desprendeu minhas correntes, encarando-me fixamente enquanto eu me erguia.
 
-— Você provocou um verdadeiro caos aqui embaixo. Mas se tentar qualquer artimanha lá em cima, vamos usar suas entranhas para alimentar a tripulação — ameaçou, com crueldade.
+— Você provocou um verdadeiro caos aqui embaixo. Mas se tentar qualquer artimanha lá em cima, vamos usar suas entranhas para alimentar a tripulação — ameaçou.
 
 Fui então arrastado para o elevador, lançando um último olhar a Leitham e aos outros. Quando as portas se fecharam, permaneci imóvel, ouvindo a respiração pesada dos piratas enquanto ascendíamos.
 
@@ -192,7 +194,7 @@ Não respondi, mas meu olhar me entregou.
 
 — Aquela porra de pulseira… podia ter me explicado que ela hackeava os sistemas da nave. Eu fugiria sem a vadia.
 
-— Você não fugiria sem a… vadia… porque é manipulável. Juro que basta uma mulher te virar o rabo para você virar um bobalhão. Além disso, a pulseira não “hackeia” no sentido bruto. Ela emite uma assinatura de frequência que emula os comandos de segurança mestre, um disfarce digital: engana os sistemas para pensarem que somos a autoridade máxima, dando controle de qualquer embarcação sem barreiras quânticas ativas. Por isso não podia ser detectada: não havia “código” para um sensor achar, só uma “identidade”.
+— Você não fugiria sem a… vadia… porque é manipulável. Juro que basta uma mulher te virar o rabo para você virar um bobalhão. Além disso, a pulseira não “hackeia” no sentido bruto. Ela emite uma assinatura de frequência que emula os comandos de segurança mestre: engana os sistemas para pensarem que somos a autoridade máxima, dando controle de qualquer embarcação sem barreiras quânticas ativas. Por isso não podia ser detectada: não havia “código” para um sensor achar, só uma “identidade”.
 
 — E você construiu isso aqui? — indaguei.
 
@@ -228,25 +230,25 @@ Olhei para ele e lancei um olhar sarcástico.
 
 — Vai me obrigar? — desafiei.
 
-O homem retribuiu o sorriso, mostrando dentes apodrecidos e um dourado solitário, e ergueu o porrete. Esquivei e enlacei a corrente dos meus braços no seu pescoço, derrubando-o. Ele soltou o porrete, tentando se desvencilhar, enquanto eu apertava. Outro se aproximou; virei e recuei a tempo de soltar o primeiro, que recebeu o golpe no peito e gritou. Ergui-me, soquei o do porrete, arranquei-lhe a arma e a cravei no rosto dele. Com os espinhos enterrados na pele e sangue jorrando, ele gritou em agonia. Os outros nas máquinas apenas observavam, rindo. Então, como sempre acontece, fui acertado por trás e desacordei.
+O homem retribuiu o sorriso, mostrando dentes apodrecidos e um dourado solitário, e ergueu o porrete. Esquivei e enlacei a corrente dos meus braços no seu pescoço, derrubando-o. Ele soltou o porrete, tentando se desvencilhar, enquanto eu apertava. Outro se aproximou. Virei e recuei a tempo de soltar o primeiro, que recebeu o golpe no peito e gritou. Ergui-me, soquei o do porrete, arranquei-lhe a arma e a cravei no rosto dele. Com os espinhos enterrados na pele e sangue jorrando, ele gritou em agonia. Os outros nas máquinas apenas observavam, rindo. Então, como sempre acontece, fui acertado por trás e desacordei.
 
 Essa foi apenas a primeira onda de minha rebeldia, que se estendeu por momentos intermináveis. Tentei várias estratégias para escapar daquele abismo, enfrentando os piratas com todas as minhas forças, mas sempre acabava derrotado. Eles me lançavam em poças de água gelada, me suspendiam de cabeça para baixo por períodos extensos, me queimavam e açoitavam para forçar minha submissão. Acumulei inúmeras cicatrizes naquele inferno. Na Lebargan já teriam me libertado, mas ali os homens eram domesticados, moldados para a obediência. Chegou um momento em que, exausto, cessei a resistência e dediquei-me apenas ao trabalho.
 
 Quem acha que pirataria era só glória e rum desconhece a realidade. Por Trimonius, aquele lugar fedia a suor, metal velho e desespero, um cheiro de podridão que me fazia duvidar de todas as minhas escolhas, especialmente a de não ter morrido no metano. Homens suados, sem camisa, trabalhando sem descanso. Nossos leitos eram tábuas frias fixadas nas paredes metálicas, e o sono era superficial e roubado, pontuado pelos gemidos dos doentes e pelo ruído das máquinas em agonia.
 
-Vi homens que, tomados pelo desespero, paravam de lutar e se deixavam consumir pela inanição, e outros que tiravam a própria vida contra as barras das celas ou nos cantos escuros das máquinas, o som abafado de seus corpos caindo o único velório que tinham. A cada volta, a Fera mastigava mais uma parte de nós. O desespero não era uma emoção, era a atmosfera que respirávamos.
+Vi homens que, tomados pelo desespero, paravam de lutar e se deixavam consumir pela inanição, e outros que tiravam a própria vida contra as barras das celas ou nos cantos escuros das máquinas, o som abafado de seus corpos caindo o único velório que tinham. A cada volta, a Fera mastigava mais uma parte de nós.
 
 Hardman se tornou um colega, junto com O’reilly, o barbudo, Kord, o careca tatuado, e Buni, o mais corpulento.
 
-Cada um tinha sua identidade. Buni era retraído e sensível, derramando lágrimas com frequência. O’reilly, devoto fervoroso do Divino Sacerdote, sempre achava palavras de conforto e contava histórias fascinantes de Tangreia, seu planeta natal. Kord era o mais rígido e desconfiado, falava alto, ria estrondosamente e era extremamente irritadiço. Numa daquelas voltas, vi o careca moreno levantar uma peça de ferro para Hardman, o olho tatuado nas costas se deformando com o esforço; apesar da cara severa, ajudou Hardman com o resto. Nos enfrentamos várias vezes, chegando às vias de fato, mas Hardman sempre intervinha. Ele era a ponte entre todos nós. Mesmo os considerando boa gente, mantive distância. Se precisasse destruir aquela nave para escapar, faria sem hesitar. Mas a cada dia minhas esperanças minguavam.
+Cada um tinha sua identidade. Buni era retraído e sensível, derramando lágrimas com frequência. O’reilly, devoto fervoroso do Divino Sacerdote, sempre achava palavras de conforto e contava histórias fascinantes de Tangreia, seu planeta natal. Numa delas, um sacerdote abençoou um rio para curar uma aldeia, e o rio, agradecido, afogou metade dela no mesmo dia. “Foi uma cura”, insistia O’reilly. “Ninguém mais reclamou de nada.” Kord era o mais rígido e desconfiado, falava alto, ria estrondosamente e era extremamente irritadiço. Numa daquelas voltas, vi o careca moreno levantar uma peça de ferro para Hardman, o olho tatuado nas costas se deformando com o esforço, apesar da cara severa, ajudou Hardman com o resto. Nos enfrentamos várias vezes, chegando às vias de fato, mas Hardman sempre intervinha. Ele era a ponte entre todos nós. Mesmo os considerando boa gente, mantive distância. Se precisasse destruir aquela nave para escapar, faria sem hesitar. Mas a cada dia minhas esperanças minguavam.
 
 Até que, num dia qualquer, ouvi uma mulher que faxinava as máquinas comentar com um colega algo que chamou minha atenção.
 
 — Esses idiotas dizem que sabem como chegar na Aurora... — ela murmurou, mais para si mesma do que para o operário, enquanto arrastava o balde.
 
-Aurora? Aquilo fez minha mente parar. Era para lá que Jelles queria ir. Disfarcei a curiosidade e esperei o momento certo; quando ela se afastou do operário, me aproximei.
+Aurora? Aquilo fez minha mente parar. Era para lá que Jelles queria ir. Disfarcei a curiosidade e esperei o momento certo. Quando ela se afastou do operário, me aproximei.
 
-— Você disse que alguém sabe como chegar à Aurora? — perguntei, tentando parecer desinteressado, como se o assunto fosse apenas mais um rumor qualquer.
+— Você disse que alguém sabe como chegar à Aurora? — perguntei, tentando parecer desinteressado.
 
 Ela olhou de relance, incomodada, e respondeu com o mesmo desdém.
 
@@ -268,13 +270,13 @@ Ele parou imediatamente, erguendo as sobrancelhas e me encarando.
 
 — Aurora? Está falando sério? — ele riu, balançando a cabeça. — Não vá me dizer que também acredita nessas lendas de piratas.
 
-— Fala sério, está rolando altas fofocas de que você sabe como chegar na Aurora — insisti, tentando arrancar mais informações.
+— Fala sério, está rolando altas fofocas de que você sabe como chegar na Aurora — insisti.
 
 Hardman me olhou com um misto de incredulidade e diversão.
 
 — Não sou um pirata mentiroso como você, Jasmey. Por isso, sim, eu já estive lá — falou, de forma casual, o que fez meu coração disparar.
 
-— O quê? Está falando sério? — perguntei, tentando controlar a excitação na voz.
+— O quê? Está falando sério? — perguntei.
 
 — Meu pai e eu viajávamos muito quando eu era jovem. Em uma dessas viagens, fomos até a Aurora. E eu a vi de perto. É linda! — disse ele, como se estivesse narrando um passeio no parque.
 
@@ -342,7 +344,7 @@ Olhei para trás, conferindo se o caminho estava livre, e vi algo que me deu uma
 
 Foi quando ouvi o som mecânico e me virei para ver que, na nave inimiga, os homens estavam carregando um canhão de prótons.
 
-— Merda! — murmurei, correndo no instante em que o canhão disparou uma rajada de laser que dizimou todos no caminho, aliados ou inimigos. Corri até me agarrar em uma das correntes que os inimigos usaram como tirolesa para descer na nave, e observei o canhão desintegrando muitos homens de uma só vez. Os que se abaixavam conseguiam se salvar.
+— Merda! — murmurei, correndo no instante em que o canhão disparou uma rajada de laser, visível só porque a fumaça e a poeira do convés a espalhavam, que dizimou todos no caminho, aliados ou inimigos. Corri até me agarrar em uma das correntes que os inimigos usaram como tirolesa para descer na nave, e observei o canhão desintegrando muitos homens de uma só vez. Os que se abaixavam conseguiam se salvar.
 
 Quando o laser passou por baixo de mim, me virei para a nave inimiga e identifiquei o capitão dando as ordens. Olhei para baixo, procurando por uma vítima, e encontrei um homem com uma pistola genérica.
 
@@ -358,11 +360,11 @@ Cheguei ao convés e vi um canhão de chamas da Fera queimar vários inimigos. A
 
 Uma explosão próxima lançou Zekko e outros homens longe. O tiro veio da nave inimiga, e localizei o capitão inimigo. Procurei um ponto para aterrissar lá, conferi a pistola, recuei até a ponta oposta da nave e corri em direção à outra, desviando de um golpe. Na elevação da beira, saltei com força e me vi nos ares rumo à popa esquerda da nave inimiga.
 
-Os inimigos miraram em mim e pus o braço à frente; um dos tiros acertou o braço de metal. Por um instante achei que estava ferido, mas era só uma marca escura de queimado, e comecei a rir loucamente enquanto me agarrava à nave. Subi rápido enquanto dois vinham me atacar. Arranquei a pistola de um com uma porrada do braço de metal. O capitão estava ao fundo, observando-me. Eles não usariam as armas mais poderosas ali, só espadas e pistolas.
+Os inimigos miraram em mim e pus o braço à frente. Um dos tiros acertou o braço de metal. Por um instante achei que estava ferido, mas era só uma marca escura de queimado, e comecei a rir loucamente enquanto me agarrava à nave. Subi rápido enquanto dois vinham me atacar. Arranquei a pistola de um com uma porrada do braço de metal. O capitão estava ao fundo, observando-me. Eles não usariam as armas mais poderosas ali, só espadas e pistolas.
 
 Ali a gravidade estava normal, então não tinha esse recurso. Encostei as costas num dos pilares de sustentação das velas solares e vi outros homens, ao ver o que eu fizera, saltarem também sobre a nave inimiga. Era disso que eu precisava. Eu não era mais a única atenção ali.
 
-Então vi Kiran, o homem que estava na prisão comigo, lutando com dificuldade em cima de um mastro contra um inimigo. Tentei me mover para ajudá-lo, mas ele foi perfurado no rosto e despencou de lá de cima. Dividira comigo uma cela e comida podre. Eu nunca soube o sobrenome dele. Respirei fundo e voltei a atenção ao capitão inimigo. Cortei uma das correntes de sustentação das velas solares e me pendurei nela, balançando em direção aos inimigos. O capitão estava logo abaixo. Ao me ver, sacou a pistola... opa, eu conhecia aquela arma: uma amplificadora magnética, que me traria direto ao chão, tornando-me um alvo fácil. Quando ele atirou, me soltei e caí sobre um homem, perfurando-o com minha espada. Corri em direção ao capitão enquanto outros tentavam me atacar; alguns aliados lá em cima ajudaram a contê-los. Antes que eu chegasse nele, um homem caiu sobre mim e me jogou ao chão. Rolei, batendo a cabeça com força, e tudo girou enquanto eu tentava me levantar, atônito. Vi dois homens lutando à minha frente.
+Então vi Kiran, o homem que estava na prisão comigo, lutando com dificuldade em cima de um mastro contra um inimigo. Tentei me mover para ajudá-lo, mas ele foi perfurado no rosto e despencou de lá de cima. Dividira comigo uma cela e comida podre. Eu nunca soube o sobrenome dele. Respirei fundo e voltei a atenção ao capitão inimigo. Cortei uma das correntes de sustentação das velas solares e me pendurei nela, balançando em direção aos inimigos. O capitão estava logo abaixo. Ao me ver, sacou a pistola... opa, eu conhecia aquela arma: uma amplificadora magnética, que me traria direto ao chão, tornando-me um alvo fácil. Quando ele atirou, me soltei e caí sobre um homem, perfurando-o com minha espada. Corri em direção ao capitão enquanto outros tentavam me atacar. Alguns aliados lá em cima ajudaram a contê-los. Antes que eu chegasse nele, um homem caiu sobre mim e me jogou ao chão. Rolei, batendo a cabeça com força, e tudo girou enquanto eu tentava me levantar, atônito. Vi dois homens lutando à minha frente.
 
 Quando me recuperei, o capitão inimigo lutava contra Tzough a poucos metros. Tzough desferia golpes mortais enquanto o inimigo apenas se defendia, e mesmo assim acertava outros ao redor. Mas algo deu errado: um inimigo saltou sobre Tzough e perfurou seu ombro, fazendo-o guinchar. Corri até o capitão inimigo, que atacava Tzough ajoelhado, e antes do golpe mortal atravessei minha espada em seu intestino, o sangue espirrando no rosto de Tzough.
 

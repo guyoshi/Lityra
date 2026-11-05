@@ -10,15 +10,13 @@ A dor pulsava no braço perdido, e, ao tentar aliviá-la, minha mão achou uma m
 
 — O que vocês fizeram comigo? — indaguei, ainda atônito, aos seres que me encaravam impassíveis.
 
-Foi então que uma voz se infiltrou em minha consciência, não através do ar, mas diretamente em minha mente. “Nós te salvamos”, ela disse, uma presença invisível e onipresente.
+Foi então que uma voz se infiltrou em minha consciência, não através do ar, mas diretamente em minha mente. “Nós te salvamos”, ela disse.
 
-Busquei pela origem dessa voz misteriosa, minha confusão se aprofundando.
+Busquei pela origem dessa voz misteriosa.
 
 — Como? Qual de vocês disse isso? — perguntei.
 
 “Eles não conseguem te entender, e nem você a eles. Não está mais com seu tradutor. E é bom manter o seu filtro molecular no rosto. Sem ele, você não respira”, a voz ressoou em minha mente.
-
-Minha mente girava com perguntas, enquanto tentava processar a situação extraordinária em que me encontrava.
 
 — Onde está você? De onde vem essa voz? Que tipo de tecnologia é essa? Colocaram a porra de um chip em meu cérebro?
 
@@ -30,13 +28,13 @@ Minha mente girava com perguntas, enquanto tentava processar a situação extrao
 
 — Jasmey — respondi — ainda não me respondeu. Por que me trouxe de volta?
 
-“Ah, eu não achei justo você ser traído pelos seus daquele jeito. Mas ao contrário dos seus companheiros, você escolheu um caminho de consciência. Entao eu decidi lhe dar mais uma chance. Seu corpo estava congelado em metano líquido. Foi muito difícil te tirar de lá.”
+“Ah, eu não achei justo você ser traído pelos seus daquele jeito. Mas ao contrário dos seus companheiros, você escolheu um caminho de consciência. Então eu decidi lhe dar mais uma chance. Seu corpo estava congelado em metano líquido. Foi muito difícil te tirar de lá.”
 
 Saber que a Engenheira me observava e que minhas ações justificaram minha salvação pesou. “Ótimo”, pensei, “agora tenho uma cientista me julgando. Como se já não bastasse o inferno que vivi na Lebargan.” Ter sido salvo por um “caminho de consciência” era quase tão estranho quanto o meu novo braço de metal.
 
 — Quis me dar mais uma chance? Você estava me espionando?
 
-“Desde que chegaram. Estive olhando vocês todos. Aqueles homens acabaram com centenas de inocentes. Muitas vidas foram perdidas. Mas você lutou até a morte pelo que achou certo, contrariando todos os seus ensinamentos”
+“Desde que chegaram. Estive olhando vocês todos. Aqueles homens acabaram com centenas de inocentes. Muitas vidas foram perdidas. Mas você lutou até a morte pelo que achou certo, contrariando todos os seus ensinamentos.”
 
 — E onde é que você está agora? Por que não aparece para conversar pessoalmente ao invés de ficar nesse lance de voz na minha cabeça.
 
@@ -50,7 +48,7 @@ Pus as pernas para fora da pedra onde estava deitado e senti alguns fios se solt
 
 As criaturas se olharam e soltaram mais um som estranho.
 
-— Ah, esquece — respondi caminhando em direção à elas — me dão licença.
+— Ah, esquece — respondi caminhando em direção a elas — me dão licença.
 
 Passei pelos dekraazianos e, atravessando um túnel escuro, cheguei ao mundo exterior: um jardim iluminado por flora azul luminescente que transformava a noite num espetáculo. Quando eu passava, as flores soltavam um pólen que se espalhava como vagalumes. O contraste com o chão negro era de conto de fadas. Sim, eu sei o que são contos de fadas. Mas depois de momentos viajando o espaço, descobrimos que fadas não são só um conto.
 
@@ -60,7 +58,7 @@ Segui pelas flores até uma descida para um pequeno vale. Sons atrás de mim me 
 
 — Esqueçam. Eu não vou voltar — lhes respondi — maldito planeta. Maldita vida. Maldito Jelles.
 
-As criaturas estavam cada vez mais agitadas, seus guinchos cortando o silêncio como lâminas.
+As criaturas estavam cada vez mais agitadas.
 
 — EU JÁ DISSE QUE…
 
@@ -82,7 +80,7 @@ Adrenalina, a merda de um sentimento desesperador que eu odeio. Ok, serei mais e
 
 — Certo, e para onde fica o norte?
 
-“Ai minha Estrela! Vocês são totalmente dependentes da tecnologia e não sabem como identificar coisas óbvias. Olhe para cima!”. Obedeci, mas não vi nada demais “Consegue enxergar onde o sol está? Estamos de manhã, Jasmey, o sol neste planeta nasce no oeste. Acho que você consegue usar a cabeça agora e deduzir onde é o norte, não?”
+“Ai minha Estrela! Vocês são totalmente dependentes da tecnologia e não sabem como identificar coisas óbvias. Olhe para cima!” Obedeci, mas não vi nada demais. “Consegue enxergar onde o sol está? Estamos de manhã, Jasmey, o sol neste planeta nasce no oeste. Acho que você consegue usar a cabeça agora e deduzir onde é o norte, não?”
 
 — Era tão mais simples quando eu tinha a porra do bracelete.
 
@@ -104,15 +102,15 @@ Segui pelo corredor de iluminação arroxeada e fraca, o piso reagindo à press�
 
 No fim do corredor, uns degraus em espiral subiam até um salão alto de tirar o fôlego: cápsulas com formas de vida variadas, algumas imersas em líquido roxo, outras desmembradas em mesas de dissecação, instrumentos cirúrgicos e artefatos flutuantes, uma beleza macabra sob a luz bioluminescente das paredes.
 
-— Mas que porra de lugar é esse? — murmurei, a mente acelerada tentando assimilar a cena.
+— Mas que porra de lugar é esse? — murmurei.
 
 — Fascinado por minha galeria? — a voz feminina quebrou o silêncio, vinda de uma figura imponente adiante. Virei e vi uma mulher de presença marcante e rara. Os cabelos, brancos como a neve mais pura, caíam sobre o corpo, e as pernas lisas me causavam um formigamento no ventre. Em circunstâncias menos macabras, eu a convidaria para dormir comigo. Me distraí tanto que nem a respondi.
 
 — Se distraiu com algo? — Ela me sondou, um meio-sorriso brincando em seus lábios.
 
-— Ah, sim. Absorvido pela visão... da sua coletânea peculiar — falei, desviando o olhar para os corpos nas cápsulas, para disfarçar o fascínio pela mulher.
+— Ah, sim. Absorvido pela visão... da sua coletânea peculiar — falei, desviando o olhar para os corpos nas cápsulas.
 
-— Essa é a minha obra de vidas — ela declarou, com orgulho e uma pitada de melancolia.
+— Essa é a minha obra de vidas — ela declarou.
 
 — Obra de vidas? O que isso significa? E onde está a pessoa que falava comigo na minha cabeça?
 
@@ -130,11 +128,11 @@ Isso me deixou desconfortável e ao mesmo tempo intrigado. Como uma garota de ap
 
 — Prefiro ficar de pé, obrigado — menti, embora o cansaço pesasse nos ossos. — Uma jovem com gostos tão... peculiares. Como se considera tão habilidosa na engenharia biológica sendo tão nova?
 
-Seu riso foi leve e repleto de graça.
+Ela riu.
 
 — “Jovem”? Aprecio o elogio. Mas, veja bem, minha existência se estende por quase duas eras.
 
-Minha surpresa foi inevitável, e com ceticismo, perguntei:
+Perguntei, cético:
 
 — Quase duas eras, é? E como seu corpo sobreviveu a todo esse tempo? E continua... ahm... tão bem conservado?
 
@@ -144,7 +142,7 @@ Minha surpresa foi inevitável, e com ceticismo, perguntei:
 
 — Você está aqui, não está? Até bem pouco tempo, estava mortinho — ela retorquiu com um toque de humor.
 
-Um latejar no braço me trouxe de volta à realidade. Olhei para a mulher, sentindo o peso do metal que agora fazia parte de mim.
+Um latejar no braço me trouxe de volta à realidade. Olhei para a mulher.
 
 — Foi você quem me deu isso?
 
@@ -158,7 +156,7 @@ Ela ergueu o queixo, orgulhosa.
 
 — Não me interessa o que há fora dessa galáxia. É nela que eu vivo — falei, analisando uns itens na mesa ao lado.
 
-— A vida inteligente nesta galáxia segue um de três padrões: os hermetarianos, que florescem ao calor das estrelas; os actoneses, de longe os mais complexos e capazes de auto-regeneração, a forma mais fantástica para se fazer uma cirurgia celular; e os humanídeos, mais parecidos conosco.
+— A vida inteligente nesta galáxia segue um de três padrões: os hermetarianos, que florescem ao calor das estrelas. Os actoneses, de longe os mais complexos e capazes de auto-regeneração, a forma mais fantástica para se fazer uma cirurgia celular, e os humanídeos, mais parecidos conosco.
 
 Ela pausou, refletindo.
 
@@ -224,7 +222,9 @@ Sorri com ironia. Ela sabia como chegar à Aurora e estava me contando isso. Por
 
 — Exatamente. É um cara forte, e os Úrgalos também são, por mais que não pareçam.
 
-— O mesmo que fiz com você: trazê-lo de volta à vida. O coitadinho morreu há menos de uma hora. Esta espécie pode ser revivida nesse intervalo; depois disso, os danos são irreversíveis.
+— E que procedimento é esse? — perguntei.
+
+— O mesmo que fiz com você: trazê-lo de volta à vida. O coitadinho morreu há menos de uma hora. Esta espécie pode ser revivida nesse intervalo. Depois disso, os danos são irreversíveis.
 
 Balancei a cabeça negativamente, achando graça.
 
@@ -236,7 +236,7 @@ Balancei a cabeça negativamente, achando graça.
 
 — Alguns ectons — ela respondeu, indicando onde segurar. — Aplique pressão aqui e aqui. Ele não deve se mover até estar curado por completo.
 
-— É claro que consigo. Só queria ter certeza de que você não me pediria mais favores depois.
+— Consigo. Só queria ter certeza de que você não me pediria mais favores depois.
 
 — Favores? Eu te trouxe de volta à vida, ingrato! — respondeu ela, ofendida.
 
@@ -244,9 +244,9 @@ Balancei a cabeça negativamente, achando graça.
 
 — Você é sempre ingrato assim? — ela perguntou, preparando-se. — Agora segure firme.
 
-Ela levantou um bisturi, pôs óculos especiais que brilharam roxos e começou a incisão. O líquido azul escorreu do ser e, com um gesto da mão direita, flutuou no ar enquanto ela operava com precisão cirúrgica, a esquerda mexendo dentro da criatura. Era incrível a delicadeza e a concentração dela.
+Ela levantou um bisturi, pôs óculos especiais que brilharam roxos e começou a incisão. O líquido azul escorreu do ser e, com um gesto da mão direita, flutuou no ar enquanto ela operava com precisão cirúrgica, a esquerda mexendo dentro da criatura.
 
-— Posso te perguntar o que está fazendo? — indaguei, vendo suas mãos conduzirem um balé invisível.
+— Posso te perguntar o que está fazendo? — indaguei.
 
 — Reanimando células e reconstruindo moléculas. É complexo, principalmente quando microrganismos já começaram a degradá-las. Mas, como disse, ainda não é tarde demais.
 
@@ -294,7 +294,7 @@ Sorri para mim mesmo. Agora que eu tinha feito o que ela pediu, era minha vez de
 
 — O quê? — indaguei, inocentemente.
 
-— Isso é uma dissolutora plasmática; sim, é valiosa, mas sem ela não consigo introduzir informação nos núcleos celulares. Mesmo que a venda, não terá utilidade para você nem para ninguém. Só eu sei usá-la.
+— Isso é uma dissolutora plasmática. Sim, é valiosa, mas sem ela não consigo introduzir informação nos núcleos celulares. Mesmo que a venda, não terá utilidade para você nem para ninguém. Só eu sei usá-la.
 
 Fiz uma careta e abaixei a cabeça, pensativo, antes de tirar a mão do bolso com o objeto dourado e atirá-lo de volta à mesa.
 
@@ -302,7 +302,7 @@ Fiz uma careta e abaixei a cabeça, pensativo, antes de tirar a mão do bolso co
 
 Uma arma com dois canos longos, uma espada tipo cutelo e uma adaga de lâmina curva.
 
-— É, acho que isso vai me ser útil — falei, guardando os equipamentos na cintura.
+— É, acho que isso vai me ser útil — falei, guardando os equipamentos na cintura. A adaga de lâmina curva se acomodou com uma curva só dela e quase me capou antes da porta. Saí andando de lado, com a dignidade de quem sabe que está sendo observado.
 
 — Espero que encontre seu caminho, capitão — disse-me a Engenheira.
 

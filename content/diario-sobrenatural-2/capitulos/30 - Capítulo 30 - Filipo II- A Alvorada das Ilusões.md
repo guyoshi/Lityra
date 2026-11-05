@@ -14,7 +14,11 @@ Não era o ranger apressado do meu pai, nem o leve de Manu subindo dois degraus 
 
 — Tentando entender como algumas estrelas mudam de brilho — respondi, virando o livro um pouco pra ele ver. — Elas não explodem nem morrem. Só… variam.
 
-Ele entrou no quarto, andando devagar, como se o chão fosse um lago fino demais para aguentar peso, e se sentou na beirada da cama.
+Ele entrou no quarto, andando devagar, como se o chão fosse um lago fino demais para aguentar peso, e se sentou na beirada da cama. Trazia, como sempre, o caderno de capa de couro onde copiava à mão, em letra miúda, trechos dos livros antigos que ninguém mais na cidade abria. Estendeu-o para mim.
+
+— Guarda pra mim, menino. Meus joelhos não aguentam carregar tudo.
+
+Enfiei o caderno no bolso do casaco que estava na cadeira, por educação, sem abrir.
 
 — O céu faz isso pra lembrar a gente que nem tudo precisa acabar pra mudar — disse. — Tem coisa que só oscila porque está viva.
 
@@ -26,7 +30,11 @@ Ele ficou em silêncio por um instante, olhando para o teto, como se estivesse a
 
 — Você é diferente, Filipo. Observa antes de agir. Aprende antes de negar. Isso é bom… mas também cansa.
 
-Eu ia responder, mas ele continuou, a voz ficando um pouco mais baixa, mais concentrada.
+— O senhor também ouve eles, vô? Os mortos?
+
+— Eu? — O sorriso torto voltou. — Homem não é médium, menino. A gente só aprende a ler o que as mulheres já nascem ouvindo.
+
+Ele não esperou resposta. A voz ficou um pouco mais baixa, mais concentrada.
 
 — O mundo espiritual não é feito de mistério bonito, como o pessoal gosta de acreditar. É feito de consequência. Tudo que alguém não resolve em vida acaba tentando resolver depois. E quando não consegue… fica preso. Rodando. Consumindo o que encontra.
 
@@ -194,7 +202,7 @@ Peguei o livro do chão antes de sair, quase por reflexo, sentindo o peso estran
 
 Liber Damnatorum, ou Livro dos Condenados.
 
-Enfiei o livro debaixo do braço e seguimos para fora.
+Enfiei o livro debaixo do braço. No bolso do casaco, o caderno do vô pesava contra a costela. Seguimos para fora.
 
 A rua parecia outra cidade.
 
@@ -294,7 +302,7 @@ Meu pai passou a mão pelo rosto.
 
 Hesitei antes de responder. Não porque não sabia o que dizer, mas porque tentava lembrar o termo. 
 
-— Uma selifa — disse, ao finalmente me lembrar — Um médium como o vô. Mas… muito mais poderoso. 
+— Uma selifa — disse, ao finalmente me lembrar — Parecida com uma médium, mas das que o vô só conhecia de ouvir falar. Muito mais poderosa. 
 
 — E isso existe? Existe alguém assim? 
 
@@ -332,6 +340,6 @@ Um arco de névoa surgiu em nossa frente e imediatamente o atravessamos.
 
 O mundo pareceu afundar sobre si mesmo. O som desapareceu, o frio virou pressão, e por um breve instante senti como se estivesse sendo esticado entre dois lugares que não concordavam em me soltar.
 
-Quando acordei, o sol batia direto no rosto. Estávamos caídos à beira de uma estrada, diante de um arco grande onde havia os dizeres “Bem-Vindo a Alvorada Alegre”. Minhas mãos estavam vazias: o livro tinha ficado para trás, aberto na rua de pedra, onde caiu quando meu pai me puxou.
+Quando acordei, o sol batia direto no rosto. Estávamos caídos à beira de uma estrada, diante de um arco grande onde havia os dizeres “Bem-Vindo a Alvorada Alegre”. Minhas mãos estavam vazias: o livro tinha ficado para trás, aberto na rua de pedra, onde caiu quando meu pai me puxou. No bolso do casaco, só o caderno do vô, intacto.
 
 Parei de falar aí. Tinha contado tudo o que sabia contar. No para-brisa, a estrada seguia reta, e no fim dela os faróis começaram a iluminar, pouco a pouco, um arco de pedra com letras que eu conhecia de cor. O Pedro não tinha dito uma palavra desde o começo. Continuou calado quando as letras ficaram legíveis, e eu diminuí a velocidade até a de quem chega. 

@@ -132,7 +132,7 @@ Velho-Sábio se virou para Banjo.
 
 — Mas eu não tirei nada dela! Eu senti... uma coisa. Pedi ajuda, e a força veio até mim.
 
-— Eu sei, Banjo. Você não arrancou a vitalidade da árvore. Sentiu os sentimentos da natureza e conduziu para Bruno a energia que chegou até você. Foi a sua magia que moveu as raízes. A árvore não tinha magia própria, nem falava como nós. — O mago sorriu com tristeza. — Não sabemos se ela respondeu ao seu pedido ou se você percebeu algo que já estava ali. Mas você não a forçou.
+— Eu sei, Banjo. Você não tirou nada dela. A árvore deu, e você conduziu. — O mago sorriu com tristeza. — Não sei se ela respondeu ao seu pedido ou se você percebeu algo que já estava ali. Mas você não a forçou.
 
 Banjo ficou vermelho até as orelhas, mas o sorriso não veio inteiro. Esfregou a palma da mão, lembrando o calor que sentira e a aspereza da casca sob os dedos. Bruno, ainda de cobertor nos ombros, levantou o copo.
 
@@ -142,13 +142,13 @@ Banjo ficou vermelho até as orelhas, mas o sorriso não veio inteiro. Esfregou 
 
 Todos riram. Velho-Sábio esperou o riso passar.
 
-— Na reunião da Sociedade, você se ofereceu para ser a isca. Eu disse não, e diria de novo. — Velho-Sábio olhou para Bruno. — Mas entendi por que levantou a mão: queria proteger seus irmãos. Não precisa esconder isso atrás de uma piada.
+— Na reunião da Sociedade, você se ofereceu para ser a isca. Eu disse não, e diria de novo. — Velho-Sábio olhou para Bruno. — Mas vi quem levantou a mão primeiro.
 
 Bruno desviou o olhar. Mas um sorriso pequeno ficou nos cantos da boca, e demorou a sair.
 
 — Velho-Sábio... — Bruno coçou a nuca. — Por que o Garmande me deixou passar? Eu cheguei sem lárida. Ele tinha razão.
 
-— Tinha — respondeu o mago. — Você não cumpriu aquela regra. Mas entregou sua lárida ao Breno para que os outros chegassem e ficou sozinho enfrentando a criatura. Pedi a Garmande que levasse isso em conta. Ele aceitou rever sua avaliação, porque os desafios também medem coragem, controle e cooperação.
+— Tinha — respondeu o mago. — Você não cumpriu aquela regra. Mas entregou sua lárida ao Breno para que os outros chegassem e ficou sozinho enfrentando a criatura. Pedi a Garmande que levasse isso em conta, e ele aceitou.
 
 — Então ele não teve pena de mim?
 
@@ -321,7 +321,7 @@ Breno pôs a mão no ombro dele, mas a voz também saiu dura.
 
 Lucan assentiu devagar, como se as palavras de Beker o empurrassem de leve. Bruno explodiu.
 
-— Vocês estão fazendo exatamente o que Korvo quer! Vocês e ele querem a mesma coisa dos dimensais: usar. Para os dois lados somos armas. Soldados esperando para serem recrutados. E, se não somos fortes o bastante, somos descartados.
+— Parabéns! Korvo queria a gente como soldado, vocês nos querem fora do caminho. Nenhum dos dois perguntou o que a gente quer.
 
 O silêncio foi pesado como chumbo. Bruno olhou para Velho-Sábio, esperando uma bronca. O mago apenas o encarou, assentindo de leve.
 
@@ -329,7 +329,7 @@ O silêncio foi pesado como chumbo. Bruno olhou para Velho-Sábio, esperando uma
 
 Lucan hesitou, olhando a mesa. Garmande falou, sem levantar a voz:
 
-— As decisões de um líder nunca são fáceis, governante. Mas ouvir muitas vozes pode abafar a sua. Às vezes, o certo e o seguro não são a mesma coisa.
+— O certo e o seguro nem sempre são a mesma coisa, governante.
 
 Lucan piscou, atingido por algo. Mas Beker já tinha batido as mãos na mesa.
 
@@ -349,7 +349,7 @@ Passaram por Erla, encostada numa parede de pedra, de braços cruzados. Os olhos
 
 — Eu falhei com Marcus — disse ela, num sussurro. — E falhei com Tayo. Eu protegi esta cidade a vida inteira, e ela foi aberta por dentro, por gente da minha própria casa.
 
-— Você não é a única responsável — disse Breno, dando um passo à frente. — Korvo mexe com a cabeça das pessoas, faz acreditar numa ilusão. E ele não tomou Tayo. Foi você quem descobriu o covil dele. Você não falhou, Erla. Ele falhou.
+— Foi você quem achou o covil dele — disse Breno, dando um passo à frente. — Sem a Vigilância, a gente não saía de lá.
 
 Erla ergueu os olhos. Pela primeira vez, um sorriso pequeno e cansado apareceu no rosto dela.
 
@@ -365,7 +365,7 @@ Bruno parou no meio da escada. Velho-Sábio chegou ao lado dele.
 
 — Eu sei que ele é um dimensal — disse Bruno, de olhos fixos nos três.
 
-— Chegou muito jovem, vindo da terceira dimensão, sem ninguém. Foi chamado de intruso, de perigo, de ameaça. Durante anos achavam que ele era um espião, mesmo sem prova nenhuma. Sofreu mais do que eu gostaria de contar. Foi ficando duro para que não o machucassem. — O mago olhou para a figura de casaco comprido. — Ficou assim. Mas nunca fez mal a nenhum aprendiz.
+— Chegou muito jovem, vindo da terceira dimensão, sem ninguém. Chamaram ele de intruso, de espião, sem prova nenhuma. Foi ficando duro para que não o machucassem. — O mago olhou para a figura de casaco comprido. — Mas nunca fez mal a nenhum aprendiz.
 
 Bruno lembrou. O terraço no primeiro dia, com McCroys sozinho na ponta de uma mesa, mastigando pão, com um passarinho pousado ao lado dele que não se importava com mais ninguém. E o corredor do refeitório: McCroys de joelhos diante de um menino de oito anos, consertando uma lanterna de papel rasgada com a ponta dos dedos. Ele nunca tinha contado aquilo a ninguém. Parecia um segredo que não era seu, e que agora ele entendia.
 
@@ -379,7 +379,7 @@ McCroys ficou olhando para ele. A boca dele fez um movimento estranho, como se t
 
 — Não é pena. É que eu estava errado.
 
-— Claro que estava. — McCroys apertou o casaco no corpo. — Em vinte e nove anos, você é o primeiro a admitir isso sem que eu precisasse arrancar com tenaz. Alguém devia anotar a data.
+— Claro que estava. — McCroys apertou o casaco no corpo. — Em vinte e nove anos, você é o primeiro a admitir isso sem que eu precisasse arrancar com tenaz.
 
 Bruno soltou uma risada pelo nariz, sem conseguir segurar.
 
@@ -485,7 +485,7 @@ Quando ele saiu, o silêncio ficou, quente e cansado. Beatriz suspirou.
 
 Bruno encostou na parede, rindo baixo.
 
-— Como dizem, não é o tempo que conta, é o que você faz com ele.
+— E sem uma única noite de sono decente.
 
 — Bruno — chamou a voz de Kali, saindo da tela flutuante. — Você está bem?
 
@@ -507,7 +507,7 @@ Banjo, deitado de barriga para cima, falou para o teto:
 
 Breno demorou a responder.
 
-— Eu sei. Voltei depois e vi você tentando. Fiquei na porta. Não entrei. — Respirou fundo no escuro. — Gritei com você porque não conseguia gritar com mais ninguém. Não foi você, Banjo. Nunca foi.
+— Eu sei. Voltei depois e vi você tentando. Fiquei na porta. Não entrei. — Respirou fundo no escuro. — Eu não devia ter gritado com você. Não foi culpa sua, Banjo. Nunca foi.
 
 Banjo não disse nada. Procurou a mão do irmão mais velho e a encontrou.
 

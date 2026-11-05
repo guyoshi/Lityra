@@ -224,7 +224,7 @@ Jokara apertou a haste da lança até os dedos doerem.
 
 O chamado não se repetiu. Os insetos tinham parado de cantar. O fogo estalou às costas de Jokara, alto demais naquele silêncio, e alguém respirava pela boca perto dela. Jokara tentou descobrir de onde viria o ataque, mas cada tronco parecia esconder alguma coisa.
 
-À esquerda, folhas se moveram, e Mariv girou a lança naquela direção. Nada apareceu. Um galho rangeu atrás do grupo; Nestira se virou, enquanto Loutes levantava a própria arma, as mãos tensas na madeira. Antes de qualquer novo som, veio o cheiro, úmido e podre, entrando pela garganta de Jokara e apertando-lhe o estômago.
+À esquerda, folhas se moveram, e Mariv girou a lança naquela direção. Nada apareceu. Um galho rangeu atrás do grupo. Nestira se virou, enquanto Loutes levantava a própria arma, as mãos tensas na madeira. Antes de qualquer novo som, veio o cheiro, úmido e podre, entrando pela garganta de Jokara e apertando-lhe o estômago.
 
 Dois olhos amarelos surgiram entre os troncos, altos demais para qualquer fera comum, e desapareceram de novo. A criatura não estava parada. Estava andando ao redor deles.
 
@@ -280,7 +280,7 @@ Maletar deitou Mariv no chão e precisou apoiar as mãos nos joelhos para recupe
 
 Olhou para Mariv antes de continuar.
 
-— Ele voltou para me ajudar. Feriu uma das patas da criatura e conseguimos abrir espaço para correr. Mais adiante havia uma passagem estreita entre duas pedras. Nós passamos; ela não. — Maletar respirou fundo. — Mariv aguentou enquanto conseguiu. Depois tive que carregá-lo.
+— Ele voltou para me ajudar. Feriu uma das patas da criatura e conseguimos abrir espaço para correr. Mais adiante havia uma passagem estreita entre duas pedras. Nós passamos. Ela não. — Maletar respirou fundo. — Mariv aguentou enquanto conseguiu. Depois tive que carregá-lo.
 
 Mariv assentiu com dificuldade.
 

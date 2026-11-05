@@ -2,17 +2,17 @@ Ao saírem da Central da Vigilância, os irmãos seguiram Velho-Sábio em silên
 
 Pouco antes, à porta do gabinete de Erla, tinham ouvido o mestre insistir para que ela investigasse as autorizações de entrada na Central. A édion recusara afastar os próprios oficiais sem provas. Velho-Sábio saíra de lá mais preocupado do que entrara. As ruas de Tayo pareciam desertas, envoltas numa neblina que alongava as sombras dos prédios e fazia o som dos passos ecoar por becos estreitos. O mago ia na frente, com passos rápidos e decididos, e não olhou para trás nenhuma vez.
 
-— Vocês acham que a Vigilância realmente tentou... — sussurrou Banjo para Bruno.
+— Você acha que a Vigilância realmente tentou... — sussurrou Banjo para Bruno.
 
-— Não sei. Mas a forma como a Erla nos olhou... — Bruno olhou por cima do ombro, como se esperasse ver algo escondido. — Parecia que ela sabia mais do que admitiu. E acho que Velho-Sábio também percebeu.
+— Não sei. Mas a Erla nem piscou quando o Velho falou. — Bruno olhou por cima do ombro, como se esperasse ver algo escondido. — Gente inocente costuma se ofender, né?
 
-— Mas por que alguém quereria matá-lo?
+— Mas por que alguém iria querer matá-lo?
 
-— Talvez porque ele ajude os dimensais mais do que deveria. Só sei que, se o Velho está em perigo, nós também estamos.
+— Sei lá. Mas a gente mora na casa do alvo, Banjo. Pensa nisso antes de dormir.
 
 Beatriz perguntou, com a voz trêmula, para onde estavam indo. Velho-Sábio parou de repente, como se só agora tivesse lembrado que não estava sozinho. Tirou das vestes um fragmento que pulsava com uma luz prateada, como se estivesse vivo.
 
-— Isso é escárdio, um material raro que manipula o espaço-tempo — explicou, num sussurro. — Em pequena quantidade serve como comunicador. Útil quando precisamos de discrição.
+— Escárdio — explicou, num sussurro. — Um pedacinho serve de comunicador. Útil quando precisamos de discrição.
 
 Murmurou palavras que se perderam na bruma, e a pedra brilhou, estalou. Ele encostou o fragmento no ouvido e ficou imóvel, ouvindo uma resposta que mais ninguém ouvia. Depois o guardou.
 
@@ -104,7 +104,7 @@ Um murmúrio de surpresa percorreu o salão. Os irmãos trocaram olhares confuso
 
 Garmande limpou a garganta.
 
-— Boa noite a todos. A Sociedade de Tayo foi criada para fazer o que os governantes não fazem: proteger a cidade de ameaças que eles preferem ignorar ou fingir que não existem. Há dias venho notando um comportamento estranho entre os vigilantes. Algo que vai além do cumprimento do dever.
+— Boa noite a todos. Há dias venho notando um comportamento estranho entre os vigilantes. Algo que vai além do cumprimento do dever.
 
 Velho-Sábio se pôs de pé.
 
@@ -232,9 +232,9 @@ Os membros se entreolharam, ponderando a ousadia. Tango se reclinou na cadeira, 
 
 McCroys cruzou os braços, com um sorriso frio.
 
-— O plano é brilhante, garoto. Mas o que nos garante que você não se voltará contra nós? Korvo é notoriamente persuasivo. Já vi você me seguindo pelos corredores. Eu sei o que vejo. E o que vejo em você são intenções sombrias, dúvidas que podem fazer você questionar a quem é leal. Um dos seus irmãos pode muito bem ter sido responsável pela tentativa de invasão.
+— O plano é brilhante, garoto. Mas o que nos garante que você não se voltará contra nós? Já vi você me seguindo pelos corredores. Eu sei o que vejo. Um dos seus irmãos pode muito bem ter sido responsável pela tentativa de invasão.
 
-— Isso é mentira! — gritou Bruno, o rosto vermelho. — Eu nunca faria nada contra a Sociedade ou Velho-Sábio!
+— Isso é mentira! — gritou Bruno, o rosto vermelho. — Eu nunca faria nada contra o Velho-Sábio!
 
 — Não questione a lealdade dos meus aprendizes, McCroys — cortou Velho-Sábio, com a voz baixa e carregada de autoridade. — Sou eu que estou com eles o tempo todo, não você. Dou minha palavra que os irmãos Lins nada tiveram a ver com essa invasão.
 
@@ -290,13 +290,17 @@ Eles saíram por um novo túnel, mais estreito, de tijolos antigos cobertos de m
 
 Dentro do dassi, o silêncio era sufocante, até que Breno o quebrou, com a voz firme, mas carregada de frustração.
 
-— O que foi aquilo, Velho-Sábio? Por que todos fizeram aquela cara quando disseram que somos filhos de Jack e Gabrielle? Como eles sabem quem são nossos pais?
+— Como eles conheciam os nossos pais, Velho-Sábio? Todo mundo fez uma cara estranha.
 
 Velho-Sábio apoiou o cajado no assento e suspirou.
 
 — Seus pais já estiveram na quarta dimensão, muito antes de vocês. Foram trazidos para cá como vocês, dimensais escolhidos. Eram brilhantes, especialmente sua mãe. Gabrielle tinha um domínio sobre os M.A.s que poucos poderiam sonhar.
 
 Os olhos de Bruno se arregalaram. Beatriz entrelaçou os dedos, e Banjo olhou fixamente para o mago.
+
+— A moça de escamas chorou quando olhou pra gente — disse Beatriz, baixinho. — Ela conhecia a mamãe?
+
+— Conhecia. Muita gente aqui conheceu os dois.
 
 — E por que nunca nos contaram?
 
@@ -312,19 +316,19 @@ Breno se virou, lutando contra as lágrimas.
 
 — Já não sei se acredito em você. Você sabia disso o tempo todo. Todo esse segredo, e quer que a gente confie?
 
-— Não quero que o passado influencie vocês. Vocês não são só os filhos de Jack e Gabrielle Lins. São Breno, Bruno, Banjo e Beatriz.
+— Não queria que o passado pesasse em vocês.
 
 — Isso na teoria — interveio Bruno. — Depois que disse quem somos, ninguém mais discutiu a nossa presença na reunião. O legado importa sim.
 
-— Vocês são dimensais. Naturalmente têm habilidades mais fortes que os outros senavelitas, ainda que limitadas a poucas. É uma compensação do corpo de vocês. E o fato de serem filhos de quem são reforça uma genética poderosa. É isso que os coloca em destaque.
+— Vocês são dimensais. Têm habilidades mais fortes que as dos outros, ainda que poucas. E ser filhos de quem são ajuda a colocar vocês em destaque.
 
-— Mas há outros dimensais fortes por aqui, não é? Que passaram nos três desafios e ficaram?
+— Mas há outros dimensais fortes por aqui, não é? — perguntou Banjo. — Que passaram nos três desafios e ficaram?
 
 — Muitos. O McCroys, por exemplo, é um deles. Está aqui há quase trinta anos.
 
 — O McCroys era dimensal? — perguntou Bruno, surpreso.
 
-— Era, Bruno. E o que importa não é o poder que vocês têm, ou de onde vieram. É quem vocês são e como escolhem agir neste novo mundo.
+— Era, Bruno. Chegou aqui com a sua idade, mais ou menos.
 
 Os garotos refletiram em silêncio.
 

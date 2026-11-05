@@ -26,7 +26,7 @@ O mago o olhou, sem responder de imediato.
 
 Em casa, os irmãos se sentaram na sala, e Velho-Sábio se acomodou no sofá à frente deles, com Átila ao lado. O cachorro tentou lamber a mão de Bruno, que a recolheu, sem querer ser incomodado.
 
-— Cada desafio tem regras claras — começou o mago. — Elas existem para testar a adaptação, a perseverança e a responsabilidade. Falhar em um deles é voltar. É uma regra antiga. — Ele olhou diretamente para Bruno. — Como você não cruzou o arco em uma lárida, Bruno, deverá voltar para a terceira dimensão.
+— Cada desafio tem regras claras — começou o mago. — Falhar em um deles é voltar. É uma regra antiga. — Ele olhou diretamente para Bruno. — Como você não cruzou o arco em uma lárida, Bruno, deverá voltar para a terceira dimensão.
 
 — Não é justo! — explodiu Breno. — O Bruno salvou todos nós! Se não fosse por ele, nem teríamos cruzado a linha!
 
@@ -38,7 +38,7 @@ Bruno apertou os punhos e forçou um sorriso que não enganou ninguém.
 
 — Se o Bruno voltar, nós todos voltamos — disse Breno, cruzando os braços. — Somos uma equipe.
 
-— Eu não vou voltar! — protestou Banjo. — E nem o Bruno! Na terceira dimensão eu não era ninguém. Aqui eu tenho uma chance de ser alguma coisa.
+— Eu não vou voltar! — protestou Banjo. — E nem o Bruno! Lá em casa eu só ficava... lá. Aqui eu fiz uma pedra voar!
 
 O silêncio voltou, pesado. Velho-Sábio olhou para cada um deles, com a voz embargada.
 
@@ -66,7 +66,7 @@ Bruno hesitou, mas algo no jeito dos irmãos o fez levantar. Na mesa, Breno tinh
 
 — Vocês não precisam fazer isso — murmurou. — Eu volto e vocês ficam.
 
-— Não faz sentido ficar sem você. — Breno balançou a cabeça. — Somos irmãos.
+— Come, Maria-chatice. Esfria. — Breno balançou a cabeça.
 
 Bruno engoliu em seco, assentiu sem olhar para ele, e Breno deu um tapinha nas costas dele e saiu. Quando ficou sozinho, Bruno encarou o prato vazio e socou a mesa.
 
@@ -94,7 +94,7 @@ Bruno voltou ao quarto com o coração disparado e a cabeça girando. Ao levanta
 
 Bruno escutava, sem saber como reagir.
 
-— Curiosidade é uma força poderosa — continuou ele, com a voz firme. — É o que move o homem a buscar conhecimento, ou o que o enlouquece. Tome cuidado com o que deseja saber. Nem sempre as verdades que procuramos são reconfortantes.
+— O que você viu não era para ser visto, Bruno — continuou ele, com a voz firme. — Mas não vou te castigar. Vai dormir. Amanhã é um dia grande.
 
 Bruno quis responder, mas não conseguiu. Saiu do quarto sem olhar para ele, sentindo o olhar do mago nas costas. Não queria que ele visse a mistura de raiva, medo e incerteza que dançava em seu rosto.
 
@@ -123,9 +123,9 @@ Os quatro congelaram. Beatriz soltou um suspiro e sorriu sem querer. Bruno ergue
 
 Breno respirou como se tivesse tirado uma rocha das costas.
 
-— Eu disse que se você ficasse, a gente também ficaria. Você acha que me engana quando finge que está tudo bem, mas eu sei o quanto isso significa pra você.
+— Eu falei que a gente ficava junto. E você fingindo que tanto fazia.
 
-— É... — Bruno tentou parecer casual. — Vocês não durariam muito sem mim.
+— Fingindo nada — disse Bruno, tentando parecer casual. — Vocês não durariam muito sem mim.
 
 Garmande continuou a lista, e então disse:
 
@@ -157,7 +157,11 @@ Banjo sentou-se numa pedra, de olhos arregalados.
 
 — Que nome ótimo para uma guerra — murmurou Bruno.
 
-— Forças sombrias vieram do norte e trouxeram uma era de gelo sem precedentes. Senantes e velitas, que ainda se odiavam, perceberam que só juntos poderiam resistir. Neste castelo, em Laer Tayo, selaram o acordo. Os mais fortes de Belfex foram para o mar do norte e venceram. — A voz dele ficou mais baixa. — Mas o preço foi alto. Para vencer, os senantes tiveram de sacrificar a magia. Criaram, com a ajuda de Édelin, um artefato, o estírio, que guardou a magia deles. E eles se tornaram homens sem magia.
+— Forças sombrias vieram do norte e trouxeram uma era de gelo sem precedentes. Senantes e velitas, que ainda se odiavam, perceberam que só juntos poderiam resistir. Neste castelo, em Laer Tayo, selaram o acordo. Os mais fortes de Belfex foram para o mar do norte e venceram.
+
+— Tipo super-heróis? — perguntou Beatriz.
+
+— Mais ou menos isso. — A voz dele ficou mais baixa. — Mas o preço foi alto. Para vencer, os senantes tiveram de sacrificar a magia. Criaram, com a ajuda de Édelin, um artefato, o estírio, que guardou a magia deles. E eles se tornaram homens sem magia.
 
 As folhas formaram um globo pequeno, que pairou e se apagou.
 
@@ -177,7 +181,7 @@ Banjo prendeu a respiração ao ouvir o nome Aereplórium, o mesmo que o mago ti
 
 Breno cerrou os punhos.
 
-— Então é isso. Querem os mais fortes, os que possam servir a algum propósito maior. Estamos sendo testados... ou usados?
+— Então é isso. Querem os mais fortes. A gente está sendo testado... ou usado?
 
 — Eu não quero ser uma arma — disse Beatriz, baixinho. — Eu não quero lutar.
 
@@ -185,7 +189,7 @@ Breno cerrou os punhos.
 
 Velho-Sábio sustentou o olhar deles, sem raiva.
 
-— Em Belfex há, sim, um desejo genuíno de acolher os dimensais. Mas toda causa atrai ambições. Os desafios existem em parte para identificar os mais fortes. Aqueles que treinam com vocês e nasceram em Belfex, como Brenda, Ferris, Emiris e Isabelle, destacaram-se nas escolas da cidade e receberam vagas na formação especial. Eles estudaram magia durante anos. Aqui, tutores experientes orientam cada pequeno grupo de perto. Alguns de vocês aprendem em semanas o que lhes tomou meses, mas eles conhecem técnicas que vocês ainda nem conseguem tentar. Não são todos os colegas que nasceram aqui: Lucía, por exemplo, também é dimensal. As origens são diferentes. As regras da magia, não. Quem perde continua aqui e volta à escola. Vocês, não. — Ele suspirou. — Não sou eu quem define as regras. Se pudesse, mudaria.
+— Em Belfex há, sim, um desejo genuíno de acolher os dimensais. Mas toda causa atrai ambições. Os desafios existem em parte para identificar os mais fortes. Aqueles que treinam com vocês e nasceram em Belfex, como Brenda, Ferris, Emiris e Isabelle, destacaram-se nas escolas da cidade e receberam vagas na formação especial. Eles estudaram magia durante anos. Aqui, tutores experientes orientam cada pequeno grupo de perto. Alguns de vocês aprendem em semanas o que lhes tomou meses, mas eles conhecem técnicas que vocês ainda nem conseguem tentar. Quem perde continua aqui e volta à escola. Vocês, não. — Ele suspirou. — Não sou eu quem define as regras. Se pudesse, mudaria.
 
 — Mas o que essas provas testam? — perguntou Bruno. — Uma corrida? Um nado? Mal usamos magia.
 
@@ -205,7 +209,7 @@ As folhas caíram no chão.
 
 — Beatriz! — exclamou Breno.
 
-— Você ainda não entendeu, Breno — disse Bruno. — Em casa a gente não tinha papel nenhum. Aqui tem. E se estamos aqui, é porque podemos passar pelo último desafio. Você não decide por todos nós.
+— Para de achar que a decisão é sua, Breno — disse Bruno. — Eu fui eliminado ontem e estou aqui. Dá pra aguentar mais uma prova.
 
 Breno hesitou. Ele queria proteger os irmãos a todo custo, mas não podia decidir o destino de cada um. Obrigá-los a desistir agora só os afastaria.
 
@@ -254,7 +258,7 @@ No andar de cima, no salão de espera, erguia-se no centro uma árvore majestosa
 
 — Que árvore linda! — exclamou Banjo.
 
-— A Árvore da Vigília — disse Velho-Sábio. — Ela está aqui há séculos e se tornou o símbolo da Vigilância. Reparem nas árvores bordadas nos uniformes. Suas raízes representam o compromisso dos vigilantes com a cidade. É o coração da Central.
+— A Árvore da Vigília — disse Velho-Sábio. — Está aqui há séculos. É o símbolo da Vigilância, por isso a árvore bordada nos uniformes.
 
 Banjo parou, hipnotizado. As folhas balançavam sem vento, e o som delas parecia um sussurro. Ele deu alguns passos, e uma sensação estranha subiu por dentro, nem medo nem curiosidade, algo no meio. Não eram palavras ou pensamentos. Era um sentimento vindo da natureza, cálido e difícil de entender. Os dedos formigaram.
 

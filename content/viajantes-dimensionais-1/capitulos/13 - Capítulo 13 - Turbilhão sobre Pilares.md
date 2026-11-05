@@ -2,7 +2,7 @@ Os dezoito tinham dez minutos antes do apito. O Fulgor Dourado se reuniu nos fun
 
 Breno foi o primeiro a falar, com a voz mais firme do que se sentia.
 
-— Acho que devemos começar na defesa. Proteger nossa Zona de Coleta e ver como eles jogam. Quando entendermos os padrões, contra-atacamos.
+— A gente começa na defesa. Protege a Zona de Coleta e vê como eles jogam. Quando entender o jeito deles, contra-ataca.
 
 — Ótimo plano — disse Bruno, de braços cruzados. — Esperar sempre dá certo. Vamos perder logo no começo e economizar tempo.
 
@@ -59,9 +59,9 @@ Uma onda de choque cortou o ar, e o Fulgor Dourado inteiro congelou no lugar por
 
 Ela mordeu o lábio e segurou o choro. O fogo era dela, e justamente por isso era a coisa que ela menos sabia fazer.
 
-— Não liga — sussurrou Eshley, passando por ela num salto. — O primeiro tempo é sempre assim. A gente aprende a dançar errando.
+— Não liga — sussurrou Eshley, passando por ela num salto. — O primeiro tempo é sempre assim.
 
-— Alguns erram mais do que outros — murmurou Beatriz, olhando para as próprias mãos.
+— Eu erro mais que todo mundo — murmurou Beatriz, olhando para as próprias mãos.
 
 Brenda, do outro lado, deu um passo atrás e a olhou de cima a baixo, sem dizer nada, e foi isso que doeu: nem para zombar ela serviu.
 
@@ -98,7 +98,7 @@ No intervalo, o grupo se escondeu num canto afastado. Ninguém queria olhar para
 
 — E você só sabe dar ordens.
 
-— Porque, neste momento — interrompeu Lucía —, Ferris está jogando com a fraqueza de vocês. Ele viu que vocês dois estão descoordenados e usa isso. Vocês estão sendo manipulados para estragar o time. E só vocês dois não perceberam.
+— Porque, neste momento — interrompeu Lucía —, enquanto vocês brigam, o Ferris joga. Ele viu que vocês estão descoordenados e usa isso. E só vocês dois não perceberam.
 
 Bruno parou e olhou em volta. Pela primeira vez, notou que todos os encaravam. Breno também. A raiva no rosto dele foi diminuindo, devagar, até virar algo parecido com vergonha.
 
@@ -106,7 +106,7 @@ Bruno parou e olhou em volta. Pela primeira vez, notou que todos os encaravam. B
 
 Beatriz assentiu, do canto onde estava.
 
-— Eu observei Ferris — continuou Lucía. — Quando ele some e reaparece, é magia de luz, e precisa das correntes do estádio para ganhar distância. Ele se mistura com a luz e escapa pelas correntes do estádio. É uma magia que gasta muita energia, então precisamos fazê-lo gastar tudo.
+— Eu observei Ferris — continuou Lucía. — Quando ele some e reaparece, é magia de luz, e precisa das correntes do estádio para ganhar distância. É uma magia que gasta muita energia, então precisamos fazê-lo gastar tudo.
 
 Pegou um pedaço de giz do bolso, o mesmo giz amarelo da estação, e riscou no chão o campo e as correntes.
 
@@ -118,9 +118,9 @@ Pegou um pedaço de giz do bolso, o mesmo giz amarelo da estação, e riscou no 
 
 — E se eu errar de novo? — disse Beatriz. — O fogo nunca faz o que eu quero.
 
-— Errar faz parte do jogo — respondeu Eshley, apertando a mão dela. — Confia em você e usa o caos a seu favor.
+— Eu errei três vezes só no primeiro tempo — respondeu Eshley, apertando a mão dela. — Ninguém tá contando.
 
-— Mas o fogo é seu — acrescentou Lucía, mais suave. — Você é o fogo do nosso time. Não tenha medo de soltá-lo, só de segurá-lo demais.
+— O fogo é seu — acrescentou Lucía, mais suave. — Pare de pedir licença pra ele.
 
 Os irmãos trocaram um olhar tenso. Havia algo diferente nele, uma faísca de entendimento.
 
@@ -183,7 +183,7 @@ O Garras de Ferro reagiu com tudo o que restava. Isabelle ergueu uma tempestade 
 
 Os marcadores de penalização nas bordas do campo acenderam. Por cinco segundos, os apoios móveis sob o Garras de Ferro ficaram travados, impedindo os jogadores de avançar. Era uma punição do estádio, não uma magia lançada sobre os corpos deles.
 
-— Agora, Bea! — gritou Breno.
+— Agora, Bia! — gritou Breno.
 
 Beatriz pegou a Marqe que as meninas tinham perdido e correu com Banjo logo atrás, aproveitando cada segundo do congelamento. Quando a penalização terminou e os apoios voltaram a mover-se, Brenda foi a primeira a reagir e lançou uma onda de água que quase a derrubou, mas Breno se jogou na frente e absorveu o golpe como uma muralha, com um som de sino. Bruno deslizou pelo chão e congelou os pés de Brenda.
 
@@ -219,7 +219,7 @@ Um silêncio estranho caiu nas arquibancadas, desses que só vêm quando todo mu
 
 Bruno e Breno olhavam para Beatriz sem conseguir falar. Ela estava de pé, sozinha no pilar, com as mãos ainda abertas e as últimas chamas azuis desfazendo-se em fumaça fina, sem queimar nada. Era o fogo mais bonito que qualquer um dos três já tinha visto, e vinha dela. Beatriz olhou para as próprias mãos, depois para os irmãos, e o rosto inteiro dela se abriu num sorriso incrédulo, de quem acabou de descobrir que consegue.
 
-— Bea! — gritou Banjo, do outro lado, pulando sem parar. — Bea!
+— Bia! — gritou Banjo, do outro lado, pulando sem parar. — Bia!
 
 No alto, entre os tutores, Garmande anotava algo numa folha. Tango ria sozinho. Karoli gritava instruções para Brenda, que ninguém conseguia ouvir. Só Velho-Sábio não sorria. Olhava a chama azul se desfazer com uma expressão que Beatriz, de tão longe, não soube ler. Brenda, presa até os joelhos de gelo, ficou observando a pequena garota. Lucía, de longe, ergueu o punho.
 

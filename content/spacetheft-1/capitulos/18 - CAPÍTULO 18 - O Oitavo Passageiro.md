@@ -184,7 +184,7 @@ Hardman bufou, mas não insistiu. Coloquei o capacete e segui até o final do co
 
 Puxei a alavanca da segunda comporta, que se abriu com um assobio agudo, me empurrando imediatamente para o vazio do espaço. Acionei os mini-propulsores no pulso e fui lançado de volta para a superfície da nave, pousando com um leve impacto.
 
-A nave parecia imensa e desolada naquele silêncio absoluto. O breu da nebulosa envolvia tudo, com partículas densas de gás negro obscurecendo a visão; a luz da lanterna parecia devorada pela escuridão.
+A nave parecia imensa e desolada naquele silêncio absoluto. O breu da nebulosa envolvia tudo, com partículas densas de gás negro obscurecendo a visão. A luz da lanterna parecia devorada pela escuridão.
 
 — Alguém mais sente que estamos dentro de um conto de terror? — comentou O’reilly pelo comunicador, a voz abafada.
 
@@ -228,7 +228,7 @@ Não toquei. Por um segundo. Mas a curiosidade foi mais forte.
 
 — Droga! Essa merda é quente! — gritei, puxando a mão de volta.
 
-— Claro que é quente! — retrucou Hardman, frustrado. — O motor de dobra funcionava sem refrigeração; qualquer coisa que entrou ali foi aquecida ao máximo. Remova com a pá de raspagem e verifique se há fissuras no metal.
+— Claro que é quente! — retrucou Hardman, frustrado. — O motor de dobra funcionava sem refrigeração. Qualquer coisa que entrou ali foi aquecida ao máximo. Remova com a pá de raspagem e verifique se há fissuras no metal.
 
 — Certo — falei, retirando do kit uma pá. Comecei a raspar o metal para remover o fluido viscoso, atirando-o no espaço. A cada raspada, a substância negra reluzia sob a luz da lanterna antes de flutuar no vazio. Quando terminei, pude ver uma fissura extensa, quase de ponta a ponta no metal.
 

@@ -303,7 +303,7 @@ Voltaram de dassi, com as roupas pingando no assento e a cidade acendendo as luz
 
 — Velho-Sábio avisou — disse Breno. — Eu mandei você esperar.
 
-— É, você mandou. Mandou em mim, na Bia, no Banjo... Daqui a pouco ia mandar na água também.
+— Ah, mandou. Só faltou mandar a onda voltar mais devagar.
 
 — Alguém precisava fazer vocês andarem direito!
 
@@ -368,7 +368,7 @@ Uma bolha redonda saiu de sua boca e subiu devagar entre os dois.
 
 Banjo soltou uma gargalhada.
 
-— Você falou que ia me ensinar!
+— Você disse que era fácil!
 
 Bruno apertou os lábios para não deixar escapar outra bolha. A expressão dele fez Banjo rir ainda mais.
 
@@ -408,13 +408,13 @@ Um grito veio da cozinha.
 
 Bruno correu. A luz flutuante ainda pairava sobre a mesa, mas o resto da cozinha estava irreconhecível: manchas roxas escorriam pelo teto, pelas paredes e pelo lustre. Sobre a mesa, uma massa púrpura borbulhava numa panela, soltando bolhas que estouravam com um "pof" de tamborim, e Beatriz e Banjo, grudados em gosma da cabeça aos pés, olhavam um para o outro, em silêncio.
 
-— Eu não fiz nada! — disse Beatriz, com cabelo roxo grudado no rosto. — Só avisei o Banjo pra não pôr aquele açúcar roxo!
+— Eu só mexi! — disse Beatriz, com cabelo roxo grudado no rosto. — Foi o Banjo que pôs aquele açúcar roxo!
 
 Velho-Sábio surgiu atrás de Bruno e apontou o cajado para um pote na pia.
 
 — Aquilo é pratiole, um fermento. Uma pitada é mais do que suficiente. Vocês despejaram o pote inteiro?
 
-— Ué... — Beatriz corou. — Não era açúcar? O gosto é idêntico!
+— Ué... — Banjo corou. — Não era açúcar? O pote era igualzinho!
 
 Bruno caiu na gargalhada, dobrado ao meio.
 
@@ -693,9 +693,9 @@ Bruno sentiu o chão sumir.
 
 — Ser eu te incomoda, Breno?
 
-— Incomoda todo mundo. Você acha que é descolado, mas o que mais faz é afastar os outros.
+— Hoje, incomoda.
 
-— E quem é você pra dizer o que eu devo ser? Acha que só porque o papai e a mamãe morreram você manda em tudo? Você nem dá conta dos seus problemas, imagina dos nossos.
+— E quem é você pra decidir como eu sou? Você nem é o pai, Breno.
 
 Breno apertou os olhos. Por um momento pareceu que ia dizer algo duro. Em vez disso, respirou fundo.
 

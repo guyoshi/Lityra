@@ -50,7 +50,7 @@ Jokara se virou. Mariv e Nestira riam juntos, conversando. Até Loutes prestava 
 
 Todos se viraram para ela, e Jokara percebeu que tinha falado alto demais.
 
-Nos sopros seguintes, falou pouco e reparou mais: a forma como Platisa sempre apertava o zélon contra o peito antes de dormir e evitava a carne mesmo quando comia frutas; o modo como Mariv se sentava cada vez mais perto de Nestira; e Gabasteri, sempre um pouco afastado do grupo.
+Nos sopros seguintes, falou pouco e reparou mais. Reparou na forma como Platisa sempre apertava o zélon contra o peito antes de dormir e evitava a carne mesmo quando comia frutas, no modo como Mariv se sentava cada vez mais perto de Nestira e em Gabasteri, sempre um pouco afastado do grupo.
 
 
 Quase uma corrente depois de encontrarem Platisa, veio um sopro de céu carregado. A floresta escureceu cedo.
@@ -103,7 +103,7 @@ Abriu os olhos através do sangue e viu um homem. Alto, encharcado. Segurava uma
 
 Outro animal caiu sobre ele. O homem o agarrou pelo braço peludo, rodou o corpo no ar e o lançou contra um tronco. O bicho despencou mole.
 
-Foi até Loutes e Platisa. Um golpe, depois outro. Não hesitava; parecia já ter feito aquilo antes.
+Foi até Loutes e Platisa. Um golpe, depois outro. Não hesitava. Parecia já ter feito aquilo antes.
 
 Depois ergueu acima da cabeça o corpo morto de uma das criaturas e gritou para as árvores. Um urro rouco, comprido, que Jokara nunca ouviu sair de um eterí.
 

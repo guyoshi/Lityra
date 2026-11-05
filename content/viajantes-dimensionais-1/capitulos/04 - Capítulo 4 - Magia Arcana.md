@@ -196,11 +196,11 @@ Perto da janela, uma garota de pele morena e cabelos castanhos e cacheados abriu
 
 A amiga, de cabelos escuros e ondulados, óculos redondos e olhos verde-oliva, soltou o tecido com cuidado. Usava uma capa verde e um colar com um cristal em forma de gota. A garota das estrelas trazia outro igual.
 
-— Obrigada — a menina viu os irmãos, e se aproximou — Ei, oi. Eu sou a Eshley, e esta é a Maria — disse a primeira, já sorrindo para os irmãos. 
+— Obrigada. — A menina viu os irmãos e se aproximou. — Ei, oi. Eu sou a Eshley, e esta é a Maria — disse a primeira, já sorrindo para os irmãos. 
 
-— Ahm, eu sou... Banjo — apresentou-se o garoto — e eles são...
+— Ahm, eu sou... Banjo — apresentou-se o garoto, sem jeito. — E eles são...
 
-— Bruno — apresentou-se o garoto — a pirralha é Beatriz e o cara-de-emburrado é o Breno. 
+— Bruno — cortou o outro. — A pirralha é a Beatriz, e o cara de emburrado é o Breno. 
 
 — É um prazer. São dimensais, também, não? Eu sou de Niterói! — Eshley abriu a boca para perguntar mais alguma coisa, mas Beatriz apontou para os colares.
 

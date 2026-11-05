@@ -124,7 +124,7 @@ Depois aprendeu a usá-lo.
 
 Cravava a ponta antes de mover o corpo. Transferia parte do peso para o braço e o ombro. Só então avançava a perna direita. No começo eram três movimentos separados e lentos. Bastão. Pé. Corpo. Bastão. Pé. Corpo.
 
-Caiu mais vezes. Uma delas porque esqueceu que uma raiz baixa que antes passaria entre as pernas agora exigia que ela a contornasse. Outra porque o bastão escorregou numa passagem úmida e ela bateu o quadril na madeira da parede. As palmas criaram bolhas; Nestira enrolou uma tira de tecido na empunhadura para que ela pudesse continuar.
+Caiu mais vezes. Uma delas porque esqueceu que uma raiz baixa que antes passaria entre as pernas agora exigia que ela a contornasse. Outra porque o bastão escorregou numa passagem úmida e ela bateu o quadril na madeira da parede. As palmas criaram bolhas. Nestira enrolou uma tira de tecido na empunhadura para que ela pudesse continuar.
 
 A dor também aprendia a enganá-la. Às vezes o pé ausente coçava. Em outras, a panturrilha que já não existia parecia arder ou contrair. Jokara fechava os olhos, respirava e esperava passar.
 
@@ -180,7 +180,7 @@ Liri assentiu, com um brilho de expectativa.
 
 — Quero. Mas só se for aquele do céu partido e da flor que esperou mil ciclos.
 
-Jokara sorriu. Pegou um dos pergaminhos mais antigos e começou a ler. Na metade, a voz tropeçou. Liri não percebeu; já estava com os olhos pesados, e adormeceu com a cabeça no colo dela.
+Jokara sorriu. Pegou um dos pergaminhos mais antigos e começou a ler. Na metade, a voz tropeçou. Liri não percebeu. Já estava com os olhos pesados, e adormeceu com a cabeça no colo dela.
 
 Jokara leu o conto até o fim mesmo assim, baixinho, a flor que ficou aberta mil ciclos esperando que alguém a visse.
 

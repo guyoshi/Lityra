@@ -388,11 +388,11 @@ A senhora se virou para mim, os olhos arregalados.
 
 A senhora arregalou ainda mais os olhos desfocados, pensativos. 
 
-— O Agouro... — murmurou. 
+— Varkhel... — murmurou. 
 
 — Quem? — perguntei. 
 
-— Eu o conheci há muitos anos, em Alvorada. Nunca imaginei ouvir esse nome de novo. — A senhora baixou os olhos. — A culpa é minha. 
+— Vocês o chamam de Agouro. Eu o conheci como Varkhel, há muitos anos, em Alvorada. Nunca imaginei ouvir o nome de novo. — A senhora baixou os olhos. — A culpa é minha. 
 
 — Não, não é sua — disse Jennifer — a senhora não sabia de nada... 
 
@@ -404,7 +404,7 @@ A senhora arregalou ainda mais os olhos desfocados, pensativos.
 
 — O Agouro? — sussurrei em uma retórica. 
 
-— O Agouro. — A senhora disse o nome devagar, como quem prova uma coisa azeda. — Eu perdi quase todos os meus amigos... inclusive a Sara. Minha melhor amiga... éramos, na verdade, mais do que amigas. Eu a amava. E por mais que demorasse, ela me correspondeu.
+— Varkhel. Agouro. — A senhora disse os nomes devagar, como quem prova uma coisa azeda. — Eu perdi quase todos os meus amigos... inclusive a Sara. Minha melhor amiga... éramos, na verdade, mais do que amigas. Eu a amava. E por mais que demorasse, ela me correspondeu.
 
 A chama da vela mais próxima encolheu um pouco, e a voz dela desceu junto.
 
@@ -412,7 +412,7 @@ A chama da vela mais próxima encolheu um pouco, e a voz dela desceu junto.
 
 Ela deixou o silêncio crescer. No canto, o pêndulo marcou três tiques e pareceu esperar.
 
-— Eu sentia tanta dor por perdê-la que gritei. Gritei para poder vê-la de novo com vida. E o mato inteiro ficou quieto, e do quieto ele surgiu. O Agouro. Disse que poderia me ajudar, mas que em troca eu deveria dar o meu sangue. Eu aceitei, e milagrosamente Sara voltou à vida.
+— Eu sentia tanta dor por perdê-la que gritei. Gritei para poder vê-la de novo com vida. E o mato inteiro ficou quieto, e do quieto ele surgiu. O Varkhel. Disse que poderia me ajudar, mas que em troca eu deveria dar o meu sangue. Eu aceitei, e milagrosamente Sara voltou à vida.
 
 Os passarinhos se mexeram nas gaiolas, todos de uma vez, e voltaram a dormir.
 

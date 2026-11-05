@@ -2,9 +2,7 @@ Todos dormiam. Jokara, no entanto, fingia dormir.
 
 Havia três Sopros do Silêncio que Jokara observava Gabasteri sair escondido. Ele esperava todos adormecerem, conferia o entorno do abrigo e desaparecia entre as árvores. Não dizia aonde ia.
 
-Naquele Sopro do Silêncio, levou consigo o saco onde guardava parte dos alimentos, ferramentas e as armas que recolhia antes do descanso, inclusive a adaga de Jokara.
-
-Ela esperou alguns instantes antes de se erguer.
+Naquele Sopro do Silêncio, levou consigo o saco onde guardava parte dos alimentos, ferramentas e as armas que recolhia antes do descanso, inclusive a adaga de Jokara. Ela esperou alguns instantes antes de se erguer.
 
 Não sabia o que encontraria. Talvez nada. Talvez apenas a confirmação de que Gabasteri desconfiava deles tanto quanto eles começavam a desconfiar dele.
 
@@ -18,7 +16,7 @@ Jokara esperou.
 
 Os olhos dele se fecharam. Algum tempo depois, o ronco grave misturou-se aos sons noturnos.
 
-Ela se aproximou do saco. Procurava primeiro a própria adaga e, se pudesse, parte da comida. Não tinha ainda um plano inteiro; queria apenas devolver ao grupo alguma possibilidade de escolha.
+Ela se aproximou do saco. Procurava primeiro a própria adaga e, se pudesse, parte da comida. Não tinha ainda um plano inteiro. Queria apenas devolver ao grupo alguma possibilidade de escolha.
 
 Foi então que encontrou algo diferente. Entre as coisas havia um pequeno recipiente fechado por rosca. A tampa estava manchada de azul. Ao abri-lo, Jokara viu um pó muito fino, mais escuro do que o que se soltava naturalmente das flores, com resíduos prateados presos às bordas.
 
@@ -32,21 +30,15 @@ Beijo-da-Noite concentrado.
 
 A primeira lembrança foi Platisa, segurando o zélon contra o peito e dizendo que alguma coisa naquele homem a incomodava.
 
-Depois vieram outras, sem ordem: o Sopro do Silêncio do incêndio; a comida desaparecida; as pedras riscadas na clareira; Gabasteri voltando sozinho depois de Platisa; Maletar tossindo cada vez mais.
+Depois vieram outras, sem ordem: o Sopro do Silêncio do incêndio, a comida desaparecida, as pedras riscadas na clareira, Gabasteri voltando sozinho depois de Platisa, Maletar tossindo cada vez mais.
 
 E, por último, o cantil escuro tombado ao lado do corpo.
 
-Jokara ficou imóvel.
+Jokara ficou imóvel. Nenhuma daquelas coisas provava nada.
 
-Nenhuma daquelas coisas provava nada.
+Mas o pó azul em sua mão mudava o peso das perguntas. O ronco de Gabasteri cessou.
 
-Mas o pó azul em sua mão mudava o peso das perguntas.
-
-O ronco de Gabasteri cessou.
-
-Jokara ergueu os olhos.
-
-Ele estava de pé diante dela.
+Jokara ergueu os olhos. Ele estava de pé diante dela.
 
 — Perdeu alguma coisa, Jokara? — perguntou, tranquilo.
 
@@ -62,9 +54,7 @@ Silêncio.
 
 — Coincidência? — perguntou Jokara.
 
-Gabasteri inclinou levemente a cabeça.
-
-Jokara abriu a mão e mostrou o recipiente.
+Gabasteri inclinou levemente a cabeça. Jokara abriu a mão e mostrou o recipiente.
 
 — Depois a comida desapareceu. Platisa começou a desconfiar de você. Quando saímos dali, foi você quem indicou a rota. A fera apareceu. Você levou Platisa sozinho para a mata e voltou sem ela.
 
@@ -106,9 +96,7 @@ Gabasteri soltou um riso curto, sem humor.
 
 — Não. Pela rota, sim. E por ter sido a última pessoa a ver Platisa viva.
 
-O rosto dele endureceu.
-
-Jokara sentiu o coração acelerar. Não era uma confissão. Mas também não parecia a reação de um homem injustamente acusado.
+O rosto dele endureceu. Jokara sentiu o coração acelerar. Não era uma confissão. Mas também não parecia a reação de um homem injustamente acusado.
 
 — Há outra coisa.
 
@@ -122,23 +110,17 @@ Foi justamente isso que confirmou mais do que uma surpresa confirmaria.
 
 — Você não caiu com Etérea — continuou Jokara. — Já estava aqui embaixo.
 
-Gabasteri passou a língua devagar pelos dentes.
-
-Quando respondeu, a voz havia perdido qualquer tentativa de simpatia.
+Gabasteri passou a língua devagar pelos dentes. Quando respondeu, a voz havia perdido qualquer tentativa de simpatia.
 
 — As Ilhas Baixas não existem, Jokara. Nunca existiram.
 
 Ela ficou imóvel.
 
-Durante toda a infância, ouvira falar das ilhas inferiores como um lugar distante, duro, mas habitável. Era para lá que os exilados iam. Era isso que todos diziam quando um balão desaparecia sob as nuvens.
-
-Gabasteri olhou para a mata antes de continuar.
+Durante toda a infância, ouvira falar das ilhas inferiores como um lugar distante, duro, mas habitável. Era para lá que os exilados iam. Era isso que todos diziam quando um balão desaparecia sob as nuvens. Gabasteri olhou para a mata antes de continuar.
 
 — O balão desce enquanto o fogo dura. Quando a chama termina, ele deixa de sustentar o peso. Não pousa em ilha nenhuma. Cai.
 
-A garganta de Jokara apertou.
-
-Yndra surgiu em sua memória: o balão dourado desaparecendo sob as nuvens enquanto todos assistiam em silêncio, certos de que havia terra esperando mais abaixo.
+A garganta de Jokara apertou. Yndra surgiu em sua memória: o balão dourado desaparecendo sob as nuvens enquanto todos assistiam em silêncio, certos de que havia terra esperando mais abaixo.
 
 — Então os exilados...
 
@@ -146,9 +128,7 @@ Gabasteri não precisou esperar que ela terminasse.
 
 — Morriam.
 
-A palavra foi simples demais para o tamanho dela.
-
-Ele apontou para a própria perna.
+A palavra foi simples demais para o tamanho dela. Ele apontou para a própria perna.
 
 — Eu não morri. Caí entre árvores e pedra, quebrei a perna e passei muitos sopros sem saber se conseguiria voltar a andar. Tive sorte. Depois aprendi a não depender dela.
 
@@ -164,9 +144,7 @@ Algo endureceu no rosto dele.
 
 — Essa parte não muda nada do que veio depois.
 
-Jokara percebeu que insistir não arrancaria dali uma história inteira. Talvez o silêncio fosse vergonha. Talvez fosse cálculo. Talvez fosse apenas mais uma coisa que Gabasteri considerava pertencente somente a ele.
-
-Ele continuou antes que ela perguntasse de novo.
+Jokara percebeu que insistir não arrancaria dali uma história inteira. Talvez o silêncio fosse vergonha. Talvez fosse cálculo. Talvez fosse apenas mais uma coisa que Gabasteri considerava pertencente somente a ele. Ele continuou antes que ela perguntasse de novo.
 
 — Durante cinco ciclos, não encontrei outro eterí vivo. Vi restos. Coisas que podiam ter pertencido a alguém. Nunca uma pessoa respirando. Se outros sobreviveram à queda dos balões, não chegaram até mim.
 
@@ -180,9 +158,7 @@ Gabasteri percebeu.
 
 — Eles não queriam obedecer. Ainda achavam que sobreviver à queda significava que podiam continuar escolhendo tudo como antes. Um escondia comida. Outro saía sem avisar. Outro dizia que eu não tinha direito de decidir nada por eles.
 
-Jokara olhou para o saco ao lado dele, para as armas guardadas, para a comida escondida.
-
-A história parecia familiar demais.
+Jokara olhou para o saco ao lado dele, para as armas guardadas, para a comida escondida. A história parecia familiar demais.
 
 — O que aconteceu com eles?
 
@@ -190,9 +166,7 @@ Gabasteri demorou.
 
 — As decisões tiveram consequências.
 
-Não havia tristeza na frase.
-
-Jokara sentiu a resposta antes de formulá-la.
+Não havia tristeza na frase. Jokara sentiu a resposta antes de formulá-la.
 
 — Você fez com eles o mesmo que está fazendo conosco.
 
@@ -202,21 +176,15 @@ Gabasteri ergueu os olhos.
 
 — Até não sobrar grupo nenhum.
 
-O silêncio que veio depois foi longo o bastante.
-
-Jokara não precisava que ele dissesse “sim”.
+O silêncio que veio depois foi longo o bastante. Jokara não precisava que ele dissesse “sim”.
 
 Lembrou-se de Platisa desaparecendo nos braços dele e de Maletar enfraquecendo enquanto Gabasteri assumia o controle da água, da comida e da rota. Agora ouvira o homem tratar aquelas mortes como um cálculo.
 
 Cinco ciclos explicavam as rotas, as feras, a água e as cicatrizes.
 
-Explicavam também por que ele dormia fora do círculo, escondia comida e tratava qualquer divergência como o começo de uma ameaça.
+Explicavam também por que ele dormia fora do círculo, escondia comida e tratava qualquer divergência como o começo de uma ameaça. Mas não transformavam aquilo em desculpa.
 
-Mas não transformavam aquilo em desculpa.
-
-Ela apertou a adaga.
-
-Jokara olhou para Gabasteri e pensou no pai.
+Ela apertou a adaga. Jokara olhou para Gabasteri e pensou no pai.
 
 — Meu pai dizia que o peso podia dar rumo. Demorei para entender que o problema nunca foi carregá-lo.
 
@@ -244,9 +212,7 @@ Gabasteri olhou para a adaga em sua mão.
 
 — Se você deixar.
 
-Nenhum dos dois acreditou nisso.
-
-Os olhos de Gabasteri desceram até a mão da garota, que segurava a adaga.
+Nenhum dos dois acreditou nisso. Os olhos de Gabasteri desceram até a mão da garota, que segurava a adaga.
 
 — Você realmente acha que isso termina bem? — perguntou Gabasteri. — Eu mantive vocês vivos quando já não conseguiam manter nem comida seca. Ensinei Mariv a caçar melhor. Encontrei água. Dei a você um bastão que não afunda em lama. E agora você decide que sou o inimigo porque encontrou uma coisa que não entende por completo.
 
@@ -266,15 +232,11 @@ Jokara apertou a adaga e ajustou o bastão sob o braço.
 
 Ela sabia que não podia trocar força com ele. Nem velocidade. Já aprendera isso com a floresta muito antes daquele Sopro do Silêncio.
 
-Quando Gabasteri avançou, Jokara não foi ao encontro do corpo dele. Plantou o bastão na diagonal entre os dois. A lâmina dele passou por cima da madeira; Jokara girou o punho e bateu com a extremidade do bastão no joelho do homem.
-
-Gabasteri perdeu meio passo.
+Quando Gabasteri avançou, Jokara não foi ao encontro do corpo dele. Plantou o bastão na diagonal entre os dois. A lâmina dele passou por cima da madeira. Jokara girou o punho e bateu com a extremidade do bastão no joelho do homem. Gabasteri perdeu meio passo.
 
 Foi o suficiente.
 
-Jokara recuou usando uma árvore como segundo apoio, virou o corpo e se afastou mata adentro. Não correu como alguém com duas pernas. Avançava em arrancadas curtas: bastão, perna, tronco; bastão, perna, tronco. Escolhia o caminho entre raízes grossas, onde Gabasteri também precisava diminuir.
-
-Mesmo assim, ele ganhava terreno.
+Jokara recuou usando uma árvore como segundo apoio, virou o corpo e se afastou mata adentro. Não correu como alguém com duas pernas. Avançava em arrancadas curtas: bastão, perna, tronco. Bastão, perna, tronco. Escolhia o caminho entre raízes grossas, onde Gabasteri também precisava diminuir. Mesmo assim, ele ganhava terreno.
 
 Jokara se escondeu atrás de uma árvore e ouviu os passos se aproximando.
 
@@ -288,9 +250,7 @@ Jokara prendeu a respiração. Os passos dele estavam perto. Então viu, ao lado
 
 Beijo-da-Noite.
 
-Jokara baixou-se com cuidado, sem tocar nelas. Encaixou o bastão sob os caules e esperou.
-
-Uma raiz estalou sob o peso dela.
+Jokara baixou-se com cuidado, sem tocar nelas. Encaixou o bastão sob os caules e esperou. Uma raiz estalou sob o peso dela.
 
 Gabasteri parou de imediato.
 
@@ -298,13 +258,11 @@ Gabasteri parou de imediato.
 
 Ele se aproximou devagar, a adaga na mão. Quando passou entre duas árvores grossas, Jokara saiu de trás de uma delas.
 
-Ele ergueu a lâmina e deu um passo adiante.
-
-Jokara varreu o bastão por baixo das flores.
+Ele ergueu a lâmina e deu um passo adiante. Jokara varreu o bastão por baixo das flores.
 
 Os caules se partiram e uma nuvem fina de pelos e pó prateado subiu do chão. Gabasteri entrou nela antes de compreender. Inspirou por reflexo.
 
-A tosse veio quase imediatamente. Ele recuou, levando o antebraço ao rosto. Os olhos começaram a lacrimejar; a garganta fechou num acesso de tosse que lhe roubou o ritmo da respiração.
+A tosse veio quase imediatamente. Ele recuou, levando o antebraço ao rosto. Os olhos começaram a lacrimejar. A garganta fechou num acesso de tosse que lhe roubou o ritmo da respiração.
 
 — O que é… isso? — grunhiu.
 
@@ -328,9 +286,7 @@ O ar voltou aos pulmões queimando. Ela se arrastou até a adaga, agarrou-a com 
 
 Gabasteri gritou e tombou de lado, batendo o punho no chão.
 
-Jokara se arrastou alguns passos para trás. Sangrava pelo nariz e pela boca.
-
-Sorriu com o lábio partido.
+Jokara se arrastou alguns passos para trás. Sangrava pelo nariz e pela boca. Sorriu com o lábio partido.
 
 — Agora somos iguais… olha só. Ambos só temos uma perna forte.
 
@@ -346,9 +302,7 @@ Jokara virou a cabeça para a irmã. Foi só um instante.
 
 Gabasteri se voltou a cambaleios na direção de Nestira e Mariv.
 
-Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez.
-
-Bateu contra Gabasteri por trás.
+Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez. Bateu contra Gabasteri por trás.
 
 Corpo contra corpo. O bastão escapou de sua mão.
 
@@ -498,12 +452,6 @@ Nestira inclinou-se uma última vez, afastou esses fios com os dedos e beijou-lh
 
 — Eu prometi — sussurrou.
 
-Só então deixou Mariv puxá-la de pé.
+Só então deixou Mariv puxá-la de pé. Deu dois passos e voltou o rosto.
 
-Deu dois passos e voltou o rosto.
-
-Jokara permaneceu entre as folhas, imóvel, enquanto o vento passava por ela.
-
-Nestira chorou sem som e correu com Mariv.
-
-
+Jokara permaneceu entre as folhas, imóvel, enquanto o vento passava por ela. Nestira chorou sem som e correu com Mariv.

@@ -206,7 +206,7 @@ Breno se agachou ao lado dela.
 
 — Calma, Bia. A gente está seguro. E eu estou aqui.
 
-— Até agora, tudo aconteceu quando fiquei nervosa — ela murmurou. — Mas aqui em cima eu só tô com medo.
+— Só sai quando eu tô brava — ela murmurou. — E agora eu só tô com medo!
 
 — Então tenta outra coisa. Pensa em algo que te tire do sério.
 
@@ -270,7 +270,7 @@ Poucos segundos depois, a sala os devolveu aos pés de Velho-Sábio, ofegantes, 
 
 Foi Banjo quem quebrou o silêncio. Ele ainda estava no pilar, de olhos redondos, e gritou lá de cima:
 
-— Breninho de ferro! Posso te pendurar na janela? Assim a gente vai ter uma varanda de metal em casa!
+— Breno de ferro! Posso te pendurar na janela? Assim a gente vai ter uma varanda de metal em casa!
 
 Beatriz soltou uma risada molhada, espirrando lágrimas. Breno revirou os olhos, mas uma das pontas da boca dele subiu. Bruno bufou, tentando segurar, e perdeu.
 
@@ -323,7 +323,7 @@ Velho-Sábio ergueu o cajado, e uma chama suave brotou na ponta, quente e dourad
 
 — Eu... — Banjo engoliu em seco. — Eu fiz isso?
 
-— Fez. Telecinese — disse Velho-Sábio, apagando a chama. — Você se liga às coisas à sua volta, e se liga mais forte quando algo o assusta. Isso é um perigo e é um tesouro. Vamos cuidar dele juntos.
+— Fez. Telecinese — disse Velho-Sábio, apagando a chama. — Você se liga às coisas à sua volta, e se liga mais forte quando algo o assusta. Vamos cuidar disso juntos.
 
 Banjo passou o resto da tarde fazendo folhas flutuarem e pousarem de volta como se fossem penas. Às vezes uma voltava para o chão antes da hora e ele pedia desculpas, sem saber para quem.
 
@@ -335,7 +335,7 @@ Uma chama pequena e firme acendeu nas mãos dela. Dançou por um segundo, tímid
 
 Ele, já com a pele de volta ao normal, a levantou do chão num abraço.
 
-— Por hoje chega, garotos — disse Velho-Sábio, e a voz dele soou macia, quase paterna. — Vocês mostraram coragem e união, que é o que mais importa. — E tirou o próprio manto e o pôs nos ombros de Beatriz, que ainda tremia, fingindo que era só para ajeitar a dobra.
+— Por hoje chega, garotos — disse Velho-Sábio, e a voz dele soou macia, quase paterna. — Amanhã tem desafio, então comam e durmam. — E tirou o próprio manto e o pôs nos ombros de Beatriz, que ainda tremia, fingindo que era só para ajeitar a dobra.
 
 
 O refeitório do Edifício ficava num salão redondo com janelas gigantes que davam para o céu. Em cada mesa, uma lamparina flutuava a um palmo da toalha, e a luz dela mudava de cor conforme as conversas. Havia travessas fumegantes de legumes assados com um molho que cheirava a laranja, pães de casca crocante e jarras de um suco turquesa, que Banjo provou desconfiado e depois pediu mais duas vezes. Eshley, Maria, Shirley e Emiris já estavam sentados, cercados de tiras de papel colorido e potes de cola dourada.
@@ -391,20 +391,20 @@ Bruno congelou. Saiu devagar, com a nuca arrepiada.
 
 — Eu só... estava...
 
-— Estava me espionando. — McCroys se aproximou, a voz baixa e controlada. — Sei reconhecer quando alguém não tem potencial para crescer e desperdiça tempo se metendo onde não deve. — Ele inclinou-se. — A Vigilância anda atenta aos dimensais, garoto. Alguns têm sido observados de perto. Atitudes suspeitas, como bisbilhotar o que os outros fazem, como fez com os meus aprendizes, podem fazer parecer que alguém está envolvido em práticas que preferimos manter sob estrito controle.
+— Estava me espionando. — McCroys se aproximou, a voz baixa e controlada. — Ele inclinou-se. — A Vigilância anda de olho nos dimensais, garoto. E quem bisbilhota os meus aprendizes costuma ser o primeiro a ser observado.
 
 Ele sabe que eu vi os gêmeos, pensou Bruno, e a espinha gelou.
 
-— Cuidado — disse McCroys, endireitando-se. — A curiosidade é uma faca de dois gumes. Um conselho de quem entende as consequências de mexer com o que está além do próprio alcance.
+— Cuidado, Lins — disse McCroys, endireitando-se. — Curiosidade demais costuma sair cara.
 
 Foi embora sem olhar para trás. Bruno ficou parado no corredor frio, com a cabeça cheia de perguntas. Qual era o rosto verdadeiro? O do homem de joelhos ou o da ameaça? Ele não sabia, e isso o incomodou mais do que a ameaça.
 
 
-Quando voltou ao refeitório, os amigos já tinham ido embora, restando só Beatriz, Banjo e Emiris, ainda cercados de papel dourado. Bruno se sentou ao lado da irmã e resumiu o que tinha visto, sem falar da lanterna: McCroys sabia dos gêmeos, tinha ameaçado, falava de consequências.
+Quando voltou ao refeitório, os amigos já tinham ido embora, restando só Beatriz, Banjo e Emiris, ainda cercados de papel dourado. Bruno se sentou ao lado da irmã e resumiu o que tinha visto, sem falar da lanterna: a fumaça escura nas mãos dos gêmeos, e McCroys sabendo disso e ameaçando.
 
-— Magia negra é estritamente proibida — disse Emiris, assustado. — Tem certeza do que viu?
+— Fumaça escura nas mãos deles? Isso é magia negra, Bruno. É proibida — disse Emiris, assustado. — Tem certeza do que viu?
 
-— Uma fumaça escura, dias atrás. Eu sei o que vi. Falei com o Breno e ele acha que estou inventando.
+— Eu sei o que vi. Falei com o Breno e ele acha que estou inventando.
 
 — Meu pai trabalha na Vigilância — disse Emiris, baixando a voz. — Posso pedir que ele fique de olho no McCroys. Não custa tentar.
 

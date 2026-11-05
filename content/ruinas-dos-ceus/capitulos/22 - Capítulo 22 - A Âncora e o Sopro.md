@@ -4,7 +4,7 @@ Avançou alguns passos, os pés roçando o chão gasto de tanto ser pisado por g
 
 A pequena se levantou, contornou a varanda, e Jokara a seguiu. Ao virar a curva da casa, Jokara parou.
 
-Um homem de pele escura, o rosto marcado de sol, a barba curta já salpicada de pó de madeira. Os braços fortes, calejados, trabalhavam com paciência uma estrutura leve. Com a mão direita, segurava a seda de lemi, transparente; com a esquerda, ajustava pequenas pedras lisas que brilhavam sob o sol da manhã.
+Um homem de pele escura, o rosto marcado de sol, a barba curta já salpicada de pó de madeira. Os braços fortes, calejados, trabalhavam com paciência uma estrutura leve. Com a mão direita, segurava a seda de lemi, transparente. Com a esquerda, ajustava pequenas pedras lisas que brilhavam sob o sol da manhã.
 
 A voz saiu antes que ela pudesse segurar:
 
@@ -68,9 +68,7 @@ A menina mordeu o lábio, ainda confusa.
 
 — Sim. — Ele se inclinou e encostou a testa na dela. — Mas é um peso diferente. Não é o que afunda. É o que prende o vento no caminho certo. É o que mantém a asa firme quando a tempestade vem.
 
-A pequena Jokara ficou apertando a pedra.
-
-A Jokara mais velha tinha esquecido aquela tarde. Esquecido a voz dele dizendo “filha”. A brisa balançou os sinos da varanda, e ela chorou sem fazer barulho.
+A pequena Jokara ficou apertando a pedra. A Jokara mais velha tinha esquecido aquela tarde. Esquecido a voz dele dizendo “filha”. A brisa balançou os sinos da varanda, e ela chorou sem fazer barulho.
 
 O homem recolheu outro pedaço de seda e prendeu-o com delicadeza ao arco de madeira. A vintela recomeçava a tomar forma. A pequena Jokara o observava, ainda envergonhada pela peça quebrada.
 
@@ -148,9 +146,7 @@ Um sorriso pequeno, diferente dos poucos que Jokara já tinha visto nele.
 
 — Loutes?
 
-O menino recuou um passo.
-
-Jokara soltou Nestira e foi atrás dele.
+O menino recuou um passo. Jokara soltou Nestira e foi atrás dele.
 
 — Espera.
 
@@ -160,9 +156,7 @@ Ele parou.
 
 — Você vem com a gente.
 
-Loutes olhou para a mão dela em seu braço, depois para o rosto dela.
-
-Não tentou se soltar de imediato.
+Loutes olhou para a mão dela em seu braço, depois para o rosto dela. Não tentou se soltar de imediato.
 
 Em vez disso, aproximou-se e a abraçou.
 
@@ -176,9 +170,7 @@ A palavra saiu antes mesmo que soubesse por quê.
 
 Loutes se afastou. Olhou para Nestira e também a abraçou. A irmã levou a mão à nuca dele, surpresa demais para falar.
 
-Quando tornou a recuar, Loutes olhou para as duas juntas.
-
-Depois para a floresta.
+Quando tornou a recuar, Loutes olhou para as duas juntas. Depois para a floresta.
 
 — Não — repetiu Jokara, agora entendendo. — Não vai sozinho.
 
@@ -192,9 +184,7 @@ Correu.
 
 Jokara foi atrás. O bastão afundava na terra úmida, a perna ardia e as raízes pareciam surgir diante dela apenas para derrubá-la. Nestira correu mais rápido e chegou a avistá-lo entre duas árvores.
 
-Então ele desapareceu.
-
-As duas continuaram procurando.
+Então ele desapareceu. As duas continuaram procurando.
 
 Chamaram o nome dele até a voz de Jokara ficar áspera. Voltaram até a ruína, refizeram o caminho, examinaram marcas no barro e passagens entre as árvores. Encontraram pegadas durante algum tempo. Depois, nada.
 
@@ -232,15 +222,11 @@ Jokara não respondeu.
 
 Demoraram ainda algum tempo antes de desistir da busca. E mesmo quando começaram o caminho de volta, Jokara olhou para trás tantas vezes que perdeu a conta.
 
-Numa parada, Jokara apoiou o rosto no ombro da irmã. Pensou na pedra na mão do pai, e no amuleto amarrado ao tornozelo que já não existia.
-
-Depois limpou as lágrimas com a manga.
+Numa parada, Jokara apoiou o rosto no ombro da irmã. Pensou na pedra na mão do pai, e no amuleto amarrado ao tornozelo que já não existia. Depois limpou as lágrimas com a manga.
 
 — Precisamos voltar, irmã.
 
-Nestira assentiu, sem soltar a mão dela.
-
-As duas voltaram pela floresta. Em alguns trechos acharam que haviam perdido o caminho, até avistarem uma pequena brasa entre as árvores. Quando chegaram ao acampamento, Gabasteri estava acordado, sentado perto da comida e das armas.
+Nestira assentiu, sem soltar a mão dela. As duas voltaram pela floresta. Em alguns trechos acharam que haviam perdido o caminho, até avistarem uma pequena brasa entre as árvores. Quando chegaram ao acampamento, Gabasteri estava acordado, sentado perto da comida e das armas.
 
 — Andando sozinhas na floresta? É muito perigoso, ainda mais ao Sopro do Silêncio… e sozinhas… onde está o menino?
 
@@ -298,9 +284,7 @@ Jokara puxou o fio rebelde, acertou a pequena trança com os dedos e a prendeu d
 
 — Agora sim.
 
-Nestira tocou o cabelo, surpresa. Depois olhou para a irmã.
-
-As duas sorriram. Só por alguns instantes.
+Nestira tocou o cabelo, surpresa. Depois olhou para a irmã. As duas sorriram. Só por alguns instantes.
 
 Nestira manteve a mão sobre a trança da irmã por um instante. Depois alisou os fios uma última vez, com o cuidado de quem se recusava a deixar tudo desaparecer.
 
@@ -314,9 +298,7 @@ Jokara ergueu os olhos.
 
 — De onde eu conheço o nome dele. Quando você disse “Gabasteri” pela primeira vez, eu falei que já tinha ouvido. Passei esse tempo todo tentando descobrir de onde vinha aquela sensação. Agora eu sei.
 
-Nestira ergueu o rosto.
-
-Mariv demorou alguns instantes, puxando a lembrança como quem tenta enxergar através de névoa.
+Nestira ergueu o rosto. Mariv demorou alguns instantes, puxando a lembrança como quem tenta enxergar através de névoa.
 
 — Eu era criança. Meus pais me levaram a uma praça onde havia muita gente reunida. Um Orador falou antes de um balão de exílio descer. Eu não lembro do rosto do condenado e não lembro o que ele tinha feito. Só lembro do nome porque achei estranho e fiquei repetindo depois para mim mesmo.
 
@@ -332,17 +314,13 @@ Jokara ficou imóvel.
 
 Até aquele momento, havia algo em Gabasteri que ela podia tentar explicar pela queda, pelo medo, pelo mesmo mundo que tinha quebrado todos eles.
 
-A lembrança de Mariv mudava o tempo das coisas.
-
-Gabasteri conhecia a superfície bem demais.
+A lembrança de Mariv mudava o tempo das coisas. Gabasteri conhecia a superfície bem demais.
 
 Falava de água, feras e rotas como quem repetia hábitos antigos.
 
 Dormia como alguém acostumado a não confiar em ninguém.
 
-E, se Mariv estivesse certo, já estava abaixo das nuvens muito antes de Etérea cair.
-
-Nestira abraçou os próprios joelhos.
+E, se Mariv estivesse certo, já estava abaixo das nuvens muito antes de Etérea cair. Nestira abraçou os próprios joelhos.
 
 — Ele disse à Jokara que era de Enurial.
 
@@ -352,16 +330,10 @@ Jokara olhou para a escuridão onde Gabasteri desaparecera e não respondeu. Out
 
 Maletar estava ferido, cansado, exposto à chuva e à fome. Podia ter adoecido sem a intervenção de ninguém.
 
-Então pensou em Platisa, no zélon apertado contra o peito, no desconforto sempre que Gabasteri decidia uma rota e na forma como desaparecera com ele entre as árvores sem nunca voltar.
+Então pensou em Platisa, no zélon apertado contra o peito, no desconforto sempre que Gabasteri decidia uma rota e na forma como desaparecera com ele entre as árvores sem nunca voltar. Jokara baixou os olhos para o fogo.
 
-Jokara baixou os olhos para o fogo.
-
-Sem perceber, Jokara levou a mão ao tornozelo que já não existia. Por um instante, sentiu outra vez a pedra fria na palma e a seda leve dançando nos dedos.
-
-Não sabia ainda o que estava procurando.
+Sem perceber, Jokara levou a mão ao tornozelo que já não existia. Por um instante, sentiu outra vez a pedra fria na palma e a seda leve dançando nos dedos. Não sabia ainda o que estava procurando.
 
 Sabia apenas que, pela primeira vez, não queria mais esperar que Gabasteri lhe desse uma explicação.
 
-Nos dois Sopros do Silêncio seguintes, Gabasteri continuou mantendo a comida e as armas longe dos outros. Durante o sopro, continuou encontrando água, escolhendo caminhos melhores e evitando lugares onde os outros teriam avançado sem perceber perigo. Não se tornou menos competente porque tinham passado a temê-lo.
-
-Aquilo talvez fosse o pior.
+Nos dois Sopros do Silêncio seguintes, Gabasteri continuou mantendo a comida e as armas longe dos outros. Durante o sopro, continuou encontrando água, escolhendo caminhos melhores e evitando lugares onde os outros teriam avançado sem perceber perigo. Não se tornou menos competente porque tinham passado a temê-lo. Aquilo talvez fosse o pior.

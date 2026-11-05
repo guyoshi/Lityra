@@ -1,10 +1,10 @@
-Após quase uma volta exaustiva, Hardman finalmente concluiu seu projeto. O rosto coberto de suor e fuligem, com um brilho de triunfo nos olhos. Trabalhara sem parar, soldando microcircuitos, recalibrando cristais de energia instáveis e programando sequências que faziam o dispositivo zumbir com uma promessa de poder invisível. Houve momentos em que o pequeno aparelho soltou faíscas ou superaqueceu a ponto de quase derreter, ameaçando entregar o plano. Hardman praguejava baixinho, mas, obcecado, sempre achava uma solução. Era uma dança entre a física quântica e a mecânica bruta, e Hardman era o maestro.
+Após quase uma volta exaustiva, Hardman finalmente concluiu seu projeto. O rosto coberto de suor e fuligem, com um brilho de triunfo nos olhos. Trabalhara sem parar, soldando microcircuitos, recalibrando cristais de energia instáveis e programando sequências que faziam o dispositivo zumbir com uma promessa de poder invisível. Houve momentos em que o pequeno aparelho soltou faíscas ou superaqueceu a ponto de quase derreter, ameaçando entregar o plano. Hardman praguejava baixinho, mas, obcecado, sempre achava uma solução.
 
-Kord, O’reilly e Buni já sabiam do plano e estavam empolgados. O’reilly não parava de repetir que finalmente reencontraria a mãe; sempre que dizia isso, prendia parte dos longos cabelos loiro-escuros num rabo de cavalo e abria aquele sorriso encantador sob a barba vistosa. Dava vontade de acreditar que sairíamos vivos dali.
+Kord, O’reilly e Buni já sabiam do plano e estavam empolgados. O’reilly não parava de repetir que finalmente reencontraria a mãe. Sempre que dizia isso, prendia parte dos longos cabelos loiro-escuros num rabo de cavalo e abria aquele sorriso encantador sob a barba vistosa. Dava vontade de acreditar que sairíamos vivos dali.
 
 Eu não dava descanso a Hardman, perguntando toda hora se o projeto ia bem. A certa altura, ele ameaçou atirá-lo nas fornalhas se eu perguntasse de novo. Hardman precisava construir tudo em segredo. Os piratas passavam, alguns lançando olhares curiosos para o canto onde ele se encolhia, mas eu, Kord, O’reilly e Buni ficávamos sempre à frente, distraindo a atenção com conversas altas e briguinhas simuladas, cobrindo o som dos ajustes do Temparalizador, que pulsava como um coração roubado.
 
-Quando Hardman terminou o dispositivo, chamado Temparalizador, combinamos de nos encontrar perto dos banheiros para discutir o plano. Eram os lugares mais sujos que eu já vira; só se ia lá em absoluta necessidade. O’reilly “acidentalmente” quebrou os vasos sanitários, o que nos deu a desculpa perfeita para sermos os responsáveis pelo conserto. Com os banheiros interditados, tínhamos privacidade e tempo para conversar.
+Quando Hardman terminou o dispositivo, chamado Temparalizador, combinamos de nos encontrar perto dos banheiros para discutir o plano. Eram os lugares mais sujos que eu já vira. Só se ia lá em absoluta necessidade. O’reilly “acidentalmente” quebrou os vasos sanitários, o que nos deu a desculpa perfeita para sermos os responsáveis pelo conserto. Com os banheiros interditados, tínhamos privacidade e tempo para conversar.
 
 — E aí, Hardman, como está nosso aparelho de fuga, meu pequeno gênio?
 
@@ -18,7 +18,7 @@ Hardman bufou, irritado, mas enfim continuou.
 
 — O plano é o seguinte — disse Hardman, martelando os ferros tortos dos vasos — alguns piratas estão voltando do saque em Korru. As portas e entradas precisam estar abertas quando eu ativar o Temparalizador. A bolha nos esconde até a garagem, mas há uma regra: fiquem DENTRO dela. Ninguém sai, ninguém toca em nada. Um toque, e tudo desmorona. Temos sessenta ectons para chegar à nave. Aí decolamos pelas portas abertas e seguimos para longe.
 
-— Em português, Hardman — pediu Kord.
+— Em nossa língua, Hardman — pediu Kord.
 
 — Fiquem dentro da bolha. Não toquem em nada — disse Hardman, sem levantar os olhos do martelo.
 
@@ -164,7 +164,7 @@ Ouvi os motores da nave rugindo e a comporta de saída da Fera Sideral se abrind
 
 — Estou apenas sendo leal à minha tripulação, Alekta. Além disso, um colega disse que não há espaço o suficiente. Não é nada pessoal — falei antes da porta se fechar completamente, enquanto ela gritava, furiosa. Corri para dentro da nave antes que a segunda comporta se fechasse, e por fim, decolamos para fora da Fera Sideral.
 
-Percorri o corredor central até chegar ao comando. Hardman estava à frente do painel de navegação; Kord e Buni estavam à direita, afivelados nos assentos, e Vivian e O’reilly, à esquerda.
+Percorri o corredor central até chegar ao comando. Hardman estava à frente do painel de navegação. Kord e Buni estavam à direita, afivelados nos assentos, e Vivian e O’reilly, à esquerda.
 
 — Ahm, cadê a Alekta? — perguntou Hardman.
 
@@ -172,7 +172,7 @@ Percorri o corredor central até chegar ao comando. Hardman estava à frente do 
 
 — Ela era uma boa pirata — comentou Buni, pensativo.
 
-Nos voltamos para a frente, encarando a barreira quântica. A tensão era palpável; se a saída de espaçonaves estivesse desativada, seríamos vaporizados. Fechamos os olhos ao nos aproximarmos e... então ouvi gritos e risadas alegres de alívio dos meus companheiros. Hardman virou a nave, configurando nossa próxima direção.
+Nos voltamos para a frente, encarando a barreira quântica. Se a saída de espaçonaves estivesse desativada, seríamos vaporizados. Fechamos os olhos ao nos aproximarmos e... então ouvi gritos e risadas alegres de alívio dos meus companheiros. Hardman virou a nave, configurando nossa próxima direção.
 
 — Sabe pilotar uma nave? — perguntei a ele.
 
@@ -200,7 +200,7 @@ Vivian parecia aflita, as duas mãos no rosto.
 
 Ele olhou para mim, buscando confiança, e eu assenti.
 
-Então sentimos um tremor; um dos tiros das naves inimigas nos acertou.
+Então sentimos um tremor. Um dos tiros das naves inimigas nos acertou.
 
 — JASMEY, precisamos atacar! — insistiu Hardman.
 
@@ -210,11 +210,11 @@ Então sentimos um tremor; um dos tiros das naves inimigas nos acertou.
 
 — JASMEY! — gritou Hardman, enquanto a nave tremia novamente e os inimigos se aproximavam cada vez mais.
 
-Hardman segurou meu braço e tentou me puxar, mas naquele instante, seu corpo foi arrastado para trás, enquanto a gravidade à nossa frente se distorcia, as estrelas se alongavam na visão, e tudo tremia enquanto nos deslocávamos pelo espaço-tempo.
+Hardman segurou meu braço e tentou me puxar, mas naquele instante, seu corpo foi arrastado para trás, enquanto a gravidade à nossa frente se distorcia, as estrelas se apertavam num cone à frente, e tudo tremia enquanto nos deslocávamos pelo espaço-tempo.
 
 Hardman caiu no chão, arrastou-se até um banco e afivelou o cinto. Eu estava concentrado no controle, monitorando o calor e o radar de astros. Era essencial que não houvesse nenhum corpo celeste no caminho: a uma velocidade tão alta, qualquer colisão, por menor que fosse, faria a nave explodir com tanta intensidade que sistemas próximos veriam o clarão no céu.
 
-Quando a nave parou de acelerar e o espaço-tempo ao redor era apenas dobrado, respirei fundo e relaxei. Buni, O’reilly e Kord fizeram o mesmo.
+Quando a nave parou de acelerar e o espaço-tempo ao redor era apenas dobrado, respirei fundo e relaxei. Buni, O’reilly e Kord fizeram o mesmo. Pela janela, as estrelas da frente tinham um azul quase imperceptível e as de trás, um tom a mais de vermelho, o tipo de detalhe que só nota quem passa a vida pilotando.
 
 Pela janela, as estrelas à frente se pintavam de azul e as de trás, de vermelho. Ninguém comentou.
 
@@ -230,7 +230,7 @@ Buni riu e me levantei do comando, olhando para todos. Hardman estava emocionado
 
 — Dez momentos lá dentro, e eu não acredito que conseguimos — falou Kord, respirando fundo.
 
-— Jasmey, dá pra você prestar atenção em aonde estamos indo — disse Hardman preocupado — antes de mais nada precisamos aterrizar em um planeta para que eu possa remover o rastreador. Alekta tinha bloqueado os efeitos do rastreador, mas é temporário.
+— Jasmey, dá pra você prestar atenção em aonde estamos indo — disse Hardman preocupado — antes de mais nada precisamos aterrissar em um planeta para que eu possa remover o rastreador. Alekta tinha bloqueado os efeitos do rastreador, mas é temporário.
 
 — Não seja rabugento, Hardman, sorria, está livre novamente — falei.
 
@@ -262,11 +262,11 @@ Vivian fez mais um gesto, e Kord assentiu.
 
 — Quando a preguiça e a tecnologia andam de mãos dadas — disse Hardman.
 
-— Além disso, caso um de nós perdesse a habilidade de se comunicar, imediatamente eramos retirados — expliquei.
+— Além disso, caso um de nós perdesse a habilidade de se comunicar, imediatamente éramos retirados — expliquei.
 
 — Boa solução — riu Kord — menos gente, mais recursos. Por que você não simplesmente arranca a língua do seu ex-capitão.
 
-— Vou arrancar muito mais do que a língua dele quando o encontrar — brandi. — Quando retirarmos este rastreador, poderemos ir à Aurora. Vou garantir que ele descubra o caminho para lá e estarei o esperando por lá. — afirmei.
+— Vou arrancar muito mais do que a língua dele quando o encontrar — brandi. — Quando retirarmos este rastreador, poderemos ir à Aurora. Vou garantir que ele descubra o caminho para lá e estarei esperando por lá — afirmei.
 
 Hardman e os outros se entreolharam e pigarrearam. Eu não estava gostando daquela reação.
 
@@ -290,7 +290,7 @@ Levantei-me, irritado, e apontei minha arma para ele. Hardman imediatamente ergu
 
 — Isso não é um negócio — ameacei.
 
-— O que é? Está revoltadinho é? Porque foi agredido na escolinha dos Dales e agora quer bater no seu ex professor? — zombou Kord se aproximando de mim, o peito erguido, destemido.
+— O que é? Está revoltadinho é? Porque foi agredido na escolinha dos Dales e agora quer bater no seu ex professor? — zombou Kord se aproximando de mim, o peito erguido.
 
 — Repita o que você falou, seu saco de merda — falei em tom de ameaça.
 
@@ -322,7 +322,7 @@ Kord olhou para Buni e sorriu.
 
 — Meu amigo, nunca vou deixá-los.
 
-Kord então estendeu sua mão para apanhar o papel e puxou um deles, o desembrulhando. Olhei pelo canto dos olhos, irritado, enquanto o papel era desembrulhado.
+Kord então estendeu sua mão para apanhar o papel e puxou um deles, o desembrulhando. Olhei pelo canto dos olhos, irritado.
 
 — B? Buni, parece que vamos atrás de seus planos primeiro — disse Kord.
 
@@ -360,7 +360,7 @@ Olhei para Buni e forcei um sorriso. O homem batia palmas, feliz, com um grande 
 
 — Braço de Demeroso, zona Lambda, 15ª estrela do terceiro tráfego.
 
-Imediatamente acessei o sistema da nave à procura do sistema e então vimos no visor no vidro uma animação do percurso que ainda nos restava.
+Imediatamente acessei o sistema da nave à procura do planeta e então vimos no visor no vidro uma animação do percurso que ainda nos restava.
 
 — 10 parsecs daqui? — indagou Hardman, preocupado. Ele olhou para o painel central e constatou algo. — Só temos energia o suficiente para 12 parsecs. Precisaremos recarregar o combustível.
 
@@ -402,7 +402,7 @@ Buni sacudiu a cabeça.
 
 — Desculpe, mas o cara nunca... espero que não seja precoce na primeira vez — falei.
 
-Vivian soltou um risinho e Kord me empurrou. Me virei, agressivo para ele, e sustentei o olhar.
+Vivian soltou um risinho e Kord me empurrou. Me virei, agressivo para ele, e sustentei o olhar. O empurrão entrou na conta que eu mantinha de cabeça com Kord, já na terceira página.
 
 — Não toque em mim outra vez — ameacei.
 
@@ -488,7 +488,7 @@ Adormeci e acordei com um susto quando senti minhas pernas sendo puxadas para fo
 
 — O capitão Tzough está lhe convocando — disse O’reilly gargalhando.
 
-— Qual o seus problemas? — falei, levantando-me irritado — Deixa vocês adormecerem para ver se não irão acordar sem um olho.
+— Quais são os seus problemas? — falei, levantando-me irritado — Deixa vocês adormecerem para ver se não irão acordar sem um olho.
 
 — Pode tentar — disse Buni rindo em um canto.
 
@@ -518,7 +518,7 @@ Vivian assentiu novamente e olhou para baixo. O assunto parecia ser sensível pa
 
 Lembrei do Sr. Peron e de quando eu era apenas um aprendiz, recém-saído da ala dos jovens na Lebargan. Ele estava no auge da idade, um guerreiro extremamente habilidoso, um mestre. Ensinou-me a dançar com a espada e me acompanhou na primeira missão, no planeta Maron. Lembro das histórias que contava no refeitório e das piadas geniais. Sinto muita falta daquele homem.
 
-Senti a mão de Vivian encostar na minha. Talvez eu tivesse ficado tempo demais olhando para baixo, e ela percebeu o quanto o assunto era sensível para mim também. Assenti, apertando os lábios, e me levantei.
+Senti a mão de Vivian encostar na minha. Assenti, apertando os lábios, e me levantei.
 
 — Viva o presente, minha querida. É a melhor forma de se viver — falei antes de me virar para buscar algo para comer.
 
@@ -538,9 +538,15 @@ Corri para olhar pelo vidro. A pequena Sumatram estava lá, a menos de alguns ec
 
 Vivian parecia desconfortável. Talvez não fosse acostumada com pousos.
 
-— Sumatram tem uma cartografia detalhada para entrada de naves — falei, buscando no sistema até o modelo tridimensional surgir em holograma sobre o painel. — Vamos para a cidade de Geores. Fica... exatamente aqui — marquei com a mão uma região perto de uma zona cinzenta no litoral. — É importante não nos afastarmos dessa zona: o planeta está travado pela maré: um lado fica sempre virado para a estrela e frita, o outro congela. A zona do meio é a habitável.
+— Sumatram tem uma cartografia detalhada para entrada de naves — falei, buscando no sistema até o modelo tridimensional surgir em holograma sobre o painel. — Vamos para a cidade de Geores. Fica... exatamente aqui — marquei com a mão uma região perto de uma zona cinzenta no litoral. — Geores fica na faixa do crepúsculo. Ninguém sai dela.
 
-— Acho que eu sei o que é um planeta travado pela maré — resmungou Hardman.
+— Por quê? — perguntou Kord.
+
+— Rotação síncrona por maré. O período de rotação é igual ao orbital, então o planeta mostra sempre a mesma face à estrela. Insolação permanente de um lado, escuridão permanente do outro, e só o terminador comporta vida — respondeu Hardman.
+
+— Em nossa língua, Hardman — pediu Kord.
+
+— O dia aqui não acaba. Nem a noite.
 
 — Não consigo acreditar que, depois de sete momentos no espaço, finalmente vou pisar em terra — disse O’reilly.
 
@@ -550,21 +556,21 @@ Vivian parecia desconfortável. Talvez não fosse acostumada com pousos.
 
 Enquanto nos aproximávamos, ajustei detalhes da navegação: mesmo com naves inteligentes, variáveis como o movimento dos astros e a dilatação espaço-temporal precisam ser checadas para não desviarmos da rota.
 
-Quando Sumatram surgiu à nossa frente, um planeta alaranjado com um oceano imenso, meus olhos brilharam com as lembranças de uma fase da qual não me orgulho, mas também não me arrependo.
+Quando Sumatram surgiu à nossa frente, um planeta alaranjado, com um hemisfério em brasa, outro na escuridão e um oceano imenso cortado por uma faixa de crepúsculo, meus olhos brilharam com as lembranças de uma fase da qual não me orgulho, mas também não me arrependo.
 
 — Preparem-se para entrar na atmosfera — anunciei enquanto acionava os motores de desaceleração.
 
-A nave começou sua descida atmosférica, atravessando as nuvens leitosas de Sumatram. O sol no horizonte banhava o céu num espetáculo de cores crepusculares, indicando que em breve se poria sobre Geores.
+A nave começou sua descida atmosférica, atravessando as nuvens leitosas de Sumatram. O sol, parado no horizonte, banhava o céu num crepúsculo que em Sumatram não acabava nunca.
 
 — Kord, verifique no radar se estamos em uma zona de pouso segura — instruiu Hardman, enquanto analisava os últimos ajustes nos controles.
 
-— Superfície rica em silício e magnésio. Ar respirável. Zona de baixa densidade populacional. Nenhuma forma de vida detectada num raio de quinhentos metros — reportou Kord, seus olhos dançando pelos dados no radar.
+— Superfície rica em silício e magnésio. Ar respirável. Zona de baixa densidade populacional. Nenhuma forma de vida detectada num raio de quinhentos metros — reportou Kord.
 
-Ao finalmente emergirmos das nuvens, um campo dourado se estendia abaixo de nós, com plantas ondulantes balançando ao sabor do vento.
+Ao finalmente emergirmos das nuvens, um campo dourado se estendia abaixo de nós, com plantas ondulantes balançando ao sabor do vento que corria da noite para o dia.
 
 — Os habitantes daqui estão acostumados com objetos interestelares? — questionou Hardman, enquanto eu preparava a nave para o pouso final.
 
-— Meu amigo, Sumatram é um nexo interestelar — respondi, enquanto a cidade de Geores surgia no horizonte, suas luzes começando a cintilar com a chegada da noite.
+— Meu amigo, Sumatram é um nexo interestelar — respondi, enquanto a cidade de Geores surgia no horizonte, suas luzes cintilando contra o céu alaranjado.
 
 Com um suave zumbido, os motores cessaram e a nave pousou delicadamente. Desliguei os propulsores com um giro firme da chave e a guardei no bolso. A gravidade local era um pouco mais leve do que eu estava habituado.
 
@@ -578,7 +584,7 @@ Buni respirou fundo, de olhos fechados, e deu os primeiros passos na superfície
 
 O’reilly deu saltos no ar, eufórico, enquanto Kord apenas fechava os olhos e respirava fundo. Hardman também parecia encantado.
 
-— Eu já tinha esquecido como é a sensação do vento batendo no rosto — murmurou Hardman, os olhos semicerrados enquanto uma brisa acariciava sua face.
+— Eu já tinha esquecido como é a sensação do vento batendo no rosto — murmurou Hardman.
 
 — Estamos livres, porra! — berrou Kord antes de soltar um grito de pura comemoração.
 

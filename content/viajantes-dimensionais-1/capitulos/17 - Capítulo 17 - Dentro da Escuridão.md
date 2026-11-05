@@ -362,15 +362,11 @@ Ele levantou o rosto. Sua mãe estava ali, com o cabelo balançando na brisa, e 
 
 Ela segurou o rosto dele nas mãos.
 
-— Desde quando "só você" não é suficiente? Você é a cola que mantém seus irmãos juntos. Quando o mundo fica duro demais, é você quem lembra a eles que ainda existe beleza e bondade. Sua curiosidade, sua inocência e sua coragem de amar fazem de você o coração dessa família.
-
-— O coração não é forte como o músculo do Breno, nem corajoso como o Bruno.
-
-— O coração é o que mantém tudo funcionando. Parece silencioso, mas sem ele não há vida. — Ela sorriu. — Você já é tudo isso, só por ser quem é.
+— Desde quando "só você" não é suficiente? Quem você acha que faz o Breno rir quando ele esquece como? Quem faz o Bruno largar o sarcasmo por cinco minutos? — Ela sorriu. — Você é a cola dessa família, passarinho. Cola não aparece. Mas sem ela, tudo cai.
 
 Banjo chorou de novo, mas agora era saudade. Por um instante, quis que o tempo parasse e que o som das ondas o embalasse para sempre.
 
-— Banjo — disse ela, afastando-o um pouco, e algo antigo passou pelos olhos dela. — Tudo isso foi para você descobrir o seu valor. Agora, meu passarinho, você tem uma escolha. Pode ficar aqui, comigo e com seu pai. Neste lugar você terá tudo o que sempre quis. Amor, segurança, um mundo todo seu. Nunca mais vai se sentir pequeno. E nós nunca vamos embora.
+— Banjo — disse ela, afastando-o um pouco, e algo antigo passou pelos olhos dela. — Você já ouviu o que precisava. Agora, meu passarinho, você tem uma escolha. Pode ficar aqui, comigo e com seu pai. Neste lugar você terá tudo o que sempre quis. Amor, segurança, um mundo todo seu. Nunca mais vai se sentir pequeno. E nós nunca vamos embora.
 
 — E meus irmãos? — perguntou ele, hesitante.
 

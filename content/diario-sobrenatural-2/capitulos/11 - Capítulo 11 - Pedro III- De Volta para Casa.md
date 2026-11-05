@@ -374,13 +374,13 @@ Mike piscou.
 
 — Sim.
 
-Filipo deu um passo e tirou da mochila um livro velho, embrulhado num pano. Ele não disse o nome. Só segurou como se aquilo queimasse mesmo frio.
+Filipo deu um passo e tirou da mochila um caderno velho, de capa de couro, embrulhado num pano. Ele não disse o que era. Só segurou como se aquilo queimasse mesmo frio.
 
 — Isso aqui… — ele começou.
 
 Jennifer cortou.
 
-— Eu já vi um livro assim… uma vez.
+— Eu já vi uma coisa parecida… uma vez.
 
 Ela ficou um segundo com o olhar perdido, como quem puxa uma memória de um lugar enterrado. Faz um ano, mas certas palavras não envelhecem.
 
@@ -408,9 +408,9 @@ Jennifer balançou a cabeça na hora.
 
 Filipo entrou no meio rápido.
 
-— Pai, calma. Ela… ela pode não saber conscientemente, mas o livro tem um trecho. Eu posso guiar. Eu aprendi… eu li… eu vi meu avô lendo.
+— Pai, calma. Ela… ela pode não saber conscientemente, mas o caderno tem um trecho, que o vô copiou do livro dele. Eu posso guiar. Eu aprendi… eu li… eu vi meu avô lendo.
 
-Jennifer olhou pro livro como se ele fosse uma boca.
+Jennifer olhou pro caderno como se ele fosse uma boca.
 
 — E você quer que eu leia? — ela perguntou.
 
@@ -442,7 +442,7 @@ Jennifer puxou o ar e fez um gesto com a cabeça, como quem aceita entrar no mar
 
 Mike assentiu. Filipo assentiu rápido demais.
 
-Filipo abriu o livro com cuidado. As páginas pareciam mais velhas do que deviam. Ele apontou uma parte com o dedo, tremendo.
+Filipo abriu o caderno com cuidado. As folhas pareciam mais velhas do que deviam, cheias de uma letra miúda, escrita à mão. Ele apontou uma parte com o dedo, tremendo.
 
 — Lê isso aqui — ele disse. — Só isso. Eu vou te dizendo o ritmo.
 
@@ -530,7 +530,7 @@ A sala também mudou. Foi só um segundo, mas inteiro: o tapete virou o piso enc
 
 Jennifer ficou imóvel, mas a voz dela continuou por instinto, falhando no fim das palavras. O olho dela estava preso no canto da sala, e o rosto relaxou um centímetro, como o de quem ouve alguém dizer que já é hora de dormir. Isso me deu mais medo do que o monstro.
 
-Filipo apontou com o dedo no livro.
+Filipo apontou com o dedo no caderno.
 
 — Continua. Continua. Agora vem o trecho… o trecho pra Colina.
 
@@ -562,15 +562,15 @@ Jennifer tentou ler o trecho do comando. O latim saiu atropelado, porque o medo 
 
 O Cara-de-Larva deu um passo.
 
-E o livro… o livro começou a escurecer nas bordas.
+E o caderno… o caderno começou a escurecer nas bordas.
 
 Uma chama pequena apareceu no canto da página, sozinha, sem fósforo, sem isqueiro. A chama correu pelo papel como se o papel fosse gasolina.
 
-— NÃO! — Filipo gritou, tentando arrancar o livro da mão da Jennifer.
+— NÃO! — Filipo gritou, tentando arrancar o caderno da mão da Jennifer.
 
 Jennifer soltou num reflexo, a pele ardendo.
 
-O livro caiu no tapete e pegou fogo inteiro, rápido demais para ser normal.
+O caderno caiu no tapete e pegou fogo inteiro, rápido demais para ser normal.
 
 O Cara-de-Larva avançou.
 

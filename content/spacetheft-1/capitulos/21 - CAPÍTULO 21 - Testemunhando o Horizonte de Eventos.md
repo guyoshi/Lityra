@@ -286,7 +286,7 @@ A rampa desceu lentamente e os primeiros Dales saíram, armados. Entre eles, ros
 
 Jelles tinha a mesma postura impecável, a mesma confiança de sempre. O casco escuro do casaco quase tocava seus pés enquanto ele descia a rampa, cada passo carregado de domínio absoluto da situação.
 
-Vivian me cutucou nas costas e apontou o chão. A anã branca esticava nossas sombras por metros. A de Jelles não alcançava o gerbe. Fingi não ver; precisava dele falando.
+Vivian me cutucou nas costas e apontou o chão. A anã branca esticava nossas sombras por metros. A de Jelles não alcançava o gerbe. Fingi não ver. Precisava dele falando.
 
 — Piratas sempre são atraídos pelo tesouro, não é verdade? — Sua voz carregava um tom de desprezo divertido, como se estivesse reencontrando um animal de estimação perdido.
 

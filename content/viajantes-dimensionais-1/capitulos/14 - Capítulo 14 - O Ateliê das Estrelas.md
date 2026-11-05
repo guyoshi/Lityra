@@ -83,7 +83,7 @@ Beatriz arriscou um sorriso, mas ele levantou a mão.
 
 — Ah, qual é! Tem gente muito mais forte que a gente lá. O Ferris quase acabou conosco no primeiro tempo.
 
-— Ferris reprovou duas vezes, Bruno. Teve anos para treinar. Os senavelitas nativos aprendem desde pequenos. Vocês aprenderam em semanas o que muitos deles levam meses para conseguir. E isso não torna o esforço dos outros menor. — Ele parou diante deles. — E ainda assim, com um pouco de motivação e uma boa estratégia, superaram alguém como ele. Isso é impressionante. E perigoso.
+— Ferris reprovou duas vezes, Bruno. Teve anos para treinar. — Ele parou diante deles. — E vocês, com um pouco de motivação e uma boa estratégia, superaram alguém como ele. Isso é impressionante. E perigoso.
 
 — Por que perigoso? — perguntou Beatriz, num fio de voz. — Não é bom sermos bons nisso?
 
@@ -95,7 +95,7 @@ Velho-Sábio se agachou à altura dela e pousou a mão em seu ombro.
 
 — Mas isso não quer dizer que façam o mesmo com a gente — disse Bruno, de pé. — Por que estamos tanto no radar?
 
-— Porque vocês são dimensais talentosos, exatamente o que Korvo procura. E não é só ele. A Vigilância também vê o poder de vocês, e pode interpretá-lo como ameaça. Beker é capaz de pressionar o governo de Lucan Veline para criar um decreto que os mande para casa.
+— Porque vocês são dimensais talentosos, exatamente o que Korvo procura. E nem todo mundo na cidade vai gostar de ver isso.
 
 Breno coçou a nuca.
 
@@ -164,11 +164,11 @@ Um ruído leve no corredor fez Beatriz fechar o livro de um golpe, como uma culp
 
 — Tudo bem, pequena?
 
-— S-sim. Só estava curiosa. — Ela recolocou o livro na estante com pressa, mas a mente ainda estava presa à figura da floresta. Depois se virou, quase desafiadora. — Quem era Édelin?
+— S-sim. Só estava curiosa. — Ela recolocou o livro na estante com pressa, mas a mente ainda estava presa à figura da floresta. Depois se virou, quase desafiadora. — A Édelin do livro é a mesma que o senhor falou lá no castelo?
 
 O mago pareceu medir a pergunta.
 
-— Édelin Lys foi peça fundamental no fim do conflito entre velitas e senantes. Viveu há mais de mil anos.
+— É. Édelin Lys, a mesma. Foi peça fundamental no fim do conflito entre velitas e senantes. Viveu há mais de mil anos.
 
 — Ela tinha o fogo. — Beatriz estreitou os olhos. — No livro, ela parecia uma maga negra. Ou quase.
 
@@ -176,7 +176,7 @@ O mago pareceu medir a pergunta.
 
 Beatriz abraçou os joelhos.
 
-— Ela controlava fogo e caos, como eu. No coral eu estourei tudo sem querer, e até hoje não entendi o que foi aquilo. Não foi só fogo, foi algo diferente. Você disse que o estírio guarda a magia dos antigos. E se o poder dela ficou lá, e eu o tenho? E se eu me tornar uma maga negra?
+— Ela tinha fogo, igual eu. No coral eu estourei tudo sem querer, e até hoje não sei o que foi aquilo. E se o fogo dela ficou no estírio e veio parar em mim? E se eu virar uma maga negra?
 
 Velho-Sábio puxou uma cadeira e se sentou à frente dela.
 
@@ -184,7 +184,7 @@ Velho-Sábio puxou uma cadeira e se sentou à frente dela.
 
 Beatriz ficou muito quieta.
 
-— Por que as pessoas escrevem histórias? — perguntou ele. — Para estudar os erros e acertos dos que vieram antes, e não repeti-los. Se Édelin errou, você agora sabe o que não fazer. O fogo é um poder perigoso, mas é ele que fica na lareira e nos aquece. Ele não é destruição, Beatriz. É transformação. O que ele vira depende de você.
+— Se Édelin errou, agora você sabe o que não fazer. — Ele apontou a lareira com o queixo. — O fogo queima, Bia. Mas é ele que fica ali e esquenta a casa. O que ele vira depende de você.
 
 Beatriz olhou para as chamas, e algo dentro dela se acomodou.
 
@@ -219,7 +219,7 @@ A tela demorou um pouco, o que nunca acontecia.
 
 Fez menção de sair, mas voltou e olhou para a tela.
 
-— Você me pediu pra ensinar como é amar. Acho que a primeira coisa que você sente é vontade de estar perto, mesmo quando a pessoa te irrita. Quando tudo o que ela faz parece especial, até as coisas idiotas. Só de pensar nela, você sorri. — Parou. — É estranho, né?
+— Você me pediu pra ensinar como é amar. Acho que é quando até as coisas idiotas que a pessoa faz parecem especiais. Só de pensar nela, você sorri. — Parou. — É estranho, né?
 
 — Estranho... e fascinante — respondeu Kali, quase num sussurro digital. — Obrigada por compartilhar.
 
@@ -413,7 +413,7 @@ Beatriz riu e desapareceu atrás de um biombo. Banjo experimentou um chapéu com
 
 Quando Beatriz reapareceu, girando tímida no vestido, Banjo assobiou baixinho.
 
-— Bea, você vai incendiar o festival. Literalmente.
+— Bia, você vai incendiar o festival. Literalmente.
 
 Peryth fez ajustes imaginários na bainha e deu um passo atrás.
 
@@ -477,7 +477,7 @@ O nome trouxe um peso novo entre eles. Breno respirou fundo.
 
 Breno olhou para a confusão do bazar sem enxergar nada.
 
-— Não sei. Talvez essa seja a nossa maneira de honrar o pai e ele. Fazer algo que valha a pena aqui.
+— Não sei.
 
 Bruno ponderou, e não respondeu. Um chuvisco de aplausos o interrompeu. As pessoas ao redor os reconheciam, apontavam, chamavam pelos nomes.
 
@@ -503,7 +503,7 @@ Na volta, já num dassi, Banjo tagarelava sobre as roupas, e Beatriz mostrava o 
 
 O mago sorriu, com a serenidade de sempre.
 
-— Parece estranho, é verdade. Mas proteger não é isolar. Vocês vieram a Belfex para aprender e crescer, e isso inclui viver aqui, com tudo que ela oferece. Há diferença entre cautela e paranoia, Bruno. Evitar atenção demais é prudente. Trancar-se em casa, não. E nada vai acontecer com vocês enquanto eu estiver aqui.
+— Parece estranho, é verdade. Mas trancar vocês em casa seria pior. Cautela não é o mesmo que medo, Bruno. E eu estarei lá.
 
 — E se Korvo aparecer no festival? — perguntou Beatriz.
 

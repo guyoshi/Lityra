@@ -307,7 +307,7 @@ Mariv olhou para ele um instante. Depois subiu. Voltou com três ovos grandes, q
 
 Nestira sorriu para ele como se tivesse dito uma bênção.
 
-Quando o sol caiu, reuniram-se em torno da fogueira, que Gabasteri tinha empilhado de lenha. Ele falava pouco, mas era sempre dele a última palavra. Jokara ria de vez em quando, aliviada; Nestira entoava cantos curtos de gratidão; Mariv mantinha a vigilância, calado, a lança firme ao lado; e Loutes olhava para a chama.
+Quando o sol caiu, reuniram-se em torno da fogueira, que Gabasteri tinha empilhado de lenha. Ele falava pouco, mas era sempre dele a última palavra. Jokara ria de vez em quando, aliviada. Nestira entoava cantos curtos de gratidão. Mariv mantinha a vigilância, calado, a lança firme ao lado. Loutes olhava para a chama.
 
 Um grito agudo, longo, atravessou as árvores. Parecia de mulher. Não estava longe.
 

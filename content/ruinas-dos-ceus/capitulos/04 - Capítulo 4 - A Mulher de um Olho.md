@@ -256,7 +256,7 @@ Depois, quase sem perceber, segurou-lhe o queixo e tornou a erguer o rosto da cr
 
 Jokara reparou no gesto.
 
-No exílio, um balão de ramos e seda dourada levava o condenado sozinho, diante de todos. Ninguém segurava as cordas; a direção ficava por conta do vento.
+No exílio, um balão de ramos e seda dourada levava o condenado sozinho, diante de todos. Ninguém segurava as cordas. A direção ficava por conta do vento.
 
 Jokara caminhou até o alto do Arco de Eliven, de onde teria uma vista ampla da descida. Outros jovens estavam lá, em silêncio respeitoso. O balão já flutuava. Lá dentro, Yndra estava de pé. Não acenava. Olhava a cidade com o único olho.
 

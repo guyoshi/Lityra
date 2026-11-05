@@ -122,7 +122,7 @@ Os risinhos pararam. O diretor se abaixou para examiná-lo.
 
 — Caramba! — disse Bruno, aparecendo ao lado de Banjo. — O que foi que aconteceu?
 
-— O marimbondo pousou em você antes — disse Beatriz, baixando a voz para os irmãos —, e depois todos voaram pra cima do Pedro. E você mandou eles pararem e eles... pararam. Acha isso normal?
+— O marimbondo pousou em você antes — disse Beatriz, baixando a voz para os irmãos —, e depois todos voaram pra cima do Pedro. E você mandou eles pararem e eles... pararam. Os marimbondos OBEDECERAM você, Banjo!
 
 — Eu não fiz nada! — respondeu Banjo, olhando para a porta por onde Pedro tinha saído. — Ele falou que é alérgico. E se passar mal de verdade?
 
@@ -328,7 +328,7 @@ Em casa, foi preciso uma hora, sabão, óleo de cozinha e muita paciência de Fr
 
 Na hora do jantar, Frank tentou falar do acidente como se tivesse sido apenas um susto.
 
-— Depois de um susto daqueles, o que importa é que estamos todos bem. O guincho vai cuidar do carro. Bruno está bem. É nisso que precisamos pensar agora.
+— Está todo mundo inteiro, é isso que importa. O guincho cuida do carro. Agora comam, que esfria.
 
 Ninguém jantou muito bem nessa noite. De volta ao quarto, Banjo apagou a luz e acendeu uma lanterna, de um jeito que iluminava apenas o centro do quarto. No chão, havia uma pilha de coisas inusitadas: uma caixa de cereal vazia, um guarda-chuva dobrado, um gibi de capa rasgada e uma pedrar do parque. Também havia uma cartolina com letras grandes: REUNIÃO SECRETA DE ALTA IMPORTÂNCIA MÁGICA.
 
@@ -374,7 +374,7 @@ Banjo ainda sorria, imaginando todas as possibilidades. Beatriz apertou os joelh
 
 — Então a gente aprende a controlar! — disse Banjo. — Imagina poder ajudar as pessoas. E os bichinhos também.
 
-— Não sabemos o que é isso, Banjo — disse Breno. — E eu sugiro que a gente não faça nada por enquanto. Ninguém conta nada pra ninguém.
+— Não sabemos o que é isso, Banjo — disse Breno. — Por enquanto ninguém faz nada. E ninguém conta nada pra ninguém.
 
 Beatriz ajeitou a pulseira de Melissa e ficou olhando para o nó de fios coloridos, sem dizer nada.
 
@@ -392,7 +392,7 @@ Desceu descalço. Ao abrir a porta dos fundos, recebeu no rosto uma rajada de á
 
 — Quem é você?
 
-— Os próximos me chamam de Velho-Sábio.
+— Quem me conhece me chama de Velho-Sábio.
 
 — Velho-Sábio? — Breno quase riu, apesar do susto, mas o homem parecia sério demais para uma piada.
 

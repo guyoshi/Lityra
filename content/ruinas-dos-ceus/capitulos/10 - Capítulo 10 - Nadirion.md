@@ -24,7 +24,7 @@ Puxou Loutes contra si. Não via nada entre os troncos, mas os pelos da nuca est
 
 — Temos que sair daqui — sussurrou.
 
-Avançaram pela margem do lago. O pé direito de Jokara afundava no lodo; ela ia pendurada em Loutes, pulando. O som voltou, mais perto: primeiro o ronco profundo, depois o rasgo agudo de ave, vozes impossíveis saindo da mesma garganta.
+Avançaram pela margem do lago. O pé direito de Jokara afundava no lodo. Ela ia pendurada em Loutes, pulando. O som voltou, mais perto: primeiro o ronco profundo, depois o rasgo agudo de ave, vozes impossíveis saindo da mesma garganta.
 
 A floresta se fechou sobre eles. Por cima, as copas tapavam o céu quase todo. Por baixo, era raiz, lama e pedra com musgo, e cada passo podia afundar ou prender o pé.
 
@@ -36,7 +36,7 @@ Bastão. Pé. Corpo.
 
 Era feio e lento. Servia.
 
-Seguiram por um caminho estreito, ladeado por arbustos espinhosos que arranhavam a perna direita e o tecido junto ao coto. Jokara tentou firmar o passo, mas algo cedeu sob seu pé. Ossos. Pequenos, quebrando como graveto. Não eram de ave; não havia penas em volta.
+Seguiram por um caminho estreito, ladeado por arbustos espinhosos que arranhavam a perna direita e o tecido junto ao coto. Jokara tentou firmar o passo, mas algo cedeu sob seu pé. Ossos. Pequenos, quebrando como graveto. Não eram de ave. Não havia penas em volta.
 
 Mais adiante, o ar ficou quente e um fedor subiu pela garganta dela.
 
@@ -104,7 +104,7 @@ Desceu primeiro, o bastão sondando a profundidade. A água subiu rápido: torno
 
 Loutes hesitou, mas entrou. O corpo pequeno foi logo engolido até os ombros. Jokara o puxou contra si, apoiando-o no braço livre enquanto segurava o bastão com a outra mão. Ele tremia de frio.
 
-A corrente era fraca; no fundo irregular, porém, Jokara tropeçava a cada passo. Jokara afundava até a coxa, depois até quase perder o equilíbrio. Uma vez, o pé dela ficou preso entre duas pedras. Soltou-o com um puxão que fez o tornozelo arder.
+A corrente era fraca. No fundo irregular, porém, Jokara tropeçava a cada passo. Jokara afundava até a coxa, depois até quase perder o equilíbrio. Uma vez, o pé dela ficou preso entre duas pedras. Soltou-o com um puxão que fez o tornozelo arder.
 
 Em Etérea, água era orvalho e lago raso. Nunca tinha entrado numa água que a quisesse levar.
 
@@ -140,7 +140,7 @@ Apoiou-se de novo no bastão, tremendo.
 
 Adiante, viram uma abertura escura na base de uma árvore enorme, larga o bastante para os dois.
 
-Lá dentro cheirava a madeira úmida e mofo. O espaço era estreito; tiveram de se encolher, os joelhos contra o peito. Jokara fechou os olhos.
+Lá dentro cheirava a madeira úmida e mofo. O espaço era estreito. Tiveram de se encolher, os joelhos contra o peito. Jokara fechou os olhos.
 
 Achou que Loutes a tivesse tocado. Depois percebeu que era um peso leve no ombro, e que o peso andava. Dezenas de passinhos frios subindo pela pele do pescoço. Virou a cabeça devagar.
 
@@ -148,7 +148,7 @@ Era um bicho comprido e fino, feito de segmentos, com pernas curvas em cada um, 
 
 Jokara gritou. Ela se ergueu, batendo no tronco da árvore, tentando arrancar aquilo do corpo. Saiu da toca tropeçando, o bastão caindo no chão. Loutes já estava do lado de fora.
 
-O frio apertava. Não havia vento, mas a umidade entrava nos ossos. Jokara encontrou um canto estreito, protegido por uma pedra grande, e se encolheu ali. Precisavam de fogo. Todo eterí aprendia a fazer fogo de pedra e graveto; ela só nunca tinha feito com as mãos tremendo.
+O frio apertava. Não havia vento, mas a umidade entrava nos ossos. Jokara encontrou um canto estreito, protegido por uma pedra grande, e se encolheu ali. Precisavam de fogo. Todo eterí aprendia a fazer fogo de pedra e graveto. Ela só nunca tinha feito com as mãos tremendo.
 
 Recolheu gravetos, raízes secas e folhas duras de baixo da camada úmida. Fez uma pilha pequena e começou a esfregar. Os braços queimavam. A cada tentativa que não dava em nada, a cabeça pendia para a frente, e duas vezes quase caiu por cima da pilha.
 
@@ -162,7 +162,7 @@ Loutes se deitou junto e fechou os olhos. Jokara não conseguiu dormir. Toda vez
 
 A floresta não dormia. Um estalo seco, perto demais, três vezes seguidas. Um cheiro de ferro que vinha e ia.
 
-Olhou para cima. As copas tapavam quase todo o céu; nas poucas frestas entre os galhos, só conseguiu distinguir nuvens. Não se via uma estrela. Em Etérea, elas enchiam o azul escuro acima das ilhas. Ali, Jokara procurou por muito tempo um único ponto de luz.
+Olhou para cima. As copas tapavam quase todo o céu. Nas poucas frestas entre os galhos, só conseguiu distinguir nuvens. Não se via uma estrela. Em Etérea, elas enchiam o azul escuro acima das ilhas. Ali, Jokara procurou por muito tempo um único ponto de luz.
 
 Lembrou-se do que a mãe dizia sobre os Sopros que retornavam às Correntes. Sabia que as estrelas ainda deviam estar lá, acima das árvores e das nuvens. Queria conseguir enxergar uma.
 

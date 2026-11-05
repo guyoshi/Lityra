@@ -4,7 +4,7 @@ Acordou ofegante. A primeira coisa que viu foi Nestira, ajoelhada diante dela, o
 
 — Loutes sumiu — sussurrou Nestira.
 
-Jokara tentou se erguer depressa, e o corpo fraquejou; Nestira a ajudou a pôr-se de pé. Jokara firmou o bastão no chão úmido.
+Jokara tentou se erguer depressa, e o corpo fraquejou. Nestira a ajudou a pôr-se de pé. Jokara firmou o bastão no chão úmido.
 
 No acampamento, ninguém mais tinha acordado. Gabasteri dormia do outro lado, com a bolsa de comida e as armas ao alcance da mão. Mariv repousava encolhido, uma das mãos próxima ao pescoço marcado.
 
@@ -20,9 +20,7 @@ Jokara entrou na mata fechada, com Nestira atrás. Cada galho que quebravam pare
 
 — Jokara… não acho uma boa ideia. É perigoso. Vamos voltar — implorou Nestira, segurando-lhe o braço — Jokara.
 
-Jokara soltou o braço e continuou.
-
-Não demoraram a avistá-lo entre os troncos, na névoa da madrugada. Parado, de costas para elas.
+Jokara soltou o braço e continuou. Não demoraram a avistá-lo entre os troncos, na névoa da madrugada. Parado, de costas para elas.
 
 — Loutes…? — chamou Nestira.
 
@@ -52,9 +50,7 @@ Olhou em volta, procurando alguma coisa familiar.
 
 Jokara não respondeu.
 
-Não havia madeira viva, raízes trançadas ou estruturas moldadas para ceder ao vento. Os muros saíam do chão em linhas retas, feitos de blocos grandes assentados uns sobre os outros. Algumas bases alargavam-se perto do solo, como se toda a construção tivesse sido pensada para empurrar o próprio peso para baixo. Portas retangulares ainda conservavam lintéis de pedra inteira. Adiante, passagens sucessivas e pátios estreitos convergiam para o mesmo ponto.
-
-Aquilo não tentava ser leve.
+Não havia madeira viva, raízes trançadas ou estruturas moldadas para ceder ao vento. Os muros saíam do chão em linhas retas, feitos de blocos grandes assentados uns sobre os outros. Algumas bases alargavam-se perto do solo, como se toda a construção tivesse sido pensada para empurrar o próprio peso para baixo. Portas retangulares ainda conservavam lintéis de pedra inteira. Adiante, passagens sucessivas e pátios estreitos convergiam para o mesmo ponto. Aquilo não tentava ser leve.
 
 Encontraram os restos de uma rua estreita, degraus gastos e paredes reforçadas por pilares quadrados. Diferente de Etérea, cada estrutura ali parecia feita para suportar o peso da próxima.
 
@@ -64,11 +60,7 @@ Jokara passou os dedos por uma junta entre duas pedras.
 
 — Porque isso foi feito para ficar no chão.
 
-Havia registros por toda parte.
-
-Não em folhas de cristal nem em tábuas como as dos Oradores. Linhas de sinais pequenos e compactos tinham sido entalhadas em placas junto às portas, nos cantos dos muros e em pedras caídas. Eram angulares, cheias de cortes curtos e encontros que não lembravam a escrita eterí.
-
-Nestira se ajoelhou diante de uma das placas.
+Havia registros por toda parte. Não em folhas de cristal nem em tábuas como as dos Oradores. Linhas de sinais pequenos e compactos tinham sido entalhadas em placas junto às portas, nos cantos dos muros e em pedras caídas. Eram angulares, cheias de cortes curtos e encontros que não lembravam a escrita eterí. Nestira se ajoelhou diante de uma das placas.
 
 — Levis? — perguntou Jokara.
 
@@ -84,9 +76,7 @@ Uma inscrição aparecia inteira num lintel partido:
 
 “Je sed. Min lu riv sa ul.”
 
-Para as duas, aquilo não tinha som nem significado.
-
-Loutes, alguns passos adiante, parou.
+Para as duas, aquilo não tinha som nem significado. Loutes, alguns passos adiante, parou.
 
 Voltou até o lintel e tocou os dois primeiros grupos de sinais. Seus lábios se moveram uma vez, sem voz. Quando Jokara chamou seu nome, ele retirou a mão e continuou andando.
 
@@ -96,13 +86,9 @@ O menino não olhou para trás.
 
 Por fim, chegaram a uma clareira. Ali repousava a maior ruína que tinham visto: uma construção colossal de pedra, afundada no solo e tomada por raízes. O que restava da fachada era largo e baixo. Havia contrafortes nas laterais, vãos estreitos nas paredes e um pátio retangular quase soterrado por folhas. Três passagens partiam dele, mas duas haviam desabado. A terceira conduzia à abertura escura no centro da construção. Sob uma arcada quebrada, um canal de pedra seguia para uma cisterna coberta.
 
-Nenhuma parte parecia suspensa. Nenhuma parede dependia de uma raiz viva para continuar de pé.
+Nenhuma parte parecia suspensa. Nenhuma parede dependia de uma raiz viva para continuar de pé. Era uma construção feita para suportar peso.
 
-Era uma construção feita para suportar peso.
-
-Jokara parou, sem fôlego.
-
-Loutes chegou à abertura central e diminuiu o passo. Encostou a palma na parede de pedra por um instante, como se sentisse a superfície fria, e entrou antes que Jokara o alcançasse.
+Jokara parou, sem fôlego. Loutes chegou à abertura central e diminuiu o passo. Encostou a palma na parede de pedra por um instante, como se sentisse a superfície fria, e entrou antes que Jokara o alcançasse.
 
 — Vamos — sussurrou ela.
 
@@ -112,25 +98,17 @@ Jokara estendeu a mão, procurando a irmã no breu. Nestira a segurou firme.
 
 — Estamos juntas — disse Jokara, apertando a mão dela.
 
-Desceram devagar. Cada passo ecoava. No fim da escada, dobraram uma curva estreita e atravessaram um último vão de pedra. A sala além era menor que o salão superior, cercada por paredes muito mais grossas.
-
-Havia luz ali. Azulada, fraca, vinda do chão.
+Desceram devagar. Cada passo ecoava. No fim da escada, dobraram uma curva estreita e atravessaram um último vão de pedra. A sala além era menor que o salão superior, cercada por paredes muito mais grossas. Havia luz ali. Azulada, fraca, vinda do chão.
 
 Era um cristal irregular, do tamanho de uma mão, encaixado numa depressão circular no centro do piso. Sulcos finos partiam do encaixe e desapareciam sob as paredes. A pedra pulsava em azul. Jokara se abaixou, estendeu a mão hesitante e olhou para a irmã. Nestira balançou a cabeça, o rosto pálido na penumbra.
 
 — Não… — murmurou.
 
-Mas Jokara já havia decidido. Os dedos tocaram a superfície fria do cristal. No mesmo instante, a luz cresceu e encheu a sala.
+Mas Jokara já havia decidido. Os dedos tocaram a superfície fria do cristal. No mesmo instante, a luz cresceu e encheu a sala. As paredes estavam cobertas de gravuras.
 
-As paredes estavam cobertas de gravuras.
+Jokara recuou um passo. Nestira aproximou-se. Eram desenhos grandes e simples. Fileiras de figuras humanas ocupavam a base dos painéis, todas de pé sobre chão sólido, cercadas por árvores, rios e construções de pedra. Em seguida, as mesmas figuras apareciam curvadas, tossindo ou caídas.
 
-Jokara recuou um passo. Nestira aproximou-se.
-
-Eram desenhos grandes e simples. Fileiras de figuras humanas ocupavam a base dos painéis, todas de pé sobre chão sólido, cercadas por árvores, rios e construções de pedra. Em seguida, as mesmas figuras apareciam curvadas, tossindo ou caídas.
-
-Acima delas, três linhas compridas atravessavam o painel antes de se separarem em direções diferentes.
-
-Nestira tocou uma delas.
+Acima delas, três linhas compridas atravessavam o painel antes de se separarem em direções diferentes. Nestira tocou uma delas.
 
 — Três…
 
@@ -158,7 +136,7 @@ Num recuo da parede, parcialmente protegido por uma laje que havia caído diante
 
 Só então Jokara percebeu as placas finas de pedra escura junto às mãos dos restos, perfuradas numa das extremidades e presas por dois aros corroídos. Pegou a primeira.
 
-Os mesmos sinais das paredes cobriam quase toda a superfície. Algumas linhas estavam gastas; outras permaneciam profundas.
+Os mesmos sinais das paredes cobriam quase toda a superfície. Algumas linhas estavam gastas. Outras permaneciam profundas.
 
 — Consegue ler? — perguntou.
 
@@ -194,10 +172,6 @@ A irmã se virou e estendeu a mão para o cristal. Quando os dedos dela o tocara
 
 Um vento arrancou-lhe o fôlego. Nuvens passavam em volta, cortadas por clarões. Abaixo dela, pedaços de ilhas subiam e despencavam. O ar cheirava a ferro e chuva.
 
-Não havia chão.
+Não havia chão. De repente, tudo parou.
 
-De repente, tudo parou.
-
-Jokara piscou, arfando. Não estava mais na sala.
-
-Caiu de joelhos, a mão na boca. Estava em Etérea.
+Jokara piscou, arfando. Não estava mais na sala. Caiu de joelhos, a mão na boca. Estava em Etérea.

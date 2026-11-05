@@ -42,7 +42,7 @@ Na cozinha, Beatriz se sentou à mesa, abatida.
 
 — Você é meu irmão, Breno. Não vale. Eu já tinha amigos na nossa antiga escola.
 
-— Não é tão ruim quanto parece. A vida se renova o tempo todo. Às vezes a gente conhece gente nova que agrega mais pra nossa vida.
+— Não é tão ruim quanto parece. Às vezes a gente conhece gente nova que agrega mais pra nossa vida.
 
 — O que é agrega? — perguntou a menina, inocentemente.
 
@@ -118,7 +118,7 @@ Frank chegou tarde da noite, e quando Bruno desceu, a janta já estava feita.
 
 — Não vou, não. Eles são estranhos — riu o garoto, colocando o copo no micro-ondas.
 
-— Você é muito chato, Bruno — irritou-se Beatriz. — Fica se fazendo de vítima e depois reclama que fazemos as coisas sem você.
+— Você é muito chato, Bruno — irritou-se Beatriz. — Nunca quer fazer nada com a gente e depois fica bravo quando fazemos sem você!
 
 — Por que você não vai lavar esse seu cabelo oleoso, em vez de cuidar da vida dos outros? — respondeu Bruno.
 
@@ -126,7 +126,7 @@ Frank chegou tarde da noite, e quando Bruno desceu, a janta já estava feita.
 
 Bruno tirou o copo do micro-ondas, passou pelos irmãos e subiu para o quarto. Frank suspirou.
 
-— Desculpe, tio — disse Breno. — Ela às vezes fala por impulso.
+— Desculpe, tio — disse Breno. — Ela fala sem pensar.
 
 — Eu sei que é difícil aceitar isso — disse Frank, caminhando até a beira do micro-ondas. — Mas somos uma família agora, e estou fazendo de tudo pra vocês se sentirem de novo em uma.
 
@@ -166,7 +166,7 @@ No dia seguinte, Frank os levou até a escola às sete da manhã. Breno esperou 
 
 — O tempo todo — respondeu Breno, o olhar perdido no ônibus escolar à frente.
 
-— Quando perdi minha avó foi assim também. Minha vida mudou toda. — Leonardo deu um tapinha em seu ombro. — Pro que precisar, conte comigo.
+— Quando perdi minha avó foi assim também. Minha vida virou de cabeça pra baixo. — Leonardo deu um tapinha em seu ombro. — Qualquer coisa, me chama. Sério.
 
 Breno sorriu e olhou para o céu nublado, torcendo para que não chovesse no parque.
 
@@ -312,7 +312,7 @@ O vento estava forte, e os garotos cobriam os rostos para que os galhos não os 
 
 Nenhum deles sabia até onde correriam, e o destino resolveu a dúvida levando-os às margens de um rio de águas fortes.
 
-— Eu falei que era furada ir nesse passeio — resmungou Breno.
+— Eu falei que era furada ir nesse passeio — resmungou Bruno.
 
 — Breno, ali — falou Banjo, apontando para uma formação de galhos que poderia servir de ponte.
 

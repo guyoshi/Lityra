@@ -64,7 +64,7 @@ Eric hesitou, me estudando.
 
 — Antes da missão, roubei da sala de Jelles o Olho do Domongo — disse Eric, tirando-o da bolsa. — E assim que pude, parti para Sumatram. Com ele em mãos, eu poderia convencer o Mestre Estelar a lutar do meu lado e me fornecer força para enfrentar a Lebargan.
 
-Parei por um, instante e juntei as pontas.
+Parei por um instante e juntei as pontas.
 
 — Então era esse o seu objetivo? Por isso estava aqui? Queria presentear o Mestre e conseguir força para invadir a Lebargan?
 
@@ -98,7 +98,7 @@ Eu ri e suspirei antes de continuar.
 
 — Ok irmão. Eu te ajudo a salvar sua irmã — falei, embora não estivesse de acordo com seus métodos — mas me diga, como vamos achar a Lebargan? Sem este olho, Jelles nunca chegará à Aurora.
 
-Eric então colocou a mão em seu braço direito como se esperasse que eu perguntasse isso. Me mantive atento, qualquer movimento, eu atirava. Então ele puxou a manga de sua roupa e revelou um bracelete, o mesmo que usávamos na Lebargan.
+Eric então colocou a mão em seu braço direito esperando que eu perguntasse isso. Me mantive atento, qualquer movimento, eu atirava. Então ele puxou a manga de sua roupa e revelou um bracelete, o mesmo que usávamos na Lebargan.
 
 — Porra! Isso está funcionando? — perguntei.
 
@@ -180,7 +180,7 @@ Então essa era a habilidade que a Engenheira tinha. Era assim que ela realizava
 
 — Estamos? Achei que vocês não queriam se envolver — resmunguei.
 
-— Até então não havia tesouro real. Agora que há, é claro que eu queremos — disse Kord respirando fundo e colocando as mãos na cintura — Eu sempre quis recomeçar minha vida, e acho que com esse tesouro, posso recomeçar onde e como quiser.
+— Até então não havia tesouro real. Agora que há, é claro que nós queremos — disse Kord respirando fundo e colocando as mãos na cintura — Eu sempre quis recomeçar minha vida, e acho que com esse tesouro, posso recomeçar onde e como quiser.
 
 — E ainda vamos conseguir cumprir nossa parte do acordo com o Mestre — disse Hardman.
 
@@ -196,7 +196,7 @@ Eric, que estava encostado na parede polindo uma pistola, levantou o olhar e cam
 
 — O nosso mundinho fechado existe por mais de mil momentos. E não interessa o quanto nos ataquem, sempre voltamos mais fortes.
 
-Hardman arqueou as sobrancelhas e lançou uma de suas clássicas caretas, como se Eric tivesse acabado de sugerir algo ridículo.
+Hardman arqueou as sobrancelhas e lançou uma de suas clássicas caretas, de quem acabou de ouvir algo ridículo.
 
 — Nem mesmo o metal mais forte sobrevive ao inferno de uma supernova ou à força de um buraco negro — retrucou ele, com uma tranquilidade provocadora.
 
@@ -280,9 +280,9 @@ Voltamos então a dormir. Eric se ajeitou no sofá. Ele disse que não queria co
 
 Acordei com um grito de quem estava sendo esfolado vivo. Claro, não era isso: era só o Hardman, dando um show porque um robô metálico invadira o quarto dele sem bater. Era feio pra cacete, uma lata de sardinha com pernas de grilo e olhos que piscavam como letreiro de motel barato.
 
-— AI MINHA ESTRELA, UM INTRUSO! — berrou Hardman, agarrando o cobertor como se fosse uma armadura. Eu juro que vi uma lágrima de desespero escorrendo no canto do olho dele.
+— AI MINHA ESTRELA, UM INTRUSO! — berrou Hardman, agarrando o cobertor como armadura. Eu juro que vi uma lágrima de desespero escorrendo no canto do olho dele.
 
-O’reilly e Kord pularam da cama como se estivessem no meio de um ataque pirata, armas em punho e olhos semicerrados. Vivian, por outro lado, olhou para a cena, deu de ombros e voltou a dormir. Honestamente, invejo a calma dela.
+O’reilly e Kord pularam da cama prontos para um ataque pirata, armas em punho e olhos semicerrados. Vivian, por outro lado, olhou para a cena, deu de ombros e voltou a dormir. Honestamente, invejo a calma dela.
 
 — Saudações humanóides! — o robô começou, com uma voz robótica tão desafinada que parecia ter engolido um sintetizador quebrado. — O mestre estelar requer sua presença imediata no... Espaço estacionador real.
 
@@ -290,7 +290,7 @@ Eu quase engasguei rindo. Espaço Estacionador Real? Que nome é esse? Era como 
 
 — Espaço Estacionador Real? — perguntei, me levantando com uma expressão que misturava cansaço e deboche. — Parece nome de parque infantil.
 
-O robô ignorou completamente meu comentário, continuando a piscar os olhos de LED como se estivesse orgulhoso do título.
+O robô ignorou completamente meu comentário, continuando a piscar os olhos de LED orgulhoso do título.
 
 — Sigam-me. O mestre não tolera atrasos.
 
@@ -300,7 +300,7 @@ Hardman bufou e começou a se arrumar, resmungando algo sobre privacidade violad
 
 — Por quê? Tá com inveja do meu estilo ciborgue? — rebati, exibindo meu braço de metal como se fosse um acessório de luxo. Eric revirou os olhos, e seguimos o robô para fora do quarto.
 
-Saímos pelas ruas de Moldar. O lugar parecia o sonho molhado de quem adora LEDs e filmes futuristas (sim, eu sei o que são filmes; temos alguns na Lebargan). Prédios altíssimos reluziam em neon, carros flutuavam como libélulas metálicas, pessoas voavam naquelas aves gigantes pré-históricas de asas translúcidas e vendedores gritavam ofertas de tecnologia de ponta que claramente eram gambiarra.
+Saímos pelas ruas de Moldar. O lugar parecia o sonho molhado de quem adora LEDs e filmes futuristas (sim, eu sei o que são filmes. Temos alguns na Lebargan). Prédios altíssimos reluziam em neon, carros flutuavam como libélulas metálicas, pessoas voavam naquelas aves gigantes pré-históricas de asas translúcidas e vendedores gritavam ofertas de tecnologia de ponta que claramente eram gambiarra.
 
 — Ei, Jasmey, acha que essas aves são treinadas? — perguntou O’reilly, apontando para um cara que fazia piruetas no ar com um sorriso largo.
 
@@ -308,7 +308,7 @@ Saímos pelas ruas de Moldar. O lugar parecia o sonho molhado de quem adora LEDs
 
 Hardman fazia caretas desviando de vendedores ambulantes que ofereciam de próteses metálicas baratas a elixires galácticos que provavelmente eram só água com glitter. Kord, sempre atento, mantinha uma mão perto da arma, e Vivian seguia silenciosa, observando tudo.
 
-— Esse lugar é o paraíso pra idiotas gastarem dinheiro. — comentou Eric, com seu tom habitual de superioridade.
+— Esse lugar é o paraíso pra idiotas gastarem dinheiro — comentou Eric, com seu tom habitual de superioridade.
 
 — Ah, é? Então por que você não tá comprando nada? Tá sem grana? — provoquei, piscando para ele.
 
@@ -328,9 +328,9 @@ Seguimos o robô até o que só posso descrever como a doca mais extravagante da
 
 — Ah, claro. Como aquela porra que parece um sanduíche mal montado? Ou a que explode se você apertar o botão errado? — retruquei, apontando para a esfera giratória. — Essa aqui pelo menos não vai tentar me matar por engano.
 
-Eric que estava logo atrás, não conseguiu segurar a risada.
+Eric, que estava logo atrás, não conseguiu segurar a risada.
 
-— As naves da Lebargan podem ser perigosas, mas pelo menos tem personalidade, né? Essa aí tá só tentando ser um enfeite de festa.
+— As naves da Lebargan podem ser perigosas, mas pelo menos têm personalidade, né? Essa aí tá só tentando ser um enfeite de festa.
 
 Os seguranças, uns brucutus robóticos com olhos que piscavam em vermelho, nos conduziram até uma nave parada no centro. E que nave! Princesa do Inverno, era o que dizia em sua lateral, era uma obra de arte. Com um casco prateado que brilhava como gelo ao luar e linhas suaves que lembravam asas de pássaro, ela parecia pronta para dançar entre as estrelas. Nas laterais, finas gravuras de neve se transformavam em rios brilhantes quando a luz incidia sobre elas.
 
@@ -346,7 +346,7 @@ Eu abri a boca para responder, mas, claro, Eric tinha que se adiantar.
 
 — Nos dê a chave da nave e sumimos daqui.
 
-O Mestre inclinou a cabeça como se estivesse estudando um inseto. Ele cruzou os braços de forma exagerada, seus óculos vermelhos refletindo a luz ambiente.
+O Mestre inclinou a cabeça estudando um inseto. Ele cruzou os braços de forma exagerada, seus óculos vermelhos refletindo a luz ambiente.
 
 — Engraçado. Não me lembro de você ontem. A tripulação cresceu durante a noite? — Ele me lançou um olhar divertido antes de continuar:
 
@@ -386,15 +386,15 @@ Antes que eu pudesse continuar meu discurso, Eric entrou na cabine com a autorid
 
 — Eu assumo o comando.
 
-Eu ri alto, como se ele tivesse contado a piada do momento.
+Eu ri alto. Era a piada do momento.
 
 — Quando eu morrer, talvez. E mesmo assim, vou pilotar no meu velório.
 
-Eric cruzou os braços e me olhou como se eu fosse um inseto inconveniente.
+Eric cruzou os braços e me olhou.
 
 — Jasmey, você pilotar uma nave é como ver um bebê tentando correr. Fica divertido até dar errado.
 
-— E você na missão do planeta Barbére? Ah, essa imagem nunca vai sair da minha cabeça. Um verdadeiro espetáculo!
+— E você na missão do planeta Barbére? Pousou a nave dentro de um lago e jurou que era manobra. Ah, essa imagem nunca vai sair da minha cabeça. Um verdadeiro espetáculo!
 
 — Pelo menos eu não perdi minha nave por causa de uma garota. Ou vai me dizer que foi tudo parte do seu grande plano?
 
@@ -406,7 +406,7 @@ Vivian gesticulou algo para Kord, que tentou segurar uma risada, mas falhou mise
 
 — Ela disse que se for pra morrer, pelo menos quer morrer com um capitão que ela conhece como pilota. Por pior que seja a opção.
 
-Eu sorri, um brilho de desafio nos olhos, e me virei para Eric. Era a minha chance. E eu não a desperdiçaria.
+Eu sorri e me virei para Eric.
 
 — Ok, ok, Eric. Vamos fazer um acordo. Você pode pilotar…
 

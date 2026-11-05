@@ -126,7 +126,7 @@ Ele abriu os olhos de novo. Estava deitado no chão da sala, com Erla olhando pa
 
 — Mas... o que foi isso? — murmurou Bruno, com a voz quebrada.
 
-— O teste de vocês — disse Erla. — Eu vi seus desejos, seus medos e suas intenções. Não se preocupem com as imagens. Foram projeções dos seus pontos fracos. Todos os têm.
+— O teste de vocês — disse Erla. — Eu vi seus desejos, seus medos e suas intenções. Não se preocupem com as imagens. Todo mundo tem as suas.
 
 — Eu não salvei o coelhinho — sussurrou Banjo, sem levantar os olhos.
 
@@ -402,7 +402,7 @@ Velho-Sábio sorriu. 
 
 — E se a gente não passar nos testes? — Breno quebrou o clima.
 
-— Então... infelizmente vocês voltam para casa. É importante vocês saberem desde já que há essa opção. Mas ninguém precisa se preocupar com o resultado esta noite.
+— Então... infelizmente vocês voltam para casa. Mas ninguém precisa se preocupar com isso esta noite.
 
 Banjo olhou novamente para as constelações.
 
@@ -438,7 +438,7 @@ Banjo se jogou de costas numa das camas. As constelações continuavam se movend
 
 — Vocês têm noção de onde a gente tá? Eu... isso é melhor do que qualquer sonho que já tive!
 
-— Se for um sonho, eu nãom quero acordar — disse Beatriz. — Quero conhecer a cidade, as pessoas, usar magia, tudo!
+— Se for um sonho, eu não quero acordar — disse Beatriz. — Quero conhecer a cidade, as pessoas, usar magia, tudo!
 
 — Eu quero aprender a fazer aquilo com as luzes — Banjo disse, erguendo a mão para o teto. — Imagina o que mais poderemos fazer.
 
@@ -448,13 +448,13 @@ Breno ficou encostado na mesinha, observando os três. Era estranho ouvi-los fal
 
 — Só não vamos nos animar tanto. Isso tudo é muito novo pra gente. E conhecemos o velho hoje. Não sabemos se é confiável. 
 
-Banjo virou a cabeça na direção dele.
+Beatriz virou a cabeça na direção dele.
 
-— Ele nos trouxe até aqui Breninho. Ele é poderoso. Não é malvado não — disse Beatriz. 
+— Ele nos trouxe até aqui, Breninho. Ele é poderoso. Não é malvado, não.
 
 — Verdade, e você viu Tayo, Breno? Como pode existir um lugar desses e ninguém na Terra saber?
 
-— Eu não faço ideia — Breno admitiu — mas admiton que to impressionado. E com uma ansiedade enorme em conhecer mais. Só que...
+— Eu não faço ideia — Breno admitiu — mas admito que tô impressionado. E com uma ansiedade enorme em conhecer mais. Só que...
 
 —  Só que você é o irmão chato que tem que contrariar os mais novos — riu Bruno. 
 

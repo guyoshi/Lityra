@@ -82,7 +82,7 @@ Breno ficou quieto. Os ombros dele foram descendo devagar, e o metal derreteu de
 
 O rosto de Bruno se fechou. A brincadeira sumiu dele de uma vez.
 
-— Eu fugi, é verdade. Mas não para entregar vocês. Eu queria encontrar a Bia sozinho. — Olhou para o chão, para os próprios pés. — Queria que alguém, pelo menos uma vez, visse que eu não sou só o palhaço do grupo.
+— Eu fugi, é verdade. Mas não para entregar vocês. Eu queria encontrar a Bia sozinho. — Olhou para o chão, para os próprios pés. — Queria fazer uma coisa direita sozinho, pelo menos uma vez.
 
 — Bruno...
 
@@ -272,7 +272,7 @@ Beatriz respirou fundo.
 
 Beatriz olhou para os pés.
 
-— Eu menti. Disse que o Breno carregava o peso de todo mundo e que o Banjo era criativo mas não sabia lutar. E que o Bruno... — Parou, apertou os lábios. — Que o Bruno era o palhaço do grupo, que ninguém contava com ele.
+— Eu menti. Disse que o Breno era um chato e que o Banjo ficava conversando com bicho em vez de lutar. E que o Bruno... — Parou, apertou os lábios. — Que o Bruno era o palhaço do grupo, que ninguém contava com ele.
 
 Bruno ficou muito parado.
 
@@ -364,21 +364,21 @@ Breno sentiu isso no estômago. Nada do que treinaram em Tayo, nem do que fizera
 
 — Beatriz...
 
-— Talvez a gente aprendesse com alguém que não tivesse medo de nós! — Ela se virou, com os olhos molhados. — Em Tayo, tudo é regra. Na escola era a mesma coisa. E você, Breno, é quem mais tenta nos controlar.
+— Talvez a gente aprendesse com alguém que não tivesse medo de nós! — Ela se virou, com os olhos molhados. — Em Tayo, tudo é regra. E você, Breno! Você nem me deixa acender uma vela sozinha!
 
 As palavras bateram em Breno com a força de um soco. Ele abriu a boca, e nada saiu.
 
-— Eu vi o que os seguidores dele fizeram — disse, por fim, a voz quase rouca. — Eles destruíram Pinesoto, Bia. Mataram o Grande Pai. Isso não é liberdade. É controle, só que com outra roupa.
+— Eu vi o que os seguidores dele fizeram — disse, por fim, a voz quase rouca. — Eles destruíram Pinesoto, Bia. Mataram o Grande Pai. Isso não é liberdade.
 
 Bruno se aproximou da irmã e se ajoelhou diante dela, segurando as mãos dela entre as suas. Pela primeira vez em muito tempo, ele não tinha nenhuma piada pronta.
 
-— Ei, maninha. Eu entendo. Mais do que qualquer um. Eu odeio quando alguém tenta mandar na minha vida. Mas o caminho não é esse. — Ele sorriu de leve. — Você é a pessoa mais corajosa que eu conheço. A nossa luz. E luz não nasce de escuridão. Esse cara é puro breu. Sabe aquele lugar onde a gente nunca encontra o controle remoto? É pior.
+— Ei, Bia. Eu entendo. Mais do que qualquer um. Eu odeio quando alguém tenta mandar na minha vida. Mas o caminho não é esse. — Ele sorriu de leve. — Você é a pessoa mais corajosa que eu conheço. E esse cara é puro breu. Sabe aquele lugar onde a gente nunca encontra o controle remoto? É pior.
 
 Beatriz riu, e riu chorando.
 
 Banjo se aproximou também.
 
-— Bia, eu tive a chance de ficar num sonho. Um sonho em que a mamãe estava lá, e vocês também. Eu poderia ter ficado para sempre. Mas a Bia daquele sonho não era você. Eu prefiro uma irmã de verdade num mundo difícil a uma inventada num mundo perfeito.
+— Bia, eu fiquei num sonho em que a mamãe estava lá, e vocês também. Eu podia ter ficado pra sempre. Mas a Bia de lá não era você. Ela nunca reclamava de nada. — Ele fungou. — Eu prefiro a de verdade, que reclama.
 
 Beatriz mordeu o lábio. Banjo a abraçou, Bruno passou os braços em volta dos dois, e Breno completou o círculo. Ficaram ali, apertados, sem dizer nada, sob a luz verde do lago, enquanto Korvo os observava de longe com uma expressão que ninguém soube ler.
 

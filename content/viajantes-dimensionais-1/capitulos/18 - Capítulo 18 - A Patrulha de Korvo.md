@@ -12,7 +12,7 @@ Lanigiah se inclinou, e a sombra dela cobriu os três.
 
 — UOU — disse Bruno, olhando para cima.
 
-— Você tem um coração grande, Banjo — disse a rainha, e a voz suave encheu a câmara. — Poucos enfrentariam tantas inseguranças e ainda assim escolheriam voltar. — Os oito olhos escuros se voltaram para os mais velhos. — Ele é sábio. Deveria ser o líder de vocês.
+— Você tem um coração grande, Banjo — disse a rainha, e a voz suave encheu a câmara. — Poucos escolheriam voltar de um sonho tão bom. — Os oito olhos escuros se voltaram para os mais velhos. — Ele é sábio. Deveria ser o líder de vocês.
 
 — É — respondeu Bruno, com um sorriso muito falso. — Vamos pensar no caso, rainha aranha.
 
@@ -198,7 +198,7 @@ Os irmãos se sentaram no chão úmido. A luz verde das plantinhas nas paredes f
 
 — Que ótimo — disse Bruno. — Mais um dia perdido.
 
-— Esse seria um bom momento pra você usar os seus poderes, Breno. Atravessa a gente por essas raízes.
+— Esse seria um bom momento pra você usar os seus poderes, Breno — insistiu Bruno. — Atravessa a gente por essas raízes.
 
 — Você acha que eu não tentei? Essas algemas bloqueiam tudo. — Ele ergueu os pulsos. — Eu nem consigo me transformar.
 
@@ -262,13 +262,13 @@ Uma voz fria, como gelo se partindo, ecoou pelas paredes.
 
 Ela apertou os punhos e demorou a responder.
 
-— Breno. Ele é forte, mas tem um coração pesado. Carrega mais do que devia, tentando proteger todo mundo.
+— O Breno. Ele é forte e fica bravo quando a gente não obedece. Mas quer cuidar de todo mundo.
 
-— Um coração grande — repetiu a voz, arrastando as palavras. — E o próximo?
+— Cuidar de todo mundo — repetiu a voz, arrastando as palavras. — E o próximo?
 
 Beatriz olhou para o chão, como se precisasse de coragem para cada palavra.
 
-— Banjo. Criativo. Inocente. Mas não é um lutador. Nunca foi alguém que... você precisaria temer.
+— O Banjo inventa coisas e fala com bicho. Ele não é de lutar. Você não precisa ter medo dele.
 
 A voz soltou uma risada baixa, cheia de escárnio.
 
@@ -276,7 +276,7 @@ A voz soltou uma risada baixa, cheia de escárnio.
 
 Beatriz apertou os lábios. Respirou fundo, e a voz saiu devagar, escolhida.
 
-— O Bruno é o palhaço do grupo. Sempre tentando ser engraçado, mas raramente é levado a sério. A gente... não costuma contar com ele.
+— O Bruno é o palhaço do grupo. Ele faz piada de tudo, e a gente nunca leva a sério. A gente... não costuma contar com ele.
 
 O silêncio que veio depois foi mais pesado que as palavras.
 

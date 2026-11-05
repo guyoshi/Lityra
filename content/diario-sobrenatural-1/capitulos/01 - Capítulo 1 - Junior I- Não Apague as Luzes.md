@@ -36,21 +36,21 @@ Minha mãe tinha acabado de passar pano na cozinha e finalmente sentava pra toma
 
 O grito veio na hora.
 
-– JUNIOR! – Ela quase derrubou a caneca de leite.
+— JUNIOR! — Ela quase derrubou a caneca de leite.
 
 Comecei a rir antes mesmo de pedir desculpa.
 
-– Você não se cansa, não? – resmungou, com aquele olhar de “vou te matar” que eu sabia que era de mentira.
+— Você não se cansa, não? — resmungou, com aquele olhar de “vou te matar” que eu sabia que era de mentira.
 
-– Desculpa, mãe, mas é impossível resistir!
+— Desculpa, mãe, mas é impossível resistir!
 
 Ela balançou a cabeça, derrotada:
 
-– Tem leite quente no caneco. Comprei pão fresco na padaria do seu Zé.
+— Tem leite quente no caneco. Comprei pão fresco na padaria do seu Zé.
 
-– Beleza. Ah… mais tarde o Pedro pode vir aqui?
+— Beleza. Ah… mais tarde o Pedro pode vir aqui?
 
-– Se você se comportar…
+— Se você se comportar…
 
 Dei um beijo rápido na bochecha dela e corri pra cozinha americana antes que mudasse de ideia. Pão francês, manteiga e leite com Toddy, do jeito certo.
 
@@ -70,11 +70,11 @@ A praça fica quase ao lado da minha casa. É o meu refúgio, meu cenário favor
 
 Você pode achar estranho, mas minha paixão musical são trilhas de filmes: Star Wars, O Exterminador do Futuro, Jurassic Park. Cada música é a trilha improvisada de um capítulo que eu ainda não escrevi.
 
-– Mãe, vou na praça escrever um pouco!
+— Mãe, vou na praça escrever um pouco!
 
-– Leva guarda-chuva, hein! Se o tempo virar, não vem reclamar! – gritou ela da área de serviço, entre as roupas do varal.
+— Leva guarda-chuva, hein! Se o tempo virar, não vem reclamar! — gritou ela da área de serviço, entre as roupas do varal.
 
-– Tá! – respondi… e, obviamente, esqueci.
+— Tá! — respondi… e, obviamente, esqueci.
 
 Sou um desastre com memória. Esqueço óculos, guarda-chuva, o Discman, o caderno. A única coisa que não esqueço são as histórias, porque essas moram no caderno. E, se esquecer, é só reler.
 
@@ -102,7 +102,7 @@ Resignado, desci até o chafariz. No centro, a estátua de um cavaleiro de pedra
 
 Estiquei a mão em direção à água quando ouvi passos na escada.
 
-– Bom dia, Junior – disse o carteiro João, sorrindo, com um maço de cartas amarradas com elástico.
+— Bom dia, Junior — disse o carteiro João, sorrindo, com um maço de cartas amarradas com elástico.
 
 Quase pulei. Não por causa do João, mas porque fazer algo “proibido” traz sempre aquele frio na barriga, mesmo sem ninguém olhando. Por um segundo, achei que ia levar bronca. Quase me entreguei: “Confesso, seu João, foram só três dedos!”. Respondi o “bom dia” meio sem graça e o vi seguir tranquilo até a rua de baixo, a bolsa de couro batendo na perna.
 
@@ -192,19 +192,19 @@ No instante em que cheguei à sala, a porta da frente se abriu.
 
 Gritei, um grito agudo, desesperado, escorregando nos degraus.
 
-– JUNIOR! – A voz da minha mãe veio com o clarão da luz, que ela acendeu quase ao mesmo tempo em que largava a sacola de carne no chão.
+— JUNIOR! — A voz da minha mãe veio com o clarão da luz, que ela acendeu quase ao mesmo tempo em que largava a sacola de carne no chão.
 
 Eu estava caído nos degraus, ofegante, as pernas tremendo feito borracha. Corri até ela e a abracei com força, como se fosse o único cobertor capaz de afastar o frio que ainda prendia a casa.
 
-– Qual é o seu problema, menino? Quer me matar do coração? – ela dizia, tentando brincar, ainda sem fôlego.
+— Qual é o seu problema, menino? Quer me matar do coração? — ela dizia, tentando brincar, ainda sem fôlego.
 
 Eu queria contar. Queria despejar tudo: os sussurros, o rosnado, o sangue. Transformar em diálogo, em cena, em descrição perfeita. Mas quem acreditaria?
 
-– Tá tudo bem, só me assustei – menti, a voz falhando.
+— Tá tudo bem, só me assustei — menti, a voz falhando.
 
 Ela passou a mão nos meus cabelos e franziu a testa:
 
-– Nossa, mas tá frio aqui dentro…
+— Nossa, mas tá frio aqui dentro…
 
 E estava. O tipo de frio que não devia existir depois de alguém entrar carregando sacolas de mercado.
 
@@ -214,11 +214,11 @@ Nada na mesa. Nada no chão além do vidro quebrado do copo.
 
 O pedaço de carne podre tinha sumido.
 
-– Filho, você jogou fora a carne que deixei aí? – ela perguntou, olhando pro balcão.
+— Filho, você jogou fora a carne que deixei aí? — ela perguntou, olhando pro balcão.
 
 Meu coração congelou outra vez.
 
-– Não… – respondi, devagar.
+— Não… — respondi, devagar.
 
 Seja lá o que fosse aquilo… comeu.
 

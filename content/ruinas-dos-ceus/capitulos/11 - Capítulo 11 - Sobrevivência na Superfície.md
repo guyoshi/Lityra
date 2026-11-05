@@ -20,7 +20,7 @@ Em Etérea, cobriam os sinos com folhas e pintavam os olhos com pó de raiz escu
 
 Não encontrou ninguém vivo.
 
-O bastão improvisado também mudou. Jokara raspou as farpas com uma pedra, encurtou a ponta até encontrar uma altura que não machucasse tanto o ombro e enrolou tecido na empunhadura. Aprendeu que, em subida, precisava fincá-lo acima do corpo e puxar-se; em descida, colocá-lo abaixo antes de confiar a perna direita ao terreno. Lama exigia passos curtos. Pedra lisa exigia testar duas vezes.
+O bastão improvisado também mudou. Jokara raspou as farpas com uma pedra, encurtou a ponta até encontrar uma altura que não machucasse tanto o ombro e enrolou tecido na empunhadura. Aprendeu que, em subida, precisava fincá-lo acima do corpo e puxar-se. Em descida, colocá-lo abaixo antes de confiar a perna direita ao terreno. Lama exigia passos curtos. Pedra lisa exigia testar duas vezes.
 
 Ainda caía. Às vezes por cansaço. Às vezes porque o corpo esquecia por um instante que não havia perna esquerda para corrigir o equilíbrio.
 
@@ -44,7 +44,7 @@ Jokara ergueu a lança. Ainda não tinha pescado nada, e estava com fome demais 
 
 Bateu a haste contra a superfície.
 
-A criatura avançou num arranque tão rápido que Jokara mal viu o corpo se mover. As mandíbulas fecharam-se sobre a ponta da lança. A madeira estalou. Ela tentou puxar de volta, mas o impacto a desequilibrou; seu pé escorregou entre duas pedras e a água lhe cobriu o rosto.
+A criatura avançou num arranque tão rápido que Jokara mal viu o corpo se mover. As mandíbulas fecharam-se sobre a ponta da lança. A madeira estalou. Ela tentou puxar de volta, mas o impacto a desequilibrou. Seu pé escorregou entre duas pedras e a água lhe cobriu o rosto.
 
 Loutes agarrou-a pela roupa e puxou com ambas as mãos. Jokara voltou à superfície tossindo, ainda presa ao que restava da lança. A criatura sacudiu a cabeça uma vez e arrancou a arma de suas mãos.
 
@@ -66,7 +66,7 @@ Outro sopro, na tentativa de alcançar frutos escondidos no alto, Jokara tentou 
 
 Nesse mesmo sopro, entre raízes partidas e troncos esmagados, encontraram uma casa de Etérea. Quase inteira, tombada de lado, com os arcos de madeira clara, as janelas em espiral e as cordas de sustentação retorcidas.
 
-Jokara atravessou a entrada quebrada. Havia sinos pendurados em um arco partido, calados para sempre; uma rede de dormir rasgada, que ainda trazia o cheiro distante de mel e folhas secas; um jarro de cristal azul rachado em duas metades.
+Jokara atravessou a entrada quebrada. Havia sinos pendurados em um arco partido, calados para sempre. Uma rede de dormir rasgada ainda trazia o cheiro distante de mel e folhas secas. Havia também um jarro de cristal azul rachado em duas metades.
 
 Avançou alguns passos e, ao se virar, viu que Loutes tinha parado diante de alguma coisa. Escondido sob folhas úmidas, havia o corpo de uma mulher, caída de lado, pele escurecida pela podridão. Jokara cambaleou. Levou a mão à boca e obrigou-se a olhar.
 

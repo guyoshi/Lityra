@@ -204,6 +204,8 @@ O ar pareceu ficar mais pesado, como se a sala tivesse se aproximado do meu rost
 
 Ela assentiu de novo, mais firme, como alguém que finalmente consegue conduzir a marionete à marca certa no palco.
 
+— Uma alma por uma vida, Junior. — A voz saiu baixa, normal, humana demais. — Você já sabe como funciona.
+
 Eu devia ter sentido alívio. Em vez disso, senti uma pontada fria de lucidez, não uma certeza, mas uma memória do meu próprio histórico. 
 
 Eu baixei o olhar para Manu e, por um segundo, vi algo que não combinava com aquela menina suja, perdida, pedindo ajuda desde o início. Um brilho vermelho, rápido, como reflexo de brasa no escuro, acendeu no olho dela e apagou quase no mesmo instante, mas foi suficiente para o meu corpo inteiro entender o que estava se passando. 

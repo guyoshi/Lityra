@@ -26,7 +26,7 @@ Jokara admirava a irmã, mas também se irritava com aquela paz tão fácil. Nes
 
 — Quando o vento tocar seus ombros, confie. Ele não leva quem não está pronto — disse seu pai. Mas Jokara não sentia toque algum.
 
-O Mestre dos Voos, um Orador antigo, de manto cinza esvoaçante e cabelos tecidos em longas cordas de prata, caminhava entre os jovens sem pressa. Já vira centenas de partidas e apenas algumas quedas. Costumava dizer que não se ensina ninguém a voar; ensina-se a ouvir o vento.
+O Mestre dos Voos, um Orador antigo, de manto cinza esvoaçante e cabelos tecidos em longas cordas de prata, caminhava entre os jovens sem pressa. Já vira centenas de partidas e apenas algumas quedas. Costumava dizer que não se ensina ninguém a voar. Ensina-se a ouvir o vento.
 
 Quando ergueu o bastão de madeira curva em direção ao horizonte, o sinal estava dado. A primeira corrente da manhã, ainda fresca e úmida como orvalho em espiral, soprava lateralmente, e era com ela que os jovens deveriam se alinhar.
 

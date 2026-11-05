@@ -4,9 +4,7 @@ Quando o primeiro clarão de cinza riscou o céu, Jokara despertou. Gabasteri vo
 
 Passou pelos recipientes, completando-os um a um. Encheu também o cantil escuro de Maletar e o devolveu ao lado dele.
 
-Maletar não disse nada. Bebeu um gole lento do cantil e ficou olhando o chão. Mariv ainda gemia de dor, e Nestira não saía do lado dele. Loutes não tinha dormido: estava de pé, olhando para longe. Jokara não teve forças para perguntar o que ele tinha.
-
-Foi Maletar quem falou, rouco:
+Maletar não disse nada. Bebeu um gole lento do cantil e ficou olhando o chão. Mariv ainda gemia de dor, e Nestira não saía do lado dele. Loutes não tinha dormido: estava de pé, olhando para longe. Jokara não teve forças para perguntar o que ele tinha. Foi Maletar quem falou, rouco:
 
 — Não podemos ficar aqui. — Pousou a mão na lança. — Esta é terra da fera. E a Fera sempre está com fome.
 
@@ -20,13 +18,9 @@ Maletar estava mais cansado a cada sopro, mas não descansava. Recolhia galhos p
 
 — Até acharmos coisa melhor.
 
-Entregou-o a Jokara. Ela assentiu e o usou.
+Entregou-o a Jokara. Ela assentiu e o usou. A floresta foi ficando cada vez mais molhada, até que o chão deixou de ser chão. Diante deles se estendia um alagado: água parada e escura, plantas boiando, troncos tortos saindo da lama, uns ocos, outros cobertos de musgo pingando.
 
-A floresta foi ficando cada vez mais molhada, até que o chão deixou de ser chão. Diante deles se estendia um alagado: água parada e escura, plantas boiando, troncos tortos saindo da lama, uns ocos, outros cobertos de musgo pingando.
-
-O ar tinha gosto de ferro. Nuvens de insetos zumbiam em volta do rosto. Nenhum pássaro cantava; só se ouvia um coaxar grave, fundo demais para bicho pequeno.
-
-A cada passo, a lama puxava os pés.
+O ar tinha gosto de ferro. Nuvens de insetos zumbiam em volta do rosto. Nenhum pássaro cantava. Só se ouvia um coaxar grave, fundo demais para bicho pequeno. A cada passo, a lama puxava os pés.
 
 Gabasteri riu baixo, sarcástico, chutando a água barrenta que respingou no rosto de Loutes.
 
@@ -40,9 +34,7 @@ Agachou-se e enfiou a mão na água fria, atrás da sombra de um peixe. Chegou a
 
 Ouviu a própria voz e percebeu que estava xingando peixes. Nestira veio ajudá-la a recuperar o bastão.
 
-A ponta fina da madeira havia afundado quase até a metade na lama.
-
-Gabasteri observou por alguns instantes.
+A ponta fina da madeira havia afundado quase até a metade na lama. Gabasteri observou por alguns instantes.
 
 — Isso vai te derrubar de novo.
 
@@ -98,9 +90,7 @@ Ela esperou. Nada.
 
 — Queria ouvir sua voz, Loutes. Nem que fosse uma palavra só. Queria saber o que pensa, o que sente. Você... consegue falar. Eu sei que consegue… se tentar.
 
-O menino manteve os olhos fixos no escuro.
-
-Jokara quis sacudi-lo. Quis abraçá-lo. Não fez nenhuma das duas coisas.
+O menino manteve os olhos fixos no escuro. Jokara quis sacudi-lo. Quis abraçá-lo. Não fez nenhuma das duas coisas.
 
 — Vai dormir logo, Loutes… — murmurou, voltando ao seu lugar.
 
@@ -190,9 +180,7 @@ Jokara franziu o cenho.
 
 — Porque você faz a mesma coisa.
 
-Ela abriu a boca para responder e desistiu.
-
-Maletar soltou uma risada curta, seguida por uma tosse.
+Ela abriu a boca para responder e desistiu. Maletar soltou uma risada curta, seguida por uma tosse.
 
 — Talvez seja por isso que está me dizendo.
 
@@ -202,9 +190,7 @@ A rigidez dos ombros dele cedeu um pouco.
 
 — Obrigado, Jokara.
 
-Ela assentiu. Não havia muito mais a acrescentar.
-
-Maletar respirou fundo e, pouco depois, ergueu-se. As pernas trêmulas quase não o sustentavam, mas ele forçou um sorriso.
+Ela assentiu. Não havia muito mais a acrescentar. Maletar respirou fundo e, pouco depois, ergueu-se. As pernas trêmulas quase não o sustentavam, mas ele forçou um sorriso.
 
 — Vou buscar lenha.
 
@@ -234,9 +220,7 @@ Os mesmos insetos que ela observara mais cedo, disciplinados, caminhando em fila
 
 Gabasteri olhava sem se mexer. A fileira de insetos continuava.
 
-Nestira chorava com o rosto no peito de Mariv. As mãos dele tremiam quando se inclinou e fechou as pálpebras de Maletar. Depois virou o rosto.
-
-Jokara deu um passo para trás.
+Nestira chorava com o rosto no peito de Mariv. As mãos dele tremiam quando se inclinou e fechou as pálpebras de Maletar. Depois virou o rosto. Jokara deu um passo para trás.
 
 Jokara olhou para o rosto dele e pensou em Ari.
 
@@ -252,33 +236,21 @@ Foi Jokara quem falou primeiro.
 
 — Não podemos deixá-lo aqui.
 
-Ninguém respondeu de imediato.
+Ninguém respondeu de imediato. Em Etérea, todos saberiam o que fazer. O corpo seria lavado, envolvido em tecido claro e colocado num balão funerário. As Correntes o levariam para cima enquanto os vivos caminhariam contra o vento, acompanhando-o até que desaparecesse entre as nuvens. Era assim que se devolvia um Sopro ao céu.
 
-Em Etérea, todos saberiam o que fazer. O corpo seria lavado, envolvido em tecido claro e colocado num balão funerário. As Correntes o levariam para cima enquanto os vivos caminhariam contra o vento, acompanhando-o até que desaparecesse entre as nuvens. Era assim que se devolvia um Sopro ao céu.
-
-Ali não havia tecido suficiente. Não havia balão. Não havia Corrente que os levasse a lugar algum.
-
-Nestira passou a mão pelo braço de Maletar.
+Ali não havia tecido suficiente. Não havia balão. Não havia Corrente que os levasse a lugar algum. Nestira passou a mão pelo braço de Maletar.
 
 — Ele não pode ficar para os animais.
 
-Mariv olhou ao redor. Perto deles, uma árvore larga erguia-se sobre raízes que saíam da terra e tornavam a mergulhar nela alguns passos adiante. A chuva deixara o solo escuro entre duas delas.
-
-Ele ficou olhando para aquele espaço.
+Mariv olhou ao redor. Perto deles, uma árvore larga erguia-se sobre raízes que saíam da terra e tornavam a mergulhar nela alguns passos adiante. A chuva deixara o solo escuro entre duas delas. Ele ficou olhando para aquele espaço.
 
 — Podemos colocá-lo embaixo da terra.
 
-Jokara virou o rosto para ele.
-
-A ideia soou errada antes de soar possível. Eterís não enterravam os mortos. A terra era o lugar onde as coisas pesadas permaneciam; os mortos eram entregues ao céu.
-
-Mariv aproximou-se da árvore.
+Jokara virou o rosto para ele. A ideia soou errada antes de soar possível. Eterís não enterravam os mortos. A terra era o lugar onde as coisas pesadas permaneciam, e os mortos eram entregues ao céu. Mariv aproximou-se da árvore.
 
 — Não temos como devolvê-lo às Correntes. Mas podemos deixá-lo aqui, onde alguma coisa continue crescendo sobre ele. Melhor do que abandoná-lo no caminho.
 
-Nestira ergueu os olhos para a copa.
-
-O vento movia as folhas mais altas.
+Nestira ergueu os olhos para a copa. O vento movia as folhas mais altas.
 
 — Debaixo da árvore — murmurou. — Acho que ele gostaria.
 
@@ -286,15 +258,11 @@ Gabasteri finalmente olhou para os quatro.
 
 — Então façam.
 
-Mariv franziu a testa.
-
-Gabasteri já recolhia uma bolsa vazia e a lança.
+Mariv franziu a testa. Gabasteri já recolhia uma bolsa vazia e a lança.
 
 — Vou procurar comida e verificar o lado norte. Quando terminarem, cubram a terra e apaguem o máximo de marcas que conseguirem. Sangue, terra remexida e gente parada no mesmo lugar chamam animais.
 
-Não esperou resposta.
-
-Desapareceu entre as árvores.
+Não esperou resposta. Desapareceu entre as árvores.
 
 Mariv ficou olhando o lugar por onde ele saíra.
 
@@ -304,15 +272,11 @@ Jokara apoiou mais peso no bastão.
 
 — Deixa.
 
-Cavaram sem ele.
-
-Não sabiam quanto fundo deveria ser. Não sabiam se havia alguma oração certa para um corpo colocado na terra. Mariv usou uma madeira achatada; Nestira retirava pedras e raízes menores; Jokara afastava a terra com as mãos sempre que conseguia se ajoelhar sem perder o equilíbrio.
+Cavaram sem ele. Não sabiam quanto fundo deveria ser. Não sabiam se havia alguma oração certa para um corpo colocado na terra. Mariv usou uma madeira achatada, Nestira retirava pedras e raízes menores e Jokara afastava a terra com as mãos sempre que conseguia se ajoelhar sem perder o equilíbrio.
 
 Quando o espaço entre as raízes pareceu suficiente, envolveram Maletar no melhor tecido que ainda possuíam.
 
-Nestira começou uma prece conhecida e parou na metade. As palavras falavam em subir, Correntes e céu aberto. Nenhuma delas cabia naquele buraco.
-
-Ela respirou fundo.
+Nestira começou uma prece conhecida e parou na metade. As palavras falavam em subir, Correntes e céu aberto. Nenhuma delas cabia naquele buraco. Ela respirou fundo.
 
 — Que Xar carregue o que ficou pesado. Que Livia devolva o que ainda puder fluir. E que a terra guarde apenas aquilo que o Sopro já não precisa.
 
@@ -338,37 +302,25 @@ Gabasteri prendeu as raízes na bolsa sem erguer a voz.
 
 — Podemos. E amanhã podemos acordar cercados por animais atraídos pelo sangue e pela terra remexida. Ou descobrir que gastamos o resto da luz num lugar que não conseguimos defender. Eu não estou dizendo para esquecer Maletar. Estou dizendo que ele não precisa que a gente morra aqui também.
 
-Mariv encarou-o por alguns instantes. A resposta fazia sentido o bastante para tornar a frieza pior.
-
-Gabasteri pegou a lança.
+Mariv encarou-o por alguns instantes. A resposta fazia sentido o bastante para tornar a frieza pior. Gabasteri pegou a lança.
 
 — Eu vou. Se vierem, fiquem perto. Não sabemos o que se move por aqui depois que escurece.
 
-Foi o primeiro a partir.
+Foi o primeiro a partir. Os outros quatro demoraram um pouco antes de segui-lo.
 
-Os outros quatro demoraram um pouco antes de segui-lo.
+Jokara olhou para trás até a árvore desaparecer entre os troncos. O terreno que Gabasteri encontrara era bom.
 
-Jokara olhou para trás até a árvore desaparecer entre os troncos.
-
-O terreno que Gabasteri encontrara era bom.
-
-Uma elevação de pedra mantinha o chão seco. Duas árvores largas formavam uma espécie de corredor natural e, mais abaixo, folhas compridas denunciavam um curso de água antes mesmo de o som chegar até eles.
-
-Gabasteri não precisou procurar muito.
+Uma elevação de pedra mantinha o chão seco. Duas árvores largas formavam uma espécie de corredor natural e, mais abaixo, folhas compridas denunciavam um curso de água antes mesmo de o som chegar até eles. Gabasteri não precisou procurar muito.
 
 — Riacho naquela direção. Pequeno. Corrente suficiente para não ficar parado.
 
-Mariv foi verificar e voltou algum tempo depois com água nas mãos.
-
-Gabasteri estava certo.
+Mariv foi verificar e voltou algum tempo depois com água nas mãos. Gabasteri estava certo.
 
 Em coisas da superfície, isso acontecia com frequência. Reconhecia solo fofo antes que alguém afundasse, distinguia marcas recentes de rastros antigos e cheirava frutos antes de sequer pensar em tocá-los. Dormia leve, acordando com ruídos que os outros nem percebiam.
 
 Quando apontava uma pegada funda, água parada ou casca recém-arrancada, ninguém precisava de uma segunda explicação.
 
-Certa manhã, Nestira amarrou dois pedaços de carne num galho alto, longe do chão. Gabasteri passou por ela, puxou o nó com os dedos e o desfez.
-
-Nestira ergueu a cabeça.
+Certa manhã, Nestira amarrou dois pedaços de carne num galho alto, longe do chão. Gabasteri passou por ela, puxou o nó com os dedos e o desfez. Nestira ergueu a cabeça.
 
 — Por quê?
 
@@ -388,23 +340,17 @@ Nestira ficou com a fibra na mão por um instante. Depois a deixou cair sobre a 
 
 Mariv, sentado perto dali, parou de raspar a ponta da lança. Só voltou ao trabalho quando Gabasteri se afastou.
 
-No Sopro do Silêncio seguinte, Nestira cobriu as brasas com cinza e deixou uma fresta entre as pedras.
-
-Gabasteri se agachou diante do fogo.
+No Sopro do Silêncio seguinte, Nestira cobriu as brasas com cinza e deixou uma fresta entre as pedras. Gabasteri se agachou diante do fogo.
 
 — Está abafando demais.
 
 — Não estou.
 
-Ele começou a afastar a cinza com um graveto.
-
-Nestira segurou o pulso dele.
+Ele começou a afastar a cinza com um graveto. Nestira segurou o pulso dele.
 
 — Deixa assim.
 
-Gabasteri baixou os olhos para a mão dela.
-
-Nestira soltou.
+Gabasteri baixou os olhos para a mão dela. Nestira soltou.
 
 — Amanhã ainda vai estar aceso — disse.
 
@@ -420,9 +366,7 @@ Quando a fumaça já subia, Gabasteri apareceu atrás dela.
 
 — Usa menos madeira verde desta vez.
 
-Nestira não se virou.
-
-Acendeu a fibra, protegeu a chama com as mãos e esperou até ela alcançar os galhos.
+Nestira não se virou. Acendeu a fibra, protegeu a chama com as mãos e esperou até ela alcançar os galhos.
 
 Do outro lado do acampamento, a pedra de Mariv deixou de raspar a lança por alguns instantes.
 
@@ -434,9 +378,7 @@ Alguns sopros depois, chegaram a uma faixa de terreno mais alto, onde o riacho c
 
 Antes de sair naquela manhã, ele examinou o lugar e distribuiu o trabalho.
 
-Mariv reforçaria a cobertura do abrigo e abriria uma vala rasa para desviar a água caso chovesse. Jokara ficaria perto do acampamento, separando fibras e consertando duas bolsas rasgadas. Para Loutes, Gabasteri apontou para Jokara e depois para a pilha de galhos; o menino acompanhou o gesto e ficou ao lado dela. Nestira deveria encher os quatro recipientes no riacho e trazer madeira seca de uma área que Gabasteri apontou do outro lado da encosta.
-
-Nestira olhou para as próprias mãos.
+Mariv reforçaria a cobertura do abrigo e abriria uma vala rasa para desviar a água caso chovesse. Jokara ficaria perto do acampamento, separando fibras e consertando duas bolsas rasgadas. Para Loutes, Gabasteri apontou para Jokara e depois para a pilha de galhos. O menino acompanhou o gesto e ficou ao lado dela. Nestira deveria encher os quatro recipientes no riacho e trazer madeira seca de uma área que Gabasteri apontou do outro lado da encosta. Nestira olhou para as próprias mãos.
 
 — Posso cuidar das raízes e do fogo. Faço isso mais rápido.
 
@@ -444,9 +386,7 @@ Gabasteri já prendia a lança às costas.
 
 — Não preciso de raízes agora. Preciso de água e lenha.
 
-Ela assentiu.
-
-Gabasteri partiu sozinho.
+Ela assentiu. Gabasteri partiu sozinho.
 
 Durante boa parte do sopro, o acampamento funcionou sem ele. Mariv encontrou galhos longos para a cobertura e trabalhou na vala com uma pedra chata. Jokara abriu as costuras das bolsas, aproveitou as fibras ainda inteiras e refez os pontos mais soltos. Loutes separava os galhos que ela indicava e os empilhava perto do abrigo. Nestira desceu até o riacho duas vezes.
 
@@ -454,9 +394,7 @@ Na terceira, demorou.
 
 Jokara ouviu pedras rolando encosta abaixo e, pouco depois, Nestira surgiu apoiando uma mão no barranco. Trazia dois recipientes cheios. O terceiro pendia vazio do braço.
 
-Havia sangue na palma da mão e uma faixa vermelha descendo da canela.
-
-Jokara largou as fibras.
+Havia sangue na palma da mão e uma faixa vermelha descendo da canela. Jokara largou as fibras.
 
 — O que aconteceu?
 
@@ -484,17 +422,13 @@ Nestira negou depressa.
 
 — Não. Termina o que ele te deu.
 
-A frase saiu antes que ela percebesse como soava.
-
-Os quatro ficaram em silêncio por um instante.
+A frase saiu antes que ela percebesse como soava. Os quatro ficaram em silêncio por um instante.
 
 Jokara apertou o tecido em torno da mão ferida.
 
 — Chega por hoje.
 
-Nestira não respondeu.
-
-Quando Gabasteri voltou, a luz já começava a perder força entre as árvores. Trazia um animal pequeno preso pela cauda e três frutos duros dentro da bolsa. Era comida, mas tão pouca que Jokara conseguiu imaginar as porções antes mesmo de ele colocá-la no chão.
+Nestira não respondeu. Quando Gabasteri voltou, a luz já começava a perder força entre as árvores. Trazia um animal pequeno preso pela cauda e três frutos duros dentro da bolsa. Era comida, mas tão pouca que Jokara conseguiu imaginar as porções antes mesmo de ele colocá-la no chão.
 
 Gabasteri passou os olhos pelo abrigo, pela vala e pelas bolsas consertadas. Depois viu os recipientes.
 
@@ -530,9 +464,7 @@ Gabasteri virou o rosto para ele.
 
 — Porque foi o que encontrei. Ainda assim, eu trouxe alguma coisa.
 
-Ele puxou a faca e começou a abrir o animal.
-
-Nestira se aproximou devagar.
+Ele puxou a faca e começou a abrir o animal. Nestira se aproximou devagar.
 
 — Eu trouxe água.
 
@@ -586,9 +518,7 @@ Nestira baixou os olhos.
 
 — Olha pra mim quando eu estou falando com você.
 
-Ela demorou, mas ergueu o rosto.
-
-Gabasteri falou sem elevar a voz.
+Ela demorou, mas ergueu o rosto. Gabasteri falou sem elevar a voz.
 
 — Eu não estou dizendo que você quis cair. Estou dizendo que a água continua faltando. Se toda vez que alguma coisa der errado os outros tiverem que cobrir sua parte, amanhã teremos duas pessoas cansadas em vez de uma.
 
@@ -620,9 +550,7 @@ Mariv continuou se aproximando.
 
 — Você saiu para caçar e voltou com quase nada. Ninguém está dizendo que você não merece comer.
 
-Gabasteri ficou imóvel.
-
-Mariv apontou para a mão enfaixada de Nestira.
+Gabasteri ficou imóvel. Mariv apontou para a mão enfaixada de Nestira.
 
 — Ela caiu fazendo o que você mandou. Você quer punir ela porque o dia não saiu do jeito que você planejou.
 
@@ -636,9 +564,7 @@ Gabasteri fechou a mão no pescoço dele.
 
 O movimento foi rápido o bastante para cortar a frase. Com a outra mão, prendeu o braço de Mariv junto ao corpo e o empurrou até suas costas baterem no tronco mais próximo.
 
-Mariv tentou abrir os dedos em torno da garganta usando as duas mãos. Não conseguiu mover a mão de Gabasteri nem um pouco. Os pés deslizaram na terra quando tentou ganhar apoio, e o braço preso continuou imóvel contra o peito.
-
-Nestira deu um passo e parou.
+Mariv tentou abrir os dedos em torno da garganta usando as duas mãos. Não conseguiu mover a mão de Gabasteri nem um pouco. Os pés deslizaram na terra quando tentou ganhar apoio, e o braço preso continuou imóvel contra o peito. Nestira deu um passo e parou.
 
 — Mariv...
 
@@ -646,11 +572,7 @@ A voz saiu pequena. Ela levou as mãos à boca e ficou olhando para os dedos de 
 
 — Gabasteri, para. Por favor.
 
-Ele não pareceu ouvi-la.
-
-Mariv tentou ganhar apoio outra vez. Não conseguiu. O rosto começou a ficar vermelho.
-
-Jokara ergueu o bastão, mas não se aproximou.
+Ele não pareceu ouvi-la. Mariv tentou ganhar apoio outra vez. Não conseguiu. O rosto começou a ficar vermelho. Jokara ergueu o bastão, mas não se aproximou.
 
 — Chega. Solta ele.
 
@@ -676,13 +598,9 @@ Gabasteri manteve os olhos em Mariv por mais um instante antes de soltá-lo.
 
 Mariv caiu de joelhos e puxou o ar com um ruído áspero.
 
-Jokara chegou primeiro. Abaixou-se ao lado dele, segurou-o pelo ombro e esperou até que conseguisse puxar duas respirações inteiras antes de olhar para o pescoço marcado.
+Jokara chegou primeiro. Abaixou-se ao lado dele, segurou-o pelo ombro e esperou até que conseguisse puxar duas respirações inteiras antes de olhar para o pescoço marcado. Nestira ainda levou alguns segundos para se mover.
 
-Nestira ainda levou alguns segundos para se mover.
-
-Quando se ajoelhou do outro lado, os olhos estavam cheios de lágrimas. Estendeu a mão para tocar Mariv, recuou antes de encostar e ficou apenas perto dele.
-
-Jokara ergueu o rosto para Gabasteri.
+Quando se ajoelhou do outro lado, os olhos estavam cheios de lágrimas. Estendeu a mão para tocar Mariv, recuou antes de encostar e ficou apenas perto dele. Jokara ergueu o rosto para Gabasteri.
 
 — Chega. Amanhã nós vamos embora.
 
@@ -700,9 +618,7 @@ Gabasteri não discutiu. Amarrou a bolsa de comida, juntou as armas que estavam 
 
 — Isso não é proteger ninguém — disse Jokara. A voz saiu baixa, mas firme.
 
-Gabasteri parou por um instante, sem se virar.
-
-Depois levou a bolsa e as armas para o outro lado do acampamento e as deixou junto de onde dormiria.
+Gabasteri parou por um instante, sem se virar. Depois levou a bolsa e as armas para o outro lado do acampamento e as deixou junto de onde dormiria.
 
 Jokara continuou ao lado de Mariv até a respiração dele desacelerar. Só então Nestira conseguiu se aproximar de verdade.
 
@@ -710,11 +626,7 @@ Foi buscar água sem que ninguém pedisse. Molhou um pedaço limpo de tecido e v
 
 — Me avisa se doer.
 
-Mariv assentiu.
-
-Nestira encostou o pano úmido com cuidado na pele avermelhada, sem apertar. As mãos ainda tremiam. Quando encontrou a marca mais escura perto da garganta, os olhos se encheram outra vez.
-
-Mariv não disse nada. Deixou que ela cuidasse.
+Mariv assentiu. Nestira encostou o pano úmido com cuidado na pele avermelhada, sem apertar. As mãos ainda tremiam. Quando encontrou a marca mais escura perto da garganta, os olhos se encheram outra vez. Mariv não disse nada. Deixou que ela cuidasse.
 
 Mais tarde, os quatro se reuniram junto a um fogo pequeno. A comida permanecia do outro lado do acampamento, junto de Gabasteri e das armas.
 
@@ -722,9 +634,7 @@ A fome já tinha deixado de ser apenas vazio. O estômago de Jokara doía em con
 
 No silêncio, o estômago de Loutes roncou alto. Ele baixou os olhos, mas não se moveu. Pouco depois, o de Mariv respondeu, e então o de Jokara. Ninguém comentou.
 
-Nestira, com os olhos ainda inchados, voltou a umedecer o tecido e o colocou sobre o pescoço de Mariv.
-
-A marca já começava a escurecer.
+Nestira, com os olhos ainda inchados, voltou a umedecer o tecido e o colocou sobre o pescoço de Mariv. A marca já começava a escurecer.
 
 Jokara tentou olhar para os dois sem imaginar como aquela cena teria terminado se Gabasteri tivesse apertado por mais alguns instantes.
 

@@ -1,6 +1,6 @@
 — Acorde, beberrão.
 
-Abri os olhos e logo os fechei de novo. O sol forte batia no meu rosto, e pus as mãos à frente. Sentei-me devagar, o corpo extremamente pesado, e olhei ao redor. Estava no meio do matagal, perto de Hardman, de pé ao meu lado.
+Abri os olhos e logo os fechei de novo. O sol laranja, baixo e rasante, batia no meu rosto, e pus as mãos à frente. Sentei-me devagar, o corpo extremamente pesado, e olhei ao redor. Estava no meio do matagal, perto de Hardman, de pé ao meu lado.
 
 — Hora de levantar — falou ele.
 
@@ -8,7 +8,7 @@ Abri os olhos e logo os fechei de novo. O sol forte batia no meu rosto, e pus as
 
 Tentei lembrar da noite anterior, mas só me lembrava de ter me deitado no chão com Luna. Será que bebi tanto a ponto de apagar? Levantei, cambaleando, e Hardman me ajudou a ficar de pé.
 
-— Acho que deve estar orgulhoso de seus feitos. Graças à você, nossa nave foi roubada — disse ele.
+— Acho que deve estar orgulhoso de seus feitos. Graças a você, nossa nave foi roubada — disse ele.
 
 Nossa nave? Não! Virei-me e procurei por ela na região onde deveria estar pousada, mas não vi nada.
 
@@ -74,17 +74,17 @@ Bati a mão em minha testa. Essa era realmente a tripulação que eu precisava p
 
 — É o que vamos ver — respondeu Hardman se virando.
 
-Seguimos de volta para Geores. O dia estava mais quente que o anterior, e eu estava realmente sedento.
+Seguimos de volta para Geores. Caminhamos de frente para o sol, e o calor crescia a cada passo. Eu estava realmente sedento.
 
 Na cidade, procuramos nossos colegas por quase sessenta ectons, até encontrá-los numa feira, conversando com um comerciante de chapéu engraçado. Na verdade, Vivian conversava com o homem por sinais. Eu precisava aprender aquilo. Quando ela se afastou, virou-se para Hardman e explicou o que entendera, e Hardman nos explicou.
 
-Naquela tarde pedi a Vivian que me ensinasse um sinal, qualquer um, só para ter o que responder quando ela me xingasse. Ela me ensinou “obrigado”. Tentei devolver “idiota”. Ela repetiu o “obrigado” mais devagar, como se eu fosse a criança do grupo.
+Naquele turno pedi a Vivian que me ensinasse um sinal, qualquer um, só para ter o que responder quando ela me xingasse. Ela me ensinou “obrigado”. Tentei devolver “idiota”. Ela repetiu o “obrigado” mais devagar, como se eu fosse a criança do grupo.
 
 — O homem disse que todo hepton, naves saem de Moldar, uma cidade ao norte daqui, localizada no meio de um deserto que ela não conseguiu entender muito bem qual é. A próxima nave sai em quatro voltas, e por coincidência hoje a noite sai um transporte para a cidade. Em três voltas chegamos lá se pegarmos este transporte.
 
 — Voltas... de quanto tempo estamos falando? — perguntei.
 
-— Depende da duração da rotação deste planeta. Talvez uma hora espacial, mais ou menos.
+— Volta padrão, vinte e cinco horas espaciais. O dia daqui não conta, o planeta é travado, e a cidade marca os turnos por sino.
 
 — Ta, e como pegamos este transporte? — perguntei.
 
@@ -148,7 +148,7 @@ Segui pelo meio das pessoas até o balcão e esperei ser atendido. A atendente, 
 
 — O quê? — perguntei, mas a atendente saiu e voltou a conversar com seu cliente.
 
-Olhei para O’reilly e segui até a mesa do jogo, que estava no final. Enquanto observava, entendi como funcionava: cada jogador deslocava suas pedras por um tabuleiro; toda vez que uma pedra se aproximava, na horizontal, vertical ou diagonal, da pedra do adversário, esta era removida. Também se podia pular a pedra do adversário para eliminar as de trás. Três homens jogavam contra Quinn. Um deles estava com apenas mais três pedras e não demorou a ser eliminado.
+Olhei para O’reilly e segui até a mesa do jogo, que estava no final. Enquanto observava, entendi como funcionava: cada jogador deslocava suas pedras por um tabuleiro. Toda vez que uma pedra se aproximava, na horizontal, vertical ou diagonal, da pedra do adversário, esta era removida. Também se podia pular a pedra do adversário para eliminar as de trás. Três homens jogavam contra Quinn. Um deles estava com apenas mais três pedras e não demorou a ser eliminado.
 
 — Mais um para a janta — disse Quinn com um sorriso bizarro. Seus dentes eram pontiagudos como o de carnívoros e sua língua era dividida ao meio.
 
@@ -214,7 +214,7 @@ Olhei para O’reilly, que estava com seus olhos tensos. Eu ia responder, quando
 
 Me virei e vi que Quinn sorria para mim com aqueles apavorantes dentes afiados.
 
-— Ao menos é gostosa — falei. Então me virei e me dirigi à ela — aceitamos.
+— Ao menos é gostosa — falei. Então me virei e me dirigi a ela — aceitamos.
 
 Ignorei o olhar preocupado de O’reilly e me sentei em um dos bancos. Ouvi gritos e então olhei para a porta, os irmãos perdedores sendo arrastados para dentro por outros homens, o rosto totalmente ferido.
 
@@ -228,7 +228,7 @@ Voltei minha atenção para o tabuleiro enquanto um homem recolocava as peças n
 
 — Podem começar — disse Quinn dando um sorriso assustador, mas encantador. Como pode isso existir? A mulher era o anjo e o diabo ao mesmo tempo.
 
-Eu não queria arriscar tanto, então deixei O’reilly começar. Ele fez um movimento e, na minha vez, apenas o copiei. Em segundos Quinn já tinha comido uma peça minha. Ela distribuía as peças de forma inteligente, enquanto meu colega apenas a cercava; já minhas jogadas sempre acabavam em perdição. Em alguns ectons eu tinha perdido metade das pedras. Eu estava pra ficar sem coração no Sem-cabeça.
+Eu não queria arriscar tanto, então deixei O’reilly começar. Ele fez um movimento e, na minha vez, apenas o copiei. Em segundos Quinn já tinha comido uma peça minha. Ela distribuía as peças de forma inteligente, enquanto meu colega apenas a cercava, já minhas jogadas sempre acabavam em perdição. Em alguns ectons eu tinha perdido metade das pedras. Eu estava pra ficar sem coração no Sem-cabeça.
 
 Uma coisa que eu não pude deixar de notar era o quanto Quinn olhava para mim e passava a língua nos lábios. Era uma flor linda e queria me devorar, como uma planta carnívora, talvez. Depois de alguns ectons arduamente jogados, consegui comer duas pedras dela, me animei e gritei.
 
@@ -236,9 +236,9 @@ Uma coisa que eu não pude deixar de notar era o quanto Quinn olhava para mim e 
 
 Mas minha jogada foi armadilha da canibal: Quinn derrubou cinco peças minhas de uma vez. O’reilly sacudiu a cabeça, e eu me alarmei. Éramos dois contra um, não podíamos perder, mas a mulher era muito boa. Várias vezes O’reilly ficou parado, pensando no que faria. Depois que fui eliminado, a partida ainda perdurou por bom tempo, até cada um ficar com apenas quatro peças. Já devia ser tarde, pois a iluminação vinda da janela suja atrás de Quinn não parecia das melhores. Aliás, vi pela janela rostos familiares: Vivian, Hardman, Buni e Kord, nossa torcida exterior.
 
-— Sua vez — disse O’reilly para Quinn, trazendo minha atenção de volta para o jogo. Ele tinha cercado uma das peças dela, a danada não tinha o que fazer. Mas não é que ela fez. Ela perdeu a batalha, mas não a guerra. Embora a pedra tivesse ido pro saco, as outras três que sobraram foram o suficiente para derrotar O’reilly, que terminou com um rosto pálido e olhos desfocados, encostando as costas sobre a cadeira.
+— Sua vez — disse O’reilly para Quinn, trazendo minha atenção de volta para o jogo. Ele tinha cercado uma das peças dela, a danada não tinha o que fazer. Mas não é que ela fez. Ela perdeu a batalha, mas não a guerra. Embora a pedra tivesse ido pro saco, as outras três que sobraram foram o suficiente para derrotar O’reilly, que terminou com um rosto pálido e olhos desfocados, encostando as costas sobre a cadeira. Derrotar um Noxiliano, concluí, tinha sido um dia de sorte.
 
-Olhei para a janela e sacudi a cabeça. É, estávamos mortos. Notei de canto de olho alguns homens prestes a nos prender. Não tínhamos escolha, a não ser... subi na mesa e me joguei em cima de Quinn, caindo sobre seus peitos enormes. O’reilly ergueu a espada e vi movimento perto da porta: Kord e Hardman lutavam contra homens à entrada. Ouvi tiros e senti as garras de Quinn me agarrarem enquanto ela tentava me morder. Afastei o tronco e girei o corpo enquanto ela ainda me agarrava. O’reilly, ao meu lado, lutando contra dois homens baixos, esbarrou num bêbado, que tropeçou e caiu sobre um homem musculoso. Este lhe deu um soco e, podemos dizer, a partir dali nada mais fez sentido naquela porra de lugar. Quinn continuava tentando me morder, agora do meu lado, e era bem forte. Chutei-a e me arrastei pelo chão no meio da confusão. Mais tiros próximos; um homem atingido por uma garrafa caiu desacordado ao meu lado, e outro que tropeçou nele também não se levantou mais. Vi a maluca engatinhando atrás de mim, a boca aberta. Fugi, agachado, o mais rápido que pude e me agarrei em algo para me levantar. A dona da saia em que me agarrei gritou enquanto suas vestes eram abaixadas.
+Olhei para a janela e sacudi a cabeça. É, estávamos mortos. Notei de canto de olho alguns homens prestes a nos prender. Não tínhamos escolha, a não ser... subi na mesa e me joguei em cima de Quinn, caindo sobre seus peitos enormes. O’reilly ergueu a espada e vi movimento perto da porta: Kord e Hardman lutavam contra homens à entrada. Ouvi tiros e senti as garras de Quinn me agarrarem enquanto ela tentava me morder. Afastei o tronco e girei o corpo enquanto ela ainda me agarrava. O’reilly, ao meu lado, lutando contra dois homens baixos, esbarrou num bêbado, que tropeçou e caiu sobre um homem musculoso. Este lhe deu um soco e, podemos dizer, a partir dali nada mais fez sentido naquela porra de lugar. Quinn continuava tentando me morder, agora do meu lado, e era bem forte. Chutei-a e me arrastei pelo chão no meio da confusão. Mais tiros próximos. Um homem atingido por uma garrafa caiu desacordado ao meu lado, e outro que tropeçou nele também não se levantou mais. Vi a maluca engatinhando atrás de mim, a boca aberta. Fugi, agachado, o mais rápido que pude e me agarrei em algo para me levantar. A dona da saia em que me agarrei gritou enquanto suas vestes eram abaixadas.
 
 — Desculpe! — pedi, desviando por pouco de um remo que passou acima da minha cabeça. Uma dona parecia ler um livro tranquilamente no meio daquela zorra. Vi Kord a alguns metros duelando contra um homem em cima da mesa e o ajudei atirando o livro da mulher no homem, que se desequilibrou e caiu da mesa. Kord se virou para agradecer, mas foi atacado por um velho de barbas brancas.
 
@@ -304,7 +304,7 @@ No arco de embarque, uma tela suja trocou a propaganda de bebidas por um boletim
 
 — O chão é muito interessante.
 
-— Podem subir — disse uma mulher, em cima de algo que não entendi bem o que era: parecia uma pequena montanha peluda com uma plataforma presa no topo, com alguns bancos e uma cobertura de mato seco. Um a um todos entregavam seus bilhetes à mulher. Distribuí os bilhetes e sobraram dois, que coloquei de volta lá embaixo. Quando a mulher pegou o meu, analisou-o e me olhou mal-encarada antes de desejar Boa Viagem.
+— Podem subir — disse uma mulher, em cima de algo que não entendi bem o que era: parecia uma pequena montanha peluda com uma plataforma presa no topo, com alguns bancos e uma cobertura de mato seco. Um a um todos entregavam seus bilhetes à mulher. Distribuí os bilhetes e sobraram dois, que coloquei de volta lá embaixo. Quando a mulher pegou o meu, analisou-o, torceu o nariz e me olhou mal-encarada antes de desejar Boa Viagem.
 
 Nos sentamos nos bancos e prendemos os cintos que havia lá. Hardman confortou Buni que não parava de olhar para a cidadezinha, pensando em seu amor.
 
@@ -330,7 +330,7 @@ Vivian deu de ombros, e então imediatamente sentimos o chão se mexer debaixo d
 
 A cabeça era redonda e a criatura possuía quatro olhos enormes nos encarando. Seus pelos eram dourados e seguiam por seu pescoço que descia até onde meus olhos não enxergavam mais. Ao que tinha percebido, estávamos nas costas do animal, que tinha acabado de se levantar.
 
-— Olá — disse uma voz vinda da criatura. — Pode até parecer que é o cardiçal falando, mas isto é uma gravação. Seja bem-vindo ao expresso-cardiçal com destino a Moldar. A viagem será cansativa, por isso trouxemos água, mas a comida é por vossa conta. Aproveitem a vista de Sumatram; quando sairmos da zona habitável o tempo esfriará bastante e desceremos as cortinas de pelo para que todos fiquem aconchegados. — O animal continuava olhando para nós. Um garotinho ria, esticando o braço para tocar na cabeça dele. — Algumas regras antes de partirmos. Primeiro, em hipótese alguma abram os cintos, exceto nas paradas para as necessidades, ou podem se ferir letalmente. Se cair do cardiçal, ficará para trás no meio do deserto. O lado positivo é que não seria uma morte dolorosa, a não ser que fossem devorados pelas formigas de areia. Segunda, respeitem nossa equipe: quando pedirem silêncio ou para que se abaixem, obedeçam. Terceiro e não menos importante, passaremos por uma zona onde vivem selvagens. Em hipótese alguma olhem para eles ou tentem conversar. Selvagens são, como o nome diz, selvagens: perigosos e burros, capazes de confundir vocês com o almoço deles. Qualquer dúvida, chamem a equipe de apoio. Obrigado.
+— Olá — disse uma voz vinda da criatura. — Pode até parecer que é o cardiçal falando, mas isto é uma gravação. Seja bem-vindo ao expresso-cardiçal com destino a Moldar. A viagem será cansativa, por isso trouxemos água, mas a comida é por vossa conta. Aproveitem a vista de Sumatram. Quando sairmos da zona habitável o tempo esfriará bastante e desceremos as cortinas de pelo para que todos fiquem aconchegados. — O animal continuava olhando para nós. Um garotinho ria, esticando o braço para tocar na cabeça dele. — Algumas regras antes de partirmos. Primeiro, em hipótese alguma abram os cintos, exceto nas paradas para as necessidades, ou podem se ferir letalmente. Se cair do cardiçal, ficará para trás no meio do deserto. O lado positivo é que não seria uma morte dolorosa, a não ser que fossem devorados pelas formigas de areia. Segunda, respeitem nossa equipe: quando pedirem silêncio ou para que se abaixem, obedeçam. Terceiro e não menos importante, passaremos por uma zona onde vivem selvagens. Em hipótese alguma olhem para eles ou tentem conversar. Selvagens são, como o nome diz, selvagens: perigosos e burros, capazes de confundir vocês com o almoço deles. Qualquer dúvida, chamem a equipe de apoio. Obrigado.
 
 Notei quatro pessoas vestidas como a mulher da entrada, uma em cada ponta da plataforma quadrada, cercada por um parapeito onde se apoiavam de pé. Cada uma segurava uma arma grande.
 
@@ -378,9 +378,9 @@ A viagem já estava me enjoando, eu ainda teria de ouvir Kord cantar. Não era p
 
 — Eu tenho vergonha. Faz muito tempo que não canto.
 
-— Realmente Kord, da última vez que lhe ouvir cantar... foi quando o capitão nos prendeu a primeira vez — disse O’reilly.
+— Realmente Kord, da última vez que lhe ouvi cantar... foi quando o capitão nos prendeu a primeira vez — disse O’reilly.
 
-Kord riu e, vendo que todos ansiavam por sua canção, inclusive os outros passageiros, soltou a voz. Não era ruim de forma alguma; pelo contrário, era aventureira, numa melodia intrigante. Percebi que seria bom tê-lo por perto para cantar em nossas vitórias.
+Kord riu e, vendo que todos ansiavam por sua canção, inclusive os outros passageiros, soltou a voz. Não era ruim de forma alguma. Pelo contrário, era aventureira, numa melodia intrigante. Percebi que seria bom tê-lo por perto para cantar em nossas vitórias.
 
 — Vou contar a vocês como vim parar aqui — disse Kord antes de começar a cantar.
 

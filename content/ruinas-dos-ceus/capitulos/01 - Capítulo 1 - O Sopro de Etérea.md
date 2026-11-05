@@ -10,7 +10,7 @@ As crianças terminavam seus cantos na Ilha dos Pequenos, enquanto as primeiras 
 
 Entre elas, dois sopros vivos atravessavam as ilhotas correndo: uma menina de cabelos trançados e seu pai, de passos largos e olhos gastos pelo sol. A menina arrastava uma fita dourada que o vento erguia atrás dela.
 
-Ao redor dos dois, Etérea seguia seu ritmo. Alguns eterí recolhiam folhas que vibravam em harmonia com o ar; outros ajustavam os véus de uma ponte entre ilhas distantes.
+Ao redor dos dois, Etérea seguia seu ritmo. Alguns eterí recolhiam folhas que vibravam em harmonia com o ar. Outros ajustavam os véus de uma ponte entre ilhas distantes.
 
 Ao passarem por um balcão comunitário, Yoral deixou duas peças de madeira que havia entalhado no sopro anterior. A mulher conferiu a marca nelas, guardou-as junto às demais contribuições e lhe entregou um pequeno cesto de selnara, uma planta comum na alimentação eterí.
 
@@ -132,11 +132,11 @@ Com um gesto firme, Jokara se postou. Murmurou uma prece breve aos ventos, pediu
 
 Enquanto separava a ave com precisão, ouviu algo. Um som breve, um estalo de madeira ou de galho. Seguiu a trilha, descendo por um pequeno desnível da ilha, até encontrar, entre arbustos silenciosos, um ninho. Três filhotes frágeis se aninhavam ali, com os olhos fechados e os bicos entreabertos, esperando por uma mãe que jamais voltaria. Jokara ficou parada. Parte dela quis colocar os filhotes nas mãos e levá-los consigo, mas sabia que isso seria ainda mais cruel. Deixou o ninho onde estava.
 
-Com a carne cuidadosamente embrulhada num tecido branco, retornou pelas pontes até sua casa, situada na encosta da Ilha de Nivelia, onde viviam os cuidadores de raízes. A casa dos Amarëa era redonda, de três níveis, feita de madeira clara e tecido de seda vegetal entrelaçada, com sinos pendurados em cada batente. Antes de dormir, Mirel sempre verificava se pelo menos um deles ainda respondia ao vento; uma casa cujo sino não tocasse durante o Sopro do Silêncio era considerada fechada às Correntes. Uma varanda em espiral abria-se para o leste, onde o sol nascia, e no interior o cheiro de raiz aquecida e pétala seca perfumava o ar.
+Com a carne cuidadosamente embrulhada num tecido branco, retornou pelas pontes até sua casa, situada na encosta da Ilha de Nivelia, onde viviam os cuidadores de raízes. A casa dos Amarëa era redonda, de três níveis, feita de madeira clara e tecido de seda vegetal entrelaçada, com sinos pendurados em cada batente. Antes de dormir, Mirel sempre verificava se pelo menos um deles ainda respondia ao vento. Uma casa cujo sino não tocasse durante o Sopro do Silêncio era considerada fechada às Correntes. Uma varanda em espiral abria-se para o leste, onde o sol nascia, e no interior o cheiro de raiz aquecida e pétala seca perfumava o ar.
 
 A mãe, Mirel, provavelmente estava supervisionando os círculos de escuta no Santuário de Helion. Nestira, como sempre às vésperas da Espiral da Luz, deveria estar no Salão dos Ecos, orando com os Oradores em silêncio, antes da procissão da corrente. Jokara atravessou a sala central, passou pelas escadas espiraladas e subiu até seu quarto.
 
-Ali, tudo estava como deixara. Uma estante baixa sustentava frascos de névoa perfumada e algumas folhas de cristal usadas para registrar sonhos. Quando inclinadas diante da luz, palavras finas surgiam sob a superfície. Jokara não escrevia nelas havia muitos ciclos; seus sonhos tinham se tornado repetitivos demais para merecerem registro. Pousou o caderno sobre a mesa de raízes trançadas e voltou-se para a janela, onde um manto branco, agora amarelado pelo tempo, trazia o símbolo das Correntes bordado em linha prateada.
+Ali, tudo estava como deixara. Uma estante baixa sustentava frascos de névoa perfumada e algumas folhas de cristal usadas para registrar sonhos. Quando inclinadas diante da luz, palavras finas surgiam sob a superfície. Jokara não escrevia nelas havia muitos ciclos. Seus sonhos tinham se tornado repetitivos demais para merecerem registro. Pousou o caderno sobre a mesa de raízes trançadas e voltou-se para a janela, onde um manto branco, agora amarelado pelo tempo, trazia o símbolo das Correntes bordado em linha prateada.
 
 Jokara se aproximou, pegou o tecido com as duas mãos e o apertou contra o rosto. Fechou os olhos, buscando o cheiro antigo: uma mistura de orvalho e mel seco. O vento entrou pela janela. O cheiro não estava mais ali.
 

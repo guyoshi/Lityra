@@ -4,9 +4,9 @@ As cinzas dominavam o que antes era um vilarejo vibrante. Nem a vida selvagem ou
 
 Os músculos dele estavam tensos, os tentáculos faciais vibrando de fúria.
 
-— Vocês mataram a todos — acusou ele, a voz carregada de dor e ira.
+— Vocês mataram a todos — acusou ele.
 
-— Eu não participei disso. Se baixar essa arma, juro que te ajudarei a encontrar os verdadeiros culpados — tentei negociar, buscando alguma forma de paz.
+— Eu não participei disso. Se baixar essa arma, juro que te ajudarei a encontrar os verdadeiros culpados — tentei negociar.
 
 — VOCÊS SÃO ASSASSINOS! — Sua acusação ecoou, o dedo apertando o gatilho num gesto de desespero. O disparo passou rente, um aviso ou um erro, não tinha como saber.
 
@@ -18,7 +18,7 @@ O confronto cessou com um disparo e um líquido roxo que se espalhou ao meu lado
 
 — De nada! — falou Eric.
 
-— Você o matou — Minhas palavras saíram quase como uma acusação.
+— Você o matou — falei, como quem acusa.
 
 — Salvei sua vida, idiota — Eric retrucou.
 
@@ -26,11 +26,11 @@ Levantei, movido por uma raiva justa, e soquei a cara dele. Eric cambaleou, surp
 
 — QUALÉ.
 
-— Esses seres foram exterminados em casa. Foram queimados vivos — minha voz era uma tempestade contida.
+— Esses seres foram exterminados em casa. Foram queimados vivos — falei baixo.
 
-— É o código, Jasmey. Não deixamos sobreviventes — Eric tentou justificar, mas suas palavras soavam vazias.
+— É o código, Jasmey. Não deixamos sobreviventes — Eric tentou justificar.
 
-— Foda-se o código, Eric. Eu estou cansado disso — desabafei. Cansado de ser cão de caça de um monstro. O código era uma desculpa para a selvageria, e eu não era mais parte dela.
+— Foda-se o código, Eric. Eu estou cansado disso — desabafei. Cansado de ser cão de caça de um monstro.
 
 — É… e pelo jeito o capitão também está cansado de você — Eric provocou.
 
@@ -48,17 +48,17 @@ Minha mente calculou rapidamente.
 
 — Espere. É o quê? — riu Eric enquanto eu me virava e caminhava sentido norte. Eric imediatamente me seguiu — está se rebelando, é isso? Sabe que se for este o caso, terei de te matar, não é?
 
-— Boa sorte! — minha voz era calma, resignada.
+— Boa sorte! — respondi, calmo.
 
 Eric parou, confuso e preocupado.
 
 — Cara, acorda, por que está fazendo isso? Você era o queridinho do Jelles, tinha tudo o que precisava na Lebargan. Você sempre foi o que muitos de nós almejamos ser.
 
-— Não sou a porra do queridinho de ninguém — retruquei, a amargura tingindo minha voz. Aquela “glória” era cinzas nas minhas mãos. Eu tinha visto o inferno nos olhos de uma criança. — Você não viu o que presenciei, não olhou nos olhos daquela criança e prometeu que tudo ficaria bem, apenas para vê-la ser consumida pelo fogo.
+— Não sou a porra do queridinho de ninguém — retruquei. Aquela “glória” era cinzas nas minhas mãos. — Você não viu o que presenciei, não olhou nos olhos daquela criança e prometeu que tudo ficaria bem, apenas para vê-la ser consumida pelo fogo.
 
 — A morte deles era necessária, Jasmey — Eric insistiu.
 
-— Se você não calar essa maldita boca Eric, juro que farei Amanda se tornar filha única — minha advertência foi severa, meu olhar faiscando com uma ameaça velada.
+— Se você não calar essa maldita boca Eric, juro que farei Amanda se tornar filha única — avisei.
 
 Eric recuou, balançando a cabeça.
 
@@ -66,7 +66,7 @@ Eric recuou, balançando a cabeça.
 
 Nossos olhares se encontraram por um longo segundo antes de eu me virar e seguir rumo às montanhas. A gravidade do planeta era um fardo, e cada passo uma batalha contra o próprio corpo. Depois de duas pausas exaustivas, meu radar acusou um grupo adiante: os Dales. Conforme me aproximava, camuflado pela vegetação alta e aveludada, percebi que formavam um cerco. Tinham detectado minha aproximação.
 
-Com a voz elevada, anunciei minha presença
+Com a voz elevada, anunciei minha presença.
 
 — SOU EU, Jasmey — avancei de mãos erguidas, a arma apontada para o céu, revelando-me aos antigos camaradas.
 
@@ -80,7 +80,7 @@ Aguardei mais alguns segundos e os vi através da flora. Jelles apareceu na minh
 
 Silenciei, apenas encarando-o com uma expressão dura, enquanto os outros Dales se reuniam ao nosso redor, armas em punho.
 
-— Traidor de uma figa — Klest me acusou, cuspindo ao chão próximo de mim, desgosto marcado em cada palavra.
+— Traidor de uma figa — Klest me acusou, cuspindo ao chão próximo de mim.
 
 Jelles continuou, o tom cheio de sarcasmo:
 
@@ -92,7 +92,7 @@ Jelles continuou, o tom cheio de sarcasmo:
 
 — Crianças foram mortas. Pessoas inocentes, Jelles. Isso não lhe diz nada?
 
-Jelles se manteve firme, sua voz carregada de uma frieza calculista:
+Jelles se manteve firme:
 
 — E quantos dos nossos jovens já foram retirados? Quantos não tiveram a chance de crescer porque a comida era escassa, ou porque somos forçados a viver às sombras? Nesses tempos, a piedade é um luxo que não podemos nos dar. Seguimos um código para manter a ordem, Jasmey — Ele levantou a arma e a apontou para mim.
 
@@ -102,7 +102,7 @@ Ri, não de humor, mas de descrença.
 
 — Na verdade, acho irônico. Você fala em seguir o código para manter a ordem. Mas esse mesmo código nos diz para nunca abandonarmos um irmão. E ambos já fizemos isso, não é verdade? Ambos devemos ser mortos então? Quem de vocês vai matar o capitão?
 
-O silêncio tomou conta do grupo; ninguém ousou se manifestar, todos presos na tensão do momento. De repente, Jelles tirou o Olho do Domongo de suas vestes.
+O silêncio tomou conta do grupo. Klest desviou o olhar e Onomar ajeitou a arma. De repente, Jelles tirou o Olho do Domongo de suas vestes.
 
 — Que tal uma mudança de planos? — propôs Jelles com um riso amarelo — Estamos aqui com armas apontadas para você. Pegue o olho e complete a missão. Depois, decidiremos seu destino.
 
@@ -110,7 +110,7 @@ Jelles arremessou o olho em minha direção, e eu o apanhei.
 
 — Você pode me chamar do que quiser, mas sabe que sou o melhor que você tem — declarei com confiança — eu nunca fracasso em minhas missões.
 
-— E se o seu plano falhar? — Jelles questionou, o interesse brilhando em seus olhos.
+— E se o seu plano falhar? — Jelles questionou.
 
 — Então, me rendo. Serei prisioneiro da Lebargan.
 
@@ -118,7 +118,7 @@ Jelles arremessou o olho em minha direção, e eu o apanhei.
 
 — Então me matem — falei.
 
-Jelles sorri enquanto ponderava.
+Jelles sorriu enquanto ponderava.
 
 — O povo da montanha está logo a frente. Se o seu plano não der certo… você desaparece — ameaçou Jelles.
 
@@ -130,7 +130,7 @@ Assenti e segui por cerca de 120 ectons, atento aos sons da vida alienígena. Me
 
 As conversas cessaram quando cheguei a uma clareira onde uma assembleia de dekraazianos vivia em ordem meticulosa, com estruturas organizadas e um totem central venerado por todos, entre jogos e rituais de limpeza mútua.
 
-— Sente isso? — um dos reunidos questionou, sua voz carregada de alerta.
+— Sente isso? — um dos reunidos questionou.
 
 — Todos sentimos — confirmou outro, a voz baixa, mas firme. Sabiam que estávamos perto. Não havia mais tempo a perder. Saí da proteção do mato de mãos ao alto, em sinal de paz, mas o gesto provocou pânico. Gritos ecoaram, e armas foram empunhadas.
 
@@ -138,19 +138,19 @@ As conversas cessaram quando cheguei a uma clareira onde uma assembleia de dekra
 
 — A paz nos é conhecida, assim como sua origem. O que deseja, homem dos céus? — o líder falou, encarando-me com olhos penetrantes, enquanto os outros se agrupavam atrás dele.
 
-— Eu só preciso de uma ajuda… tenho um artefato que talvez vocês consigam entender mais do que eu — falei, colocando a mãos nos bolsos. Imediatamente senti uma dor imensa no antebraço, quando me virei e vi que tinham o perfurado com uma lâmina. Gritei de dor e continuei — Porra, eu não estou armado. Só vou pegar o artefato. Mas que droga!
+— Eu só preciso de uma ajuda… tenho um artefato que talvez vocês consigam entender mais do que eu — falei, colocando as mãos nos bolsos. Imediatamente senti uma dor imensa no antebraço, quando me virei e vi que tinham o perfurado com uma lâmina. Gritei de dor e continuei — Porra, eu não estou armado. Só vou pegar o artefato. Mas que droga!
 
 — Deixe-o — ordenou o líder, fazendo com que todos abaixassem as armas.
 
 Fui direto ao ponto, o braço ainda latejando.
 
-— Preciso da ajuda de vocês — comecei, mostrando o Olho do Domongo, um pedido silencioso por compreensão.
+— Preciso da ajuda de vocês — comecei, mostrando o Olho do Domongo.
 
 — Este olho pode me levar até um lugar que conhecem como Aurora. Mas não sei ao certo como usá-lo. Vocês podem me mostrar?
 
 Os dekraazianos se olharam e o líder deu dois passos à frente.
 
-— Assistência a um homem dos céus não está em nossos princípios — o líder recusou, seus olhos varrendo a minha expressão buscando intenções ocultas.
+— Assistência a um homem dos céus não está em nossos princípios — o líder recusou.
 
 — Eu entendo, devem ter procedentes ruins aqui a respeito de nós, como piratas ou saqueadores. A questão é que eu preciso muito reencontrar minha família.
 
@@ -192,7 +192,7 @@ Um relâmpago forte surgiu seguido de um trovão, enquanto aos poucos, corpos ia
 
 — PARA O RIO — ecoou o comando do líder, e todos os dekraazianos dispararam naquela direção, com os Dales em seu encalço. Foi quando uma fria arma pressionou contra minha têmpora, e sem precisar olhar, sabia que Jelles era o autor da ameaça.
 
-— Bravo, Jasmey. Sua ideia foi esplêndida — sua voz carregava um sarcasmo venenoso enquanto seguíamos a marcha atrás dos dekraazianos que fugiam — Eles conhecem o terreno. Tenham cautela — advertiu ele ao grupo
+— Bravo, Jasmey. Sua ideia foi esplêndida — disse ele, seguindo a marcha atrás dos dekraazianos que fugiam — Eles conhecem o terreno. Tenham cautela — advertiu ele ao grupo
 
 — Tem razão, sua ideia era melhor Jelles, matar todo mundo até que ninguém sobre para lhe dar a informação — lancei-lhe um olhar desafiador.
 
@@ -206,9 +206,9 @@ Ouvi o clique de armas e me virei ao ver Vek e Vlad apontando suas armas para mi
 
 A progressão pela mata virou um jogo de nervos. O silêncio era quase sobrenatural, cortado só pelos trovões distantes.
 
-— Eles estão nos preparando uma emboscada — Klest murmurou, uma preocupação evidente em sua voz.
+— Eles estão nos preparando uma emboscada — Klest murmurou.
 
-— Já notei — Jelles confirmou, a cautela tingindo suas palavras.
+— Já notei — Jelles confirmou.
 
 Avançamos com passos medidos, atentos a qualquer ruído, até um som agudo começar a crescer, de um sussurro irritante a um tormento para os ouvidos.
 
@@ -218,27 +218,27 @@ Onomar se ajoelhou e tentou mexer no bracelete de Fender, mas, segundos depois, 
 
 Meus olhos vasculharam todas as direções em busca de uma ameaça, mas o silêncio prevaleceu até uma presença colossal romper a tranquilidade. Das entranhas da floresta emergiu uma besta titânica, de massa sombria, tentáculos sinistros e uma bocarra de dentes. Entre os chifres da cabeça, o líder dekraaziano se equilibrava, dirigindo o monstro.
 
-O terreno tremia sob o peso do monstro, que atropelava Dales descuidados. Disparei na direção contrária, em busca de refúgio, e cheguei a um descampado onde dekraazianos nos esperavam de flechas em riste. O ar vibrou; uma flecha passou raspando em mim, e Vlad, atingido na perna, caiu com um urro. Num gesto de desespero, levantei as mãos pedindo cessar-fogo.
+O terreno tremia sob o peso do monstro, que atropelava Dales descuidados. Disparei na direção contrária, em busca de refúgio, e cheguei a um descampado onde dekraazianos nos esperavam de flechas em riste. O ar vibrou. Uma flecha passou raspando em mim, e Vlad, atingido na perna, caiu com um urro. Num gesto de desespero, levantei as mãos pedindo cessar-fogo.
 
 — PAREM — gritei, conferindo se meu tradutor estava ligado — NÃO SOU SEU INIMIGO. VI O SOFRIMENTO DO SEU POVO E LAMENTO POR ELES. NÃO SOU A FAVOR DISSO, MEU INIMIGO É O SEU INIMIGO. ME DEIXEM VIVO, E EU PROMETO AJUDÁ-LOS A DERROTAR OS OUTROS HOMENS DOS CÉUS.
 
 Houve uma troca de olhares desconfiados entre eles antes de apontarem novamente as armas contra mim.
 
-— MAS QUE MERDA! — falei, Mas antes que pudesse me retirar, um som terrível rasgou a quietude da noite.
+— MAS QUE MERDA! — falei. Mas antes que pudesse me retirar, um som terrível rasgou a quietude da noite.
 
-Virei a tempo de ver Jelles emergir da vegetação, uma visão dantesca, com a espada numa mão e o cadáver mutilado do líder dekraaziano arrastado pela outra, as vísceras à mostra como troféu macabro. Alguns Dales desviaram o olho, outros apertaram as armas com força demais, mas ninguém ousou questionar o Capitão.
+Virei a tempo de ver Jelles emergir da vegetação, uma visão dantesca, com a espada numa mão e o cadáver mutilado do líder dekraaziano arrastado pela outra, as vísceras à mostra como troféu macabro. Alguns Dales desviaram o olho, outros apertaram as armas com força demais, mas nenhum deles questionou o Capitão.
 
 Os dekraazianos, impelidos pelo choque e pela vingança, dispararam suas flechas contra Jelles, que, calculista, usou o cadáver como escudo. As armas penetraram a carne inerte, sem vida.
 
 — VEJAM! — Jelles bradou, lançando o corpo ao solo com desprezo — Como essa carne inútil agora não é nada. Agora larguem as armas. Não precisam lutar. Ele não iria querê-los ver mortos. Fiquem vivos, e me deem a informação que busco.
 
-Jelles jogou o corpo do líder ao chão e parou de frente para os outros. Do meio do mato, os Dales surgiram atrás dele. Dois me agarraram pelos braços; eram Klest e Onomar.
+Jelles jogou o corpo do líder ao chão e parou de frente para os outros. Do meio do mato, os Dales surgiram atrás dele. Dois me agarraram pelos braços. Eram Klest e Onomar.
 
 — Mas se me atacarem de novo… isso ficará pessoal. E eu não irei descansar até que a espécie de vocês seja extinta. Matarei até o último de vocês, seja ele uma criança ou um ancião.
 
-Os dekraazianos tremiam. O primeiro largou a arma e, como se fossem um só, os outros foram depondo as suas, derrotados não só pelas armas, mas pelo peso da desesperança.
+Os dekraazianos tremiam. O primeiro largou a arma e, como se fossem um só, os outros foram depondo as suas.
 
-Jelles se aproximou dos sobreviventes, sua estatura dominante forçando-os a olhar para cima, em busca de alguma compaixão que sabiam não encontrar. Então ele se abaixou diante dos seres.
+Jelles se aproximou dos sobreviventes e se abaixou diante deles.
 
 — Vocês são fracos. E neste universo a espécie mais forte sempre devora as mais fracas. Aqueles que não buscam o governo são governados.
 
@@ -248,19 +248,19 @@ Jelles olhou o abismo além do precipício e soltou uma risada seca.
 
 O homem caminhou de volta até os outros Dales e se virou de frente para os dekeraazianos.
 
-— Quem de vocês pode ativar este olho para revelar o caminho até a Aurora? — perguntou Jelles, com um tom que oscilava entre o calmo e o ameaçador.
+— Quem de vocês pode ativar este olho para revelar o caminho até a Aurora? — perguntou Jelles.
 
 Um dekraaziano se adiantou para responder.
 
 — O conhecimento se perdeu quando...
 
-Antes que ele terminasse, um disparo soou, e o dekraaziano caiu, silenciado. A onda de choque percorreu meu corpo ao ver o pânico se espalhar sob a luz tempestuosa dos céus. Algo estalou dentro de mim, uma raiva que eu não conhecia: libertei-me dos que me seguravam e avancei contra Jelles. Antes que o alcançasse, Vek entrou entre nós.
+Antes que ele terminasse, um disparo soou, e o dekraaziano caiu, silenciado. Algo estalou dentro de mim, uma raiva que eu não conhecia: libertei-me dos que me seguravam e avancei contra Jelles. Antes que o alcançasse, Vek entrou entre nós.
 
-— SAI DA FRENTE, VEK! — minha voz ecoou com urgência.
+— SAI DA FRENTE, VEK!
 
 — NÃO — respondeu ele, firme, a arma ainda apontada para mim.
 
-O olhei nos olhos e notei o ódio extremo que aquele olhar carregava de minha pessoa.
+O olhei nos olhos e vi o ódio que ele tinha de mim.
 
 — Não foi minha culpa. O Jelles armou isso tudo. A culpa da Saezi não estar aqui é dele — eu disse a ele.
 
@@ -270,13 +270,13 @@ Vek não iria me ouvir, eu sabia. Mas eu precisava alertá-lo disso, caso não s
 
 Vek se afastou com relutância, e eu ataquei Jelles com toda a fúria que acumulara. Cada soco que tentei acertar em sua face era frustração pura, mas Jelles, com a experiência de incontáveis batalhas, reagia com destreza inumana. O choque inicial nos levou ao chão, numa dança caótica de golpes e esquivas.
 
-Jelles me lançou ao chão com força descomunal e acertou meu estômago com um soco que roubou o ar dos pulmões. A dor só alimentou minha determinação: segurei o braço dele, inverti a posição e devolvi o soco com juros. Jelles recuou, o lábio sangrando, com um brilho sinistro nos olhos, um reconhecimento tácito do desafio que eu representava.
+Jelles me lançou ao chão com força descomunal e acertou meu estômago com um soco que roubou o ar dos pulmões. A dor só alimentou minha determinação: segurei o braço dele, inverti a posição e devolvi o soco com juros. Jelles recuou, o lábio sangrando.
 
 Dei uma rasteira e o derrubei, mas Jelles era como uma serpente, ágil e letal, e me puxou para o chão, onde cada centímetro era disputado.
 
 A mão dele encontrou meu pescoço e apertou até minha visão escurecer nas bordas. Em pânico, meus braços acharam energia para uma última tentativa de libertação, mas, antes que eu revertesse a situação, um golpe duro acertou minha cabeça e me lançou ao chão.
 
-Tentei me levantar, mas Jelles estava sobre mim, a silhueta bloqueando a luz, cada soco um martelo forjando meu fim. O terceiro marcou minha alma. Outros se seguiram, cada um um prego no caixão da minha resistência.
+Tentei me levantar, mas Jelles estava sobre mim, a silhueta bloqueando a luz. O terceiro soco apagou os sons. Outros se seguiram.
 
 — EU NUNCA ESTIVE ENGANADO SOBRE VOCÊ — Jelles declarou, virando-se para os demais — Dales, este tempo todo eu testei este rapaz, para que vocês vissem que mesmo o mais forte pode sucumbir e se amotinar. E um motim pode destruir a Lebargan e todos os Dales que vivem nela. A missão no meteoro quase me fez acreditar que ele tentava mudar, mas foi só um deslize. Uma maçã podre apodrece todas as outras.
 

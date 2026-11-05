@@ -254,7 +254,7 @@ Houve um momento de silêncio, até que ele quebrou a tensão.
 
 Eu hesitei, passando a mão pelo braço metálico. Não estava no humor para falar, mas senti que seria justo depois de tudo o que ele compartilhou.
 
-— Fui criado no interior escuro de uma nave, educado com outras centenas de crianças para me tornar um guerreiro — comecei, a voz mais baixa que o normal. — Vi dezenas dos meus irmãos morrerem nos testes. E tirei a vida de um deles em um duelo... era ele ou eu. O mundo lá fora era um mistério proibido, e o nosso, dentro da Ala 66, uma lição constante de que a sobrevivência vinha antes de qualquer sentimento. Você aprende a não se apegar, a ver cada “irmão” como rival em potencial, uma boca a menos para alimentar se falharem num teste. Era a única forma de não enlouquecer. A dor não era permitida; apenas a força.
+— Fui criado no interior escuro de uma nave, educado com outras centenas de crianças para me tornar um guerreiro — comecei, a voz mais baixa que o normal. — Vi dezenas dos meus irmãos morrerem nos testes. E tirei a vida de um deles em um duelo... era ele ou eu. O mundo lá fora era um mistério proibido, e o nosso, dentro da Ala 66, uma lição constante de que a sobrevivência vinha antes de qualquer sentimento. Você aprende a não se apegar, a ver cada “irmão” como rival em potencial, uma boca a menos para alimentar se falharem num teste. Era a única forma de não enlouquecer. A dor não era permitida. Apenas a força.
 
 Hardman me observava atentamente, suas mãos descansando sobre o painel.
 
@@ -332,7 +332,7 @@ Hardman fez a mesma careta que sempre fazia quando fazia uma piada com ele, e aj
 
 — Bom, pessoal, aproveitem a vista enquanto podem — disse Hardman, voltando para os painéis com uma expressão que misturava fascinação e preocupação. — A estrela está nas bordas de uma nebulosa escura. E, adivinhem!
 
-A imagem da estrela se desfez no vidro e, em seu lugar, crescendo diante de nós, surgiu a nebulosa escura: uma muralha colossal de sombras, em tons de roxo e preto, entrecortada por filamentos luminosos que rasgavam a escuridão como veias de luz elétrica. Parecia pulsar, quase viva, como a respiração lenta de algo primordial. Adentrar ali era mais do que entrar numa nebulosa; era mergulhar na goela de um ser adormecido.
+A imagem da estrela se desfez no vidro e, em seu lugar, crescendo diante de nós, surgiu a nebulosa escura: uma muralha colossal de sombras, em tons de roxo e preto, entrecortada por filamentos luminosos que rasgavam a escuridão como veias de luz elétrica. Parecia pulsar, quase viva, como a respiração lenta de algo primordial. Adentrar ali era mais do que entrar numa nebulosa, era mergulhar na goela de um ser adormecido.
 
 — Vamos entrar nela em algumas dezenas de ectons — disse Hardman.
 

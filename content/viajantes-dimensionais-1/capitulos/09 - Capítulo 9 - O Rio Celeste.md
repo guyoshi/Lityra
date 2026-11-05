@@ -30,11 +30,11 @@ No caminho até o ponto do dassi, a rua parecia mais longa do que de costume. Fo
 
 — Presália? — perguntou Beatriz.
 
-— Uma prisão secreta sob a Central, nos túneis antigos. Foi fechada. Hoje os prisioneiros vão para a Santaguarda, a uns cento e cinquenta quilômetros ao sul de Tayo. — Ele olhou para o horizonte. — O medo faz as pessoas tomarem decisões cruéis, Beatriz. E confiar exige coragem. Erla, por exemplo, não confia em ninguém. Mas, se ainda existe decência na Vigilância, é em parte por causa dela.
+— Uma prisão secreta sob a Central, nos túneis antigos. Foi fechada. Hoje os prisioneiros vão para a Santaguarda, a uns cento e cinquenta quilômetros ao sul de Tayo. — Ele olhou para o horizonte. — O medo faz as pessoas tomarem decisões cruéis, Beatriz. Erla, por exemplo, não confia em ninguém. Mas, se ainda existe decência na Vigilância, é em parte por causa dela.
 
 — E se ela mudar de lado? — perguntou Bruno.
 
-— Então a gente vai observar e compreender antes de julgar. É isso que a prudência faz. — Velho-Sábio sorriu, cansado. — Vamos para casa. Eu prometi um almoço.
+— Então a gente observa antes de julgar. — Velho-Sábio sorriu, cansado. — Vamos para casa. Eu prometi um almoço.
 
 Em casa, Bruno e Banjo tiraram os sapatos no quarto, ainda calados. O cheiro de especiarias e legumes cozidos subia da cozinha, com o som de panelas e risadas de Beatriz e Breno ajudando com o almoço.
 
@@ -96,7 +96,7 @@ Diante deles se estendia um rio celeste, de águas cristalinas e azuladas, flutu
 
 — Então, gostaram do show da última corrida? — disse uma voz debochada. Nicolas, numa lárida a alguns metros, sorria. Erick vinha ao lado. — Parece que deram sorte.
 
-— Sorte é acordar de manhã e ver sua cara no espelho — retrucou Bruno. — Vocês dois precisam de dois cérebros para chegar à metade do que eu faço com um.
+— Sorte é acordar de manhã e ver sua cara no espelho — retrucou Bruno. — Vocês dois juntos ainda ficam devendo um cérebro.
 
 Nicolas estreitou os olhos. Antes que respondesse, o sinal soou. As láridas deram um impulso, e com um gesto discreto da mão de Nicolas, uma camada de gelo se formou em volta da montaria de Bruno. A água travou, a lárida empacou, e ele foi arremessado para trás, caindo na água.
 
@@ -134,7 +134,7 @@ Ele se obrigou a concentrar-se nela, não na água ao redor. Conseguiu puxá-la 
 
 Banjo abriu um sorriso enorme, surpreso consigo mesmo. Tinha conseguido. A mão ainda tremia, mas não queria soltá-la.
 
-— Vamos, maninha! — gritou ele, enquanto as raias afundavam e subiam. Era difícil se controlar.
+— Vamos, Bia! — gritou ele, enquanto as raias afundavam e subiam. Era difícil se controlar.
 
 Bruno cruzou a área dos redemoinhos e entrou numa zona onde o rio estreitava, obrigando-o a guiar a lárida por trilhas finas de água. Qualquer deslize o jogaria no céu. À frente, Yuri balançava na beira do abismo, e uma rajada de fogo o atingiu em cheio. Erick, com um sorriso cruel, controlava as chamas, que lambiam a água em torno de Yuri. A lárida dele parou num caminho paralelo ao de Bruno, com um abismo de ar entre os dois.
 
@@ -216,7 +216,7 @@ Lá embaixo, as nuvens se abriram como uma almofada e embalaram a menina, que de
 
 — Eu estou bem! — gritou ela, de lá de baixo. — ESTOU BEM!
 
-— Que filha da mãe insistente! — xingou Breno, olhando para a besta.
+— Que bicho insistente! — resmungou Breno, olhando para a besta.
 
 A criatura avançava em zigue-zague, aprendendo o ritmo deles. Beatriz lançou bolas de fogo, e elas iluminaram o rio, mas não adiantaram nada. A fera mergulhou e voltou com um salto, quase alcançando-os.
 

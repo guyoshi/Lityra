@@ -14,9 +14,9 @@ Tudo começou numa tarde chuvosa. Eu estava em casa quando ouvi um barulho no an
 
 O barulho veio seguido de um grito de mulher. Minha mãe. Desci depressa, e do segundo andar abri uma fresta da porta e vi minha mãe chorando perto da janela, enquanto meu pai, sentado à mesa, escondia o rosto nas mãos. Eu nunca tinha visto os dois daquele jeito.
 
-– Mamãe, tá tudo bem? – perguntei.
-– Tá… tudo bem, filha – respondeu, com a voz trêmula e o rosto muito vermelho.
-– Jennifer, vai pro seu quarto. Eu e sua mãe estamos conversando – disse meu pai, sem me encarar.
+— Mamãe, tá tudo bem? — perguntei.
+— Tá… tudo bem, filha — respondeu, com a voz trêmula e o rosto muito vermelho.
+— Jennifer, vai pro seu quarto. Eu e sua mãe estamos conversando — disse meu pai, sem me encarar.
 
 Neguei com a cabeça. Não ia fingir que nada acontecia. Naquela época eu não sabia que a cena ainda se repetiria umas 364 vezes por ano, e que enquanto eu aprendia contas de matemática eles aprendiam a se ferir com palavras, e enquanto eu descobria o que era “divórcio” eles ensaiavam como seria viver separados. O clima em casa ficou tão pesado que o ar parecia ter peso, e como filha única eu não tinha com quem dividir aquilo.
 
@@ -50,49 +50,49 @@ Entreguei em alguns minutos. Havia uma menina nova na sala, não sabia o nome, m
 
 Ao meu lado, Pedro e Junior não paravam de conversar, como sempre, de jogos e de meninas. Eu já tinha desligado os ouvidos até uma frase me puxar de volta: o Junior contava que estava andando com a garota nova, Kelly, descobri depois, quando foram atacados por pássaros com olhos brancos.
 
-– Os animais pareciam possuídos. Machucaram a gente todo.
-– Cara, eu devia estar lá – disse Pedro. – Por que minha mãe tinha que chamar a tia Vilela logo ontem? Só porque eu tenho essas bochechas fofas ela fica apertando o tempo todo. Às vezes acho que elas são grandes assim por causa dela.
-– Agora qualquer passarinho que chega perto de mim já me assusta – murmurou Junior.
-– Relaxa, depois a gente sai com um estilingue e derruba uns – riu Pedro.
-– Se você acertar um pássaro com um estilingue, eu acerto você com outro – falei, sem conseguir me segurar.
+— Os animais pareciam possuídos. Machucaram a gente todo.
+— Cara, eu devia estar lá — disse Pedro. — Por que minha mãe tinha que chamar a tia Vilela logo ontem? Só porque eu tenho essas bochechas fofas ela fica apertando o tempo todo. Às vezes acho que elas são grandes assim por causa dela.
+— Agora qualquer passarinho que chega perto de mim já me assusta — murmurou Junior.
+— Relaxa, depois a gente sai com um estilingue e derruba uns — riu Pedro.
+— Se você acertar um pássaro com um estilingue, eu acerto você com outro — falei, sem conseguir me segurar.
 
 O silêncio dos dois foi quase engraçado. Viraram na minha direção, confusos, e eu continuei olhando para a frente, fingindo que não era comigo.
 
 A professora foi passando pelas carteiras, recolhendo os desenhos.
 
-– Que lindo, Tâmara, um jardim muito bonito. Flávio, você sonhou com uma Mercedes Benz? Junior, o que é isso exatamente? Parece um livro…
-– Eu não lembrei de nenhum sonho, professora, então desenhei o meu maior sonho: meus romances sendo publicados.
-– Muito bom, gostei. Pedro, você sonhou que era um porco no chiqueiro?
-– Mais ou menos. No sonho eu era o porco.
+— Que lindo, Tâmara, um jardim muito bonito. Flávio, você sonhou com uma Mercedes Benz? Junior, o que é isso exatamente? Parece um livro…
+— Eu não lembrei de nenhum sonho, professora, então desenhei o meu maior sonho: meus romances sendo publicados.
+— Muito bom, gostei. Pedro, você sonhou que era um porco no chiqueiro?
+— Mais ou menos. No sonho eu era o porco.
 
 A sala caiu na risada, e nem a professora segurou.
 
-– Não é muito diferente, mesmo – comentou um garoto lá do fundo.
-– Sua mãe também não deve ser muito diferente – rebateu Kelly, rápido, e a turma reagiu com aquele “uuuh” automático.
-– Já chega! Que coisa feia, pessoal – cortou a professora, e levantou o último desenho. – Deixei esse por último porque me intrigou. Jennifer, o que é exatamente isso?
+— Não é muito diferente, mesmo — comentou um garoto lá do fundo.
+— Sua mãe também não deve ser muito diferente — rebateu Kelly, rápido, e a turma reagiu com aquele “uuuh” automático.
+— Já chega! Que coisa feia, pessoal — cortou a professora, e levantou o último desenho. — Deixei esse por último porque me intrigou. Jennifer, o que é exatamente isso?
 
 Virou a folha para a turma, e lá estava a criatura dos meus pesadelos de infância, a única lembrança que eu realmente queria perder.
 
-– Este é o Bicho Preto, professora.
-– E o que ele é?
+— Este é o Bicho Preto, professora.
+— E o que ele é?
 
 Respirei fundo.
 
-– Uma criatura sem forma certa. Quando eu era criança, tinha pesadelos frequentes com ele. Eu e minha mãe subíamos uma escada rolante no shopping e ele aparecia do meu lado, olhando para mim. Eu abria a janela do quarto de manhã e ele estava lá embaixo, me esperando. Mas o pior era o do quarto. – A sala ficou em silêncio. – Eu estava no quintal com meus pais, olhando as plantas da horta, e de repente eles se viravam e diziam: “O Bicho Preto está vindo.” Aí vinha o frio, um frio que eu não sentia em mais lugar nenhum, só quando ele se aproximava. Eu corria, subia ao quarto da minha mãe, me jogava na cama de casal e me escondia debaixo das cobertas.
+— Uma criatura sem forma certa. Quando eu era criança, tinha pesadelos frequentes com ele. Eu e minha mãe subíamos uma escada rolante no shopping e ele aparecia do meu lado, olhando para mim. Eu abria a janela do quarto de manhã e ele estava lá embaixo, me esperando. Mas o pior era o do quarto. — A sala ficou em silêncio. — Eu estava no quintal com meus pais, olhando as plantas da horta, e de repente eles se viravam e diziam: “O Bicho Preto está vindo.” Aí vinha o frio, um frio que eu não sentia em mais lugar nenhum, só quando ele se aproximava. Eu corria, subia ao quarto da minha mãe, me jogava na cama de casal e me escondia debaixo das cobertas.
 
 Fechei os olhos por um segundo, quase vendo a cena de novo.
 
-– A horta ficava iluminada pelo sol, mas o quarto estava escuro, noite só ali. A única luz vinha da televisão, ligada, sem som. O único som era o Bicho Preto atravessando o quarto, com sussurros ou com um rugido. Na melhor das hipóteses, quando eu tirava o cobertor do rosto ele já tinha ido embora. Na pior, eu via dois olhos enormes e brancos na minha frente e acordava com um pulo, suando.
+— A horta ficava iluminada pelo sol, mas o quarto estava escuro, noite só ali. A única luz vinha da televisão, ligada, sem som. O único som era o Bicho Preto atravessando o quarto, com sussurros ou com um rugido. Na melhor das hipóteses, quando eu tirava o cobertor do rosto ele já tinha ido embora. Na pior, eu via dois olhos enormes e brancos na minha frente e acordava com um pulo, suando.
 
 Alguns colegas engoliram seco.
 
-– Você ainda vê o Bicho Preto, Jennifer?
-– Não. Já faz um bom tempo. Mas vejo outras coisas, professora.
+— Você ainda vê o Bicho Preto, Jennifer?
+— Não. Já faz um bom tempo. Mas vejo outras coisas, professora.
 
 Ela abriu a boca e demorou a achar as palavras.
 
-– É um pesadelo realmente intrigante. Mas você não tinha outro sonho, algo mais feliz, pra desenhar? – insistiu, com um sorriso forçado.
-– Infelizmente, não.
+— É um pesadelo realmente intrigante. Mas você não tinha outro sonho, algo mais feliz, pra desenhar? — insistiu, com um sorriso forçado.
+— Infelizmente, não.
 
 Não era bem verdade. Eu me lembrava de outro sonho, de quando já tinha começado a ver gente morta. Estava diante de uma superfície escura, lisa como vidro, que não refletia meu rosto. Uma mulher permanecia do outro lado, longe demais para que eu a reconhecesse. Ela ergueu a mão e eu encostei a minha na mesma altura. Senti seus dedos, embora houvesse alguma coisa entre nós. Acordei sem entender por que estava tão assustada. Nunca mais sonhei com aquela mulher, e não era dela que eu queria falar na frente da turma.
 
@@ -102,45 +102,45 @@ Ela sorriu de novo e eu não correspondi. À esquerda dela, vi um espírito pál
 
 Eu não gostava da comida da escola, mas comia mesmo assim. Enquanto almoçava, ou tentava, às dez da manhã, vi Pedro e Junior vindo na minha direção. Levantei rápido e saí, e ouvi os passos atrás de mim.
 
-– Jennifer, preciso falar com você – disse o Junior.
-– Eu não quero falar com você.
-– É sério. É importante.
-– Não interessa – parei e me virei. – Some daqui, os dois.
+— Jennifer, preciso falar com você — disse o Junior.
+— Eu não quero falar com você.
+— É sério. É importante.
+— Não interessa — parei e me virei. — Some daqui, os dois.
 
 Ficaram sem reação e eu fui embora. Sabia muito bem o que vinham fazer: me chamar de louca, de estranha, ou fingir que estavam preocupados. Na saída fui uma das primeiras a passar pelo portão e vi, de canto de olho, um grupo de meninas rindo de mim. Nenhuma novidade. Segui pela multidão até a esquina e virei à direita, rumo à minha rua, andando rápido, não por pressa, mas para evitar os rostos tristes nas calçadas. Na outra esquina vi Pedro e Junior mais atrás. Pensei que fossem para casa, porque os dois moram na mesma rua que eu, a do Pedro logo na esquina, mas quando passei pela casa dele e continuaram vindo, entendi. Acelerei, em vez de entrar em casa virei a outra esquina e encostei no muro, e quando os dois apareceram saí na frente deles.
 
-– E aí? Por que vocês estão me seguindo?
-– Nós? Te seguindo? – Pedro tentou rir. – A gente tava indo pra casa do Junior, né, Junior?
+— E aí? Por que vocês estão me seguindo?
+— Nós? Te seguindo? — Pedro tentou rir. — A gente tava indo pra casa do Junior, né, Junior?
 
 Deu um soquinho nele, mas o tom de voz entregou tudo.
 
-– Pra falar a verdade, estávamos te seguindo, sim – o Junior respirou fundo. – Queria falar com você sobre o monstro do seu sonho. O Bicho Preto.
-– Entendi. Vão rir de mim. Se estão me fazendo perder tempo com isso, vão se arrepender.
-– Não é isso. Eu sei que a gente nunca conversou e que você deve achar que somos um bando de mané…
+— Pra falar a verdade, estávamos te seguindo, sim — o Junior respirou fundo. — Queria falar com você sobre o monstro do seu sonho. O Bicho Preto.
+— Entendi. Vão rir de mim. Se estão me fazendo perder tempo com isso, vão se arrepender.
+— Não é isso. Eu sei que a gente nunca conversou e que você deve achar que somos um bando de mané…
 
 Ele acertou em cheio o que eu pensava, e mais algumas coisas.
 
-– …mas eu já vi esse tal Bicho Preto. Quer dizer, não direto, mas ele esteve na minha casa.
-– Vocês são uns babacas mesmo – virei para ir embora.
-– NÃO! Eu tô falando sério. Por favor, me escuta.
+— …mas eu já vi esse tal Bicho Preto. Quer dizer, não direto, mas ele esteve na minha casa.
+— Vocês são uns babacas mesmo — virei para ir embora.
+— NÃO! Eu tô falando sério. Por favor, me escuta.
 
 “Por favor.” Ele tinha pedido por favor. Parecia sincero demais para ser só piada.
 
-– Ele apareceu à noite. As luzes se apagaram, mas não foi a energia, porque eu ainda ouvia a geladeira. Eu estava sozinho na cozinha e começou a ficar muito frio, e eu ouvi ele perto de mim. Me encolhi num canto, não abri os olhos, fiquei esperando ir embora.
+— Ele apareceu à noite. As luzes se apagaram, mas não foi a energia, porque eu ainda ouvia a geladeira. Eu estava sozinho na cozinha e começou a ficar muito frio, e eu ouvi ele perto de mim. Me encolhi num canto, não abri os olhos, fiquei esperando ir embora.
 
 Olhei o rosto dele, que não parecia inventar. Mas o Bicho Preto era meu, o meu pesadelo, a minha praga particular, e não fazia sentido existir em mais lugar nenhum.
 
-– Mais alguma coisa?
-– Só queria saber se você já viu ele pessoalmente – disse, sem graça.
-– Não. É só um sonho, algo que me atormentava quando eu era pequena. Você deve ter tido um pesadelo parecido.
-– Tenho certeza que não era sonho, Jennifer. Ele tava lá.
+— Mais alguma coisa?
+— Só queria saber se você já viu ele pessoalmente — disse, sem graça.
+— Não. É só um sonho, algo que me atormentava quando eu era pequena. Você deve ter tido um pesadelo parecido.
+— Tenho certeza que não era sonho, Jennifer. Ele tava lá.
 
 Olhei para os dois por alguns segundos. Antes que eu respondesse, Pedro se meteu:
 
-– O Junior não é de mentir, menina. Eu sim. O Junior, não.
+— O Junior não é de mentir, menina. Eu sim. O Junior, não.
 
 Fiquei os encarando em silêncio. Depois caminhei até o portão de casa e o abri.
 
-– Quer um conselho? – falei, sem olhar para trás. – Se sentir que ele tá perto, não olha pra ele de jeito nenhum. E não faz barulho. Era assim que ele me encontrava todas as vezes.
+— Quer um conselho? — falei, sem olhar para trás. — Se sentir que ele tá perto, não olha pra ele de jeito nenhum. E não faz barulho. Era assim que ele me encontrava todas as vezes.
 
 Entrei e fechei o portão.

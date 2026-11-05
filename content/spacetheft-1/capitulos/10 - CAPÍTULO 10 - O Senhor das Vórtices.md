@@ -12,7 +12,7 @@ Eu já tinha visto medos maiores, claro, mas a histeria dela era quase cômica.
 
 — E você tem medo dele? — questionei, buscando seu olhar.
 
-— Ele é intimidador, sim, mas eu não sou de me acovardar. Isso não significa que eu o subestime. Só faço o que preciso para sobreviver — afirmou Alekta, com uma firmeza que beirava a insolência.
+— Ele é intimidador, sim, mas eu não sou de me acovardar. Isso não significa que eu o subestime. Só faço o que preciso para sobreviver — afirmou Alekta.
 
 — Faz bem — concordei — seria uma excelente Dale.
 
@@ -22,7 +22,7 @@ Alekta vacilou brevemente antes de se erguer, recolhendo suas roupas do chão fr
 
 Ela hesitou, lançando-me um olhar pensativo, antes de se voltar completamente em minha direção.
 
-— Contei com uma pequena ajuda — começou Alekta, um brilho misterioso em seus olhos — de um aliado. Escapei a bordo de uma nave, mas não demorou para que os homens de Tzough me interceptassem. Eles tinham infiltrados à bordo. Fui capturada pouco após a fuga. Então, uma luz misteriosa emanou do planeta onde te encontrei, e eles decidiram investigá-la com autorização do capitão.
+— Contei com uma pequena ajuda — começou Alekta — de um aliado. Escapei a bordo de uma nave, mas não demorou para que os homens de Tzough me interceptassem. Eles tinham infiltrados à bordo. Fui capturada pouco após a fuga. Então, uma luz misteriosa emanou do planeta onde te encontrei, e eles decidiram investigá-la com autorização do capitão.
 
 — Interessante. E você acha que conseguiria fugir novamente? — questionei, observando sua expressão atentamente.
 
@@ -60,7 +60,7 @@ Subi as escadas até a saída e desci os degraus de volta ao trabalho, quando as
 
 Ele me encarou, a raiva quase fazendo-o espumar pela boca, enquanto nossos olhares permaneciam travados até que ele virasse o rosto e cuspisse ao lado.
 
-— Todos começam como você — disse ele, a voz carregada de ameaça. — Mas acabam clamando pela mãe, dizendo que não suportam mais. Você acha que conhece o sofrimento eterno? Isso aqui é muito pior.
+— Todos começam como você — disse ele. — Mas acabam clamando pela mãe, dizendo que não suportam mais. Você acha que conhece o sofrimento eterno? Isso aqui é muito pior.
 
 Ele subiu as escadas, ainda lançando olhares ameaçadores. Eu desci ao convés inferior e retomei as pedras de titânio.
 
@@ -90,7 +90,7 @@ Era um salão vasto, onde numerosos homens trabalhavam sem camisa, sob calor qua
 
 — Ei, você conhece um cara chamado Hardman? — perguntei a um dos trabalhadores que passava apressado por mim. Ele negou com a cabeça e seguiu em direção a uma imensa válvula de controle de pressão atmosférica.
 
-Continuei perguntando; todos negavam conhecê-lo ou me ignoravam. Quem diabos era Hardman?
+Continuei perguntando. Todos negavam conhecê-lo ou me ignoravam. Quem diabos era Hardman?
 
 — Hardman, conhece algum? — questionei um homem que ostentava uma única e grossa sobrancelha.
 
@@ -112,7 +112,7 @@ O homem gordo lançou um olhar para o homem tatuado, que se virou em minha dire�
 
 — O QUE QUER COM HARDMAN? — repetiu, sua mão pesada em meu ombro. Imediatamente, empurrei seu braço para longe.
 
-— Melhor você não encostar em mim, parceiro, — ameacei, mantendo o olhar firme no dele.
+— Melhor você não encostar em mim, parceiro — ameacei, mantendo o olhar firme no dele.
 
 — Kord — uma voz soou atrás do homem, desviando minha atenção. Virei a cabeça e vi o sujeito franzino e baixo que lutava para operar as alavancas, caminhando em minha direção — Mantenha a calma, amigão.
 
@@ -120,7 +120,7 @@ O grandalhão olhou para o recém-chegado e, com uma expressão severa, deu um p
 
 — O que você quer? — inquiriu ele, enquanto o careca e corpulento se aproximavam.
 
-— Preciso falar com Hardman — declarei
+— Preciso falar com Hardman — declarei.
 
 — Ok, o próprio, o que quer falar comigo? — perguntou o homem menor. Franzi a testa, olhando para os três. Ele era o Hardman? Rosto liso, sem barba, cara de uns trinta momentos. Soltei uma risada, incapaz de controlar a surpresa. As sobrancelhas dele se juntaram no mesmo instante, como se já soubesse a piada que eu faria.
 
@@ -162,7 +162,7 @@ Hardman apanhou a pulseira e a examinou antes de se aproximar, falando baixo o s
 
 — Pensei que todos os aparelhos elétricos fossem destruídos ao entrar aqui.
 
-— São. Mas eu construo os meus próprios. Preciso estar atento aos meus horários; tenho disciplina e preciso me organizar.
+— São. Mas eu construo os meus próprios. Preciso estar atento aos meus horários. Tenho disciplina e preciso me organizar.
 
 — Que tipo de pirata é você?
 
@@ -228,7 +228,7 @@ Hardman soltou um suspiro mais profundo e colocou as mãos nos quadris, seu olha
 
 — Isso, você é um grande homem, Hardman. Mesmo sendo tão pequenino — eu disse, puxando-o para um abraço. Ele se esquivou rápido.
 
-— Por favor, não faça isso. — ele resmungou retorcendo o nariz, como se sentisse um cheiro ruim — Só lembrando que se alguém me perguntar de algo, eu não sei de nada. Se tentarem te matar, não vou impedir. Não temos nada um com o outro. Tenho contatos aqui dentro, então para o seu próprio bem, não mencione meu nome para ninguém.
+— Por favor, não faça isso — ele resmungou, retorcendo o nariz. — Só lembrando que se alguém me perguntar de algo, eu não sei de nada. Se tentarem te matar, não vou impedir. Não temos nada um com o outro. Tenho contatos aqui dentro, então para o seu próprio bem, não mencione meu nome para ninguém.
 
 — Fica em paz, cara das máquinas. Então, em 100 ectons? Como saberei que é a hora?
 
@@ -242,21 +242,21 @@ A ansiedade me consumia e o tempo se arrastava. Carreguei pedras até o toque de
 
 Meus olhos vagaram pelos acorrentados que trabalhavam sob chicotadas e depois subiram às estrelas, à liberdade a meros passos de distância. Eu poderia ir para qualquer uma delas, viver livre depois de eliminar Jelles e libertar todos os Dales que ansiavam por isso. Sonhava com uma nave só minha, navegando sem rumo pela galáxia. Então um estrondo ecoou acima e as velas solares se fecharam de repente. Fui lançado para frente com força avassaladora, junto com outros piratas e objetos soltos no convés.
 
-Agarrei-me a uma pilastra com meu braço metálico, salvando-me de um destino terrível. Ao meu redor, outros não tiveram a mesma sorte; projetados violentamente para fora da nave, eles encontraram a barreira temporal quântica. A intensa força gravitacional do campo os esticou até não dar mais, então os despedaçou, dispersando fragmentos de corpos por todas as direções.
+Agarrei-me a uma pilastra com meu braço metálico, salvando-me de um destino terrível. Ao meu redor, outros não tiveram a mesma sorte, projetados violentamente para fora da nave, encontraram a barreira temporal quântica. A intensa força gravitacional do campo os esticou até não dar mais, então os despedaçou, dispersando fragmentos de corpos por todas as direções.
 
 Quando a força diminuiu, desabei no chão, exausto e aliviado. A nave começava a desacelerar. Todos os piratas correram para a entrada das máquinas, o sinal que eu esperava. Disparei pelo corredor, ultrapassando-os, e subi a escadaria em velocidade frenética, empurrando dois homens que tentaram me interceptar. Cruzei uma ponte e continuei. Foram cento e vinte longos ectons de corrida até o ponto mais alto da proa, por escadas metálicas, algumas sem corrimão, um pesadelo para qualquer acrofóbico.
 
 Diante de mim, uma imensa porta se abriu no chão, revelando uma escadaria para o interior da nave. O vento forte empurrava meus cabelos para trás e eu protegia os olhos com as mãos. Desci enquanto as luzes se acendiam aos poucos, a pulseira de Alekta nas mãos.
 
-Ergui a pulseira; uma luz estranha emanou dela. Cheguei a um vasto salão repleto de naves menores, umas de perseguição, outras de captura, além de tanques espaciais. De repente, uma onda de choque partiu da pulseira e as portas das naves se abriram ao mesmo tempo.
+Ergui a pulseira. Uma luz estranha emanou dela. Cheguei a um vasto salão repleto de naves menores, umas de perseguição, outras de captura, além de tanques espaciais. De repente, uma onda de choque partiu da pulseira e as portas das naves se abriram ao mesmo tempo.
 
-— Mas que merda... foi essa? — murmurei. Senti uma corrente fria de dados percorrer os sistemas da nave. Não era magia, era Hardman. Aquele gênio franzino criara um dispositivo capaz de sussurrar comandos secretos ao coração de qualquer embarcação, desativando defesas e abrindo portas como se eu fosse o próprio Capitão Tzough. Todas à minha escolha? Que vantagem! Acelerei e então avistei Alekta, que me observava de longe. Respondi com um sorriso e um aceno e corri em sua direção. De todas as direções, homens armados emergiram e me cercaram. Alekta permanecia imóvel, o olhar fixo em mim, e compreendi a armadilha.
+— Mas que merda... foi essa? — murmurei. Senti uma corrente fria de dados percorrer a nave. Não era magia, era Hardman. Aquele gênio franzino criara um dispositivo capaz de abrir qualquer embarcação, como se eu fosse o próprio Capitão Tzough. Todas à minha escolha? Que vantagem! Acelerei e então avistei Alekta, que me observava de longe. Respondi com um sorriso e um aceno e corri em sua direção. De todas as direções, homens armados emergiram e me cercaram. Alekta permanecia imóvel, o olhar fixo em mim, e compreendi a armadilha.
 
 — Filha de uma...
 
 — Modere a linguagem, Jasmey — Alekta repreendeu, com sarcasmo. — Não queremos adicionar mais um palavrão à sua extensa ficha criminal, não é?
 
-Forcei uma pose de deboche e olhei ao redor, buscando uma saída, sem sucesso. Estava cercado por piratas enfurecidos. Ouvi o som de metal no chão, o mesmo de antes. Nem precisei me virar: o capitão parou diante de mim, os olhos intimidadores cravados nos meus. Ao seu lado estava o homem de moicano vermelho.
+Forcei uma pose de deboche e olhei ao redor, buscando uma saída, sem sucesso. Estava cercado por piratas enfurecidos. Ouvi o som de metal no chão, o mesmo de antes. Nem precisei me virar: o capitão parou diante de mim, os olhos intimidadores cravados nos meus. Ao seu lado estava o homem de moicano vermelho, o mesmo que mais cedo anunciara o almoço. Eu estava sendo capturado por um garçom, e o pior é que o serviço era rápido.
 
 — Afaste-se, arquimestre — ordenou o capitão, fazendo com que o homem de moicano recuasse. — Você realmente tem coragem. Ou é muito idiota. Qual seu nome, homem?
 
@@ -354,13 +354,13 @@ Tzough me observou e, em seguida, sorriu. Levantou-se e pegou uma das garrafas n
 
 Ataque? Como ele sabia que tínhamos sido atacados?
 
-— Este olhar de surpresa — disse o capitão — Lembro-me bem de tê-la em minha mira; foi extremamente fácil encontrá-los. Poderia ter abordado e subjugado vocês com simplicidade, mas isso parecia pouco desafiador. Apenas uma barreira de proteção? Como conseguiram sobreviver por tanto tempo?
+— Este olhar de surpresa — disse o capitão — Lembro-me bem de tê-la em minha mira. Foi extremamente fácil encontrá-los. Poderia ter abordado e subjugado vocês com simplicidade, mas isso parecia pouco desafiador. Apenas uma barreira de proteção? Como conseguiram sobreviver por tanto tempo?
 
 Então, era ele o responsável pelo ataque a Lebargan. Sua nave havia atingido a capitã Nastácia, deixando-a em coma. Aparentemente, ele não estava ciente de que havia atingido a capitã.
 
 — Você subestima as armas de Lebargan — afirmei com convicção.
 
-— E vocês, conhecem o arsenal que possuo? Uma nave paralisada no tempo, de eficiência lamentável. Meus homens se dedicam em todas as voltas, horas e ectons; vivem pelo trabalho, não trabalham para viver. O que alcançamos em poucas voltas, vocês demoram momentos. É assim que nos tornamos poderosos. Diga-me então, Jasmey. Por que você serve a Lebargan?
+— E vocês, conhecem o arsenal que possuo? Uma nave paralisada no tempo, de eficiência lamentável. Meus homens se dedicam em todas as voltas, horas e ectons. Vivem pelo trabalho, não trabalham para viver. O que alcançamos em poucas voltas, vocês demoram momentos. É assim que nos tornamos poderosos. Diga-me então, Jasmey. Por que você serve a Lebargan?
 
 — Não os sirvo mais. Sou livre agora — respondi firmemente.
 
@@ -382,7 +382,7 @@ O capitão me encarou com um olhar intrigante.
 
 O ponto fraco de um capitão pirata: as velhas lendas, as histórias antigas, os tesouros perdidos.
 
-— A Aurora é real. E os Dales tem um mapa que os levarão até ela.
+— A Aurora é real. E os Dales têm um mapa que os levará até ela.
 
 O capitão me encarou intensamente, como se tentasse ver através de mim.
 

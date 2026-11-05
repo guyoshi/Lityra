@@ -1,8 +1,8 @@
-Sentia falta das estrelas. Sentia falta do calor de um sol. E, principalmente, de uma boa comida e de uma bebida. Pelas minhas contas, eu me aproximava do fim do meu terceiro meado de momento naquele lugar ermo, e a solidão nunca tinha pesado tanto. Os desertos gelados de Dekraaz, com sua hostilidade implacável, eram o palco da minha travessia. Eu sobrevivia de plantas e de animais que conseguia abater, sem meios de fazer fogo: tudo cru e fresco. As plantas tinham gosto de urina, mas, em momentos de fome extrema, qualquer coisa vira tempero. Eu me adaptara até a passar quase 20 ectons sem respirar, para não gastar a máscara de filtro de gás, e improvisara uma mochila com as plantas locais e “garrafas” de barro para a água.
+Sentia falta das estrelas. Sentia falta do calor de um sol. E, principalmente, de uma boa comida e de uma bebida. Pelas minhas contas, eu me aproximava do fim do meu terceiro meado de momento naquele lugar ermo, e a solidão nunca tinha pesado tanto. Os desertos gelados de Dekraaz, com sua hostilidade implacável, eram o palco da minha travessia. Eu sobrevivia de plantas e de animais que conseguia abater, sem meios de fazer fogo: tudo cru e fresco. As plantas tinham gosto de urina, mas, em momentos de fome extrema, qualquer coisa vira tempero. Eu me adaptara até a passar quase 12 ectons sem respirar, para não gastar a máscara de filtro de gás, e improvisara uma mochila com as plantas locais e “garrafas” de barro para a água.
 
-O lado ruim de estar em território desconhecido é que você não conhece merda nenhuma. As tempestades elétricas de Dekraaz eram terríveis. Eu caminhava calmamente quando, de repente, meu corpo se eletrizava, os pelos se arrepiavam, o ambiente inteiro pulsava de energia estática. Durante as tempestades, fechava os olhos e avançava às cegas, o mais rápido possível, para fugir da nuvem carregada, enquanto calafrios percorriam cada centímetro do corpo. Pernas petrificadas, pescoço tenso: das sensações mais terríveis que já senti.
+O lado ruim de estar em território desconhecido é que você não conhece merda nenhuma. As tempestades elétricas de Dekraaz eram terríveis. Eu caminhava calmamente quando, de repente, meu corpo se eletrizava, os pelos se arrepiavam, o ambiente inteiro pulsava de energia estática. Durante as tempestades, fechava os olhos e avançava às cegas, o mais rápido possível, para fugir da nuvem carregada. Pernas petrificadas, pescoço tenso: das sensações mais terríveis que já senti.
 
-A morte roçou em mim duas vezes. Na primeira, uma criatura selvagem me perfurou com uma das presas. Ferido, arrastei-me até um rio e escapei nadando; recuperado, voltei e matei a fera. Na segunda, despenquei num buraco abissal de fundo impossível de discernir, e só não morri porque o braço de metal agarrou algo e me deixou escalar de volta.
+A morte roçou em mim duas vezes. Na primeira, uma criatura selvagem me perfurou com uma das presas. Ferido, arrastei-me até um rio e escapei nadando e, recuperado, voltei e matei a fera. Na segunda, despenquei num buraco abissal de fundo impossível de discernir, e só não morri porque o braço de metal agarrou algo e me deixou escalar de volta.
 
 O tempo sozinho me deu longas reflexões sobre autoridade. Por que deixar uma só pessoa decidir tudo por nós, da ração diária às guerras? E por que as ordens dela seriam inquestionáveis? Uma nave sem líder firme viraria um caos, cada um se achando mais importante que o outro, até os conflitos mortais. Precisa existir um capitão, mas ele deve ser digno e realmente merecer liderar.
 
@@ -10,7 +10,7 @@ Encostei a cabeça nas plantas luminosas do chão, que se desmancharam e subiram
 
 Mas sonhos são só sonhos. Minhas esperanças de deixar aquele lugar tinham se evaporado. Até que, num dia qualquer, sentado comendo a carne de uma presa, comecei a mexer na pistola e notei uma pequena elevação na lateral. Apertei, e um holograma surgiu diante de mim enquanto uma luz intensa disparava do objeto para o céu, sumindo entre as nuvens negras. Recuei, largando a pistola, enquanto a imagem se formava: um tipo de mapa.
 
-— Mas que diabos é isso? — murmurei, fixando o olhar no holograma em uma tentativa de decifrá-lo.
+— Mas que diabos é isso? — murmurei.
 
 Era um holograma do planeta onde eu estava. Uma luz, provavelmente a que tinha acabado de disparar, partia do núcleo em direção ao espaço. A escala diminuiu, e vi-me percorrendo o cosmos até uma nave próxima. A imagem girou, e vi no horizonte a luz da minha pistola explodindo no vácuo. Então o holograma foi desbotando até apagar.
 
@@ -26,7 +26,7 @@ Fechei os olhos por um instante, virei de frente para a criatura de olhos branco
 
 O hálito fétido de carne em decomposição e a saliva espessa me cobriam o rosto. Agarrei uma das presas com o braço de metal e torci até ouvir algo se partir. A besta soltou um guincho agonizante, e o sangue quente espirrou na minha face. Aproveitei a fraqueza, rolei para o lado e recuperei a espada. Ergui-me, e o animal se virou para mim com os olhos brancos injetados de fúria.
 
-Era sobrevivência: ele ou eu. Corri contra a fera e, nos últimos metros, saltei direto para as fauces abertas. Com uma mão, enfiei a espada no céu da boca; com a outra, protegida pelo braço de metal, segurei as presas para que não se fechassem sobre mim.
+Era sobrevivência: ele ou eu. Corri contra a fera e, nos últimos metros, saltei direto para as fauces abertas. Com uma mão, enfiei a espada no céu da boca. Com a outra, protegida pelo braço de metal, segurei as presas para que não se fechassem sobre mim.
 
 O berro do animal reverberou, de dor e derrota, e a besta tombou, exalando o último suspiro. Ofegante, tentei retirar a espada, firme no palato. Com um puxão decidido do braço de metal, liberei a lâmina.
 
@@ -38,7 +38,7 @@ Escalei umas pedras próximas e ganhei uma visão privilegiada do acampamento, d
 
 Enquanto isso, dois dos piratas se engalfinhavam por pedaços de carne, enquanto um terceiro aproveitava a distração para roubar justamente esses pedaços. “Que bando de desgraçados”, pensei, “sem honra, sem dignidade. Pelo menos os Dales brigavam por algo que valia a pena”.
 
-Percebi que falavam o idioma universal, então entendia tudo. As conversas eram dispersas: um lamentava que a mãe sentia sua falta, outro chorava por ter de matar o próprio irmão. Minha atenção se fixou quando a conversa virou para o prisioneiro. Um deles se agachou diante da figura amarrada e disse, cruel:
+Percebi que falavam o idioma universal, então entendia tudo. As conversas eram dispersas: um lamentava que a mãe sentia sua falta, outro chorava por ter de matar o próprio irmão, um terceiro jurava ter sido engolido por um verme de lama e expelido vivo duas voltas depois, e mostrava a prova: da nuca aos calcanhares, a pele branca como barriga de peixe, onde o suco do bicho comera até a tatuagem. Ninguém discutia. Discutir é coisa de quem não tem uma cicatriz melhor. Minha atenção se fixou quando a conversa virou para o prisioneiro. Um deles se agachou diante da figura amarrada e disse, cruel:
 
 — Vai adorar essas terras, querida — provocou o homem — ficará aqui para sempre, devorada pelos selvagens locais, e seu nome será esquecido.
 
@@ -78,11 +78,11 @@ A mulher diante de mim tinha cabelos ruivos ardentes cortados pelos ombros, sobr
 
 — Dane-se a quem pertence. Assim que eu a tomar, será minha.
 
-— Por que os homens sempre se acham invencíveis? Pensam que podem tudo só porque têm força... até parece que a massa cerebral lhes desceu aos braços	.
+— Por que os homens sempre se acham invencíveis? Pensam que podem tudo só porque têm força... até parece que a massa cerebral lhes desceu aos braços.
 
 — Você deve ser realmente inteligente, então. Uma intelectual que acabou capturada. Isso tudo faz parte do seu plano, não é?
 
-— Me solte. Eu sei como derrotar esses homens. E sei como entrar na nave sem sermos vistos. Há uma entrada secreta; podemos surpreendê-los por trás e neutralizá-los.
+— Me solte. Eu sei como derrotar esses homens. E sei como entrar na nave sem sermos vistos. Há uma entrada secreta. Podemos surpreendê-los por trás e neutralizá-los.
 
 — Eu até poderia te soltar, mulher. Mas isso não faz parte dos meus interesses. Por que eu soltaria e fugiria com uma estranha que poderia me matar assim que saíssemos da atmosfera do planeta?
 
@@ -90,7 +90,7 @@ A mulher diante de mim tinha cabelos ruivos ardentes cortados pelos ombros, sobr
 
 — Por que não me mataria?
 
-— Porque você é gostoso — ela respondeu, fazendo-me abrir a boca em surpresa, sem conseguir articular palavra alguma — e eu adoraria sair daqui ao lado de um homem, não de covardes que apenas obedecem ordens.
+— Porque você é gostoso — ela respondeu — e eu adoraria sair daqui ao lado de um homem, não de covardes que apenas obedecem ordens.
 
 Olhei para a prisioneira enquanto ela desviava o olhar, um risinho cínico nos lábios que insinuava mais do que eu queria admitir. “Gostoso”, é?
 
@@ -136,11 +136,11 @@ Me agachei à sua frente, encarando-a diretamente nos olhos.
 
 A ironia me escapou pelo canto da boca.
 
-— Você mentiu para mim — acusei, a tensão pulsando em minha voz.
+— Você mentiu para mim — acusei.
 
 — É o que fazemos para sobreviver. Não menti quando disse que é gostoso. Agora que estamos assim tão próximos, poderíamos foder. Eu juro que não ligo pro seu cheiro.
 
-Inspirei profundamente, tentando conter a agitação que se espalhava pelo meu corpo, e me levantei, segurando-a firmemente pelo braço.
+Inspirei fundo e me levantei, segurando-a firmemente pelo braço.
 
 — Não tem como sobreviver neste planeta — falei.
 
@@ -212,5 +212,5 @@ Enquanto lutava para recuperar o fôlego, senti as mãos dos piratas me algemand
 
 — Se o fizer, esteja certa de que não voltarei dos mortos mais uma vez — respondi, enquanto era arrastado para a nave dos piratas.
 
-Eu precisava daquela nave. Aquele monstro de metal era meu bilhete de saída, meu atalho para a garganta de Jelles. Que se fodam os piratas de Tzough. A nave era só um meio para o meu fim.
+Eu precisava daquela nave. Aquele monstro de metal era meu bilhete de saída, meu atalho para a garganta de Jelles. Que se fodam os piratas de Tzough.
 

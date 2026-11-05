@@ -86,7 +86,7 @@ Ainda segurando a pulseira, Beatriz ergueu a cabeça.
 
 Ele entregou-lhe um balão luminoso, que flutuava na palma da mão e emitia uma luz quente, como se tivesse um coração.
 
-— Em Tayo, é costume soltar balões luminosos com desejos escritos neles. Dizem que levam o desejo até as estrelas, onde ele pode se realizar. — Ele sorriu. — Mas há uma regra: o desejo não se conta a ninguém. Quem conta, vê o balão cair.
+— Escreva um desejo e solte. — Ele sorriu. — Mas não conte a ninguém, senão o balão cai.
 
 — Já ouvi dizer — falou Banjo. — O Denis contou o dele, e a lanterna caiu na cabeça do vizinho.
 
@@ -175,11 +175,13 @@ O petrisco apareceu debaixo da mesa carregando um pedaço de madeira. Balançou 
 
 Caminharam até a estação sob lâmpadas coloridas e projeções que dançavam nas fachadas. Os dassis estavam proibidos naquela noite, por causa dos balões no céu. A viagem de túbula foi o melhor jeito de ver a cidade: cada rua com a sua cor, edifícios altos contando histórias em projeções, hologramas de constelações mexendo-se como vaga-lumes. Quando passaram entre as Torres de Velur, a mais alta pareceu seguir subindo mesmo depois que o karto começou a descer. Adiante, as vitrines das Galerias de Miravélia, o imenso centro comercial daquele distrito, brilhavam atrás de jardins impecáveis, enquanto, noutra direção, a cidade se espalhava em pequenas ruas e telhados baixos. Havia uma área azul onde peixes de luz nadavam pelo ar e outra, vermelha, onde algo parecia bater no chão como um coração.
 
-— Olha, olha, olha! — Beatriz puxava a manga de Breno com as duas mãos. — Os peixes estão olhando pra mim! Banjo não conseguiu falar nada durante a viagem inteira, de tanto que olhava. Bruno resmungou que aquilo "quase fazia esquecer o quanto a gente anda virando de cabeça para baixo".
+— Olha, olha, olha! — Beatriz puxava a manga de Breno com as duas mãos. — Os peixes estão olhando pra mim!
+
+Banjo não conseguiu falar nada durante a viagem inteira, de tanto que olhava. Bruno resmungou que aquilo "quase fazia esquecer o quanto a gente anda virando de cabeça para baixo".
 
 O karto parou na Praça da Concórdia, um mar de gente, barracas e luzes. No centro, uma torre branca de painéis de cristal dourado brilhava como um farol. Do alto, vinha o frescor da noite, e do chão o calor de milhares de pessoas, que juntos faziam a praça inteira cheirar a açúcar tostado.
 
-— Aquela é a Torre Branca, a sede do governo de Tayo — disse Velho-Sábio, com um respeito na voz. — Onde Lucan Veline toma as grandes decisões.
+— Aquela é a Torre Branca — disse Velho-Sábio, com um respeito na voz. — Onde Lucan Veline toma as grandes decisões.
 
 Atrás da torre se via a cúpula da Central, e encostado nela, o prédio da Vigilância, austero e escuro entre tanta cor. Em sua fachada, uma faixa cinza trazia um slogan em letras brancas: "Tayo primeiro."
 
@@ -245,11 +247,11 @@ Voltou para Banjo com o sorriso meio fixo.
 
 Shirley riu alto.
 
-— Mirei alto demais. Mas o ponto não é acertar de primeira. É se divertir com o processo. Às vezes você ganha um beijo, às vezes um fora épico. Até a humilhação vira uma boa história pra rir depois. — Ficou mais séria, com a luz do festival no olhar. — Uma vez, num festival, errei um passo no meio de uma dança e caí na frente de todo mundo. Esperei risada. A plateia aplaudiu, porque eu levantei e terminei com um sorriso. Errar não é o fim, Banjo.
+— Mirei alto demais. — Ela deu de ombros. — Às vezes você ganha um beijo, às vezes um fora épico. A graça é a história depois.
 
 — Acho que nunca pensei assim.
 
-— Agora você sabe. E eu já vi o que você faz. Você é bem melhor do que imagina.
+— Agora você sabe. Você caiu de um pilar na frente de dezoito pessoas e voltou. Eu vi.
 
 Banjo sorriu de volta, pequeno, mas sincero. Nesse momento Bruno apareceu de testa franzida.
 
@@ -337,7 +339,7 @@ Bruno arqueou as sobrancelhas, mas, antes que respondesse, Shirley apareceu com 
 
 Algumas pessoas olhavam. Por um instante, Bruno achou que Shirley atiraria o sorvete.
 
-— Sabe o que é engraçado? — disse Shirley. — Você é tão arrogante que não percebe que tem medo de se apegar a alguém. Foi traída por algum ex-namoradinho? Quebrou o coração e agora joga no ataque?
+— Sabe o que é engraçado? — disse Shirley. — Você prefere ficar sozinha no refeitório a ter que precisar de alguém.
 
 Brenda piscou, visivelmente atingida, mas recuperou a compostura.
 
@@ -395,7 +397,7 @@ Garmande se aproximou dele para conversar, e os irmãos se entreolharam, alarmad
 
 — Calma — Banjo pôs a mão no ombro dele. — Ela deve ter se perdido.
 
-— Vocês não entendem? — Breno afastou a mão. — Eu sou o mais velho! É minha responsabilidade! Ela é uma criança, e está sozinha.
+— Vocês não entendem? — Breno afastou a mão. — Ela fez onze anos hoje, Banjo! Hoje!
 
 A voz falhou, e ele respirou fundo para segurar as lágrimas. Sem mais palavras, virou-se e correu.
 
