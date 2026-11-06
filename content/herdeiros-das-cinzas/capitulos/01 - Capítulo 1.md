@@ -24,11 +24,7 @@ Klafres foi o primeiro a falar, e falou de leve.
 
 — Cátilo que rosna para nada costuma ter razão.
 
-— Eu sei o que dizem — respondeu Kedran.
-
-— Estou só lembrando que eu disse.
-
-Kedran já tinha o arco na mão. Examinava a encosta da base ao topo, devagar, procurando o que se procura primeiro quando se vive longe de tudo: fumaça, pegadas, a mancha escura de uma pessoa parada contra a neve. Sefter fez o mesmo. Havia a crista, havia o céu cinzento atrás dela, e do meio da encosta uma fina linha de neve se soltou e subiu. Subiu rente ao chão, a passo de gente, desenhando uma curva preguiçosa, e Sefter percebeu que o vento que lhe batia no rosto vinha exatamente do outro lado. A linha durou o tempo de duas respirações e se desfez.
+Kedran não respondeu. Já tinha o arco na mão e examinava a encosta da base ao topo, devagar, procurando o que se procura primeiro quando se vive longe de tudo: fumaça, pegadas, a mancha escura de uma pessoa parada contra a neve. Sefter fez o mesmo. Havia a crista, havia o céu cinzento atrás dela, e do meio da encosta uma fina linha de neve se soltou e subiu. Subiu rente ao chão, a passo de gente, desenhando uma curva preguiçosa, e Sefter percebeu que o vento que lhe batia no rosto vinha exatamente do outro lado. A linha durou o tempo de duas respirações e se desfez.
 
 — Viram isso? — perguntou.
 
@@ -88,7 +84,9 @@ Sefter já tinha largado o arco. Tirou a corda de couro que carregava a tiracolo
 
 — Então não me tira.
 
-Houve um silêncio curto, o suficiente para Sefter ouvir a água batendo na laje. Depois sentiu o gelo vibrar com o peso de alguém que se deitava ao lado, e uma mão grande pegou a corda e travou. Kedran xingou baixo e disse uma coisa que Sefter preferiu não entender. Do outro lado, lá longe, Klafres gritou que cuidava do jantar então, que era o que sabia cuidar, e começou a puxar o sarnak com o gancho e muita respiração.
+Houve um silêncio curto, o suficiente para Sefter ouvir a água batendo na laje. Depois sentiu o gelo vibrar com o peso de alguém que se deitava ao lado, e uma mão grande pegou a corda e travou. Kedran xingou baixo e disse uma coisa que Sefter preferiu não entender.
+
+— Então eu fico com o jantar! — gritou Klafres, lá longe, e começou a arrastar o sarnak com o gancho, resfolegando.
 
 Sefter chegou perto o bastante para agarrar Bera pela pele do pescoço. A água lhe entrou pela manga até o ombro e ele sentiu o braço se apagar, sem dor nenhuma, de um golpe. Puxou. Bera tentou ajudar com as patas, arranhando o gelo, e a corda esticou, e Kedran puxou de lá com a força de quem não tem escolha, e os dois deslizaram pelo gelo quebrado até o lado onde havia pedra embaixo. Ficaram deitados lado a lado sobre a crosta, respirando fumaça. Bera, encolhida entre eles, tremia tanto que parecia ter se desprendido do próprio corpo.
 
