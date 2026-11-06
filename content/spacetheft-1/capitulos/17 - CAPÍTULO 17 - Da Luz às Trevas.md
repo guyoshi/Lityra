@@ -4,13 +4,13 @@ O quarto na Princesa do Inverno era tudo menos o que o nome sugeria. Não que eu
 
 Eram duas camas. Uma pra Hardman, porque o cara era franzino e tinha prioridade por ser um gênio que, aparentemente, não conseguia consertar seu próprio sono. A outra era de Buni, porque, bom, ninguém tinha coragem de tirar o privilégio de dormir em uma cama do grandão tímido com uma risada que parecia um motor falhando. Eu, Eric, Kord e O’reilly? A gente dormia no chão. Cada um tinha seu canto improvisado com almofadas e cobertores finos que cheiravam levemente a óleo. Não era a cama de uma prostituta, mas dava pro gasto.
 
-O piso era uma chapa metálica recoberta por tapetes finos, mais para evitar o barulho do que pelo conforto. As paredes eram lisas, metálicas, com pequenos painéis de luz azulada, suficiente para não tropeçar em nada. Um monitor embutido era a única tecnologia que realmente funcionava ali, mostrando a frente da nave e o espaço lá fora, lembrando que, mesmo presos naquele cubículo, ainda viajávamos pelo cosmos.
+As paredes eram lisas e metálicas, com painéis de luz azulada e um monitor embutido, a única tecnologia que realmente funcionava ali, mostrando o espaço lá fora.
 
 No canto oposto ao monitor, havia uma mesa estreita e dobrável, com ferramentas que Hardman insistia em deixar espalhadas, alegando que “trabalho organizado é trabalho improdutivo”. Claro, eu sempre lembrava a ele que chutar uma chave inglesa no meio da noite não era exatamente eficiente também.
 
-Uma pequena estante, ou melhor, o que parecia um suporte improvisado, segurava algumas tralhas: uma lanterna que piscava mais do que iluminava, um pacote de ração de emergência (que ninguém queria abrir porque parecia mais velho que a nave), e um jogo de cartas que O’reilly insistia em usar para ganhar as moedas que sobravam do bolso de Buni.
+Uma estante improvisada segurava as tralhas: uma lanterna que piscava mais do que iluminava, um pacote de ração de emergência que ninguém abria por parecer mais velho que a nave, e o baralho com que O’reilly esvaziava os bolsos de Buni.
 
-Vivian tinha o próprio quarto. Não era luxo, era necessidade: Kord era praticamente o guarda dela, e ninguém discutia quando ele dizia que ela precisava de privacidade. Ficava do outro lado do corredor e, pelo que eu sabia, era pequeno, mas muito mais organizado que o nosso. Ela mantinha tudo limpo, talvez porque soubesse que ninguém mais faria isso.
+Vivian tinha o próprio quarto, do outro lado do corredor. Não era luxo, era necessidade: Kord era praticamente o guarda dela, e ninguém discutia quando ele dizia que ela precisava de privacidade. Pelo que eu sabia, era pequeno, mas muito mais organizado que o nosso.
 
 Em uma das voltas que se sucederam, eu me espreguicei e saí do quarto. A cabine de comando, por outro lado, estava movimentada. Eric estava sentado, com cara de quem perdeu o sono, e Hardman estava curvado sobre ele, mexendo no bracelete com uma concentração que parecia digna de um cirurgião.
 
@@ -78,7 +78,7 @@ Eu dei um tapinha nas costas dele, mais como um gesto de “tá bom, chega de dr
 
 O’reilly riu, coçando a nuca.
 
-— Aprendi nos intervalos. O piloto do cargueiro era um apostador nato. Eu comecei com cartas, depois fui aprendendo outros jogos. Não demorou muito pra eu perceber que tinha jeito pra coisa. Digamos que eu não perco fácil.
+— Aprendi nos intervalos. O piloto do cargueiro era um apostador nato. Eu comecei com cartas, depois fui aprendendo outros jogos. Não demorou muito pra eu perceber que tinha jeito pra coisa. Digamos que eu não perco fácil. Uma vez ganhei de um capitão a nave dele inteira. Devolvi na manhã seguinte. O sujeito chorava tanto que a tripulação ameaçou me matar, e nave de um motor só não vale uma facada.
 
 Enquanto isso, Buni e Vivian estavam em outro canto, quietos como sempre. Ou pelo menos até Buni tropeçar em uma ferramenta caída e derrubar um copo de líquido no colo de Vivian. Ele soltou sua risada característica, aquela que mais parecia uma sirene enguiçada, enquanto Vivian o olhava com uma mistura de descrença e ameaça.
 
@@ -94,11 +94,11 @@ Buni ergueu a caixa de ferramentas com uma mão, a mesma que três de nós tính
 
 — Vocês vivem de forma tão descompromissada — ele disse, finalmente, quase como um sussurro.
 
-Eu sabia que algo vinha. Hardman raramente falava daquele jeito, e, pela primeira vez, seus movimentos meticulosos no bracelete de Eric pareciam automáticos, como se ele estivesse em piloto automático. Eric, por outro lado, olhava de esguelha para as mãos de Hardman, claramente desconfortável com o silêncio e a precisão exagerada.
+Eu sabia que algo vinha. Hardman raramente falava daquele jeito, e, pela primeira vez, seus movimentos meticulosos no bracelete de Eric pareciam automáticos. Eric, por outro lado, olhava de esguelha para as mãos de Hardman, claramente desconfortável com o silêncio e a precisão exagerada.
 
 — Eu de fato nunca fui à Aurora. Mas meu pai… ele me contava histórias… eu tenho certeza que ele já esteve lá — começou Hardman, sua voz firme, mas com uma ponta de nostalgia.
 
-Eric, ainda preso ao bracelete, ergueu uma sobrancelha, como se quisesse contestar, mas ficou em silêncio.
+Eric, ainda preso ao bracelete, ergueu uma sobrancelha, mas ficou em silêncio.
 
 — Ele era um engenheiro de energia em Kaséia, um planeta pacífico, sem líderes, sem guerras.
 
@@ -122,7 +122,7 @@ Hardman suspirou profundamente e olhou para mim por um instante antes de voltar 
 
 — Meu pai começou a adoecer. Primeiro, ele perdeu os cabelos, depois começou a emagrecer. Ele vomitava frequentemente, mal comia. Insistimos para que ele parasse de viajar e procurasse ajuda, mas ele se recusava. Um dia, minha irmã o encontrou morto na cama. Ele parecia em paz. Mas, para nós, foi o fim de tudo.
 
-O silêncio na cabine era pesado agora. Eu não sabia o que dizer, e parecia que ninguém mais sabia também. Vivian, que raramente demonstrava emoções, tinha o olhar levemente abaixado, como se estivesse absorvendo cada palavra.
+O silêncio na cabine era pesado agora. Eu não sabia o que dizer, e parecia que ninguém mais sabia também. Vivian, que raramente demonstrava emoções, tinha o olhar levemente abaixado.
 
 — Minha irmã e eu brigamos sobre o que fazer a seguir — continuou Hardman, sua voz agora mais baixa. — Ela queria voltar para Kaséia, enquanto eu queria ir para Venar. Acabamos vendendo nossa nave e seguindo caminhos separados. Eu fui para Venar e conheci o Sr. Faule, um homem que me ensinou tudo sobre engenharia das máquinas. Tornei-me mestre em mecânica, construí armas, sistemas de energia, até fui convidado para comandar naves.. Já minha irmã...
 
@@ -140,15 +140,11 @@ Meu peito apertou. Eu sabia o que era aquele gás, mas não podia dizer nada. El
 
 — Como você sabe que aquilo foi intencional? — perguntou O’reilly.
 
-Hardman respirou fundo, como se cada palavra fosse um peso a ser carregado.
+Hardman respirou fundo.
 
-— Tive muito tempo para pensar nisso. Toda a matéria do universo já esteve compactada num único ponto. Dá para compactar até um planeta numa esfera superdensa e, assim, transportar gás suficiente para contaminar um planeta inteiro. Mas...
+— Tive muito tempo para pensar nisso. Um planeta inteiro exigiria gás demais para uma nave carregar, e o peso não permite. Então descartei a ideia de que o gás foi transportado. O assassinato, isso eu nunca descartei.
 
-Ele fixou os olhos no chão por um momento antes de continuar.
-
-— Quanto mais matéria, mais peso. Uma nave precisaria de um equilíbrio perfeito para navegar. Então descartei a ideia de que o gás foi transportado. Mas o assassinato... isso nunca descartei.
-
-Ele suspirou profundamente, como se estivesse tentando empurrar a dor de volta para o fundo.
+Ele suspirou, empurrando a dor de volta para o fundo.
 
 — Foi quando percebi que havia uma forma de fazer isso: um transformador molecular. Não é necessário transportar o gás, apenas transformar as moléculas do ar local em algo letal. Uma nave pequena, equipada com a tecnologia certa, poderia fazer isso. É cruel, mas brilhante. O povo da Kaséia deve ter pensado que era uma pandemia. Nunca perceberam que estavam respirando a própria morte.
 
@@ -158,7 +154,7 @@ A sala ficou silenciosa. O peso da história de Hardman era quase palpável.
 
 Eu não tinha respostas. Não era meu forte consolar ninguém. Mas sabia o que precisava ser dito.
 
-— Não deixe isso foder sua cabeça, Hardman — falei, a voz mais firme do que eu me sentia. Não era bom em consolar, mas vi a dor nos olhos dele e sabia o que precisava ser dito, mesmo que doesse. — Você viveu coisas que a maioria das pessoas jamais sonharia em viver. O passado é um peso, mas você não precisa carregá-lo o tempo todo. Deixa ele no chão e anda sobre ele.
+— Não deixe isso foder sua cabeça, Hardman — falei, a voz mais firme do que eu me sentia. — Você viveu coisas que a maioria das pessoas jamais sonharia em viver. O passado é um peso, mas você não precisa carregá-lo o tempo todo. Deixa ele no chão e anda sobre ele.
 
 Buni deixou escapar um som estrangulado, como um soluço. Ele desviou o olhar, tentando esconder as lágrimas que começaram a rolar. Olhei para ele. Sabia que em sua mente, cada centímetro que nos movíamos pelo espaço era um passo mais perto da Madame, daquela promessa de amor que ele nem sabia que merecia. Todos ali buscavam suas recompensas. E eu estava ali… prestes a trair a todos.
 
@@ -184,7 +180,7 @@ Eu não obedeci. Então Kord puxou a pistola dele, e eu rapidamente ergui a minh
 
 — Calma aí, Kord.
 
-Eric, que finalmente parecia relaxado por estar sem o bracelete, se recostou no banco com um ar de espectador satisfeito, quase como se estivesse assistindo a um espetáculo.
+Eric, que finalmente parecia relaxado por estar sem o bracelete, se recostou no banco com ar de espectador satisfeito.
 
 Eu levantei o bracelete e, antes que Kord pudesse fazer algo, toquei o painel. As luzes se acenderam, piscando em um ritmo constante.
 
@@ -238,9 +234,9 @@ Ri de leve, embora soubesse que ele não estava brincando.
 
 Hardman indicou o painel, onde várias luzes amarelas piscavam.
 
-— O motor superaqueceu. Estamos passando por um campo de radiação vindo de uma estrela magnetar próxima. Suas emissões são tão intensas que afetam até os sistemas de resfriamento. Ativei o campo de força. Agora precisamos esperar até que a temperatura normalize.
+— O motor superaqueceu. O campo de um magnetar, mesmo a esta distância, enche os sensores de ruído e frita o resfriamento. Ativei a blindagem. Agora precisamos esperar até que a temperatura normalize.
 
-Olhei pela janela. Lá fora, o espaço estava pontilhado de um brilho espectral azulado. A estrela magnetar parecia dançar, enquanto piscava em uma paisagem hipnotizante. Se chegássemos mais perto… seria uma viagem sem volta.
+Olhei pela janela. Lá fora não havia nada para ver, e era isso que me incomodava. No monitor, os sensores pintavam o magnetar de azul, um ponto pulsando em falsa-cor, perto o bastante para qualquer cor ser um mau sinal. Se chegássemos mais perto… seria uma viagem sem volta.
 
 — São verdadeiros monstros.
 
@@ -338,13 +334,13 @@ A imagem da estrela se desfez no vidro e, em seu lugar, crescendo diante de nós
 
 O silêncio na cabine era palpável. Até Eric, geralmente o primeiro a soltar uma piada ou provocação, estava calado, os olhos fixos no abismo que se aproximava.
 
-— Nebulosas escuras são regiões densas de gás e poeira cósmica — disse Hardman. — Voar dentro delas é como dirigir no meio de uma neblina tóxica, só que em velocidade absurda. A nave vai depender exclusivamente dos sensores, porque a visibilidade é zero.
+— Poeira e gás frios o bastante para apagar toda a luz — disse Hardman. — Os sensores ópticos vão ficar cegos. Guiamos só por radar e por massa.
 
 — Em resumo? — pediu Kord.
 
 — Vamos voar cegos — traduzi, antes que Hardman abrisse a boca para outra aula.
 
-Buni, que estava inclinado sobre a mesa, olhando pelo vidro, endireitou-se lentamente, a preocupação óbvia em seu rosto. Vivian, ao lado dele, inclinou a cabeça, os olhos fixos na tela como se tentasse medir a dimensão daquilo.
+Buni, que estava inclinado sobre a mesa, olhando pelo vidro, endireitou-se lentamente, a preocupação óbvia em seu rosto. Vivian, ao lado dele, inclinou a cabeça, os olhos fixos na tela, medindo a dimensão daquilo.
 
 — É gigantesca... — murmurou Kord, cruzando os braços. Sua postura rígida não escondia a tensão no ar.
 

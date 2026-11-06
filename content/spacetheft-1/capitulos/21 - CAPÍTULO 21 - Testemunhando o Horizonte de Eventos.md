@@ -16,7 +16,7 @@ As armas estavam em mãos, agora era hora de seguir com o plano.
 
 — Eu sabia que era uma missão suicida — resmungou Kord — vocês nos condenaram. A todos nós.
 
-Se Jelles sabia que tentaríamos escapar por ali, os Dales estariam esperando, armados até os dentes. Passei os dedos pela alça do Gravitador, sentindo o peso do dilema.
+Se Jelles sabia que tentaríamos escapar por ali, os Dales estariam esperando, armados até os dentes. Passei os dedos pela alça do Gravitador.
 
 Então, uma voz familiar surgiu do meio da penumbra.
 
@@ -126,9 +126,9 @@ Buni hesitou.
 
 — Tem tamanho pra você, grandão — disse Eric, retirando um dos trajes do fundo.
 
-O traje era leve e flexível, quase uma segunda pele, com um brilho sutil que lembrava um holograma. Guardei o chapéu na mochila do traje. Após colocarmos os capacetes, o clima ficou pesado: estávamos fugindo do próprio coração da Lebargan, um monstro espacial, um império imbatível.
+O traje era leve e flexível, quase uma segunda pele, com um brilho sutil que lembrava um holograma. Guardei o chapéu na mochila do traje. Após colocarmos os capacetes, o clima ficou pesado.
 
-— Então, como vamos fazer isso? — Kord perguntou, como se não tivesse muita paciência para esperar explicações.
+— Então, como vamos fazer isso? — Kord perguntou, sem paciência para explicações.
 
 Eric passou um olhar rápido para Vivian, que já estava de capacete e pronta para seguir com o plano.
 
@@ -141,8 +141,6 @@ Eric tirou o Olho do Domongo da bolsa e o estendeu a Vivian.
 Vivian o prendeu ao cinto e não disse nada.
 
 A tensão era quase insuportável. Fiquei observando a tela, os ectons passando lentamente, a mente em guerra com a chance de tudo dar errado. Mas não havia mais tempo para duvidar.
-
-O vácuo era iminente, e nós prestes a cruzar a linha entre a vida e a morte, com a Lebargan atrás de nós.
 
 Ficamos imóveis, esperando que as naves se alinhassem. Durante ectons intermináveis, nada aconteceu. Só o som abafado da nave ao nosso redor.
 
@@ -212,7 +210,7 @@ Amanda limpou as lágrimas rapidamente e olhou para mim.
 
 — Vamos extrair um pouco do Gerbe — respondi sem rodeios, já programando as coordenadas no painel.
 
-Amanda franziu o cenho, o olhar afiado como lâminas.
+Amanda franziu o cenho, o olhar duro.
 
 — O quê?
 
@@ -222,7 +220,7 @@ Ela balançou a cabeça, indignada.
 
 — Não. Nós precisamos fugir! O sistema deles será reestabelecido a qualquer momento. Se estivermos aqui, seremos incinerados.
 
-O clima ficou pesado na cabine. Os motores zuniam, lembrando que o tempo estava correndo.
+Os motores zuniam, lembrando que o tempo estava correndo.
 
 — Precisamos correr este risco — falei.
 
@@ -230,7 +228,7 @@ Amanda me olhou nos olhos.
 
 — Meu irmão acabou de se sacrificar por nós, e tudo o que você consegue pensar é dinheiro?
 
-Aquelas palavras me atingiram como um soco no estômago. Mas engoli a dor e a culpa e encarei Amanda sem hesitação.
+Aquelas palavras doeram. Engoli a dor e a culpa e encarei Amanda sem hesitação.
 
 — Não é sobre dinheiro, Amanda. Eric se sacrificou pelo mesmo que todos nós — respondi. — Por um futuro.
 
@@ -288,7 +286,7 @@ Jelles tinha a mesma postura impecável, a mesma confiança de sempre. O casco e
 
 Vivian me cutucou nas costas e apontou o chão. A anã branca esticava nossas sombras por metros. A de Jelles não alcançava o gerbe. Fingi não ver. Precisava dele falando.
 
-— Piratas sempre são atraídos pelo tesouro, não é verdade? — Sua voz carregava um tom de desprezo divertido, como se estivesse reencontrando um animal de estimação perdido.
+— Piratas sempre são atraídos pelo tesouro, não é verdade? — Sua voz carregava um tom de desprezo divertido.
 
 Cruzei os braços, sem tirar os olhos dele.
 
@@ -316,7 +314,7 @@ Minha expressão não mudou, mas algo em meu peito se apertou.
 
 — Não. A Lebargan é dos Dales. Sempre será.
 
-— Chega desse discursinho de herói. Você não é um herói Jasmey. Você matou mais do que qualquer um pode imaginar. Direta e indiretamente, as pessoas ao seu redor, todas morrerão. Porque você sempre tenta ser o que não é — Ele ergueu o olhar para o céu, como se enxergasse além. — A sua morte seria um favor para os seus aliados.
+— Chega desse discursinho de herói. Você não é um herói Jasmey. Você matou mais do que qualquer um pode imaginar. Direta e indiretamente, as pessoas ao seu redor, todas morrerão. Porque você sempre tenta ser o que não é — Ele ergueu o olhar para o céu. — A sua morte seria um favor para os seus aliados.
 
 Olhei para trás, para Hardman, Amanda e todos os outros. Então me virei novamente para Jelles.
 
@@ -430,9 +428,9 @@ Os visores escureceram sozinhos contra o clarão do disco que nascia, e o relóg
 
 A nave cortou o espaço como uma lâmina, entre destroços e impulsos gravitacionais instáveis. O casco tremia, os motores no limite. A Lebargan crescia à nossa frente, colosso de aço e torres blindadas. Precisávamos chegar mais perto.
 
-Calculei o momento exato. Puxei os controles bruscamente, e a Prosépina passou rente à lateral da Lebargan, os alarmes gritando, o calor do atrito crepitando sobre o casco. Vi Jelles, no alto da torre de Belzetar, correr, mas a Prosépina colidiu com a torre, despedaçando-a numa rajada de estilhaços metálicos. Procurei Jelles nos destroços e não o encontrei. Algo escuro riscou o casco, rápido demais para ser destroço. Não dei importância.
+Calculei o momento exato. Puxei os controles bruscamente, e a Prosépina passou rente à lateral da Lebargan, os alarmes gritando, o casco estalando sob a tensão. Vi Jelles, no alto da torre de Belzetar, correr, mas a Prosépina colidiu com a torre, despedaçando-a numa rajada de estilhaços metálicos. Procurei Jelles nos destroços e não o encontrei. Algo escuro riscou o casco, rápido demais para ser destroço. Não dei importância.
 
-Meus olhos se voltaram para A Princesa do Inverno. O escudo ao seu redor se partiu como vidro quebrado, e a nave se afastou rapidamente, finalmente livre. Nós conseguimos. A adrenalina ainda pulsava em mim, mas o alívio percorreu meu corpo como um choque elétrico.
+Meus olhos se voltaram para A Princesa do Inverno. O escudo ao seu redor se partiu como vidro quebrado, e a nave se afastou rapidamente, finalmente livre. Nós conseguimos. A adrenalina ainda pulsava em mim, mas o alívio percorreu meu corpo.
 
 Por um momento, houve silêncio. A Prosépina estabilizou sua trajetória, e o brilho instável da Lebargan foi ficando para trás.
 
@@ -464,7 +462,7 @@ Sua expressão era calma, inabalável. Mas seus olhos diziam outra coisa. O olha
 
 Meus dentes rangeram, o coração martelava, a mente fervia de raiva e incredulidade. Ele se agarrara ao casco e entrara com suas credenciais.
 
-O olhar de Jelles não carregava fúria nem medo. Era frio. Calculista. Havia uma serenidade doentia nele, como se tudo estivesse sob controle. Mas eu via algo ali, em seus olhos. Uma fraqueza.
+O olhar de Jelles não carregava fúria nem medo. Era frio. Calculista. Havia uma serenidade doentia nele. Mas eu via algo ali, em seus olhos. Uma fraqueza.
 
 — O seu jogo acabou Badrock — Ele apertou Amanda com mais força, a arma ainda firme contra sua cabeça.
 
@@ -512,7 +510,7 @@ Avancei contra Jelles, dessa vez impulsionando todo o meu peso contra ele. Jelle
 
 — Você acha que vencer essa luta significa alguma coisa, Badrock?
 
-O peso nos puxava cada vez mais, como se o corpo ficasse mais pesado. Pelo pequeno vidro da porta fechada, eu via a escuridão cada vez mais próxima.
+O peso nos puxava cada vez mais. Pelo pequeno vidro da porta fechada, eu via a escuridão cada vez mais próxima.
 
 — Você acha que pode controlar tudo, Jelles. Mas aquilo lá fora, é a prova de seu fracasso. Há forças que não podem ser controladas.
 
@@ -530,7 +528,7 @@ Então saltei para trás e alcancei a alavanca que abria a escotilha interna. Je
 
 Imediatamente o vácuo nos sugou para fora da nave. O silêncio tomou conta de tudo enquanto flutuávamos no espaço.
 
-Rodopiamos no espaço, corpos sem peso, perdidos entre a escuridão infinita. Eu sentia o frio consumindo minha pele mesmo através do traje. Jelles girava comigo, seu olhar selvagem preso ao meu.
+Rodopiamos no espaço, corpos sem peso, perdidos entre a escuridão infinita. Eu sentia o traje esfriar ao redor do corpo. Jelles girava comigo, seu olhar selvagem preso ao meu.
 
 A fera negra estava bem em minha reta, e eu a encarava como um pequeno inseto diante de uma ave feroz. Mas algo distraiu minha atenção. Ao meu lado, havia uma nave. Mas não era a prosépina. Essa era prateada, com suaves linhas familiares. Pelo vidro dela, pude ver rostos familiares. Hardman, Kord, Buni, Vivian e O’reilly.
 
@@ -538,5 +536,5 @@ Sorri enquanto eles tentavam me alcançar. E então eu senti algo me apanhar pel
 
 Vi o medo em seus olhos, e então o sangue flutuar pela sua boca em pequenas bolhas. Seu corpo estremeceu, e por um segundo, não houve nada além do silêncio absoluto do espaço nos separando. A adaga o soltou de mim, e a fera cuidou do resto. Jelles foi puxado de costas, os braços abertos, e a gravidade fez o que sempre fez: ele se esticou, fino, comprido, e continuou se esticando até virar um fio escuro que o disco engoliu sem fazer barulho. Não houve última frase. Pela primeira vez, Jelles ficou sem palavras. O sangue escapava de mim, flutuando ao meu redor em gotas dispersas, vermelhas contra o fundo negro que ameaçava me engolir. O ar estava me escapando, meu corpo estava extremamente frio. Olhei para trás e vi duas naves caindo comigo.
 
-Meus sentidos foram ficando entorpecidos e minha visão escurecia aos poucos, como se estivesse sendo puxado para um sono inevitável. Meu corpo flutuava sem controle, sem direção, perdido no vazio absoluto enquanto uma silhueta em um traje espacial se aproximava de mim, se movendo contra a escuridão infinita. Antes que ele me alcançasse, minha visão escureceu completamente.
+Meus sentidos foram ficando entorpecidos e minha visão escurecia aos poucos, puxado para um sono inevitável. Meu corpo flutuava sem controle, sem direção, perdido no vazio absoluto enquanto uma silhueta em um traje espacial se aproximava de mim, se movendo contra a escuridão infinita. Antes que ele me alcançasse, minha visão escureceu completamente.
 

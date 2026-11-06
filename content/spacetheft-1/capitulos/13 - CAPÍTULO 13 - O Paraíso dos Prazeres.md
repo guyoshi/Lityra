@@ -68,6 +68,10 @@ Buni forçou um sorriso, mas vi que parecia inseguro.
 
 As casas eram todas de madeira, com roupas penduradas secando ao sol baixo, e a sombra de cada passante se esticava rua afora, sempre apontando para o lado escuro do planeta. Em Geores ninguém se perdia: bastava dar as costas ao sol para saber onde ficava o frio. Algumas pessoas subiam em escadas para pendurar artefatos à venda.
 
+— Que horas são? — perguntou O’reilly, apertando os olhos contra o sol que não saía do lugar.
+
+— Em Geores ninguém pergunta isso — respondi. — O sol não anda, então a cidade conta pelo sino da torre: turno claro, turno alto e turno fundo. No fundo as tavernas cobram o dobro, porque é quando todo mundo tem sede.
+
 — Querem saber o futuro de vocês, meus caros? — perguntou um homem de cabeça extremamente maior que o normal, com pouquíssimos fios de cabelo e poucos dentes na boca.
 
 — Não, obrigado! — disse Buni.
@@ -206,7 +210,7 @@ Me virei para ele e arregalei os olhos.
 
 — E você me fala isso agora? Porra, você dormiu na mesma cama que eu — falei.
 
-— E isso feriu sua masculinidade de alguma forma? Ou você acha que eu iria tentar te comer durante a noite? — perguntou ele.
+— E isso feriu sua masculinidade de alguma forma? Ou você acha que eu iria tentar te comer durante o turno fundo? — perguntou ele.
 
 — Não, porque se tentasse encostar em mim, ia acordar sem os dentes. — A ideia me embrulhou o estômago, e eu não fiz questão de esconder. — Isso é nojento, Hardman — respondi.
 
@@ -288,7 +292,7 @@ Olhei para Hardman e então sorri para Luna.
 
 — A mais ou menos um quilômetro da entrada oeste da cidade.
 
-— Ah, que ótimo. Eles vão montar uma tenda ali perto essa noite. Podemos nos encontrar lá em uns trinta ectons, e eu entrego o material para vocês. Depois... você é meu.
+— Ah, que ótimo. Eles vão montar uma tenda ali perto neste turno fundo. Podemos nos encontrar lá em uns trinta ectons, e eu entrego o material para vocês. Depois... você é meu.
 
 Sorri. Sim. Sou totalmente seu. Luna me beijou e então se levantou de meu colo.
 
@@ -310,7 +314,7 @@ Quando cheguei lá fora, Hardman tentou me empurrar, embora eu não saísse do l
 
 — Não seja medroso. Nossa nave está bem vigiada — respondi
 
-O sol continuava parado no horizonte, como estava desde que pousamos e como estaria até a estrela morrer, mas o sino da torre anunciou a noite, e as tavernas passaram a cobrar o dobro. As luzes iluminavam as ruelas de Geores.
+O sol continuava parado no horizonte, como estava desde que pousamos e como estaria até a estrela morrer, mas o sino da torre bateu o turno fundo, e as tavernas passaram a cobrar o dobro. As luzes iluminavam as ruelas de Geores.
 
 — Vamos atrás de Buni — falou Hardman, apressado se afastando o mais rápido que podia do Vegas.
 
@@ -468,11 +472,11 @@ Esperamos por quase 160 ectons, observando a festa, com muita vontade de partici
 
 — Calma aí meu amigo. Vamos esperar mais, podemos nos juntar a eles e...
 
-— Jasmey... — disse Hardman respirando fundo, buscando paciência — Eu não vou ficar aqui no vento frio que desce da noite, vou entrar na nave e amanhã procuramos algum material para usarmos na nave.
+— Jasmey... — disse Hardman respirando fundo, buscando paciência — Eu não vou ficar aqui no vento frio que desce da noite, vou entrar na nave e na próxima volta procuramos algum material para usarmos na nave.
 
 — Lá está ela. Eu disse que ela viria — falei, enquanto via, no meio do matagal, Luna caminhando em nossa direção.
 
-— Deu sorte — disse Hardman — se ela não viesse, eu amarraria você em um poste amanhã antes de partirmos e lhe deixaria aqui.
+— Deu sorte — disse Hardman — se ela não viesse, eu amarraria você em um poste na próxima volta antes de partirmos e lhe deixaria aqui.
 
 Olhei para Hardman, desconfiado.
 
@@ -566,9 +570,9 @@ Apanhei o doce de sua mão e olhei pra ele. Curioso, nunca tinha visto aquele ti
 
 A agarrei enquanto ela começava a beijar meu peito e ia subindo pelo pescoço.
 
-— Vai com calma, sereia-da-nebulosa, a noite é longa — falei, piscando para ela.
+— Vai com calma, sereia-da-nebulosa, o turno fundo é longo — falei, piscando para ela.
 
-— A frase certa é a noite é uma criança. Assim como você, meu pequeno pombinho — disse-me ela me olhando nos olhos enquanto seus dois olhos se dividiam e se separavam do rosto.
+— A frase certa é o turno fundo é uma criança. Assim como você, meu pequeno pombinho — disse-me ela me olhando nos olhos enquanto seus dois olhos se dividiam e se separavam do rosto.
 
 Imediatamente me sentei e recuei. Olhei para Luna e vi que ela estava normal novamente. Nada de olhos distantes.
 

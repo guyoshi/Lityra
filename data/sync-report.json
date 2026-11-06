@@ -1,10 +1,10 @@
 {
-  "generatedAt": "2026-11-06T14:19:33Z",
+  "generatedAt": "2026-11-06T14:37:56Z",
   "sourceRepository": "guyoshi/dimensoesinfinitas",
-  "sourceCommit": "d8857a4983a6f6a203bb843a49f6b11f908356f9",
+  "sourceCommit": "712711c41892a072baa8343a2da5f3a5480623a9",
   "status": "warning",
   "summary": {
-    "warnings": 24
+    "warnings": 23
   },
   "issues": [
     {
@@ -30,12 +30,6 @@
       "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
       "bookId": "a-uniao-4",
       "item": "A União/4 - Livro 4/00 - Texto/capitulos"
-    },
-    {
-      "area": "chapter",
-      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
-      "bookId": "herdeiros-das-cinzas",
-      "item": "01 - Capítulo 1.md"
     },
     {
       "area": "book",
