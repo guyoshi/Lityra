@@ -144,7 +144,7 @@ Minha mão, quase que por instinto, foi até meu bolso e retirei de lá o orbe d
 
 Com a palavra ressoando em meus pensamentos, apertava o orbe, concentrando minha intenção. Em um ato de pura intuição, como se estivesse destravando um segredo antigo, murmurei baixinho, quase inaudível, “DESACORRENTAR”.
 
-A criatura em seu interior, que antes dançava, imediatamente se dissolveu. O próprio orbe pareceu desvanecer, não se desfazendo em pó, mas se reconfigurando. E, em seu lugar, surgiu uma chave velha e corroída, marcada com as iniciais “PR”. Meus olhos se arregalaram. Igual. Não parecida: igual, até a ferrugem. A chave que Jelles havia exibido na torre de Belzetar, a “chave do poder absoluto na Lebargan”. Jelles tinha uma. O Sr. Peron tinha a outra. E, pelo que eu sabia, mais ninguém sabia disso.
+A criatura em seu interior, que antes dançava, imediatamente se dissolveu. O próprio orbe pareceu desvanecer, não se desfazendo em pó, mas se reconfigurando. E, em seu lugar, surgiu uma chave velha e corroída, marcada com as iniciais “PR”. Os dois arcos abertos, a ponta de arpão e aquele gancho torto no último dente. Meus olhos se arregalaram. Igual. Não parecida: igual, até a ferrugem. A chave que Jelles havia exibido na torre de Belzetar, a “chave do poder absoluto na Lebargan”. Jelles tinha uma. O Sr. Peron tinha a outra. E, pelo que eu sabia, mais ninguém sabia disso.
 
 — O que é isso? — perguntou Hardman se aproximando. Notei que todos estavam ao meu redor, olhando para a pequena chave, curiosos.
 

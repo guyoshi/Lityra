@@ -122,7 +122,7 @@ Enquanto retomava o caminho, a voz envelhecida, mas ainda vigorosa, do Sr. Peron
 
 — Ah, o notório Badrock — ele riu, um som carregado de lembranças e resignação.
 
-Ao me virar, vi Sr. Peron, mais curvado do que eu lembrava.
+Ao me virar, vi Sr. Peron, mais curvado do que eu lembrava. Trazia uma faixa de pó avermelhado na manga do uniforme. Mesmo perto do retiro, continuava indo ao depósito antigo de manutenção, sob a torre de Belzetar, onde empilhavam peças que ninguém sabia mais para que serviam. Eu teria usado minhas últimas voltas para beber, mas cada um escolhe a própria diversão.
 
 — Sr. Peron, um prazer como sempre. Como está meu mestre ilustre?
 
