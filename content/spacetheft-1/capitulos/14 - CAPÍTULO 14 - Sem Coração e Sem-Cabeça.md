@@ -6,7 +6,7 @@ Abri os olhos e logo os fechei de novo. O sol laranja, baixo e rasante, batia no
 
 — Eu dormi demais — falei. Minha cabeça doía e minha boca pedia por um gole de água.
 
-Tentei lembrar da noite anterior, mas só me lembrava de ter me deitado no chão com Luna. Será que bebi tanto a ponto de apagar? Levantei, cambaleando, e Hardman me ajudou a ficar de pé.
+Tentei lembrar do turno fundo anterior, mas só me lembrava de ter me deitado no chão com Luna. Será que bebi tanto a ponto de apagar? Levantei, cambaleando, e Hardman me ajudou a ficar de pé.
 
 — Acho que deve estar orgulhoso de seus feitos. Graças a você, nossa nave foi roubada — disse ele.
 
@@ -18,7 +18,7 @@ Nossa nave? Não! Virei-me e procurei por ela na região onde deveria estar pous
 
 Olhei para baixo e vi que estava pisando em minhas vestes e estava nu.
 
-— Aquela filha da mãe — falei, enquanto minhas memórias aos poucos voltavam — ela me drogou ontem à noite.
+— Aquela filha da mãe — falei, enquanto minhas memórias aos poucos voltavam — ela me drogou no turno fundo passado.
 
 — Ah você jura? Eu te disse desde o Vegas que aquela mulher não prestava. Que você estava falando demais, e o que você fez? Me ouviu? Não, pensou mais com a porra do seu pau.
 
@@ -36,7 +36,7 @@ Olhei. Eu tinha perdido praticamente tudo: a nave, as roupas e o que restava da 
 
 — Mas como é que uma mulher derrubou o Kord, o O’reilly e o Buni? — indaguei.
 
-— Aquelas pessoas na tenda, ontem à noite, eram todas aliadas dela. O roubo foi planejado. Fomos atacados assim que te deixei a sós. Deixaram o Kord desacordado e prenderam a mim, o Buni e o O’reilly. A Vivian conseguiu fugir, mas voltou para nos soltar. Já era tarde: eles levaram nossa nave. Nem você nem o Kord acordavam, não havia mais o que fazer... deitamos no chão e adormecemos. O O’reilly passou a noite choramingando, coitado.
+— Aquelas pessoas na tenda, no turno fundo passado, eram todas aliadas dela. O roubo foi planejado. Fomos atacados assim que te deixei a sós. Deixaram o Kord desacordado e prenderam a mim, o Buni e o O’reilly. A Vivian conseguiu fugir, mas voltou para nos soltar. Já era tarde: eles levaram nossa nave. Nem você nem o Kord acordavam, não havia mais o que fazer... deitamos no chão e adormecemos. O O’reilly passou o turno fundo choramingando, coitado.
 
 Bati a mão em minha testa. Essa era realmente a tripulação que eu precisava para enfrentar Jelles.
 
@@ -80,7 +80,7 @@ Na cidade, procuramos nossos colegas por quase sessenta ectons, até encontrá-l
 
 Naquele turno pedi a Vivian que me ensinasse um sinal, qualquer um, só para ter o que responder quando ela me xingasse. Ela me ensinou “obrigado”. Tentei devolver “idiota”. Ela repetiu o “obrigado” mais devagar, como se eu fosse a criança do grupo.
 
-— O homem disse que todo hepton, naves saem de Moldar, uma cidade ao norte daqui, localizada no meio de um deserto que ela não conseguiu entender muito bem qual é. A próxima nave sai em quatro voltas, e por coincidência hoje a noite sai um transporte para a cidade. Em três voltas chegamos lá se pegarmos este transporte.
+— O homem disse que todo hepton, naves saem de Moldar, uma cidade ao norte daqui, localizada no meio de um deserto que ela não conseguiu entender muito bem qual é. A próxima nave sai em quatro voltas, e por coincidência hoje, no turno fundo, sai um transporte para a cidade. Em três voltas chegamos lá se pegarmos este transporte.
 
 — Voltas... de quanto tempo estamos falando? — perguntei.
 
@@ -234,7 +234,7 @@ Uma coisa que eu não pude deixar de notar era o quanto Quinn olhava para mim e 
 
 — É, CHUPA ESSA, CANIBAL — gritei.
 
-Mas minha jogada foi armadilha da canibal: Quinn derrubou cinco peças minhas de uma vez. O’reilly sacudiu a cabeça, e eu me alarmei. Éramos dois contra um, não podíamos perder, mas a mulher era muito boa. Várias vezes O’reilly ficou parado, pensando no que faria. Depois que fui eliminado, a partida ainda perdurou por bom tempo, até cada um ficar com apenas quatro peças. Já devia ser tarde, pois a iluminação vinda da janela suja atrás de Quinn não parecia das melhores. Aliás, vi pela janela rostos familiares: Vivian, Hardman, Buni e Kord, nossa torcida exterior.
+Mas minha jogada foi armadilha da canibal: Quinn derrubou cinco peças minhas de uma vez. O’reilly sacudiu a cabeça, e eu me alarmei. Éramos dois contra um, não podíamos perder, mas a mulher era muito boa. Várias vezes O’reilly ficou parado, pensando no que faria. Depois que fui eliminado, a partida ainda perdurou por bom tempo, até cada um ficar com apenas quatro peças. Já devia ser o turno fundo, pois a iluminação vinda da janela suja atrás de Quinn não parecia das melhores. Aliás, vi pela janela rostos familiares: Vivian, Hardman, Buni e Kord, nossa torcida exterior.
 
 — Sua vez — disse O’reilly para Quinn, trazendo minha atenção de volta para o jogo. Ele tinha cercado uma das peças dela, a danada não tinha o que fazer. Mas não é que ela fez. Ela perdeu a batalha, mas não a guerra. Embora a pedra tivesse ido pro saco, as outras três que sobraram foram o suficiente para derrotar O’reilly, que terminou com um rosto pálido e olhos desfocados, encostando as costas sobre a cadeira. Derrotar um Noxiliano, concluí, tinha sido um dia de sorte.
 
@@ -338,7 +338,7 @@ A cabeça da criatura então se virou para frente e ela urrou, um som alto e gra
 
 — Mamãe adoraria andar num desses — disse O’reilly.
 
-Enquanto seguíamos para Moldar, o sol se pôs e as estrelas nos iluminaram do céu. Estava um pouco frio, mas nada anormal. Podia ver no horizonte à nossa esquerda bem no fundo, montanhas de neve. Aquela deveria ser a zona onde o sol nunca batia.
+Enquanto seguíamos para Moldar, o sol continuava parado à nossa direita, baixo e alaranjado, e o céu à esquerda escurecia até o negro cheio de estrelas. Estava um pouco frio, mas nada anormal. Podia ver no horizonte à nossa esquerda bem no fundo, montanhas de neve. Aquela deveria ser a zona onde o sol nunca batia.
 
 Quando estava quase adormecendo, ouvi a voz de um dos passageiros.
 

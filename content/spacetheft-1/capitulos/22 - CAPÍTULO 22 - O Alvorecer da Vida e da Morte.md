@@ -28,7 +28,7 @@ Kord cruzou os braços, carrancudo como sempre.
 
 — Eu sabia que ter você por perto não era um desperdício — garanti, tentando me sentar, mas novamente a dor me lembrou que isso não era uma boa ideia.
 
-Foi aí que percebi algo estranho. Minha mão deslizou para meu abdome, esperando encontrar uma ferida aberta, um curativo improvisado, qualquer coisa. Em vez disso, senti apenas pele levemente enrugada, como se estivesse cicatrizada. Franzi a testa e olhei para os outros.
+Foi aí que percebi algo estranho. Minha mão deslizou para meu abdome, esperando encontrar uma ferida aberta, um curativo improvisado, qualquer coisa. Em vez disso, senti apenas pele levemente enrugada, cicatrizada. Franzi a testa e olhei para os outros.
 
 — O que diabos aconteceu comigo?
 
@@ -44,13 +44,13 @@ Pisquei para ele.
 
 — Ela te tocou, fechou os olhos e… sua pele se fechou.
 
-Olhei para Vivian, que apenas deu de ombros, como se aquilo fosse a coisa mais normal do mundo.
+Olhei para Vivian, que apenas deu de ombros, a coisa mais normal do mundo.
 
 Mas ela apoiou a mão na parede um segundo a mais do que o necessário, e eu fingi não ver.
 
 — Certo. — Suspirei. — Eu salvei sua vida, e você a minha. Parece que estamos quites.
 
-Vivian ergueu as sobrancelhas como se esperasse algo.
+Vivian ergueu as sobrancelhas esperando.
 
 — Não, Vivian — disse Hardman — ele não vai dizer Obrigado. Essa palavra não existe no dicionário de Jasmey.
 
@@ -124,7 +124,7 @@ Não tinha nada a responder. Isso é raro, e foi pior do que eu lembrava.
 
 — E me deixa sozinho uns ectons.
 
-Deixei. Quando você erra e o outro tem razão, não resta muito além de sair do caminho.
+Deixei.
 
 Quando voltei ao comando, notei que passávamos ao lado de algo grandioso. Segui para a frente da nave e vi a Lebargan parada ali no mesmo lugar de antes.
 
@@ -142,7 +142,7 @@ Naquele momento, como um flash, a sequência de uns e zeros que recebi no bracel
 
 Minha mão, quase que por instinto, foi até meu bolso e retirei de lá o orbe de vidro que o Sr. Peron havia me dado. Aquele objeto, que eu guardara como uma mera “lembrança que trouxera de Lebargan”, reluzia em minha palma.
 
-Com a palavra ressoando em meus pensamentos, apertava o orbe, concentrando minha intenção. Em um ato de pura intuição, como se estivesse destravando um segredo antigo, murmurei baixinho, quase inaudível, “DESACORRENTAR”.
+Com a palavra ressoando em meus pensamentos, apertava o orbe, concentrando minha intenção. Em um ato de pura intuição, murmurei baixinho, quase inaudível, “DESACORRENTAR”.
 
 A criatura em seu interior, que antes dançava, imediatamente se dissolveu. O próprio orbe pareceu desvanecer, não se desfazendo em pó, mas se reconfigurando. E, em seu lugar, surgiu uma chave velha e corroída, marcada com as iniciais “PR”. Os dois arcos abertos, a ponta de arpão e aquele gancho torto no último dente. Meus olhos se arregalaram. Igual. Não parecida: igual, até a ferrugem. A chave que Jelles havia exibido na torre de Belzetar, a “chave do poder absoluto na Lebargan”. Jelles tinha uma. O Sr. Peron tinha a outra. E, pelo que eu sabia, mais ninguém sabia disso.
 
@@ -154,7 +154,7 @@ Então uma forte luz surgiu do lado de fora. Os campos da Lebargan estavam sendo
 
 — O quê? — perguntou Amanda — A Lebargan está sendo ativada. Mas como é possível… Jelles não estava morto?
 
-Me virei e caminhei lentamente para o vidro da nave. Apertei os olhos e então vi, claramente iluminada, no meio da escuridão, uma figura parada solitária em uma extremidade da nave. Usava vestes brancas e leves arrastando pelo chão. Uma queimadura atravessava o lado direito do rosto, destruindo parte da orelha e do cabelo, deixando alguns dentes expostos e o olho daquele lado cego. Os cabelos longos e encaracolados, mesclados de branco e preto, flutuavam na baixa gravidade. Havia rugas discretas no pescoço, mas nenhuma emoção no rosto. A mulher segurava alguém pelos cabelos com uma das mãos, enquanto com a outra segurava um facão prateado. Tudo foi tão rápido que mal consegui processar a imagem. A faca passou. Ouvi Amanda gritar o nome de Eric. Apertei os olhos e vi o corpo de Eric ser atirado pela capitã, violentamente para fora da Lebargan, como se voasse até o espaço, seu sangue jorrando por seu pescoço recém cortado, formando bolhas vermelhas no espaço.
+Me virei e caminhei lentamente para o vidro da nave. Apertei os olhos e então vi, claramente iluminada, no meio da escuridão, uma figura parada solitária em uma extremidade da nave. Usava vestes brancas e leves arrastando pelo chão. Uma queimadura atravessava o lado direito do rosto, destruindo parte da orelha e do cabelo, deixando alguns dentes expostos e o olho daquele lado cego. Os cabelos longos e encaracolados, mesclados de branco e preto, flutuavam na baixa gravidade. Havia rugas discretas no pescoço, mas nenhuma emoção no rosto. A mulher segurava alguém pelos cabelos com uma das mãos, enquanto com a outra segurava um facão prateado. Tudo foi tão rápido que mal consegui processar a imagem. A faca passou. Ouvi Amanda gritar o nome de Eric. Apertei os olhos e vi o corpo de Eric ser atirado pela capitã, violentamente para fora da Lebargan, seu sangue jorrando por seu pescoço recém cortado, formando bolhas vermelhas no espaço.
 
 O olho esquerdo da Capitã Nastácia encontrou o meu, e ela acompanhou nossa nave com a cabeça enquanto nos afastávamos. Pela primeira vez desde que tudo começou, eu não era o mais perigoso daquela conversa sem palavras. Amanda, ao meu lado, gritava, desesperada, as mãos no vidro enquanto via seu irmão agonizar.
 

@@ -274,9 +274,9 @@ Ele riu, balançando a cabeça.
 
 — Espero que dê certo.
 
-— Vou descansar agora — falei — O Mestre nos prometeu uma nave. Vamos partir nela amanhã, e traçamos nossa rota.
+— Vou descansar agora — falei — O Mestre nos prometeu uma nave. Vamos partir nela na próxima volta, e traçamos nossa rota.
 
-Voltamos então a dormir. Eric se ajeitou no sofá. Ele disse que não queria cobertor, eu também não daria os meus para ele. Enfim, a noite foi tranquila. Até o susto que levei de manhã cedo.
+Voltamos então a dormir. Eric se ajeitou no sofá. Ele disse que não queria cobertor, eu também não daria os meus para ele. Enfim, o turno fundo foi tranquilo. Até o susto que levei logo no turno claro.
 
 Acordei com um grito de quem estava sendo esfolado vivo. Claro, não era isso: era só o Hardman, dando um show porque um robô metálico invadira o quarto dele sem bater. Era feio pra cacete, uma lata de sardinha com pernas de grilo e olhos que piscavam como letreiro de motel barato.
 
@@ -348,7 +348,7 @@ Eu abri a boca para responder, mas, claro, Eric tinha que se adiantar.
 
 O Mestre inclinou a cabeça estudando um inseto. Ele cruzou os braços de forma exagerada, seus óculos vermelhos refletindo a luz ambiente.
 
-— Engraçado. Não me lembro de você ontem. A tripulação cresceu durante a noite? — Ele me lançou um olhar divertido antes de continuar:
+— Engraçado. Não me lembro de você na volta passada. A tripulação cresceu durante o turno fundo? — Ele me lançou um olhar divertido antes de continuar:
 
 — Lembram-se do combinado? 50% do que encontrarem na Aurora será meu. E não pensem em me enganar, porque eu tenho olhos em todos os lugares. Não é à toa que me chamam de Mestre Estelar.
 

@@ -28,9 +28,9 @@ Hardman assentiu, já se levantando.
 
 — Bom, precisamos reiniciar o sistema manualmente. Isso significa desligar tudo e começar do zero. Literalmente, tudo.
 
-Vivian, com os olhos fixos no monitor piscante, balançou a cabeça rapidamente, levantando as mãos em um gesto enfático para Hardman, como se estivesse argumentando. Kord, que observava atentamente, traduziu:
+Vivian, com os olhos fixos no monitor piscante, balançou a cabeça rapidamente, levantando as mãos em um gesto enfático para Hardman, e Kord, que observava atentamente, traduziu:
 
-— Ela diz que se desligarmos o sistema assim, sem um backup, corremos o risco de perder todos os dados de navegação e do olho. É um risco enorme, Hardman. Há uma forma de fazer isso sem apagar tudo, mas requer mais tempo e calma, ela sugere que tentemos encontrar um protocolo de segurança antes de um desligamento bruto.
+— Ela diz que desligar sem backup pode apagar os dados de navegação e do olho. Sugere procurar um protocolo de segurança antes de um desligamento bruto.
 
 Hardman suspirou, olhando para ela.
 
@@ -84,7 +84,7 @@ O’reilly olhou para Vivian, que assentiu.
 
 — É, eu também — sibilou Hardman.
 
-Então nos dirigíamos aos fundos da nave. Sons abafados e esporádicos surgiam por vezes nas paredes, como se alguém estivesse batendo nelas.
+Então nos dirigíamos aos fundos da nave. Sons abafados e esporádicos surgiam por vezes nas paredes. Alguém batia, ou algo.
 
 — Isso não me parece um som de motor — disse O’reilly.
 
@@ -106,9 +106,9 @@ Eric cruzou os braços, franzindo a testa.
 
 Hardman hesitou, sua expressão ficando séria.
 
-— Não tão simples. Um mecanismo de segurança impede o início automático quando há avarias críticas, para evitar erros fatais na navegação. Se forçarmos a ligação, dependendo da avaria, podemos viajar às cegas, e quanto mais rápido, mais perigosa qualquer colisão. Mesmo um grão de poeira pode causar um estrago catastrófico. A nave inteira pode explodir.
+— Não tão simples. Há uma trava de segurança: com avaria crítica, o comando não parte sozinho. Se forçarmos a ligação, podemos viajar às cegas, e a esta velocidade um grão de poeira já é uma explosão.
 
-Havia um silêncio carregado que me fez querer tossir, as palavras de Hardman pairando no ar como uma sentença de morte. Finalmente, Eric quebrou o silêncio, a voz tensa:
+Havia um silêncio carregado que me fez querer tossir. Finalmente, Eric o quebrou, a voz tensa:
 
 — Ok, então qual é o plano?
 
@@ -118,7 +118,7 @@ O’reilly se aproximou.
 
 — Por acaso não temos módulos de reparo, temos?
 
-Hardman olhou para O’reilly, como se a resposta fosse óbvia.
+Hardman olhou para O’reilly sem responder.
 
 — Alguém precisa sair da nave e verificar.
 
@@ -168,7 +168,7 @@ O’reilly, que estava sentado em um canto observando a interação, riu baixo.
 
 — Ah, Hardman, deixa o cara se divertir um pouco. Ele parece que nasceu pra isso.
 
-— Diversão é a última coisa que ele vai encontrar lá fora — retrucou Hardman, ajustando o comunicador em meu traje. — Ouça, Jasmey, o gerador de gravidade artificial só funciona dentro da nave. Se você se afastar demais, pode acabar vagando no espaço para sempre.
+— Diversão é a última coisa que ele vai encontrar lá fora — retrucou Hardman, ajustando o comunicador em meu traje. — Ouça, Jasmey, não se afaste da nave.
 
 — Quer dar aula ao professor, Hardman? — respondi com sarcasmo, enquanto testava os propulsores do traje.
 
@@ -178,15 +178,13 @@ Hardman bufou, mas não insistiu. Coloquei o capacete e segui até o final do co
 
 — Infelizmente, sim — respondi.
 
-— Ótimo. Agora, use os propulsores para se aproximar da parte de baixo do comando. Não se preocupe, não há gravidade lá fora, então você não vai sentir diferença entre estar em cima ou embaixo. Boa sorte.
-
-— Hardman, eu sei como é estar em um ambiente de gravidade zero — respondi.
+— Ótimo. Agora use os propulsores para chegar à parte de baixo do comando. Boa sorte.
 
 Puxei a alavanca da segunda comporta, que se abriu com um assobio agudo, me empurrando imediatamente para o vazio do espaço. Acionei os mini-propulsores no pulso e fui lançado de volta para a superfície da nave, pousando com um leve impacto.
 
-A nave parecia imensa e desolada naquele silêncio absoluto. O breu da nebulosa envolvia tudo, com partículas densas de gás negro obscurecendo a visão. A luz da lanterna parecia devorada pela escuridão.
+A nave parecia imensa e desolada naquele silêncio absoluto. O breu da nebulosa envolvia tudo, sem uma única estrela, e a lanterna só desenhava um círculo no casco.
 
-— Alguém mais sente que estamos dentro de um conto de terror? — comentou O’reilly pelo comunicador, a voz abafada.
+— Alguém mais sente que estamos dentro de uma lenda de assombração? — comentou O’reilly pelo comunicador, a voz abafada.
 
 — O que eu sinto é o peso de carregar esse time todo — rebati, enquanto avançava lentamente.
 
@@ -234,7 +232,7 @@ Não toquei. Por um segundo. Mas a curiosidade foi mais forte.
 
 — Está fissurado. Vou tentar consertar — avisei pelo comunicador.
 
-— Era o que eu imaginava — respondeu Hardman, tenso mas controlado. — O motor superaquecia pela fissura na carcaça do sistema de refrigeração, e todo o sistema desligou para evitar danos catastróficos. Preciso de um trabalho impecável. Use o ferro de solda e sele perfeitamente o metal.
+— Era o que eu imaginava — respondeu Hardman, tenso mas controlado. — A fissura vazou o refrigerante e o motor desligou para não fundir. Preciso de um trabalho impecável. Solde a fenda inteira.
 
 — Já entendi — respondi, retirando o ferro de solda do kit.
 
@@ -290,7 +288,7 @@ Então senti uma dor lancinante na perna direita. Olhei para baixo e vi que um t
 
 — PORRA! — gritei, tentando me soltar. O tentáculo parecia vivo, pulsando como se estivesse drenando minha força.
 
-A dor aumentava a cada segundo, como se minha perna estivesse prestes a ser arrancada. Sem pensar duas vezes, puxei minha adaga da cintura e golpeei o tentáculo. O primeiro corte apenas arranhou a superfície, mas no segundo, consegui separá-lo do resto do corpo da criatura. O tentáculo se retraiu, liberando minha perna, mas o alívio foi temporário.
+A dor aumentava a cada segundo, a perna prestes a ser arrancada. Sem pensar duas vezes, puxei minha adaga da cintura e golpeei o tentáculo. O primeiro corte apenas arranhou a superfície, mas no segundo, consegui separá-lo do resto do corpo da criatura. O tentáculo se retraiu, liberando minha perna, mas o alívio foi temporário.
 
 Usei os propulsores para alcançar a comporta externa. Puxei a alavanca para abri-la, e consegui entrar no espaço entre as comportas. Mas quando tentei puxar a outra alavanca, para fechar a comporta externa, ela não se moveu.
 
@@ -352,11 +350,11 @@ Hardman respirou fundo, parecendo juntar os pensamentos.
 
 — O que foi? — perguntou Kord.
 
-— A câmara de detritos — respondeu ele, massageando as têmporas como se tentasse evitar um colapso.
+— A câmara de detritos — respondeu ele, massageando as têmporas.
 
 — Certo, e daí? — perguntei, enquanto Kord estreitava os olhos, claramente desconfiado. — Ele não iria conseguir entrar aqui pela câmara de detritos. Não tem como ele atravessar a comporta sem que a abramos antes?
 
-— A câmara de detritos tem uma tubulação que deixa entrar gases exteriores e os transfere para um filtro na sala das máquinas, onde o oxigênio é filtrado e liberado na nave. O tersário pode ter se esgueirado por lá.
+— A câmara de detritos puxa gás de fora para o filtro da sala das máquinas. O tersário pode ter se esgueirado por lá.
 
 Vivian balançou a cabeça, parecendo preocupada.
 
@@ -408,7 +406,7 @@ Olhei para trás e vi Kord, seus olhos brilhando de fúria enquanto ele gritava,
 
 Os dois caíram no chão, enquanto a criatura urrou. Me virei e vi que Hardman tinha se levantado e também atirava na criatura. Então me veio uma ideia e apanhei da cintura o paralisador quântico que roubei de Tzough. Mirei cuidadosamente e disparei. Um brilho azulado envolveu o tersário, congelando-o instantaneamente, junto ao gás de nitrogênio líquido que ainda flutuava sobre ele.
 
-O silêncio pairou na sala por alguns segundos, pesado como a própria atmosfera ao redor. O’reilly foi o primeiro a quebrá-lo, soltando um suspiro irritado.
+O silêncio pairou na sala por alguns segundos. O’reilly foi o primeiro a quebrá-lo, soltando um suspiro irritado.
 
 — E agora? — perguntou ele, cruzando os braços e olhando para a criatura congelada.
 
@@ -457,6 +455,8 @@ Hardman olhou para mim, esperando a piada.
 Por fim, acabamos por seguir o plano de Hardman. Nos aproximamos do tersário congelado, começando o trabalho de movê-lo. A criatura era maior e mais pesada do que parecia, mesmo paralisada. Por sorte a cápsula de criogenia da Princesa do Inverno era extensa e larga. Ainda assim, encaixá-la lá foi um esforço monumental.
 
 Finalmente, Hardman ativou o sistema de criogenia. O som do resfriamento tomou conta da sala enquanto uma fina camada de gelo começou a se formar dentro da cápsula. Todos soltaram um suspiro coletivo quando o sistema confirmou que o tersário estava completamente congelado.
+
+— Eu ainda não comi a barata do mar — lembrou Kord, olhando o tersário. — Hoje não. Perdi o apetite pra qualquer coisa que se mexe.
 
 — Pronto. Agora temos nosso monstro de estimação — comentei, secando o suor da testa.
 

@@ -30,7 +30,7 @@ A anã branca queimava ao longe como um farol solitário, e a luz dela criava so
 
 — Aproveite, porque pode ser seu último cochilo — murmurou Kord, sem levantar os olhos do painel.
 
-Vivian, sentada perto da escotilha, observava o espaço como se esperasse algo aparecer de repente. Ela olhou para mim e ergueu as sobrancelhas, como se dissesse: Você não está curioso?
+Vivian, sentada perto da escotilha, observava o espaço à espera de algo. Ela olhou para mim e ergueu as sobrancelhas: Você não está curioso?
 
 Eu suspirei.
 
@@ -56,7 +56,7 @@ O’reilly foi o primeiro a falar:
 
 — Acho que você está em casa Badrock — disse Eric, não perdendo a oportunidade de me insultar.
 
-E eu tinha que admitir, o planeta tinha algo estranhamente hipnótico. Sua superfície se transformava a cada movimento da nave, como se estivesse viva. Não era sólido, mas também não parecia gasoso.
+E eu tinha que admitir, o planeta tinha algo estranhamente hipnótico. Sua superfície se transformava a cada movimento da nave. Não era sólido, mas também não parecia gasoso.
 
 — Nunca vi algo assim antes — disse Hardman, quase num sussurro.
 
@@ -78,7 +78,7 @@ Suspirei.
 
 — E tem funcionado até agora.
 
-Hardman bufou, passando as mãos pelo cabelo como se fosse uma mãe exausta.
+Hardman bufou, passando as mãos pelo cabelo como uma mãe exausta.
 
 — Calem a boca vocês dois e vamos nos concentrar no planeta.
 
@@ -98,13 +98,13 @@ Havia uma tênue névoa flutuando acima do solo, quase invisível contra o brilh
 
 Hardman ajustou os filtros espectrais, e os sensores da nave começaram a cuspir informações.
 
-“Superfície: composição desconhecida, altamente refletiva. Atmosfera: rarefeita, com traços de sódio e potássio. Temperatura: -30°C a 15°C. Pressão: baixíssima, trajes obrigatórios. Vida: nenhuma. Gravidade: 1,2.”
+“Superfície: composição desconhecida, altamente refletiva. Atmosfera: rarefeita, com traços de sódio e potássio. Pressão: baixíssima, trajes obrigatórios. Gravidade: 1,2.”
 
 — 1,2 num planetinha desses? Que porra é essa? — murmurei.
 
 — Precisamos dos trajes — Hardman rebateu.
 
-A luz da anã branca refratava nas partículas de sódio e potássio da atmosfera, espalhando tons dourados e esverdeados pelo céu pálido, como um espectro fantasmagórico envolvendo o horizonte.
+A luz da anã branca refratava nas partículas de sódio e potássio da atmosfera, espalhando tons dourados e esverdeados pelo céu pálido..
 
 A gravidade aumentava gradativamente, puxando a Princesa do Inverno. Tivemos que manter os estabilizadores ativos para a nave não ser sugada direto para o solo.
 
@@ -158,7 +158,7 @@ Eric já estava ajustando seu capacete quando me lançou um olhar de canto de ol
 
 — Que isso, seria uma morte honrosa.
 
-Revirei os olhos e segui para o compartimento de saída. Prendi o chapéu na mochila do traje, por mais ridículo que ficasse. Hardman ajeitava seu traje para lidar com a pressão como se sua vida dependesse disso, e Buni parecia nervoso, pálido parado à porta.
+Revirei os olhos e segui para o compartimento de saída. Prendi o chapéu na mochila do traje, por mais ridículo que ficasse. Hardman conferia o traje pela terceira vez, e Buni parecia nervoso, pálido parado à porta.
 
 — Relaxa, Buni. Se formos esmagados, pelo menos será rápido.
 
@@ -166,7 +166,7 @@ Ele não achou engraçado.
 
 A porta da escotilha se abriu, e demos os primeiros passos em direção ao desconhecido.
 
-O vento rarefeito do planeta se movia preguiçoso, quase sem força para levantar poeira, mas a luz fraca da anã branca refletia no solo em padrões hipnotizantes, como um mar de vidro ondulante. Cada passo era estranho. O chão liso e sem marcas parecia como se nunca tivesse sido tocado por nada antes de nós.
+O vento rarefeito do planeta se movia preguiçoso, quase sem força para levantar poeira, mas a luz branca da anã branca refletia no solo em padrões hipnotizantes, como um mar de vidro ondulante. Cada passo era estranho. O chão liso e sem marcas nunca fora tocado por nada antes de nós.
 
 Hardman foi o primeiro a ajoelhar-se e tocar a superfície com um dos sensores de pulso embutidos no traje. Ele franziu a testa enquanto lia os resultados.
 
@@ -181,6 +181,8 @@ Ele demorou um pouco para responder, processando a informação.
 O silêncio entre nós foi imediato.
 
 — Então, estamos literalmente pisando em nossa fortuna? — O’reilly quebrou o silêncio, chutando levemente o chão.
+
+— Chuta com mais respeito. Já vi homem vender a mãe por um grama disso. Aqui tem um planeta inteiro, a mãe dele ia sair de graça.
 
 — Não só isso... estamos talvez pisando no único planeta feito de gerbe da galáxia, talvez do universo — Hardman balançou a cabeça. — Se isso se confirmar, esse lugar não só vale uma fortuna. Ele é, literalmente, o maior segredo da galáxia.
 
@@ -264,7 +266,7 @@ Balancei a cabeça.
 
 — Só Jelles sabe exatamente onde estamos. Não conseguimos saber onde a Lebargan está.
 
-Todos ficaram em silêncio por um momento, sentindo o peso da situação.
+Todos ficaram em silêncio por um momento.
 
 No horizonte, o brilho da anã branca sumiu de repente, sem transição, como se alguém apagasse as luzes, e a noite caiu de uma vez: a atmosfera rarefeita não tinha crepúsculo para amortecer a queda.
 
@@ -272,7 +274,7 @@ No horizonte, o brilho da anã branca sumiu de repente, sem transição, como se
 
 A noite foi longa. O interior da Princesa do Inverno estava mais silencioso do que o normal. O grupo já se recolhera, e eu aproveitava o raro momento de paz no canto da cabine, observando as luzes dos controles piscarem no escuro. Estávamos atentos a qualquer sinal da Lebargan. Num planeta plano como aquele, o ataque viria de cima, então mantínhamos os escudos ligados.
 
-Então Eric puxou uma cadeira e sentou ao meu lado, cruzando os braços como se tivesse muito a dizer, mas sem vontade de começar.
+Então Eric puxou uma cadeira e sentou ao meu lado, cruzando os braços, com muito a dizer e nenhuma vontade de começar.
 
 — Não vai dormir? — perguntei, sem desviar os olhos do painel.
 
@@ -306,7 +308,7 @@ Cruzei os braços, pensando no que ele disse.
 
 — Por que alguém iria querer se colocar contra Jelles? Todos lá comem e bebem do melhor, têm a vida que sempre quiseram — questionei-o.
 
-Eric respirou fundo, como se precisasse reunir paciência para me explicar o óbvio.
+Eric respirou fundo, reunindo paciência para me explicar o óbvio.
 
 — Jasmey, você é um cabeça-dura mesmo. Quando é que vai perceber que a luta não é pelo que elas têm, e sim pelo que elas acreditam?
 
@@ -370,7 +372,7 @@ Eric olhou para o vidro, hesitando antes de falar:
 
 — Não sei. Não o via muito. Apenas nas reuniões dos nove. A última vez que o vi, foi pouco antes de fugir. Estava se preparando para uma missão com Vlad.
 
-Voltamos ao silêncio. Mas dessa vez, não era desconfortável. Eu me espreguicei e apoiei a cabeça na cadeira.
+Voltamos ao silêncio. Mas dessa vez, não era desconfortável. Eu me espreguiçei e apoiei a cabeça na cadeira.
 
 — Isso quer dizer que quando eu aparecer lá dentro, vai ser um inferno.
 
@@ -412,9 +414,9 @@ Levei a mão à cabeça. Meu cabelo. Mais nada.
 
 Fiquei sem resposta. Isso não me acontece com frequência. Perdi esse chapéu duas vezes na vida, e as duas foram para o Eric.
 
-Ficamos ali por um tempo. Nenhum dos dois admitiria, mas havia uma certa tranquilidade no fato de que, depois de tudo, estávamos de volta no mesmo lado.
+Ficamos ali por um tempo. Nenhum dos dois admitiria, mas era bom estar, depois de tudo, do mesmo lado.
 
-O estrondo da explosão me arrancou do sono logo pela manhã. Meus olhos se abriram instintivamente, e o primeiro brilho que vi foi o bracelete de Eric piscando em vermelho, como uma contagem regressiva para o desastre.
+O tremor da explosão no chão me arrancou do sono logo pela manhã. Meus olhos se abriram instintivamente, e o primeiro brilho que vi foi o bracelete de Eric piscando em vermelho, como uma contagem regressiva para o desastre.
 
 Levantei-me de um salto.
 
@@ -426,19 +428,19 @@ Kord me lançou um olhar carregado, mas não questionou. Em poucos segundos, ele
 
 Sorri de canto. Respirei fundo e saí da nave.
 
-Corri para o lado de fora e a vi. A Lebargan dominava o céu acima de nós, imensa, monstruosa, inevitável. Sua silhueta consumia a luz, um buraco negro artificial pairando no espaço, absorvendo tudo ao seu redor, inclusive o destino de quem ousava desafiá-la. Suas torres de armamento estavam prontas, como garras afiadas esperando para dilacerar qualquer coisa que ousasse se mover sem permissão.
+Corri para o lado de fora e a vi. A Lebargan dominava o céu acima de nós, imensa, monstruosa, inevitável. Sua silhueta consumia a luz, um buraco negro artificial pairando no espaço, absorvendo tudo ao seu redor, inclusive o destino de quem ousava desafiá-la. Suas torres de armamento já apontavam para nós.
 
-No centro daquela imensidão, Eric estava parado, de mãos erguidas, fingindo se render. Ele acenava de forma exagerada, como se quisesse garantir que cada maldito Dale a bordo da Lebargan pudesse vê-lo.
+No centro daquela imensidão, Eric estava parado, de mãos erguidas, fingindo se render. Ele acenava de forma exagerada, para garantir que cada maldito Dale a bordo da Lebargan pudesse vê-lo.
 
 Uma nave menor desacoplou da Lebargan, flutuando suavemente enquanto descia em nossa direção.
 
 — Jelles, estou indo... — murmurei para mim mesmo.
 
-A nave tocou o solo com um sopro metálico. Em sua lateral lia-se Orbe Azul. A sua rampa se abriu e de dentro dela, três figuras surgiram, avançando como predadores que já haviam sentido o cheiro do sangue. Eram Vek, Samara e Vlad.
+A nave tocou o solo com um baque metálico. Em sua lateral lia-se Orbe Azul. A sua rampa se abriu e de dentro dela, três figuras surgiram. Eram Vek, Samara e Vlad.
 
-Vek foi o primeiro a me ver. Seu corpo ficou rígido, seu olhar vacilou por um instante. Mas não houve um grito de alívio ou surpresa genuína, apenas um fechamento rápido da expressão, uma máscara de profissionalismo que ocultava o turbilhão interno.
+Vek foi o primeiro a me ver. Seu corpo ficou rígido, seu olhar vacilou por um instante. Mas não houve um grito de alívio ou surpresa genuína, apenas um fechamento rápido da expressão.
 
-Samara, por outro lado, manteve a cara de poucos amigos, os olhos correndo entre mim e Eric como se estivesse tentando entender o que diabos estava acontecendo.
+Samara, por outro lado, manteve a cara de poucos amigos, os olhos correndo entre mim e Eric tentando entender o que diabos estava acontecendo.
 
 E então, Vlad ergueu a arma para nos matar ali mesmo.
 
@@ -450,7 +452,7 @@ Vek segurou o braço de Vlad antes que ele pudesse atirar.
 
 — Calma aí. O Capitão vai querer ver os traidores.
 
-Traidores. A palavra carregava um peso familiar. O tipo de peso que só se sente quando o próprio sangue vira um fardo.
+Traidores. A palavra carregava um peso familiar.
 
 Os três nos cercaram e empurraram para dentro da Orbe Azul. Samara arrancou o chapéu da minha mochila e o jogou num caixote de confiscos, junto com nossas armas. A decolagem foi rápida, mais rápida do que eu lembrava, e em poucos ectons, já éramos engolidos pelo espaço sideral. A anã branca ficou para trás, e acima de nós, a silhueta da Lebargan crescia como um eclipse negro, bloqueando qualquer outra visão.
 
@@ -464,7 +466,7 @@ Quem servia a Jelles bebia do melhor rum, comia da melhor carne, se afundava nos
 
 O interior da Orbe Azul ficou silencioso enquanto nos aproximávamos. Eu sentia os olhares pesados de Vek e Samara em mim, mas ninguém falava nada.
 
-Finalmente, cruzamos a barreira quântica da Lebargan. O escudo vermelho iluminou a cabine, prenunciando nossa chegada. E então, como se o espaço dobrasse ao nosso redor, a nave revelou-se completamente. Mesmo depois de todo esse tempo, a Lebargan ainda conseguia impressionar.
+Finalmente, cruzamos a barreira quântica da Lebargan. O escudo vermelho iluminou a cabine, prenunciando nossa chegada. E então a nave revelou-se completamente. Mesmo depois de todo esse tempo, a Lebargan ainda conseguia impressionar.
 
 Me virei para Vek, forçando simpatia.
 
@@ -474,7 +476,7 @@ Vek não respondeu.
 
 — Você parece muito bem. Já se tornou o novo queridinho do Jelles — perguntei com sarcasmo exagerado.
 
-O silêncio de Vek era quase cômico. Ele estava claramente lutando contra o que sentia ao me ver, mas não ousava demonstrar nada.
+O silêncio de Vek era quase cômico.
 
 Fomos levados direto para a doca da Lebargan, onde centenas de naves ficavam estacionadas como predadores à espera de presas. O solo metálico brilhava sob as luzes vermelhas de aterrissagem, mas algo mais chamou minha atenção: a Princesa do Inverno estava sendo trazida para dentro, puxada por um escudo gravitacional translúcido, como um peixe preso numa rede invisível. Nosso plano estava funcionando.
 

@@ -54,9 +54,9 @@ Vi que Hardman, ao meu lado, estava agora de olhos bem abertos, apavorado, o ros
 
 Eu tinha a leve impressão de que milhares de selvagens nos vigiavam, esperando apenas algum contato para atacar.
 
-Mas felizmente, a noite correu bem, e não tivemos mais problemas. Exceto pelo fato de acordarmos com um grande pássaro colorido esquisito de duas cabeças que tentava abocanhar o chapéu de um dos colegas. O sol nascia no horizonte inundando os céus com uma cor roxa. Ah sim, era tudo muito lindo. Só não era perfeito porque uma vaca me roubou a nave na noite anterior.
+Mas felizmente, o descanso correu bem, e não tivemos mais problemas. Exceto pelo fato de acordarmos com um grande pássaro colorido esquisito de duas cabeças que tentava abocanhar o chapéu de um dos colegas. O sol, parado no horizonte como sempre, inundava os céus de roxo. Ah sim, era tudo muito lindo. Só não era perfeito porque uma vaca me roubou a nave na noite anterior.
 
-Na noite da terceira volta, finalmente vi luzes ao fundo. Moldar não parecia tão massiva quanto Geores, mas parecia muito mais luxuosa. Havia grandiosas torres cilíndricas com grandes LEDs iluminando os arredores. Algumas pessoas voavam em aves pré-históricas, outras em veículos motorizados. Ao nos aproximarmos, vimos uma estrada que levava direto ao núcleo da cidade. O cardiçal nos deixou logo à entrada e desceu as costas para que desembarcássemos.
+No turno fundo da terceira volta, finalmente vi luzes ao fundo. Moldar não parecia tão massiva quanto Geores, mas parecia muito mais luxuosa. Havia grandiosas torres cilíndricas com grandes LEDs iluminando os arredores. Algumas pessoas voavam em aves pré-históricas, outras em veículos motorizados. Ao nos aproximarmos, vimos uma estrada que levava direto ao núcleo da cidade. O cardiçal nos deixou logo à entrada e desceu as costas para que desembarcássemos.
 
 — Sejam bem-vindos a Moldar — disse a familiar voz que tinha vindo do cardiçal na apresentação de nossa viagem — um dos maiores centros comerciais de eletrônicos de toda galáxia. Não deixem de conhecer a Rub-P-Lad, pioneira na tecnologia de resfriamento por pressão, ou a garagem de B-Se-Lei, onde podem testar equipamentos que os fazem enxergar além de seu espectro de cores habitual.
 
@@ -120,7 +120,7 @@ Não era uma “gostosura”. Eram DUAS. Ou melhor, duas cabeças no mesmo corpo
 
 — Ritmo da Morte — repeti — já ouvi falar disso em uma de minhas visitas em Geores. Mas não sabia que era aqui. Quanto tempo temos para o início do evento?
 
-— Creio que seis horas planetárias. O show começa pelo meio da tarde — disse a segunda cabeça.
+— Creio que seis horas planetárias. O show começa pelo meio do turno alto — disse a segunda cabeça.
 
 — Ok, cabeças. Obrigado pela informação — falei. As duas esboçaram olhares ofendidos, mas ignorei e me virei.
 
@@ -324,7 +324,7 @@ Notei pelo canto dos olhos preocupação nos olhos de Hardman, mas o ignorei. Na
 
 O Mestre assentiu, sorrindo e se levantou erguendo as mãos para seus homens. Eles se dirigiram até nossa traseira e logo senti as correntes afrouxarem. Nos levantamos e o Mestre se dirigiu a mim.
 
-— Há um hotel a dois quarteirões daqui chamado F’Oxel, vocês têm quartos reservados lá. Descansem a noite e amanhã assinamos nosso acordo.
+— Há um hotel a dois quarteirões daqui chamado F’Oxel, vocês têm quartos reservados lá. Descansem o turno fundo e na próxima volta assinamos nosso acordo.
 
 O Mestre então se virou de costas e se retirou do galpão com seus guardas. Olhei para meus companheiros e assenti.
 
@@ -340,9 +340,9 @@ Ignorei os olhares dos outros e segui pelo deserto em direção à cidade. Pude 
 
 O interior do hotel era incrível. As paredes curvavam-se suavemente em direções inesperadas, criando uma sensação de fluidez e movimento. Materiais iridescentes mudavam de cor suavemente à medida que a luz dançava sobre eles. Uma música retro-eletrônica tocava baixo nos autofalantes.
 
-— Boa tarde! Temos quartos reservados — disse Hardman para um feniciniano, uma criatura que possui um cogumelo estranho no lugar da cabeça, ligada por um pequeno tubo musculoso e fino ao resto do corpo. A criatura usou seus apêndices para digitar algo na máquina em sua frente, e então as portas ao fundo se abriram.
+— Bom turno! Temos quartos reservados — disse Hardman para um feniciniano, uma criatura que possui um cogumelo estranho no lugar da cabeça, ligada por um pequeno tubo musculoso e fino ao resto do corpo. A criatura usou seus apêndices para digitar algo na máquina em sua frente, e então as portas ao fundo se abriram.
 
-— Sejam bem vindos ao F’Oxel — disse uma voz robótica vindo dos autofalantes acima da porta — aproveite nossas piscinas superaquecidas, ou desestresse nas câmaras de gravidade zero com uma massagem quântica. E não se esqueçam, a primeira refeição do dia é por nossa conta. Basta solicitar na recepção. Tenham uma boa estadia no F’Oxel.
+— Sejam bem vindos ao F’Oxel — disse uma voz robótica vindo dos autofalantes acima da porta — aproveite nossas piscinas superaquecidas, ou desestresse nas câmaras de gravidade zero com uma massagem quântica. E não se esqueçam, a primeira refeição da volta é por nossa conta. Basta solicitar na recepção. Tenham uma boa estadia no F’Oxel.
 
 Seguimos pela porta e o corredor à frente começou a se moldar, indicando nosso caminho. A iluminação era baixa, mas víamos uns aos outros. Seguimos até quatro portas. Os quartos eram idênticos, com camas arredondadas e bioiluminação de abajures cheios de criaturazinhas que se alimentavam de energia: o interruptor cessava a corrente e os seres “adormeciam” com a falta de alimento, “apagando as luzes”.
 
@@ -354,7 +354,7 @@ Seguimos pela porta e o corredor à frente começou a se moldar, indicando nosso
 
 — Eu também não — disse Buni.
 
-— Eu não durmo com ninguém — falei — se virem. Vou para minha cama. Boa noite!
+— Eu não durmo com ninguém — falei — se virem. Vou para minha cama. Bom descanso!
 
 Entrei numa das portas enquanto eles se decidiam. Sobre a cama havia uma bandeja de insetos assados. Pareciam apetitosos e eu estava faminto: crocantes por fora, macios por dentro, desmanchavam na boca, deliciosos e apimentados. Já vira aqueles insetos à venda em Geores, mas nunca provara. Pelo sabor, talvez eu devesse ter perguntado o que eram antes de comer. Deitei, respirei fundo e apaguei a luz no interruptor. Fiquei horas ali, pensando, até minha bexiga mandar eu sair. Será que havia banheiro naquele hotel?
 
