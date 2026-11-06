@@ -26,6 +26,10 @@ A anã branca queimava ao longe como um farol solitário, e a luz dela criava so
 
 — Quando quiser. Hoje, se preferir.
 
+— Em volta de uma anã branca só sobra o que a estrela não quis — completou Hardman. — Parece um Silêncio.
+
+— Não começa — resmungou Kord.
+
 — Bom, já que ninguém vai morrer nos próximos ectons, acho que posso cochilar. — Cruzei os braços atrás da cabeça.
 
 — Aproveite, porque pode ser seu último cochilo — murmurou Kord, sem levantar os olhos do painel.

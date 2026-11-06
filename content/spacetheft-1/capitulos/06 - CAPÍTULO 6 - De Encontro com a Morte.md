@@ -240,7 +240,7 @@ Os dekraazianos tremiam. O primeiro largou a arma e, como se fossem um só, os o
 
 Jelles se aproximou dos sobreviventes e se abaixou diante deles.
 
-— Vocês são fracos. E neste universo a espécie mais forte sempre devora as mais fracas. Aqueles que não buscam o governo são governados.
+— Vocês são fracos. E neste universo a espécie mais forte sempre devora as mais fracas. Aqueles que não buscam o governo são governados. Vocês nunca chegaram ao espaço, não firmaram pacto com ninguém, e por isso ninguém vai ouvir quando formos embora.
 
 Jelles olhou o abismo além do precipício e soltou uma risada seca.
 

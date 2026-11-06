@@ -32,7 +32,7 @@ Depois do desjejum, verifiquei o cronograma dos treinos de esgrima e escolhi o d
 
 — Pegue sua espada, Badrock — disse Boriges.
 
-Caminhei até o arsenal, onde as espadas aguardavam. Senti os olhares fixos em mim, uma mistura de inveja e medo. Eles sabiam quem eu era. Eu era o Dale que eles aspiravam ser, o problema que eles temiam. Nenhum deles era páreo. Só Boriges, com sua postura imponente e a espada de cabo serpenteante, parecia capaz de me encarar de igual para igual.
+Caminhei até o arsenal, onde as espadas aguardavam. Nada de pistolas no treino. Eras de tecnologia, e a gente ainda aprende a matar na lâmina. Senti os olhares fixos em mim, uma mistura de inveja e medo. Eles sabiam quem eu era. Eu era o Dale que eles aspiravam ser, o problema que eles temiam. Nenhum deles era páreo. Só Boriges, com sua postura imponente e a espada de cabo serpenteante, parecia capaz de me encarar de igual para igual.
 
 — Que comecem os jogos — anunciei.
 
@@ -170,9 +170,7 @@ Pesei minhas palavras antes de confessar, encarando-o diretamente:
 
 Jelles voltou sua atenção à vastidão abaixo, antes de retirar algo de seu bolso. Meu coração acelerou.
 
-— Reconhece isto? — perguntou, tirando do bolso uma chave pequena, antiga e corroída.
-
-A cabeça tinha dois arcos desiguais, abertos na parte de cima. O maior avançava numa ponta comprida e curva, feito um arpão de abordagem. A haste era estreita, cortada por uma ranhura funda, e terminava em três dentes irregulares, o último virado para trás como um gancho. Entre os rebites e a ferrugem, duas letras ainda se liam: PR. Era uma peça bonita pra caralho, se você gostasse de sucata com pose de relíquia.
+— Reconhece isto? — perguntou, revelando uma chave antiga e corroída, marcada com as iniciais PR.
 
 — Não, o que é?
 

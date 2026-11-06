@@ -102,13 +102,19 @@ Não era uma “gostosura”. Eram DUAS. Ou melhor, duas cabeças no mesmo corpo
 
 — Deve ser — respondeu a cabeça da esquerda — O Mestre Estelar está recrutando até hoje. Tem passado nos teleprojetores.
 
-— Mestre estelar? — perguntou Hardman.
+— O MESTRE ESTELAR? — Hardman agarrou meu braço de carne com tanta força que doeu. — O da Carta Estelar? O homem que desenhou o mapa que todo navegador usa?
+
+— Eu usava a Carta desde pirralho e nunca perguntei quem a fez — falei.
+
+— Nunca perguntou?! — Hardman me olhou como se eu tivesse cuspido num altar.
+
+— Ele parece ter fãs — comentou a cabeça da direita.
 
 — É o homem mais rico do planeta — disse a cabeça da direita.
 
 — Mas não tenho certeza se ele iria querer algo com vocês. Ele é muito seletivo com sua tripulação. Não que alguém não quisesse algo com você — disse a cabeça da esquerda, me olhando sensualmente. Hardman pigarreou e vi Kord soltar um risinho.
 
-— Onde podemos encontrar este mestre estelar? — perguntou Hardman.
+— Onde podemos encontrar o Mestre Estelar? — perguntou Hardman, ainda sem cor.
 
 — Boa pergunta. Caly, onde o jovem pode encontrar o Mestre Estelar?
 
@@ -286,7 +292,7 @@ Eu não fazia ideia de como ele tinha conseguido aquelas informações sobre nó
 
 — Nós fugimos há pouco da Fera Sideral e acabamos caindo aqui. Tivemos nossa nave roubada por uma ladra — explicou O’reilly — só queremos sair. Diga-me seu preço, que nós pagamos.
 
-— Vocês pagam? — riu o mercador, assim como seus homens — vocês têm cara de que não tem nem mesmo onde cair vivos. E meu preço costuma ser alto. Tenho as melhores naves do quadrante. Não creio que tenham o suficiente para me pagar.
+— Vocês pagam? — riu o mercador, assim como seus homens — vocês têm cara de que não tem nem mesmo onde cair vivos. Não vejo uma ficha de lastro em nenhum bolso. E meu preço costuma ser alto. Tenho as melhores naves do quadrante. Não creio que tenham o suficiente para me pagar.
 
 Foda-se, eu estava de saco cheio, iria jogar as cartas na mesa.
 

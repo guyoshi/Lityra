@@ -206,7 +206,7 @@ Kord, sentado no braço de um sofá, bateu as mãos nos joelhos e levantou-se, i
 
 Eu ri, mas foi um riso seco.
 
-— Sombra Cósmica? Kord, desde quando você tem medo de oficiais da galáxia? — provoquei. — Vai me dizer que um bando de burocratas vestidos de preto te assusta?
+— Sombra Cósmica? Kord, desde quando você tem medo de a polícia dos humanos? — provoquei. — Vai me dizer que um bando de burocratas vestidos de preto te assusta?
 
 Kord me encarou, o olhar sério.
 
@@ -342,7 +342,21 @@ Antes que eu pudesse chegar perto da nave, o Mestre Estelar surgiu com um sorris
 
 — Bem-vindos ao meu templo de transportes! — exclamou ele, com uma voz que soava como mel misturado com cinismo. — Jasmey Badrock, a lenda sem braço, e sua trupe colorida. Hora de embarcar!
 
-Eu abri a boca para responder, mas, claro, Eric tinha que se adiantar.
+Ao meu lado, Hardman congelou. O rosto dele foi do pálido ao vermelho em pulsos, e as mãos não sabiam se arrumavam o cabelo ou se escondiam a cara. Não resisti. Empurrei-o um passo à frente.
+
+— Mestre Estelar, esse meu amigo aqui disse que quer quebrar a sua cara.
+
+— O QUÊ? Não! Nunca! Eu só… — Hardman engoliu seco e tentou apertar a mão do Mestre com as duas mãos, errou a direção e apertou a de um segurança robótico. — Senhor, é uma honra. A Carta. O senhor. A Carta! Eu aprendi a ler as estrelas nela, eu… eu nem sei o que estou dizendo!
+
+— Um admirador — o Mestre sorriu, satisfeito. — Custa menos que um segurança.
+
+Kord se inclinou para mim, baixo:
+
+— Ele é sempre assim?
+
+— Só quando respira — respondi.
+
+Eu ia continuar a brincadeira, mas, claro, Eric tinha que se adiantar.
 
 — Nos dê a chave da nave e sumimos daqui.
 
@@ -351,6 +365,8 @@ O Mestre inclinou a cabeça estudando um inseto. Ele cruzou os braços de forma 
 — Engraçado. Não me lembro de você na volta passada. A tripulação cresceu durante o turno fundo? — Ele me lançou um olhar divertido antes de continuar:
 
 — Lembram-se do combinado? 50% do que encontrarem na Aurora será meu. E não pensem em me enganar, porque eu tenho olhos em todos os lugares. Não é à toa que me chamam de Mestre Estelar.
+
+— Cada nave que usa a Carta devolve o que vê — sussurrou Hardman, quase em êxtase. — Ele enxerga por todas elas.
 
 Ele sorriu, um sorriso cheio de dentes, e então perguntou com curiosidade exagerada:
 

@@ -38,7 +38,7 @@ Escalei umas pedras próximas e ganhei uma visão privilegiada do acampamento, d
 
 Enquanto isso, dois dos piratas se engalfinhavam por pedaços de carne, enquanto um terceiro aproveitava a distração para roubar justamente esses pedaços. “Que bando de desgraçados”, pensei, “sem honra, sem dignidade. Pelo menos os Dales brigavam por algo que valia a pena”.
 
-Percebi que falavam o idioma universal, então entendia tudo. As conversas eram dispersas: um lamentava que a mãe sentia sua falta, outro chorava por ter de matar o próprio irmão, um terceiro jurava ter sido engolido por um verme de lama e expelido vivo duas voltas depois, e mostrava a prova: da nuca aos calcanhares, a pele branca como barriga de peixe, onde o suco do bicho comera até a tatuagem. Ninguém discutia. Discutir é coisa de quem não tem uma cicatriz melhor. Minha atenção se fixou quando a conversa virou para o prisioneiro. Um deles se agachou diante da figura amarrada e disse, cruel:
+Percebi que falavam o idioma universal dos portos, então entendia tudo. As conversas eram dispersas: um lamentava que a mãe sentia sua falta, outro chorava por ter de matar o próprio irmão, um terceiro jurava ter sido engolido por um verme de lama e expelido vivo duas voltas depois, e mostrava a prova: da nuca aos calcanhares, a pele branca como barriga de peixe, onde o suco do bicho comera até a tatuagem. Ninguém discutia. Discutir é coisa de quem não tem uma cicatriz melhor. Minha atenção se fixou quando a conversa virou para o prisioneiro. Um deles se agachou diante da figura amarrada e disse, cruel:
 
 — Vai adorar essas terras, querida — provocou o homem — ficará aqui para sempre, devorada pelos selvagens locais, e seu nome será esquecido.
 

@@ -334,7 +334,7 @@ Segui por um corredor de pedra, gelado, Hardman alguns passos à minha frente. N
 
 — Luzitanos? — indaguei.
 
-— Meu pai era religioso, e eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes e que ensinaram todos os outros. Havia um vazio, a Besta, que quase engoliu tudo antes de eles a deterem. O livro da verdade diz que a luz e a Besta vão se encontrar de novo, e que só uma vence, sem dizer qual. Se perdermos, acaba a galáxia inteira, as estrelas, tudo.
+— Meu pai era religioso, e eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes e que ensinaram todos os outros, e que espalharam os povos pelas estrelas. Dizem que viemos todos de um mesmo lugar. Havia um vazio, a Besta, que quase engoliu tudo antes de eles a deterem. O livro da verdade diz que a luz e a Besta vão se encontrar de novo, e que só uma vence, sem dizer qual. Se perdermos, acaba a galáxia inteira, as estrelas, tudo.
 
 — Ainda poderemos tentar ir pra outra galáxia — falei, esperançoso.
 

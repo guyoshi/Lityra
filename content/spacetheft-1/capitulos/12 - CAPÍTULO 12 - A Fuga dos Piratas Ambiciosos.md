@@ -230,6 +230,10 @@ Buni riu e me levantei do comando, olhando para todos. Hardman estava emocionado
 
 — Dez momentos lá dentro, e eu não acredito que conseguimos — falou Kord, respirando fundo.
 
+— Até quando a dobra aguenta? — perguntou Buni, ainda agarrado ao cinto.
+
+— Até a energia acabar, ou até uma estrela entortar a bolha. Pela Síntese, perto de um sol a dobra só segura se for desacelerando — respondeu Hardman.
+
 — Jasmey, dá pra você prestar atenção em aonde estamos indo — disse Hardman preocupado — antes de mais nada precisamos aterrissar em um planeta para que eu possa remover o rastreador. Alekta tinha bloqueado os efeitos do rastreador, mas é temporário.
 
 — Não seja rabugento, Hardman, sorria, está livre novamente — falei.
@@ -530,6 +534,10 @@ Corri para olhar pelo vidro. A pequena Sumatram estava lá, a menos de alguns ec
 
 — Desacelerando a dobra antes que a gente vire poeira nos detritos do sistema — falei.
 
+— Sumatram não tem Cerca de Dobra — disse Hardman. — Mundo rico paga por uma. O ruído dela quebra a bolha na borda do sistema, e depois são três dias de impulso até o porto.
+
+— Por isso pirata ama Sumatram — respondi.
+
 — Acorde os outros, Jasmey — pediu Hardman.
 
 — Ninguém está dormindo, Hardman — respondeu Kord logo atrás de nós, com O’reilly ao seu lado.
@@ -538,7 +546,7 @@ Corri para olhar pelo vidro. A pequena Sumatram estava lá, a menos de alguns ec
 
 Vivian parecia desconfortável. Talvez não fosse acostumada com pousos.
 
-— Sumatram tem uma cartografia detalhada para entrada de naves — falei, buscando no sistema até o modelo tridimensional surgir em holograma sobre o painel. — Vamos para a cidade de Geores. Fica... exatamente aqui — marquei com a mão uma região perto de uma zona cinzenta no litoral. — Geores fica na faixa do crepúsculo. Ninguém sai dela.
+— Sumatram tem uma cartografia detalhada na Carta Estelar para entrada de naves — falei, buscando no sistema até o modelo tridimensional surgir em holograma sobre o painel. — Vamos para a cidade de Geores. Fica... exatamente aqui — marquei com a mão uma região perto de uma zona cinzenta no litoral. — Geores fica na faixa do crepúsculo. Ninguém sai dela.
 
 — Por quê? — perguntou Kord.
 

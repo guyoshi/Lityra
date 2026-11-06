@@ -234,7 +234,7 @@ Ri de leve, embora soubesse que ele não estava brincando.
 
 Hardman indicou o painel, onde várias luzes amarelas piscavam.
 
-— O motor superaqueceu. O campo de um magnetar, mesmo a esta distância, enche os sensores de ruído e frita o resfriamento. Ativei a blindagem. Agora precisamos esperar até que a temperatura normalize.
+— O motor superaqueceu. O campo de um magnetar, mesmo a esta distância, enche os sensores de ruído e frita o resfriamento. Com ruído assim, pela Síntese a bolha de dobra não fecha. Ativei a blindagem. Agora precisamos esperar até que a temperatura normalize.
 
 Olhei pela janela. Lá fora não havia nada para ver, e era isso que me incomodava. No monitor, os sensores pintavam o magnetar de azul, um ponto pulsando em falsa-cor, perto o bastante para qualquer cor ser um mau sinal. Se chegássemos mais perto… seria uma viagem sem volta.
 

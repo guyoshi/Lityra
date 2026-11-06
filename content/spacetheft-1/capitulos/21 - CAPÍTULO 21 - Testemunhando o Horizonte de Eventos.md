@@ -406,7 +406,7 @@ Em um movimento rápido demais para algo daquela magnitude, a sombra se ergueu, 
 
 A estrela oscilou, incapaz de sustentar o próprio peso somado ao daquilo, e então começou a se dobrar sobre si mesma. Uma força invisível sugou tudo ao seu redor. Luz foi arrancada de sua superfície. As chamas brancas se apagaram, sugadas para dentro da escuridão. A estrela implodiu e um buraco negro nasceu.
 
-A onda gravitacional varreu o espaço como um tsunami invisível, distorcendo a luz e arrancando naves de suas rotas. A Lebargan oscilou, os escudos pulsando em tentativas desesperadas de manter a estabilidade, enquanto alarmes disparavam em todas as frequências. A nave menor de Vek já não perseguia a Princesa do Inverno. Vi suas luzes sumirem atrás dos módulos da Lebargan e pensei que ele tivesse desistido da caçada para salvar a própria pele. Pela primeira vez na vida, uma decisão inteligente. Mas o que realmente me fez prender a respiração foi ver a Princesa do Inverno presa num escudo da Lebargan, uma prisão translúcida e cruel. Eles não tinham conseguido escapar.
+A onda gravitacional varreu o espaço como um tsunami invisível, distorcendo a luz e arrancando naves de suas rotas. A Lebargan oscilou, os escudos pulsando em tentativas desesperadas de manter a estabilidade, enquanto alarmes disparavam em todas as frequências. Mas o que realmente me fez prender a respiração foi ver a Princesa do Inverno presa num escudo da Lebargan, uma prisão translúcida e cruel. Eles não tinham conseguido escapar.
 
 Minha mente girava até que meus olhos foram atraídos para uma silhueta no topo do mastro de defesa da Lebargan, a torre militar de Belzetar, que controlava os campos de captura. Jelles estava parado ali, imóvel, como se tivesse previsto cada um dos meus movimentos. Não parecia preocupado nem surpreso. Esperava por mim, como um jogador que sabia que sua peça mais importante estava prestes a ser capturada. Mas algo me chamou a atenção: a barreira temporal quântica da Lebargan ainda estava desativada. Ele cometeu um erro.
 
@@ -420,7 +420,7 @@ Minhas mãos firmes sobre os comandos, respirei fundo antes de encará-la.
 
 Sem dar espaço para mais perguntas, puxei os controles e a Prosépina disparou em direção à Lebargan. Os sistemas começaram a apitar em alerta, enquanto a gravidade oscilava violentamente com a proximidade do buraco negro recém-formado. No painel, indicadores piscavam em vermelho.
 
-Os visores escureceram sozinhos contra o clarão do disco que nascia, e o relógio da nave passou a discordar do meu bracelete por alguns segundos. Não era defeito. Era o buraco negro.
+Os visores escureceram sozinhos contra o clarão do disco que nascia, o dosímetro do bracelete subiu do amarelo para o laranja, e o relógio da nave passou a discordar do meu bracelete por alguns segundos. Não era defeito. Era o buraco negro.
 
 — Isso é suicídio! — Genrir gritou, segurando-se na lateral da cabine enquanto a nave chacoalhava.
 
