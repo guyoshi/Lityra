@@ -237,6 +237,7 @@ Liri riu.
 Jokara piscou para ela.
 
 — Vá com cuidado ao atravessar as pontes, pequena dos céus — disse Mirel, enquanto Nestira a acompanhava até a porta.
+
 — O vento sabe o caminho — respondeu Liri, novamente com aquele jeito quase ritual.
 
 A casa voltou a aquecer-se com sons cotidianos. O cheiro da infusão de cerco misturava-se agora ao vapor do mingau de res, e Mirel mexia a panela devagar. Nestira arrumava as louças, e Jokara picava raízes sem prestar atenção no que fazia.
