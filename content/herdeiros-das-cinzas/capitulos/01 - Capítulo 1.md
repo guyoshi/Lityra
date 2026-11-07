@@ -164,7 +164,7 @@ Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, 
 
 — Ninguém quer — disse Kedran.
 
-— Dou assim mesmo. Em quarenta e cinco ciclos nunca vi um irmão mais velho perder uma discussão para o mais novo, desmentir a si mesmo e ainda carregar o cátilo todo o caminho de volta.
+— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com o cátilo no meio, parecendo um quadro. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
 
 Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
