@@ -156,9 +156,9 @@ Kedran olhou ao longo da borda. A crosta nova corria intacta até a margem, sem 
 
 — Explica o bastante para a gente não perder a carne. — Ele se apoiou nos cotovelos e olhou para o irmão. — E não fala disso lá dentro. A tia já está contando farinha.
 
-Sefter não respondeu. Ficou olhando o borrão até ouvir o gancho de Klafres raspar a pedra.
+Sefter não respondeu. Ficou olhando o borrão até ouvir o gancho de Klafres raspar a pedra, do outro lado, e então os dois rastejaram de volta até a margem, onde o gelo aguentava, e se sentaram sobre uma laje com Bera entre eles.
 
-Quando Klafres chegou arrastando a carcaça e viu os dois deitados lado a lado no gelo, parou, com as mãos nos joelhos, e olhou de um para o outro com a cara de quem ia fazer um discurso.
+Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, e quando viu os dois sentados na laje, molhados e com o cátilo no meio, parou com as mãos nos joelhos e olhou de um para o outro com a cara de quem ia fazer um discurso.
 
 — Se alguém quiser a minha opinião — disse.
 
@@ -168,7 +168,7 @@ Quando Klafres chegou arrastando a carcaça e viu os dois deitados lado a lado n
 
 Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
-Voltaram devagar, com o sarnak num trenó de couro que Klafres e Sefter puxavam alternadamente e Kedran de capuz erguido, andando atrás, com Bera nos braços como uma criança de pernas compridas. Quando passaram do alargamento para a mata de pinho-de-resina-clara, Klafres cortou um galho baixo e foi arrastando pelo chão atrás do trenó, apagando o desenho dos patins. Sefter já tinha feito aquilo mais vezes do que podia contar. Ninguém jamais lhe disse a razão, e ele nunca perguntou. Fazia parte do caminho de casa como parte do caminho era a pedra com a marca de fogo, o toco partido, a árvore caída que se atravessava por cima.
+Amarraram o sarnak sobre o couro que Klafres trazia enrolado nas costas, para servir de trenó, e voltaram devagar, com Klafres e Sefter puxando alternadamente e Kedran de capuz erguido, andando atrás, com Bera nos braços como uma criança de pernas compridas. Quando passaram do alargamento para a mata de pinho-de-resina-clara, Klafres cortou um galho baixo e foi arrastando pelo chão atrás do trenó, apagando o desenho dos patins. Sefter já tinha feito aquilo mais vezes do que podia contar. Ninguém jamais lhe disse a razão, e ele nunca perguntou. Fazia parte do caminho de casa como parte do caminho era a pedra com a marca de fogo, o toco partido, a árvore caída que se atravessava por cima.
 
 Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, na corda do trenó, esperou que a distância crescesse.
 
