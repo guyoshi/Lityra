@@ -8,13 +8,25 @@ Em uma das tardes em que a chuva deu trégua, Jokara e Nestira se afastaram sozi
 
 — Às vezes penso que mamãe pode ter saído do mercado antes de tudo cair. Que talvez estivesse em outra passagem quando chegamos lá.
 
-Jokara conhecia aquela esperança. Também já imaginara Mirel deixando uma banca alguns instantes antes, tomando uma rua diferente, sendo empurrada pela multidão para longe da borda. Eram possibilidades pequenas, mas eram tudo o que tinham. — Eu penso nisso também. A gente viu o mercado cair, mas não viu mamãe.
+Jokara conhecia aquela esperança. Também já imaginara Mirel deixando uma banca alguns instantes antes, tomando uma rua diferente, sendo empurrada pela multidão para longe da borda. Eram possibilidades pequenas, mas eram tudo o que tinham.
 
-Nestira limpou a lama da raiz com os dedos, demorando mais do que precisava. — Se ela saiu, deve ter procurado por nós. — Deve ter tentado — respondeu Jokara. Jokara baixou os olhos para a raiz nas mãos de Nestira.
+— Eu penso nisso também. A gente viu o mercado cair, mas não viu mamãe.
 
-Continuaram andando entre as árvores. Alguns passos depois, Nestira apertou a raiz contra o peito. — Com Efepar não dá para imaginar uma passagem diferente. Eu ainda vejo ele correndo com os pais. Vejo os dois levantando os braços.
+Nestira limpou a lama da raiz com os dedos, demorando mais do que precisava.
 
-A imagem voltou inteira para Jokara: Efepar vindo na direção delas, sua própria mão começando a se erguer antes do estrondo, as pedras despencando sobre os três enquanto Nestira permanecia ao lado dela. — Eu nem consegui chamar o nome dele.
+— Se ela saiu, deve ter procurado por nós.
+
+— Deve ter tentado — respondeu Jokara.
+
+Jokara baixou os olhos para a raiz nas mãos de Nestira.
+
+Continuaram andando entre as árvores. Alguns passos depois, Nestira apertou a raiz contra o peito.
+
+— Com Efepar não dá para imaginar uma passagem diferente. Eu ainda vejo ele correndo com os pais. Vejo os dois levantando os braços.
+
+A imagem voltou inteira para Jokara: Efepar vindo na direção delas, sua própria mão começando a se erguer antes do estrondo, as pedras despencando sobre os três enquanto Nestira permanecia ao lado dela.
+
+— Eu nem consegui chamar o nome dele.
 
 Por um tempo, nenhuma das duas encontrou o que dizer. Havia algo cruel em não saber o que acontecera com a mãe e algo igualmente cruel em saber exatamente o que acontecera com Efepar. Quando voltaram a procurar raízes, caminharam mais perto uma da outra do que antes.
 
