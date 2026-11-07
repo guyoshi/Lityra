@@ -132,7 +132,7 @@ Kedran enfiou as mãos debaixo dos braços, devagar, como quem não quer que se 
 
 — Estão aí.
 
-Sefter virou a cabeça e ficou com a bochecha encostada no gelo. Ali, onde a laje partida deixara uma borda limpa, a camada de cima era cinza e leitosa, mas a de baixo era transparente como vidro de lamparina, e debaixo dela, a pouco mais de um palmo do rosto dele, havia uma forma. Ele a tomou por pedra. Depois contou cinco marcas compridas, juntas como dedos, e a curva de um calcanhar. Um pé descalço, maior que o dele, preso no gelo velho com cada ruga da sola desenhada.
+Sefter virou a cabeça e ficou com a bochecha encostada no gelo. Ali, onde a laje partida deixara uma borda limpa, a camada de cima era cinza e leitosa, mas a de baixo era transparente como vidro de lamparina, e debaixo dela, a pouco mais de um palmo do rosto dele, havia uma forma. Ele a tomou por pedra. Depois contou cinco marcas compridas, juntas como dedos, e a curva de um calcanhar. Um pé descalço, maior que o dele, preso no gelo claro com cada ruga da sola desenhada.
 
 — Kedran.
 
@@ -140,7 +140,7 @@ Sefter virou a cabeça e ficou com a bochecha encostada no gelo. Ali, onde a laj
 
 — Isso é um pé.
 
-— É uma pegada. Gelo guarda coisa. — Kedran passou a luva sobre o vidro, e o que estava nítido virou um borrão de neve. — Alguém passou aqui há muitos invernos, antes de o riacho congelar por cima.
+— É uma pegada. Gelo guarda coisa. — Kedran passou a luva sobre o vidro, e o que estava nítido virou um borrão de neve. — Alguém passou aqui há semanas, quando o gelo ainda era fino, antes de a camada de cima fechar.
 
 — Sem bota.
 
@@ -316,7 +316,7 @@ Nefestra não parou o gancho.
 
 — De ninguém daqui.
 
-— O Kedran disse que era antiga.
+— O Kedran disse que foi há semanas.
 
 — O Kedran disse o que deixaria minha mãe quieta.
 
