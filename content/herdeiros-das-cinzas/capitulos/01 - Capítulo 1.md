@@ -172,25 +172,17 @@ Amarraram o sarnak sobre o couro que Klafres trazia enrolado nas costas, para se
 
 Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, na corda do trenó, esperou que a distância crescesse.
 
-— Quando eu tiver a minha casa, não vou caçar com você — disse Kedran, de trás, sem soltar a Bera.
+— Quando eu tiver a minha casa, você vai ter que aprender a pensar antes de se jogar no gelo — disse Kedran, de trás, sem soltar a Bera. A voz ainda estava rouca. — Porque eu não vou estar por perto.
 
-— Vai, sim. No primeiro dia você já sentiria minha falta.
+Sefter puxou o trenó por alguns passos antes de responder.
 
-— Sentiria falta de voltar antes de escurecer.
+— Você nunca falou de casa nenhuma.
 
-— No segundo dia você faria um buraco na parede para ver se eu estava em casa.
+— Todo mundo acaba tendo uma.
 
-— Eu faria a parede do lado contrário da sua.
+— Então eu bato na sua porta todo dia até você abrir. — Sefter riu, mas a corda tinha apertado a mão sem ele perceber, e só então os dedos doeram. — Só para você saber.
 
-— Então eu daria a volta. — Sefter puxou a corda sem olhar para trás, porque a ideia de Kedran com uma casa e uma parede no meio lhe pesava mais do que ele queria que o irmão soubesse. — E a Bera abriria um buraco por baixo.
-
-A cátila levantou a cabeça no colo de Kedran ao ouvir o próprio nome, e Kedran empurrou o focinho dela de volta contra o casaco.
-
-— A Bera fica comigo. E a Litara fica onde tiver colo, que é onde ela sempre ficou.
-
-— Então fica com os dois — disse Sefter, e puxou o trenó com mais gosto do que o peso pedia.
-
-— Estou ouvindo vocês construírem mais casa do que eu construí em quarenta e cinco ciclos — gritou Klafres, lá de trás, sem largar o galho.
+Kedran não disse nada. Ajeitou Bera no braço esquerdo e pousou a mão direita, pesada e ainda úmida, no ombro do irmão, e a deixou ali até o fim da mata de pinho.
 
 — Se tivesse alguém lá em cima, na encosta — disse Kedran, depois de muito tempo —, a Bera ainda estaria rosnando.
 
