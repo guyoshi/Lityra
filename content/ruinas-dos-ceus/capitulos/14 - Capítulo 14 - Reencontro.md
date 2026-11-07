@@ -79,7 +79,9 @@ Mariv hesitou, mas não desviou o olhar.
 
 — Não tenho resposta pra isso. Só sei que, se ainda respiramos, há algo a aprender com a dor.
 
-— Aprender? Você fala como se fosse um orador escondido atrás de frases bonitas! Falou mais alto do que queria.
+— Aprender? Você fala como se fosse um orador escondido atrás de frases bonitas!
+
+Falou mais alto do que queria.
 
 Mariv parou, firme, mas não revidou.
 
