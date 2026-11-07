@@ -204,9 +204,9 @@ Mentesra foi a primeira a aparecer. Alta, magra, o lenço cobrindo parte das tra
 
 — A Bera — disse Kedran. — O Sefter tirou.
 
-— Entra com ela. Perto do fogo, mas não em cima.
+— Entra com ela. Perto do fogo, mas não em cima, que se esquentar depressa demais ela não aguenta. — Os olhos dela voltaram às mangas de Sefter, e a boca se apertou. — E o seu irmão que tire essa roupa antes que congele nele.
 
-Ela passou a panela e um pano seco a Kedran e disse a ele que enxugasse o irmão. Depois voltou para dentro. Sefter reparou nisso como reparava sempre, sem comentar. A mão de Kedran, quando ele pegou o pano, ficou um instante parada no ar, e Kedran o jogou no peito de Sefter com uma expressão que dizia exatamente o que a tia tinha evitado dizer.
+Ela passou a panela e um pano seco a Kedran. Depois voltou para dentro. Sefter reparou nisso como reparava sempre, sem comentar. A mão de Kedran, quando ele pegou o pano, ficou um instante parada no ar, e Kedran o jogou no peito de Sefter com uma expressão que dizia exatamente o que a tia tinha evitado dizer.
 
 Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para o cátilo, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
 
