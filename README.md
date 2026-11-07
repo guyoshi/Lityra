@@ -1,36 +1,28 @@
 # Lityra
 
-App leve (PWA — instala no celular direto do navegador, sem loja de apps)
-pra ler e ouvir TODOS os seus livros, não só um ciclo/série específica —
-cada livro é uma entrada independente na biblioteca do app. Lê texto e
-toca o áudio do capítulo inteiro, funciona com a tela desligada, guarda de
-onde você parou, tem modo foco de leitura e um botão opcional de música de
-fundo.
+**Biblioteca digital e plataforma de leitura do universo Dimensões Infinitas.**
 
-No momento "Ruínas dos Céus" (Ciclo de Jesed, Livro 1) e "Guerras de Sangue" (Livro 2) estão carregados. A estrutura já suporta qualquer quantidade de livros e séries — basta seguir "Adicionando mais livros depois", abaixo.
+O **Lityra não é um editor de livros**. É o espaço onde os leitores podem descobrir, ler e ouvir os livros de Guilherme S. L. Anjos. A edição do manuscrito, as revisões autorais e o preparo dos conteúdos continuam separados, no repositório canônico `guyoshi/dimensoesinfinitas`, através do **Editor de Livros**.
 
-## Como colocar isso no ar (uma vez só)
+## O que a plataforma já oferece
 
-1. **Crie um repositório novo no GitHub** (github.com → "New repository").
-   Pode ser público. Nome sugerido: `jesed-leitor` (qualquer nome serve).
-   Não marque "Add a README" — vamos subir os arquivos já prontos.
+- Aplicação web instalável (PWA), com biblioteca de obras independentes de diferentes séries;
+- Leitura por capítulos, retomada do ponto de leitura e modo de foco;
+- Reprodução de áudios publicados e, quando disponível, leitura sintética pelo navegador;
+- Música de fundo opcional e painel administrativo para atualização do conteúdo publicado.
 
-2. **Suba esta pasta inteira** (`App Mobile/`) pro repositório. Duas formas:
-   - **Sem instalar nada**: na página do repositório no GitHub, clique em
-     "uploading an existing file" e arraste todo o conteúdo desta pasta
-     (mantendo a estrutura de subpastas: `assets/`, `data/`, `content/`,
-     `icons/`, mais os arquivos soltos `index.html`, `manifest.webmanifest`).
-   - **Com Git instalado**: `git init`, `git add .`, `git commit -m "app"`,
-     depois `git remote add origin <url do repo>` e `git push -u origin main`.
+No momento, o catálogo documentado inclui **Ruínas dos Céus** e **Guerras de Sangue**, do **Ciclo de Jesed**. Cada novo livro pode ser adicionado à mesma biblioteca.
 
-3. **Ative o GitHub Pages**: no repositório, vá em
-   Settings → Pages → Build and deployment → Source: "Deploy from a branch"
-   → Branch: `main` / pasta `/ (root)` → Save. Em 1-2 minutos o site fica no
-   ar em algo como `https://SEU-USUARIO.github.io/NOME-DO-REPO/`.
+## Visão de futuro (funcionalidades planeadas, não necessariamente disponíveis)
 
-4. **No celular**, abra esse endereço no Chrome e use "Adicionar à tela
-   inicial" (ou "Instalar app", se o Chrome oferecer) — vira um app normal,
-   com ícone próprio, sem barra do navegador.
+A evolução prevista é a de uma **plataforma para leitores e uma futura operação comercial**: leitura e participação de leitores beta, acompanhamento e retorno estruturado de leitura, experiências de áudio e narração ampliadas, além de possíveis funcionalidades de acesso e serviços pagos. Estas são direções de produto, **não compromissos de que os recursos já estejam implementados ou comercializados**.
+
+## Repositório, publicação e fonte canônica
+
+- **Aplicação de leitura:** [`guyoshi/Lityra`](https://github.com/guyoshi/Lityra).
+- **Manuscritos originais e Editor de Livros:** `guyoshi/dimensoesinfinitas` (fonte canônica).
+- **Publicação dos capítulos:** workflow de sincronização descrito mais abaixo. O painel ADM do Lityra atualiza a cópia publicada, mas não substitui a edição do manuscrito no repositório de origem.
+- **Instalação no dispositivo:** quando hospedado, o endereço do Lityra pode ser aberto no navegador e adicionado à tela inicial como PWA. Se for usado GitHub Pages, a publicação é configurada em **Settings → Pages** da branch apropriada.
 
 ## Onde colocar o conteúdo de cada livro
 
