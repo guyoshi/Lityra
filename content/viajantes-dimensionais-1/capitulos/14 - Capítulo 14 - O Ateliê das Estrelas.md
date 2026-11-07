@@ -251,6 +251,70 @@ Kali fez a contagem mais uma vez, com toda a solenidade de quem anuncia um resul
 
 Átila lhe lambeu a mão, indiferente à acusação. Beatriz aproveitou a distração para esconder uma peça do jogo na manga, mas Kali anunciou imediatamente a localização exata dela. A gargalhada de Breno fez Bruno desistir, por aquela noite, de pedir outra partida.
 
+Antes do almoço, Beatriz subiu a escada correndo e voltou ao jardim com a bola amarela debaixo do braço. A bola dormia no travesseiro dela desde a primeira noite em Belfex e já tinha amassados de duas dimensões.
+
+— Queimada! E hoje pode usar poder.
+
+— Pode? — Bruno ergueu a cabeça. — Quem disse?
+
+— Eu. Meu aniversário é amanhã, então hoje eu escolho.
+
+— Não é assim que funciona.
+
+— É assim aqui. — Beatriz apontou para a flor luminosa que se curvava na beira do canteiro. — Ela concordou. Eu vi.
+
+— Ela só tá olhando — disse Banjo.
+
+— Olhando concordando.
+
+Breno suspirou, mas já tinha deixado a xícara no degrau.
+
+— Nada de quebrar a casa. E ninguém acerta o rosto de ninguém.
+
+Bruno foi o primeiro a se arrepender de ter perguntado. Beatriz mandou a bola com tanta força que ela passou raspando na orelha dele e sumiu no meio das plantinhas saltitantes, que a devolveram aos pulos, direto para Banjo. Ele ergueu a mão sem pensar, e a bola parou no ar, a um palmo do nariz dele, girando devagar.
+
+— Eu não tava tentando! — avisou, de olhos arregalados. — Ela só parou!
+
+— Então solta! — gritou Bruno.
+
+Banjo soltou. Bruno pegou a bola, e ela voltou coberta de geada, dura como pedra, e acertou a barriga de Banjo com um toc.
+
+— Ai! Isso é trapaça!
+
+— É poder. A Beatriz que disse.
+
+Breno estava de lado, soprando o chá. Bruno mirou nas costas dele e arremessou. A bola atravessou o peito de Breno como se ele fosse fumaça e foi parar no gramado.
+
+— Você devia mirar melhor — disse Breno, sem se virar.
+
+Beatriz apanhou a bola, apertou entre as mãos e sorriu de um jeito que fez Banjo dar um passo para trás.
+
+— Bia. Não esquenta muito.
+
+— Só um pouquinho.
+
+Ela lançou. A bola chegou ao chão com um chiado comprido e soltou um fiapo de fumaça. Quando Beatriz a levantou, tinha um furo preto do tamanho de uma moeda e cheiro de pão queimado. Foi murchando nas mãos dela, devagar, como um suspiro.
+
+Ninguém falou. Beatriz olhou para a bola, depois para os irmãos, e o queixo começou a tremer.
+
+— Eu estraguei.
+
+— Foi só um furinho — disse Banjo, chegando primeiro. — Ela já tava murcha desde o parque.
+
+— Murcha não é furada.
+
+— Furada é murcha com personalidade — disse Bruno, e arrancou dela uma risadinha ainda molhada.
+
+Breno se agachou e pegou a bola com cuidado, como quem pega um passarinho.
+
+— Ninguém tá bravo, Bia.
+
+— Deixa eu ver isso. — Velho-Sábio tinha aparecido na porta da cozinha, com Átila colado nas pernas. Examinou o furo de perto, tirou do ar um fio de luz dourada, passou um ponto, outro, e a bola foi se enchendo até ficar redonda, com uma costura brilhante no meio da marca preta. — Pronto. Essa aguenta mais uma dimensão.
+
+— Ficou mais bonita — disse Beatriz, baixinho.
+
+Átila aproveitou o silêncio, abocanhou a bola e saiu em disparada pelo jardim, com Banjo gritando atrás dele e as plantinhas pulando para fora do caminho.
+
 — Que tal darmos uma volta pela cidade hoje à tarde? — propôs Velho-Sábio, com um sorriso misterioso. — Precisamos comprar vestes para o festival.
 
 — Vamos de túbulas? — Banjo quase subiu na mesa.

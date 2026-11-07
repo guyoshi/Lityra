@@ -320,7 +320,7 @@ Bruno soltou uma risada.
 
 — Ainda não descobri. Ele nunca me responde quando pergunto.
 
-Átila entrou atrás deles, farejou os pés das camas e se deitou junto à porta. Beatriz se sentou num dos colchões e apertou o travesseiro contra o peito. Depois de tudo o que tinham visto naquele dia, estava começando a acreditar que poderiam descansar ali.
+Átila entrou atrás deles, farejou os pés das camas e se deitou junto à porta. Beatriz se sentou num dos colchões e apertou o travesseiro contra o peito. Em seguida tirou da mochila a bola amarela do parque e a deixou ao lado, como quem marca território. Depois de tudo o que tinham visto naquele dia, estava começando a acreditar que poderiam descansar ali.
 
 Breno colocou o rádio do pai na mesinha ao lado da cama. Velho-Sábio acompanhou o movimento com os olhos, encostou o cajado na parede e puxou uma cadeira.
 

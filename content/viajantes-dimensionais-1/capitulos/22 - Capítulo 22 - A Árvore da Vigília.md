@@ -518,6 +518,68 @@ Pelo menos naquela noite estavam juntos, e isso bastava.
 
 Na manhã seguinte, o sol atravessou as janelas e pintou a casa de dourado. Átila dormia perto da porta, com um olho aberto e a alça da mochila de Banjo entre os dentes, e os irmãos dobravam as roupas em silêncio, com o som baixinho do tecido e dos passos no assoalho.
 
+Beatriz abriu a mochila para enfiar o último casaco e parou. No fundo, entre as meias, estava a bola amarela, com a costura dourada no meio da marca preta do chamuscado.
+
+— Eu deixei no travesseiro — disse, devagar. — No dia do festival. Eu deixei, Breno.
+
+— Então alguém guardou.
+
+Átila levantou a cabeça, largou a alça da mochila de Banjo e deitou de novo, como quem avisa que não foi ele.
+
+Beatriz apertou a bola contra o peito. Ainda cheirava um pouco a pão queimado.
+
+— O arco só abre depois das nove — falou Bruno, sem olhar para ninguém. — O Velho-Sábio disse.
+
+— Então dá tempo.
+
+— De quê? — perguntou Banjo.
+
+— De uma queimada.
+
+Breno olhou para a bola, para a janela, para o relógio de estrelas que cantava baixinho no teto. Os quatro ficaram em silêncio.
+
+— Só uma — disse ele.
+
+— Sem poder nenhum — disse Bruno. — Só a gente.
+
+Beatriz arregalou os olhos. Era exatamente o que ia dizer.
+
+No jardim, as plantinhas saltitantes se afastaram para abrir espaço. Beatriz e Banjo ficaram de um lado, Breno e Bruno do outro.
+
+— Regra do papai — disse Beatriz, e ninguém a contestou. — Ninguém sai do jogo. Quem queima vira torcida.
+
+— E volta quando o time pega no ar — completou Banjo.
+
+Bruno olhou para os quatro B quase apagados na borracha e não disse nada. Foi para o lado dele da quadra sem reclamar.
+
+— Eu e o Banjo contra os velhos!
+
+— Velho é o Velho-Sábio — protestou Bruno.
+
+— Então o Velho-Sábio também joga!
+
+— Eu fico aqui, obrigado — respondeu a voz dele, da porta, com a xícara de chá numa mão e Átila sentado em cima do pé.
+
+Ninguém combinou, mas as mãos de Bruno ficaram só mãos. A bola chegava seca e quente, do jeito que a borracha chega, sem geada, sem fumaça, sem parar no ar. Bruno acertou Banjo na perna e levou uma bolada de volta no ombro. Breno, que nunca corria atrás de nada, correu atrás de Beatriz pelo jardim inteiro, dando a volta na árvore de frutos azuis, e quando enfim a queimou caiu de costas no gramado de tanto rir. Era uma gargalhada que os irmãos quase nunca ouviam, alta e sem freio.
+
+Na tela flutuante da sala, Kali anunciava o placar com a solenidade de quem anuncia um resultado histórico.
+
+— Três a três.
+
+— Exijo auditoria! — gritou Bruno.
+
+— Empate, Bruno. Contei duas vezes.
+
+— Traidora!
+
+O último arremesso foi de Beatriz. A bola subiu torta, voltou torta, e Banjo a segurou com as duas mãos contra a barriga, tropeçou na própria perna e caiu sentado, de olhos fechados, rindo. Beatriz se jogou em cima dele. Bruno se jogou em cima dos dois, resmungando. Breno ainda tentou ficar de fora e não conseguiu.
+
+— Mais uma — pediu Beatriz, de baixo da pilha.
+
+Na porta, Velho-Sábio tomou o último gole de chá e olhou para os quatro um instante a mais do que o necessário.
+
+— Mais uma — disse. — Depois a gente vai.
+
 Velho-Sábio os levou à Central de Teletransporte Dimensional, o salão que parecia desafiar o chão e o teto. Pontes flutuantes cruzavam o ar, criaturas de asa passavam pelo alto, e os portais prateados pulsavam em arcos esculpidos, como espelhos de água em pé. Tudo era tão vivo e tão bonito que Beatriz pensou que ia chorar só de olhar. Partir dali era como acordar no meio do melhor sonho e perceber que o despertador era de verdade.
 
 Diante de um dos arcos, onde o prateado ondulava devagar como um lago ao vento, Velho-Sábio parou.

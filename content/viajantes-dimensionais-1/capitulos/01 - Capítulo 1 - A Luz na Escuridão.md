@@ -158,6 +158,12 @@ A mulher arrumou o cabelo do filho e acariciou sua nuca.
 
 — Mãe... a gente pode ir po paique logo? — perguntou o pequeno Bruno, saltando para ver por cima do muro.
 
+Na barraca de latinhas, Jack errou duas vezes de propósito, só para ouvir Bruno gritar "de novo!", e na terceira derrubou a pilha inteira. O prêmio era uma bola amarela de borracha. Tirou uma caneta do bolso do casaco e escreveu nela, em letras grandes: BBBB.
+
+— Que é isso, pai? — perguntou Bruno.
+
+— Breno, Bruno, Banjo e Beatriz. A bola é dos quatro. — Entregou-a ao mais velho. — E na minha queimada ninguém sai do jogo. Quem queima vira torcida e volta quando o time pega a bola no ar.
+
 As lembranças vinham o tempo todo à cabeça de Breno. Essa era a mais antiga que ele tinha dos pais. Não sabia se era real ou sonho, mas se lembrava da mãe dizendo exatamente aquilo.
 
 No dia seguinte, Frank os levou até a escola às sete da manhã. Breno esperou sentado sozinho nas escadas, até que seu melhor amigo, Leonardo, chegou e parou ao lado da mochila que ele trouxera com lanches para o passeio.
@@ -177,6 +183,26 @@ O ônibus desceu a serra por quase vinte minutos, entrou numa rua apertada, sem 
 — Atenção, todo mundo — falou o professor Adalberto. — Não entrem na mata, nem saiam da zona do parque. Fiquem perto. Às 11 horas voltem ao ônibus para apanhar os lanches, e às 18 horas estejam aqui para voltarmos à escola.
 
 Bruno colocou o fone de ouvido e se afastou dos irmãos, enquanto Breno, Banjo e Beatriz seguiram para a entrada do parque. Havia parquinho, quadra de tênis, quadra de futebol, uma área de exercícios e muitas estradinhas onde os jovens podiam correr e brincar.
+
+Beatriz tirou da mochila uma bola amarela de borracha, meio murcha, com quatro B de caneta quase apagados, e a ergueu como um troféu.
+
+— Queimada! Eu e o Banjo contra a árvore.
+
+— A árvore não joga, Bia — disse Banjo.
+
+— Joga sim. Se a bola bater nela, ela queimou.
+
+— Então ela nunca perde.
+
+— Por isso mesmo.
+
+Breno cruzou os braços.
+
+— Eu tô de olho em vocês. Não tô jogando.
+
+— Divirtam-se, crianças — falou Bruno, ainda a poucos passos, com o fone pendurado numa orelha só.
+
+— A gente é criança mesmo! — respondeu Banjo, e chutou a bola, que quicou torta e acertou o tronco. — Ponto da árvore!
 
 Breno passou o tempo todo cuidando dos mais novos. Mesmo assim, não pôde deixar de reparar que uma garota da sala de Bruno não parava de olhar para ele desde que tinham chegado. Cada vez que ela passava na estradinha, sorria. O coração dele já estava acelerado, e só de pensar em ir até ela ficava nervoso. Mas tinha os irmãos para vigiar. Ou talvez, se fosse rápido.
 
