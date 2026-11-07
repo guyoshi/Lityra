@@ -178,11 +178,11 @@ Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, n
 
 — Ia sentir falta de voltar antes de escurecer.
 
-— No segundo dia você fazia um buraco na parede para ver se eu estava em casa.
+— No segundo dia você faria um buraco na parede para ver se eu estava em casa.
 
-— Eu fazia a parede do lado contrário da sua.
+— Eu faria a parede do lado contrário da sua.
 
-— Então eu dava a volta. — Sefter puxou a corda sem olhar para trás, porque a ideia de Kedran com uma casa e uma parede no meio lhe pesava mais do que ele queria que o irmão soubesse. — E a Bera abre um buraco por baixo.
+— Então eu daria a volta. — Sefter puxou a corda sem olhar para trás, porque a ideia de Kedran com uma casa e uma parede no meio lhe pesava mais do que ele queria que o irmão soubesse. — E a Bera abriria um buraco por baixo.
 
 A cátila levantou a cabeça no colo de Kedran ao ouvir o próprio nome, e Kedran empurrou o focinho dela de volta contra o casaco.
 
