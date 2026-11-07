@@ -100,15 +100,23 @@ Kedran tirou o casaco pesado de pele de sarnak, enrolou nele o cátilo com mais 
 
 Sefter mexeu os dedos. Eles responderam devagar, desajeitados, de longe. Do outro lado do alargamento, Klafres tinha conseguido prender o gancho na pelagem do sarnak e, com a ajuda de uma pedra como alavanca e de uma lista de insultos que incluía todos os antepassados do animal, arrastava o corpo para fora da água, centímetro a centímetro.
 
-— Eu mandei — disse Kedran, sem olhar para ele.
+— Eu mandei esperar — disse Kedran, sem olhar para ele. A voz saía rouca, mais de susto do que de raiva.
 
-— Mandou. E depois veio.
+— Você disse que não ia me tirar.
 
-— Vim porque você não ia conseguir puxar sozinho.
+— Disse. E você abriu os braços direitinho, do jeito que eu ensinei, e eu fiquei ali pensando que tinha ensinado demais.
 
-— Eu sei.
+— Ela estava afundando, Ked.
 
-— Se você tivesse ido sozinho, eu teria deixado a Bera.
+— Eu vi, eu estava do lado. — Kedran tossiu e cuspiu água. — Quando você entra, quem vai atrás sou eu. Você nunca faz essa conta.
+
+— Fiz. Achei que você vinha.
+
+— É isso que me irrita.
+
+Sefter quis rir e saiu só um tremor. Apertou Bera contra a barriga e esfregou o pelo duro do flanco, devagar, como o irmão tinha mandado.
+
+— Se você não tivesse entrado, eu teria deixado a Bera. Sei que teria.
 
 Sefter olhou para ele. O irmão olhava para o céu, onde a lua menor tinha finalmente sumido no cinza.
 
