@@ -300,6 +300,7 @@ body{
 .chapter-audio-dot{
   width:8px; height:8px; border-radius:50%; background:var(--accent); flex:0 0 auto;
 }
+.chapter-audio-dot.fish{ background:#2fb35a; }
 
 /* ---------- leitura ---------- */
 .reader-topbar{ position:relative; padding-bottom:8px; }

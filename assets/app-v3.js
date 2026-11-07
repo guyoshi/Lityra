@@ -384,13 +384,22 @@ function checkIconSvg(){
 async function checkAudioAvailability(){
   const book = state.currentBook;
   if(!book) return;
+  // Capítulos com a narração nova (Fish Audio) ganham o pontinho verde.
+  let fishList = [];
+  try{
+    const r = await fetch(resolve("data/narracao-fish.json"), {cache:"no-cache"});
+    if(r.ok){ const j = await r.json(); fishList = j[book.id] || []; }
+  }catch(e){ /* sem lista: pontinhos normais */ }
   book.chapters.forEach(async (c, i) => {
     if(!c.audio) return;
     try{
       const res = await fetch(resolve(c.audio), {method:"HEAD", cache:"no-cache"});
       if(res.ok){
         const dot = document.querySelector(`.chapter-audio-dot[data-idx="${i}"]`);
-        if(dot) dot.hidden = false;
+        if(dot){
+          dot.hidden = false;
+          if(fishList.includes(c.n)){ dot.classList.add("fish"); dot.title = "Narração nova (Fish Audio)"; }
+        }
       }
     }catch(e){ /* ainda não subiu — tudo bem */ }
   });
