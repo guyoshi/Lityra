@@ -46,7 +46,7 @@ Bera parou de rosnar no meio da frase, sem diminuir aos poucos, como uma porta q
 
 Desceram por um pinhal ralo onde cada galho carregava uma almofada de neve, e a cada passo uma delas se soltava com uma pancada surda, de modo que a mata parecia se desmanchar aos poucos ao redor deles. O sol não aparecia. Havia só uma claridade leitosa que vinha de todo lado e apagava as sombras, e tudo ficava da mesma cor, o tronco, a pedra, a manga do irmão, de maneira que a única forma de medir a distância era pelo som da água, que crescia à frente, correndo escondida debaixo de uma pele fina de gelo.
 
-A curva de baixo era um alargamento do riacho onde a água, correndo mais devagar, tinha criado uma planície de gelo cinzento, rodeada de rochas e de arbustos de baga-do-inverno com os frutos escuros ainda presos nos galhos. O sarnak estava na margem oposta, imóvel, a pelagem grossa quase da cor das pedras molhadas, o grande corpo virado de lado para o vento. Kedran apontou o desenho do terreno com dois dedos. Sefter entendeu antes de ele dizer: o vento vinha de lá, portanto o bicho não ia sentir quem estivesse do lado de cá da curva, e quem ficasse na saída do alargamento seria o único a ter o riacho inteiro à frente.
+A curva de baixo era um alargamento do riacho onde a água, correndo mais devagar, tinha criado uma planície de gelo cinzento, rodeada de rochas e de arbustos de baga-do-inverno com os frutos escuros ainda presos nos galhos. O sarnak estava na margem oposta, imóvel, a pelagem grossa quase da cor das pedras molhadas, o grande corpo virado de lado para o vento. Kedran apontou o desenho do terreno com dois dedos. Sefter entendeu antes de ele dizer: o vento vinha de lá, portanto o bicho não sentiria quem estivesse do lado de cá da curva, e quem ficasse na saída do alargamento seria o único a ter o riacho inteiro à frente.
 
 — Você — disse Kedran.
 
@@ -110,7 +110,7 @@ Sefter mexeu os dedos. Eles responderam devagar, desajeitados, de longe. Do outr
 
 — Eu vi, eu estava do lado. — Kedran tossiu e cuspiu água. — Quando você entra, quem vai atrás sou eu. Você nunca faz essa conta.
 
-— Fiz. Achei que você vinha.
+— Fiz. Achei que você viria.
 
 — É isso que me irrita.
 
@@ -174,9 +174,9 @@ Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, n
 
 — Quando eu tiver a minha casa, não vou caçar com você — disse Kedran, de trás, sem soltar a Bera.
 
-— Vai, sim. No primeiro dia você já ia sentir minha falta.
+— Vai, sim. No primeiro dia você já sentiria minha falta.
 
-— Ia sentir falta de voltar antes de escurecer.
+— Sentiria falta de voltar antes de escurecer.
 
 — No segundo dia você faria um buraco na parede para ver se eu estava em casa.
 
@@ -192,7 +192,7 @@ A cátila levantou a cabeça no colo de Kedran ao ouvir o próprio nome, e Kedra
 
 — Estou ouvindo vocês construírem mais casa do que eu construí em quarenta e cinco ciclos — gritou Klafres, lá de trás, sem largar o galho.
 
-— Se tivesse alguém lá em cima, na encosta — disse Kedran, depois de muito tempo —, a Bera ainda estava rosnando.
+— Se tivesse alguém lá em cima, na encosta — disse Kedran, depois de muito tempo —, a Bera ainda estaria rosnando.
 
 — A Bera ainda está tremendo — disse Klafres. — Não dá para tirar muita conclusão.
 
@@ -268,7 +268,7 @@ A tábua de esfolar tinha dois ganchos de osso presos em cima que Klafres tinha 
 
 — Você me viu levantar, não me viu cair.
 
-— Quando você levantou, já estava na cintura. No joelho não ia estar.
+— Quando você levantou, já estava na cintura. No joelho não estaria.
 
 — Você inventou isso.
 
@@ -280,9 +280,9 @@ Atrás deles, do fogo, a voz de Klafres alcançou a conversa sem esforço.
 
 — Gritei porque a água estava fria!
 
-— Gritou uma coisa que a Mentesra ia querer que eu não repetisse.
+— Gritou uma coisa que a Mentesra não gostaria que eu repetisse.
 
-— O pai ia querer que ele não repetisse — disse Kedran, sem levantar os olhos do que fazia, e Sefter jogou nele um pedaço de gordura que passou longe.
+— O pai também não gostaria que ele repetisse — disse Kedran, sem levantar os olhos do que fazia, e Sefter jogou nele um pedaço de gordura que passou longe.
 
 — Essa pele paga o sal até o fim do inverno — disse Klafres, olhando o couro como quem confere moeda. — Se o homem do sal não decidir que sarnak velho vale menos que sarnak novo.
 
@@ -318,7 +318,7 @@ Nefestra não parou o gancho.
 
 — O Kedran disse que era antiga.
 
-— O Kedran disse o que ia deixar minha mãe quieta.
+— O Kedran disse o que deixaria minha mãe quieta.
 
 — Ele mandou eu não falar disso lá dentro.
 
