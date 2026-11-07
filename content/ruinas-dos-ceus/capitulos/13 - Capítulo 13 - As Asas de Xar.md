@@ -130,7 +130,9 @@ Abriu os olhos. A voz continuava. Não estava na cabeça dela: vinha de algum lu
 
 Loutes já avançava na água para alcançá-la, mas ela ergueu a mão.
 
-— Fica quieto. O menino parou e voltou para a margem.
+— Fica quieto.
+
+O menino parou e voltou para a margem.
 
 Ela também saiu, tremendo. A canção continuava.
 
