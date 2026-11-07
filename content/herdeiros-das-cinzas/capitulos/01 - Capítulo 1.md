@@ -116,17 +116,21 @@ Sefter mexeu os dedos. Eles responderam devagar, desajeitados, de longe. Do outr
 
 Sefter quis rir e saiu só um tremor. Apertou Bera contra a barriga e esfregou o pelo duro do flanco, devagar, como o irmão tinha mandado.
 
-— Se você não tivesse entrado, eu teria deixado a Bera. Sei que teria.
+— Se você não tivesse entrado, eu teria deixado a Bera. Fiz a conta antes de você se mexer. O sarnak alimenta oito até o degelo, e ela é um cátilo.
 
-Sefter olhou para ele. O irmão olhava para o céu, onde a lua menor tinha finalmente sumido no cinza.
+Sefter olhou para ele. O irmão olhava para o céu, onde a lua menor tinha finalmente sumido no cinza. Depois olhou para o casaco de pele de sarnak, o melhor que a família tinha, que Kedran tirara sem pensar e que agora estava encharcado em volta do bicho que ele dizia ter deixado.
 
-— Não teria.
+— Você nunca me deixou pegar esse casaco.
 
-— Teria.
+— Você estraga tudo que pega.
 
-— Você vem sempre. Só reclama primeiro.
+Sefter sentiu o coração de Bera, rápido e miúdo, batendo contra a barriga.
 
-Kedran passou a mão pelo rosto molhado e não disse nada.
+— E os seus dedos? Você mandou eu falar.
+
+Kedran enfiou as mãos debaixo dos braços, devagar, como quem não quer que se note.
+
+— Estão aí.
 
 Sefter virou a cabeça e ficou com a bochecha encostada no gelo. Ali, onde a laje partida deixara uma borda limpa, a camada de cima era cinza e leitosa, mas a de baixo era transparente como vidro de lamparina, e debaixo dela, a pouco mais de um palmo do rosto dele, havia uma forma. Ele a tomou por pedra. Depois contou cinco marcas compridas, juntas como dedos, e a curva de um calcanhar. Um pé descalço, maior que o dele, preso no gelo velho com cada ruga da sola desenhada.
 
@@ -162,11 +166,7 @@ Quando Klafres chegou arrastando a carcaça e viu os dois deitados lado a lado n
 
 — Dou assim mesmo. Em quarenta e cinco ciclos nunca vi um irmão mais velho perder uma discussão para o mais novo, desmentir a si mesmo e ainda carregar o cátilo todo o caminho de volta.
 
-— Eu não vou carregar o cátilo.
-
-— Vai, sim. Eu estou carregando o jantar.
-
-Kedran carregou o cátilo.
+Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
 Voltaram devagar, com o sarnak num trenó de couro que Klafres e Sefter puxavam alternadamente e Kedran de capuz erguido, andando atrás, com Bera nos braços como uma criança de pernas compridas. Quando passaram do alargamento para a mata de pinho-de-resina-clara, Klafres cortou um galho baixo e foi arrastando pelo chão atrás do trenó, apagando o desenho dos patins. Sefter já tinha feito aquilo mais vezes do que podia contar. Ninguém jamais lhe disse a razão, e ele nunca perguntou. Fazia parte do caminho de casa como parte do caminho era a pedra com a marca de fogo, o toco partido, a árvore caída que se atravessava por cima.
 
@@ -178,23 +178,15 @@ Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, n
 
 — Ia sentir falta de voltar antes de escurecer.
 
-— No segundo dia, fazia um buraco na parede para ver se eu estava em casa.
+— No segundo dia você fazia um buraco na parede para ver se eu estava em casa.
 
-— A minha parede ia ficar do lado contrário da sua.
+— Eu fazia a parede do lado contrário da sua.
 
-— Eu dava a volta.
-
-— Eu fazia outra parede.
-
-— A Bera abre um buraco por baixo.
+— Então eu dava a volta. — Sefter puxou a corda sem olhar para trás, porque a ideia de Kedran com uma casa e uma parede no meio lhe pesava mais do que ele queria que o irmão soubesse. — E a Bera abre um buraco por baixo.
 
 A cátila levantou a cabeça no colo de Kedran ao ouvir o próprio nome, e Kedran empurrou o focinho dela de volta contra o casaco.
 
-— A Bera fica comigo.
-
-— E a Litara?
-
-— A Litara fica onde tiver colo.
+— A Bera fica comigo. E a Litara fica onde tiver colo, que é onde ela sempre ficou.
 
 — Então fica com os dois — disse Sefter, e puxou o trenó com mais gosto do que o peso pedia.
 
@@ -226,9 +218,9 @@ Ela passou a panela e um pano seco a Kedran e disse a ele que enxugasse o irmão
 
 Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para o cátilo, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
 
-— Quem se molhou? — perguntou.
+— Molhou até onde? — perguntou.
 
-— Bera e Sefter — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
+— A Bera até o pescoço, o Sefter até o ombro — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
 
 — Quatro, se Mentesra não deixar o Klafres cozinhar — disse Maltaren.
 
@@ -252,13 +244,9 @@ Maltaren soltou a pedra de afiar.
 
 Maltaren olhou para o filho mais velho, e Kedran contou: a encosta do norte, a crista, o rosnado que parou sozinho, a linha de neve que Sefter viu subir. Contou sem enfeite e sem pressa, como contava tudo. Quando acabou, Maltaren ficou mais um tempo olhando para o fogo, e a mão dele passou duas vezes pela cicatriz do antebraço esquerdo, onde a pele era mais lisa.
 
-— Vento de fundo — disse Kedran.
+— Vento de fundo — disse Kedran. — Foi o que eu disse lá.
 
-— Pode ser.
-
-— Eu disse isso lá.
-
-— Disse. E eu estou dizendo que pode ser. — Maltaren se levantou, sem pressa. — Hoje a primeira vigia é minha. Ninguém acende nada maior do que isto até eu voltar.
+— Eu ouvi o que você disse. Pode ser — disse Maltaren, e a mão largou a cicatriz. — E pode ser que não. — Levantou-se, sem pressa. — Hoje a primeira vigia é minha. Ninguém acende nada maior do que isto até eu voltar.
 
 Mentesra, que mexia numa panela do outro lado, parou a colher por um instante e continuou. Sefter, que tinha se sentado perto do fogo para tirar as botas, olhou para a pele da entrada, e através dela, para onde ficava a encosta alta do norte, que dali não se via. Nefestra apareceu ao lado dele com uma tábua nas mãos.
 
