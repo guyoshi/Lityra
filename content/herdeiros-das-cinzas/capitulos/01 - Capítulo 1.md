@@ -210,9 +210,9 @@ Ela passou a panela e um pano seco a Kedran. Depois voltou para dentro. Sefter r
 
 Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para o cátilo, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
 
-— Molhou até onde? — perguntou.
+— Por Jesed. Eu pedi carne para o inverno, não um mergulho. — Olhou do cátilo embrulhado para as mangas de Sefter. — Quem tirou quem do buraco dessa vez?
 
-— A Bera até o pescoço, o Sefter até o ombro — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
+— A Bera caiu e o Sefter foi buscar — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
 
 — Quatro, se Mentesra não deixar o Klafres cozinhar — disse Maltaren.
 
