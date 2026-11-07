@@ -164,7 +164,7 @@ Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, 
 
 — Ninguém quer — disse Kedran.
 
-— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com o cátilo no meio, parecendo um quadro. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
+— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com o cátilo no meio, feito três cátilos molhados. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
 
 Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
