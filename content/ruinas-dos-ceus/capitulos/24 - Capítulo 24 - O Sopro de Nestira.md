@@ -98,29 +98,29 @@ Mariv ficou de pé no mesmo instante.
 
 Nestira sentiu o corpo gelar. Não conseguia dizer de que direção a voz vinha. As árvores devolviam o grito de um lado para outro.
 
-— VENHAM CÁ! — berrou Gabasteri. — EU SÓ QUERO CONVERSAR!
+— VENHAM CÁ! — berrou Gabasteri. — NÃO VOU DAR OUTRA CHANCE!
 
 Mariv agarrou a mão dela.
 
 — Corre.
 
-Eles atravessaram a mata às cegas. Galhos se prendiam às roupas e o chão encharcado transformava cada passada em risco. Atrás deles, Gabasteri riu.
+Eles atravessaram a mata às cegas. Galhos se prendiam às roupas e o chão encharcado transformava cada passada em risco. Atrás deles, Gabasteri praguejou ao apoiar o peso na perna ferida.
 
-Não era uma gargalhada longa. Foi um som breve, quase satisfeito.
+O palavrão se perdeu entre as árvores. Logo depois vieram passos pesados, irregulares, perto demais.
 
-— ISSO! CORRAM!
+— NÃO VÃO LONGE!
 
 Nestira apertou mais forte a mão de Mariv.
 
-— Sua irmã também achou que podia fugir de mim! — a voz veio outra vez, agora mais próxima. — Quer saber onde isso levou ela?
+— NÃO VOU VER OUTRO GRUPO SE DESFAZER! — gritou Gabasteri, agora mais perto. — DESTA VEZ EU DECIDO COMO ACABA!
 
 — Não escuta! — gritou Mariv.
 
-— NESTIRA! — Gabasteri continuou. — JOKARA MORREU PORQUE ACHOU QUE SABIA MAIS DO QUE TODO MUNDO! E VOCÊ VAI FAZER A MESMA COISA!
+— NESTIRA! — Gabasteri gritou. — NÃO VOU DEIXAR VOCÊS SAÍREM DAQUI!
 
-Nestira entendeu por que ele continuava gritando. Não bastava alcançá-los. Gabasteri queria entrar na cabeça dos dois antes disso.
+Os gritos vinham de pontos diferentes. Gabasteri conhecia a mata e tentava cortar caminho enquanto eles avançavam às cegas.
 
-— NÃO PRECISAM FUGIR! — tornou a gritar. — EU POSSO ACABAR COM ISSO RÁPIDO!
+— PAREM! — tornou a gritar. — OU EU ACABO COM OS DOIS!
 
 De repente, o pé de Nestira se prendeu numa raiz escorregadia. Ela caiu e rolou, o corpo despencando por um barranco íngreme. O impacto lhe tirou o ar.
 
@@ -172,7 +172,7 @@ Mariv caiu de costas, a lança escapando da mão e batendo contra as pedras. A c
 
 Gabasteri, ofegante, ajoelhou-se sobre Mariv e empurrou a lança para longe.
 
-— Vocês fugiram — disse entre respirações curtas. — Depois de tudo, vocês fugiram.
+— Vocês acham que podem ir embora depois de tudo? — disse Gabasteri, respirando com dificuldade.
 
 Nestira agarrou uma pedra e lançou contra a cabeça dele. O impacto fez Gabasteri cambalear e soltar Mariv.
 
@@ -180,59 +180,59 @@ Nestira agarrou uma pedra e lançou contra a cabeça dele. O impacto fez Gabaste
 
 Ele levou a mão à têmpora. Quando a afastou, havia sangue nos dedos. Por um instante, apenas observou aquilo.
 
-Então sorriu.
+O sorriso não veio. Gabasteri cerrou os dentes, e a irritação no rosto pareceu apagar qualquer intenção de fingir calma.
 
-— Sua irmã veio até mim com uma lâmina.
+— Sua irmã tentou tirar de mim o controle de tudo. Você não vai fazer o mesmo.
 
-— Porque descobriu o que você fez.
+Nestira olhou para Mariv, ainda imóvel no chão, e recuou um passo, procurando um caminho até ele.
 
-— Descobriu? — repetiu ele. — Jokara decidiu. É diferente.
+Gabasteri pressionou a têmpora atingida. O sangue passou entre seus dedos e manchou a gola da roupa.
 
-Nestira recuou.
+A lança estava perto da mão de Mariv. Nestira viu os dedos dele se moverem.
 
-— Ela estava certa sobre você.
+— Não encosta nele.
 
-O sorriso desapareceu.
+Gabasteri seguiu o olhar dela até o rapaz. Mariv parecia estar recuperando os sentidos.
 
-— Eu dei comida a vocês. Abrigo. Rota. Ensinei aquele garoto a caçar. Mantive vocês respirando quando nenhum de vocês sabia o que fazer aqui embaixo.
+— Se eu deixar vocês dois saírem daqui, tudo começa de novo. Vão se voltar contra mim assim que puderem.
 
-— E matou quem não obedecia.
+— Então você vai nos matar porque não consegue nos controlar?
 
-Os olhos dele se fixaram nela.
+Gabasteri não respondeu de imediato. O olhar passou de Nestira para Mariv e voltou.
 
-— Você não sabe do que está falando.
+— Eu devia ter acabado com isso antes.
 
-— Platisa. Maletar. Jokara.
+— Mariv, levanta! — gritou Nestira.
 
-O maxilar de Gabasteri se contraiu.
+O maxilar de Gabasteri se contraiu. Mariv apoiou uma mão no chão, esforçando-se para erguer a cabeça.
 
-— Sua irmã queria tanto ser a dona da verdade que nem percebeu quando deixou de enxergar o que estava diante dela.
+— Ainda acham que podem decidir tudo. Mesmo agora.
 
-Ele deu um passo.
+Gabasteri deu um passo na direção de Mariv. Nestira se colocou entre os dois.
 
-— Quer saber uma coisa, Nestira? Quando entendeu que ia morrer, toda aquela certeza sumiu muito rápido.
+— Não tenho mais tempo para convencer ninguém.
 
-Nestira sabia que era mentira, mas isso não impediu que as palavras doessem. Gabasteri percebeu pela mudança em seu rosto. E dessa vez o sorriso voltou de verdade.
+Nestira percebeu que ele já não buscava uma resposta. Observava apenas a distância que precisava vencer até alcançá-los.
 
-— Isso — falou baixo. — Essa cara.
+— Sai da frente.
 
-Nestira sentiu náusea. Ele estava gostando.
+Ela não se moveu. Atrás dela, Mariv conseguiu apoiar um joelho no chão.
 
-— Você gosta disso — disse ela.
+— Mariv, foge!
 
-— Gosto quando as pessoas finalmente param de fingir que são fortes.
+— Ele mal consegue ficar de pé. Você também não vai conseguir fugir de mim.
 
-Mariv começou a se mover no chão. Gabasteri lançou um olhar para ele e depois voltou a Nestira.
+Mariv estendeu a mão para a lança. Gabasteri olhou de um para o outro. Se tentasse segurar o rapaz, Nestira escaparia. Se alcançasse Nestira, Mariv poderia levantar-se.
 
-— Cinco ciclos aqui embaixo me ensinaram uma coisa. Todo mundo quebra. A única diferença é quanto tempo leva.
+— Eu ensinei a vocês como sobreviver aqui. Preferiram desafiar cada ordem. Agora vão sofrer as consequências.
 
-No chão, Mariv fechou os dedos devagar em torno do cabo da lança caída e então parou de se mexer. Não foi por causa da pancada na cabeça. Esperava Gabasteri se afastar dele.
+Mariv fechou os dedos em torno do cabo da lança e tentou pôr-se de pé. Nestira o viu e começou a recuar, procurando atrair Gabasteri para longe dele.
 
-— Não. Ensinaram você a enxergar todo mundo como coisa que precisa quebrar antes de quebrar você.
+— Não encosta no Mariv!
 
-Por um instante, o rosto dele perdeu qualquer sorriso.
+Gabasteri mudou de direção de repente. Em vez de avançar sobre o rapaz, lançou-se contra Nestira.
 
-— E vocês acabaram de provar que eu estava certo.
+— Então corre.
 
 Ele avançou. Nestira correu, chorando e rezando ao mesmo tempo.
 
@@ -246,7 +246,7 @@ Ela tentou ignorá-lo.
 
 Nestira tropeçou, recuperou o equilíbrio e continuou. A risada dele atravessou a mata.
 
-— É ISSO QUE TE FAZ CORRER MAIS RÁPIDO? ENTÃO CONTINUA!
+Gabasteri gritou mais alguma coisa atrás dela, mas Nestira já não distinguia as palavras. O som da perna ferida arrastando-se entre os galhos continuava perto demais.
 
 Duas passagens se abriram entre as árvores. À direita, o terreno subia e desaparecia entre raízes claras. À esquerda, um tronco partido ao meio formava um arco baixo.
 
@@ -282,15 +282,15 @@ Ele olhou ao redor, para os ossos espalhados, depois voltou a ela.
 
 Deu mais um passo.
 
-— Jokara morta. Mariv ferido. Você encurralada num monte de carcaças. E ainda acha que ela estava certa.
+— Olha aonde essa escolha te trouxe.
 
 Atrás dele, alguma coisa deslocou um osso entre os restos. O som foi pequeno, quase perdido sob a respiração de Gabasteri.
 
-— Eu sobrevivi cinco ciclos aqui — continuou ele. — Vi gente boa morrer. Vi gente forte morrer. Vi gente implorar. Sabe o que aprendi?
+— Eu avisei, Nestira. Aqui embaixo, a compaixão não salva ninguém.
 
 Outro osso raspou contra a pedra, dessa vez mais longe. Gabasteri ainda falava quando Nestira viu dois olhos amarelos surgirem por um instante entre as carcaças. Sumiram antes que pudesse distinguir o resto do corpo.
 
-— No fim, ninguém é especial.
+— E ninguém vem buscar você.
 
 Nestira não respondeu. Seus olhos permaneceram presos ao ponto onde a criatura desaparecera.
 

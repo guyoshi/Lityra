@@ -302,13 +302,13 @@ Jokara virou a cabeça para a irmã. Foi só um instante.
 
 Gabasteri se voltou a cambaleios na direção de Nestira e Mariv.
 
-Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez. Bateu contra Gabasteri por trás.
+Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez. Bateu contra Gabasteri por trás. Os dois cambalearam na direção de uma encosta íngreme, escondida pelo emaranhado de folhas e raízes.
 
-Corpo contra corpo. O bastão escapou de sua mão.
+Corpo contra corpo. O bastão escapou da mão de Jokara. Gabasteri agarrou o pulso que segurava a adaga e o torceu contra o ventre dela. Ao se debater, Jokara deixou cair a outra lâmina, aquela que havia recuperado do saco, perto do bastão.
 
-Jokara sentiu alguma coisa entrar na barriga. Olhou para baixo e viu a lâmina. Gritou.
+Jokara sentiu alguma coisa entrar na barriga. Olhou para baixo e viu a lâmina. Gritou. Ainda conseguiu firmar a perna direita e empurrar Gabasteri com o peso do próprio corpo.
 
-Gabasteri tombou de lado, cambaleando, arfando, os olhos e a garganta ainda ardendo pela exposição ao pó. Mariv se colocou entre ele e as duas, a lança erguida. Quando Gabasteri tentou avançar outra vez, Mariv recebeu o golpe com a haste e o empurrou de volta entre as árvores. Nestira parou.
+A perna ferida de Gabasteri cedeu. Ele escorregou pela borda e despencou entre raízes e pedras, quebrando galhos até parar vários metros abaixo. O grito que soltou se misturou à tosse. Mariv correu até a encosta com a lança erguida. Viu o homem tentar se levantar, mas a perna não o sustentava. Descer atrás dele significaria deixar as irmãs sem proteção. Mariv permaneceu à beira do barranco, vigiando. Nestira já estava correndo para Jokara.
 
 — Não — sussurrou. Então gritou, correndo até a irmã: — Não!
 
@@ -336,7 +336,7 @@ Jokara respirou curto, com esforço. Seus dedos ainda seguravam o pulso da irmã
 
 — Eu estou escutando. Estou aqui.
 
-Atrás delas, houve o choque seco da lança contra a lâmina e, depois, um corpo caiu entre as folhas. Nestira não olhou.
+Um galho se partiu no barranco. Mariv tornou a olhar para baixo, mantendo a lança pronta. Gabasteri se arrastava entre as raízes, procurando uma passagem por onde subir, mas ainda estava longe. Nestira não ouviu. Não conseguia tirar os olhos da irmã.
 
 Jokara esperou até que a irmã a olhasse de verdade.
 
@@ -422,7 +422,7 @@ Nestira puxou a irmã contra o peito e a abraçou com tanta força que o própri
 
 — Não me deixa aqui. Por favor… não me deixa aqui.
 
-Mariv recuou até as duas e se ajoelhou por um instante. Atrás dele, Gabasteri começava a se levantar, mancando, os olhos cheios de ódio.
+Mariv se ajoelhou junto às duas por um instante. Então ouviu pedras rolarem atrás dele. Gabasteri tinha encontrado apoio entre as raízes e já alcançava a parte alta do barranco. Apanhou a adaga caída perto do bastão. Mancava, com uma mão pressionada contra a perna ferida, mas vinha na direção deles.
 
 — Nestira, precisamos ir.
 
@@ -430,7 +430,7 @@ Ela apertou Jokara ainda mais.
 
 — Não.
 
-— Ele está levantando.
+— Ele está subindo. Vai chegar aqui.
 
 — Eu não vou deixá-la!
 
