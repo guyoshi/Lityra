@@ -304,7 +304,7 @@ Gabasteri se voltou a cambaleios na direção de Nestira e Mariv.
 
 Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez. Bateu contra Gabasteri por trás. Os dois cambalearam na direção de uma encosta íngreme, escondida pelo emaranhado de folhas e raízes.
 
-Corpo contra corpo. O bastão escapou da mão de Jokara. Gabasteri se virou de súbito, a lâmina entre os dois.
+Corpo contra corpo. O bastão escapou da mão de Jokara. Gabasteri agarrou o pulso que segurava a adaga e o torceu contra o ventre dela. Ao se debater, Jokara deixou cair a outra lâmina, aquela que havia recuperado do saco, perto do bastão.
 
 Jokara sentiu alguma coisa entrar na barriga. Olhou para baixo e viu a lâmina. Gritou. Ainda conseguiu firmar a perna direita e empurrar Gabasteri com o peso do próprio corpo.
 
@@ -422,7 +422,7 @@ Nestira puxou a irmã contra o peito e a abraçou com tanta força que o própri
 
 — Não me deixa aqui. Por favor… não me deixa aqui.
 
-Mariv se ajoelhou junto às duas por um instante. Então ouviu pedras rolarem atrás dele. Gabasteri tinha encontrado apoio entre as raízes e já alcançava a parte alta do barranco. Mancava, com uma mão pressionada contra a perna ferida, mas vinha na direção deles.
+Mariv se ajoelhou junto às duas por um instante. Então ouviu pedras rolarem atrás dele. Gabasteri tinha encontrado apoio entre as raízes e já alcançava a parte alta do barranco. Apanhou a adaga caída perto do bastão. Mancava, com uma mão pressionada contra a perna ferida, mas vinha na direção deles.
 
 — Nestira, precisamos ir.
 
