@@ -98,29 +98,29 @@ Mariv ficou de pé no mesmo instante.
 
 Nestira sentiu o corpo gelar. Não conseguia dizer de que direção a voz vinha. As árvores devolviam o grito de um lado para outro.
 
-— VENHAM CÁ! — berrou Gabasteri. — EU SÓ QUERO CONVERSAR!
+— VENHAM CÁ! — berrou Gabasteri. — NÃO VOU DAR OUTRA CHANCE!
 
 Mariv agarrou a mão dela.
 
 — Corre.
 
-Eles atravessaram a mata às cegas. Galhos se prendiam às roupas e o chão encharcado transformava cada passada em risco. Atrás deles, Gabasteri riu.
+Eles atravessaram a mata às cegas. Galhos se prendiam às roupas e o chão encharcado transformava cada passada em risco. Atrás deles, Gabasteri praguejou ao apoiar o peso na perna ferida.
 
-Não era uma gargalhada longa. Foi um som breve, quase satisfeito.
+O palavrão se perdeu entre as árvores. Logo depois vieram passos pesados, irregulares, perto demais.
 
-— ISSO! CORRAM!
+— NÃO VÃO LONGE!
 
 Nestira apertou mais forte a mão de Mariv.
 
-— Sua irmã também achou que podia fugir de mim! — a voz veio outra vez, agora mais próxima. — Quer saber onde isso levou ela?
+— NÃO VOU VER OUTRO GRUPO SE DESFAZER! — gritou Gabasteri, agora mais perto. — DESTA VEZ EU DECIDO COMO ACABA!
 
 — Não escuta! — gritou Mariv.
 
-— NESTIRA! — Gabasteri continuou. — JOKARA MORREU PORQUE ACHOU QUE SABIA MAIS DO QUE TODO MUNDO! E VOCÊ VAI FAZER A MESMA COISA!
+— NESTIRA! — Gabasteri gritou. — NÃO VOU DEIXAR VOCÊS SAÍREM DAQUI!
 
-Nestira entendeu por que ele continuava gritando. Não bastava alcançá-los. Gabasteri queria entrar na cabeça dos dois antes disso.
+Os gritos vinham de pontos diferentes. Gabasteri conhecia a mata e tentava cortar caminho enquanto eles avançavam às cegas.
 
-— NÃO PRECISAM FUGIR! — tornou a gritar. — EU POSSO ACABAR COM ISSO RÁPIDO!
+— PAREM! — tornou a gritar. — OU EU ACABO COM OS DOIS!
 
 De repente, o pé de Nestira se prendeu numa raiz escorregadia. Ela caiu e rolou, o corpo despencando por um barranco íngreme. O impacto lhe tirou o ar.
 
