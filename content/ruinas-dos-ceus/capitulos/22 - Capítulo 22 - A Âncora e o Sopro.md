@@ -130,7 +130,13 @@ Virou-se e começou a se afastar pela varanda. A Jokara mais velha deu um passo 
 
 O vento soprou forte, balançando os sinos. Ele sumiu na curva da varanda, e Etérea se desfez em luz.
 
-Jokara abriu os olhos. O brilho azul ainda queimava em sua retina. À frente, Nestira tremia, os olhos marejados.
+Jokara abriu os olhos. O brilho azul ainda queimava em sua retina. À frente, Nestira tremia, os olhos marejados. Ainda olhava para algum ponto além da sala, como se não tivesse voltado por inteiro.
+
+— Você também… — começou Jokara.
+
+Nestira assentiu, mas não disse o que tinha visto. Quando ergueu os olhos para a irmã, parecia querer fazer a mesma pergunta. Jokara pensou no pai, na voz dele, no que acabara de perder pela segunda vez. Abriu a boca e não conseguiu falar.
+
+As duas haviam tocado o cristal. Nenhuma sabia por onde a outra estivera. Não perguntaram.
 
 As mãos de Jokara se abriram sozinhas. O objeto luminoso caiu no chão e rolou sobre a pedra fria.
 
