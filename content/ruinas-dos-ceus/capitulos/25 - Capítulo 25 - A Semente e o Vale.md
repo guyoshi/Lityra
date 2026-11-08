@@ -26,15 +26,15 @@ Mariv parou de apertar o tecido por uma fração de segundo.
 
 Ela fechou os olhos até conseguir puxar ar outra vez. Quando os abriu, procurou o rosto dele.
 
-— No cristal… nas ruínas.
+— Nas ruínas… tinha um cristal.
 
 Mariv franziu a testa, ainda pressionando a ferida.
 
 — Que cristal?
 
-— Aquele que eu toquei com Jokara. — A voz saiu fraca. — Eu vi mais do que contei pra ela.
+— Eu e Jokara tocamos nele. Vimos coisas… — A voz saiu fraca. — Mas não contamos uma à outra.
 
-Mariv aproximou o rosto, nervoso com o esforço que cada palavra exigia.
+Mariv aproximou o rosto, sem entender de que cristal ela falava, nervoso com o esforço que cada palavra exigia.
 
 — Guarda força. Você me conta depois.
 
@@ -44,7 +44,7 @@ Nestira ignorou.
 
 Ele ficou em silêncio.
 
-— Mais velho… — continuou ela. — Tinha uma criança nos braços. Uma casa no chão… gente entrando e saindo. E uma mulher ao seu lado.
+— Mais velho… — continuou ela. — Tinha uma criança nos braços. Uma casa no chão… gente entrando e saindo. E uma mulher linda ao seu lado.
 
 Mariv a observava sem compreender para onde ela queria chegar. O medo parecia ocupar todo o espaço que havia entre uma frase e outra.
 
@@ -58,7 +58,7 @@ Ela precisou parar. A respiração falhou no meio e voltou num som pequeno, dolo
 
 Mariv apertou a mão dela entre as suas, ainda esperando, ainda assustado demais com a maneira como ela falava para pensar no que aquilo significava. Nestira tornou a fitá-lo.
 
-— Eu não estava lá.
+— Mas aquela mulher… não era eu.
 
 A expressão dele mudou.
 
@@ -66,9 +66,11 @@ A expressão dele mudou.
 
 Ela apertou os dedos dele com o pouco de força que ainda tinha.
 
-— Essa parte eu não contei pra Jokara.
+— Eu não estava lá.
 
-— Não. — Mariv balançou a cabeça. — Você viu errado. Ou o cristal mostrou uma coisa que não aconteceu ainda. A gente muda.
+Mariv balançou a cabeça.
+
+— Você viu errado. Ou o cristal mostrou uma coisa que não aconteceu ainda. A gente muda.
 
 Nestira tentou sorrir.
 
@@ -138,23 +140,19 @@ Quebrou a parte apodrecida do esqueleto o mais próximo possível da base e, com
 
 Mariv a carregou para longe das carcaças. Não procurou o rio primeiro.
 
-Dessa vez, já sabia o que podia fazer. A lembrança de Maletar veio enquanto caminhava: os quatro parados sem saber como despedir-se de alguém sem balão, sem Correntes e sem céu, e depois a árvore larga, a terra escura entre as raízes, as mãos abrindo um lugar onde nenhum eterí imaginaria colocar um morto. Maletar fora o primeiro.
-
-Naquele sopro, a ideia parecera quase errada. Agora era a única despedida que Mariv conseguia imaginar para Nestira.
+Lembrou-se da árvore sob a qual haviam deixado Maletar. Naquele dia, cavar a terra parecera um gesto estranho. Agora, sem os outros ao seu lado, era a única despedida que conseguia oferecer a Nestira.
 
 Não queria apenas encontrar terra macia. Queria um lugar bonito.
 
 Caminhou até a mata se abrir numa pequena clareira onde o rio passava entre árvores antigas. A luz começava a atravessar as folhas, refletindo em pontos dourados sobre a água. Flores pequenas cresciam junto às pedras da margem, e uma árvore enorme dominava o centro da clareira. Parte das raízes saía da terra antes de mergulhar de novo, grossas e firmes, agarradas ao chão apesar da corrente que passava perto. Mariv parou com Nestira nos braços.
 
-Ela teria gostado dali. Em Etérea, o corpo seria envolvido em tecido claro, colocado num balão funerário e entregue às Correntes. Os vivos caminhariam contra o vento enquanto o morto desaparecia entre as nuvens, deixando o Sopro seguir sozinho até Iliora. Mas Etérea já não existia.
+Ela teria gostado dali. Mariv demorou a baixar os olhos da copa, onde o vento movia as folhas sem deslocar as raízes.
 
-E eles tinham aprendido com Maletar que a terra também podia guardar alguém sem aprisionar o Sopro.
+Levou Nestira até a árvore e a deitou entre duas raízes largas.
 
-Mariv levou Nestira até a árvore e a deitou entre duas raízes largas.
+Ficou ajoelhado diante dela por algum tempo. Pensou numa oração, mas as palavras não vieram. Então começou a cavar.
 
-Ficou ajoelhado diante dela por algum tempo. Ainda não havia cântico para aquilo. Nenhum eterí possuía palavras antigas para uma sepultura porque, até Maletar, nenhum deles precisara inventá-las. Então começou a cavar.
-
-Usou as mãos, uma pedra achatada e, quando os dedos ficaram feridos demais, a ponta quebrada de um osso que encontrara perto do rio. A terra úmida cedia devagar. Enquanto trabalhava, lembrou-se dos três cobrindo o corpo de Maletar. Lembrou-se da pedra clara que deixaram junto à raiz. Dessa vez, não precisava descobrir o gesto.
+Usou as mãos, uma pedra achatada e, quando os dedos ficaram feridos demais, a ponta quebrada de um osso que encontrara perto do rio. A terra úmida cedia devagar. Dessa vez, não precisava descobrir o gesto.
 
 Precisava suportá-lo.
 
@@ -178,9 +176,9 @@ Mariv deixou os dedos repousarem por um instante na raiz.
 
 — Permanece. Nem que seja aqui.
 
-Só então cobriu o rosto dela. Não acreditava estar prendendo o Sopro de Nestira ao chão, nem impedindo que ela seguisse para onde quer que os mortos fossem. O enterro de Maletar já lhes ensinara aquilo: a terra guardava o que ficava. O Sopro continuava pertencendo a outro lugar.
+Só então cobriu o rosto dela. Não sabia para onde o Sopro de Nestira seguiria. Quis acreditar que a terra guardaria apenas aquilo de que ela já não precisava.
 
-Quando terminou, juntou pequenas pedras ao redor da terra recém-remexida e deixou uma das raízes expostas atravessando o centro, como haviam feito com a pedra de Maletar. Não havia símbolo eterí para uma sepultura. Talvez agora começasse a haver.
+Quando terminou, juntou pequenas pedras ao redor da terra recém-remexida e deixou uma das raízes expostas atravessando o centro. Escolheu uma pedra clara e a pousou junto ao tronco. Ficou olhando para ela sem saber o que mais fazer.
 
 Mariv permaneceu sentado diante dela até o sol nascer entre as copas. O rio continuava passando a poucos passos e o vento seguia movendo as folhas acima, enquanto a raiz permanecia onde estava.
 

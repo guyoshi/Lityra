@@ -168,7 +168,7 @@ Jokara arquejou. O cristal estava quente na mão dela, quente demais.
 
 — Nestira…!
 
-A irmã se virou e estendeu a mão para o cristal. Quando os dedos dela o tocaram, Jokara viu a luz azul encher as pupilas de Nestira. E então foi puxada para dentro delas.
+A irmã se virou e estendeu a mão para o cristal. Quando os dedos dela o tocaram, Jokara viu a luz azul encher as pupilas de Nestira. Tentou chamar a irmã, mas a sala desapareceu diante de seus olhos.
 
 Um vento arrancou-lhe o fôlego. Nuvens passavam em volta, cortadas por clarões. Abaixo dela, pedaços de ilhas subiam e despencavam. O ar cheirava a ferro e chuva.
 
