@@ -191,33 +191,47 @@ Eles caminharam entre as árvores até um conjunto de ruínas antigas. Colunas d
 
 Folhas e plantas se ergueram do chão, girando em espirais lentas. Elas se juntaram no ar e formaram figuras que se moviam como sombras dançando, e a história começou a se contar sozinha.
 
-— Os senavelitas são uma mistura de duas raças que guerrearam. Os senantes, mestres de magias poderosas, e os velitas, seres de agilidade e aptidão para a batalha. Este lugar foi um castelo de senantes.
+— Muito antes de Tayo se tornar a cidade que vocês conhecem, dois povos viviam em guerra — começou Velho-Sábio. — Os senantes dominavam grandes magias. Os velitas eram conhecidos pela destreza e pelos engenhos que construíam. Este castelo pertencia aos senantes.
 
-Banjo sentou-se numa pedra, de olhos arregalados.
+As folhas se dividiram em dois grupos. De um lado, ergueram torres; do outro, figuras carregavam escudos e instrumentos estranhos. Então os dois grupos avançaram, e as folhas se chocaram no ar.
 
-— A guerra entre os dois povos durava muito tempo — disse o mago, e as folhas formaram dois exércitos frente a frente. — Foi no meio dela que viveu Édelin Lys, de sangue senante e velita, a primeira senavelita de que se tem notícia. Nela, o poder dos senantes se misturava à destreza dos velitas. E foi no tempo dela que veio a pior de todas as guerras, a Guerra do Gelo.
+— A guerra durou tanto que houve quem nascesse sem conhecer outra coisa. Foi nesse tempo que viveu Édelin Lys.
+
+Uma nova figura surgiu entre os exércitos, menor que as outras, com cabelos feitos de folhas avermelhadas. Nenhum dos lados a acolheu.
+
+— Édelin tinha sangue senante e velita. Foi a primeira senavelita de que se tem notícia. Para muita gente, ela era a prova de que aqueles povos não eram tão diferentes quanto queriam acreditar. Para outros, era alguém que não deveria existir.
+
+Beatriz acompanhou a figura com os olhos. Velho-Sábio moveu o cajado, e a pequena Édelin permaneceu de pé enquanto as folhas dos dois exércitos caíam ao redor dela.
+
+— A pior ameaça, porém, não veio de nenhum dos dois povos. No tempo de Édelin, forças sombrias desceram do norte e trouxeram uma era de gelo sem precedentes. Foi a Guerra do Gelo.
 
 — Que nome ótimo para uma guerra — murmurou Bruno.
 
-— Forças sombrias vieram do norte e trouxeram uma era de gelo sem precedentes. Senantes e velitas, que ainda se odiavam, perceberam que só juntos poderiam resistir. Neste castelo, em Laer Tayo, selaram o acordo. Os mais fortes de Belfex foram para o mar do norte e venceram.
+O vento espalhou folhas brancas sobre as ruínas. As figuras que antes lutavam entre si agora recuavam diante de uma onda que cobria tudo.
 
-— Tipo super-heróis? — perguntou Beatriz.
+— Senantes e velitas perceberam que não sobreviveriam separados. Reuniram-se neste castelo, em Laer Tayo, e fizeram um acordo. Entre aqueles que enfrentaram o gelo estavam alguns dos magos mais poderosos de que Belfex guarda memória. Nós os chamamos de Primordiais.
 
-— Mais ou menos isso. — A voz dele ficou mais baixa. — Mas o preço foi alto. Para vencer, os senantes tiveram de sacrificar a magia. Criaram, com a ajuda de Édelin, um artefato, o estírio, que guardou a magia deles. E eles se tornaram homens sem magia.
+As folhas formaram várias figuras lado a lado. Cada uma movia-se de um jeito, mas todas avançavam juntas.
 
-As folhas formaram um globo pequeno, que pairou e se apagou.
+— Eles não eram um povo diferente — continuou o mago. — Eram magos de força extraordinária. Algumas histórias exageram seus feitos, mas uma coisa aparece em quase todos os relatos: quando lutavam em conjunto, conseguiam realizar o que nenhum deles alcançaria sozinho. Édelin participou daquele tempo e ajudou a mudar o destino dos dois povos. Outro nome que chegou até nós foi Primus, o lendário líder dos senantes.
 
-— E onde foram parar esses senantes? — perguntou Beatriz.
+O grupo de folhas avançou em direção ao norte e desapareceu numa nuvem clara.
 
-— Muitos ficaram em Belfex. Outros escolheram voltar ao mundo de onde tinham vindo originalmente, a terceira dimensão. O mundo de vocês.
+— Os mais fortes partiram para o mar do norte e venceram. Só que a vitória teve um preço. Para deter aquela ameaça, os senantes abriram mão da própria magia. Com a ajuda de Édelin, criaram o estírio, um artefato que guardou aquela força.
 
-Um silêncio profundo caiu sobre as ruínas.
+As folhas se juntaram numa pequena esfera. Por um momento, ela flutuou diante dos irmãos. Depois se desfez.
 
-— Nosso mundo? — repetiu Breno.
+— Quando a guerra terminou, alguns senantes continuaram em Belfex, mesmo sem a magia que conheciam. Outros regressaram ao lugar de onde os primeiros senantes tinham vindo: a terceira dimensão. A Terra.
 
-— Há muito tempo, Breno, os primeiros senantes vieram da Terra. E o estírio guardava um propósito oculto. Aos poucos, ele permitia que os descendentes deles recuperassem a força que os antepassados tinham. Não fica esperando num lugar fixo: surge por conta própria quando entende que chegou a hora de despertar a magia de alguém. Entre esses antepassados, estavam os que chamamos de Primordiais. Magos de uma força única, que viveram junto a Édelin Lys, a Aereplórium, e até ao lendário Primus.
+— Nosso mundo? — Breno deu um passo à frente.
 
-Banjo prendeu a respiração ao ouvir o nome Aereplórium, o mesmo que o mago tinha murmurado quando a pedra subira diante dele.
+— O mundo de vocês. Gerações nasceram lá sem jamais ouvir falar de Belfex. Mas o estírio não guardou aquela magia para sempre. Às vezes, ele surge por vontade própria e desperta em alguém uma força que parecia perdida. Foi assim com vocês.
+
+Velho-Sábio olhou para os quatro irmãos antes de continuar.
+
+— E as linhagens dos Primordiais também atravessaram os séculos. É possível que parte de sua força tenha chegado até os descendentes que vivem na Terra. Não temos como reconhecê-los só pela aparência, e nem todo grande mago descende deles.
+
+Banjo ainda observava o lugar onde as figuras haviam desaparecido. Lembrou-se da pedra que conseguira erguer e da palavra que Velho-Sábio dissera naquela ocasião: Aereplórium. Pela primeira vez, perguntou-se quantas pessoas já haviam usado uma magia como a sua.
 
 — Os desafios não medem só habilidade. São uma forma de identificar descendentes dessa linhagem antiga.
 
