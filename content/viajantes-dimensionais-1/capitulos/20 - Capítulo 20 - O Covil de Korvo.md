@@ -142,7 +142,7 @@ Os irmãos se viraram. Das sombras saiu uma figura conhecida.
 
 — Emiris? — Banjo piscou.
 
-— E aí, Banjo. — Emiris sorriu, com os óculos grandes demais escorregando no nariz. Atrás dele, surgiu um homem alto e loiro, de uniforme da Vigilância de Tayo.
+— E aí, Banjo. — Emiris sorriu, com os óculos grandes demais escorregando no nariz. Atrás dele, surgiu um homem alto, de cabelos loiro-acinzentados, com o uniforme da Vigilância de Tayo.
 
 — Feliz em ver seus amigos, filho?
 
