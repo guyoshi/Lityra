@@ -336,15 +336,25 @@ A chuva tamborilava no telhado da casa de Velho-Sábio, e a sala cheirava a made
 
 — Esse é o Tepone — disse Velho-Sábio, sentando-se à mesa. — Vocês lançam os dados, atravessam as pontes e tentam chegar à última torre. Cada casa tem um desafio diferente.
 
-— E se perder? — perguntou Banjo, já estendendo a mão para os dados.
+Banjo já estava com os dados na mão.
 
-— O tabuleiro escolhe uma prenda. Algumas são bem inconvenientes. — Velho-Sábio sorriu. — Comecem. Vão entender.
+— Então vamos! Quero chegar naquela torre primeiro.
 
-Banjo perdeu a primeira rodada. Uma das torres inclinou-se para ele e soltou três notinhas de aviso.
+Ele não chegou nem perto. Na primeira rodada, uma das torres inclinou-se para ele e soltou três notinhas de aviso. Banjo olhou para o tabuleiro.
 
-— Ué, mas eu nem... — começou.
+— Ué, mas eu nem...
 
-Uma bolha de sabão escapou de sua boca a cada palavra. Ele tentou protestar, depois explicar que não estava fazendo aquilo de propósito, e encheu o espaço acima da mesa de bolhas que estouravam em sons musicais. Beatriz ria tanto que mal conseguia lançar os dados.
+Uma bolha de sabão saiu de sua boca. Ele tentou pegá-la, mas ela subiu e estourou com um som de flauta.
+
+— Ei! O que tá acontecendo?
+
+Outras bolhas escaparam a cada palavra, enchendo o espaço acima da mesa de notas musicais. Beatriz largou os dados para rir.
+
+— Ah, é. Esqueci de contar uma coisa — disse Velho-Sábio, contendo um sorriso. — Quem perde recebe uma prenda do tabuleiro. Essa fica até a partida terminar.
+
+— Esqueceu?! — Banjo levou as mãos à boca, mas uma bolha conseguiu escapar entre seus dedos.
+
+Beatriz ria tanto que mal conseguia lançar os dados.
 
 Bruno, que até então acompanhava a partida com os braços cruzados, aproximou-se para mostrar que não era tão difícil assim. Pegou os dados, fez uma jogada apressada e perdeu também. Outra torre se inclinou. Uma bolhinha saiu de sua boca quando ele resmungou, e Banjo apontou para ela, triunfante.
 
