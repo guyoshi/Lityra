@@ -1,4 +1,4 @@
-No salão do prédio, ninguém falava alto. O anúncio de Garmande sobre as eliminações ainda pairava no ar como uma poeira pesada, e as pessoas se dividiam em grupos pequenos, sussurrando. Ao fundo, Erick e Nicolas entraram numa lárida improvisada, de cabelos molhados e ar presunçoso, depois de terem arranjado algum jeito de chegar à linha de chegada.
+No salão do prédio, ninguém falava alto. O anúncio de Garmande sobre as eliminações ainda pairava no ar como uma poeira pesada, e as pessoas se dividiam em grupos pequenos, sussurrando. Ao fundo, Erick e Nicolas apareceram de cabelos encharcados e ar presunçoso. Tinham conseguido subir de volta na própria lárida depois da queda e cruzar o arco, embora muito depois dos primeiros.
 
 Num canto, Eshley abraçava Maria com tanta força que as duas tremiam.
 
@@ -8,9 +8,9 @@ Num canto, Eshley abraçava Maria com tanta força que as duas tremiam.
 
 Maria sorriu entre as lágrimas, tentando parecer forte.
 
-— Tá tudo bem. Essas semanas foram as melhores da minha vida. — O olhar dela encontrou o de Bruno, que a observava de longe, e ela deu um aceno pequeno, como quem diz "valeu".
+— Tá tudo bem. Essas semanas foram as melhores da minha vida. — O olhar dela passou pelos quatro irmãos e se demorou em Beatriz, que ergueu a mão para se despedir.
 
-Bruno não tinha contado a ninguém que também fora eliminado. A notícia pesava nos ombros dele, mas havia uma teimosia nos olhos que gritava "não acabou". Ele não se permitia aceitar a ideia de voltar para casa.
+Bruno ficou afastado, de braços cruzados, olhando os gêmeos conversarem como se nada tivesse acontecido. Garmande anunciara sua eliminação diante dos irmãos, mas ele ainda não conseguia aceitar. Tinham faltado tão poucos metros.
 
 Lioro, o tutor de Maria, apoiou a mão no ombro da menina e a conduziu para a saída, onde a tempestade trovejava. Eles sumiram no corredor, e o silêncio deixou um vazio. Antes de virar a esquina, Maria se virou, olhou para os irmãos e levantou a mão fechada, com uma pétala azul nos dedos, a única coisa que ia levar daquele mundo.
 
@@ -18,7 +18,7 @@ Velho-Sábio apareceu logo depois, sem fazer perguntas, e acenou para que o segu
 
 Já lá dentro, Bruno finalmente perguntou, com a voz mais firme do que se sentia:
 
-— Velho-Sábio... eu fui eliminado, não fui?
+— Velho-Sábio... ele pode mesmo me eliminar por aquilo?
 
 O mago o olhou, sem responder de imediato.
 
@@ -26,27 +26,47 @@ O mago o olhou, sem responder de imediato.
 
 Em casa, os irmãos se sentaram na sala, e Velho-Sábio se acomodou no sofá à frente deles, com Átila ao lado. O cachorro tentou lamber a mão de Bruno, que a recolheu, sem querer ser incomodado.
 
-— Cada desafio tem regras claras — começou o mago. — Falhar em um deles é voltar. É uma regra antiga. — Ele olhou diretamente para Bruno. — Como você não cruzou o arco em uma lárida, Bruno, deverá voltar para a terceira dimensão.
+— Cada desafio tem regras claras — começou o mago. — Quem não cruza o arco montado numa lárida é eliminado. Como você caiu antes da chegada, Bruno, terá de voltar para a terceira dimensão.
 
-— Não é justo! — explodiu Breno. — O Bruno salvou todos nós! Se não fosse por ele, nem teríamos cruzado a linha!
+— Por causa de um metro? — Bruno se levantou tão depressa que Átila recuou debaixo da mesa. — Eu tava chegando! Foi uma merda de azar!
 
-— Eu sei tudo o que ele fez. Mas as regras são as regras.
+— Não foi só azar — disse Breno. — Eu mandei você seguir. Você voltou pra atacar os gêmeos!
 
-Bruno apertou os punhos e forçou um sorriso que não enganou ninguém.
+— Eles tentaram derrubar a gente desde o começo!
 
-— Tudo bem. É o que tem que ser. Boa sorte pra vocês. Quando eu volto, Velho-Sábio?
+— E você deu o que eles queriam! — Breno apontou para o chão, tentando conter a voz. — Já tinha acabado. Era só atravessar o arco!
 
-— Se o Bruno voltar, nós todos voltamos — disse Breno, cruzando os braços. — Somos uma equipe.
+— Ah, você fala porque chegou sentado na minha lárida! — Bruno deu um passo para perto dele. — Se eu não tivesse te puxado da água, você nem estaria aqui!
+
+Breno ficou vermelho, mas não recuou.
+
+— Você me salvou da água, sim. E depois jogou fora a sua chance só pra se vingar. As duas coisas aconteceram, Bruno.
+
+Bruno se virou para Velho-Sábio.
+
+— E o senhor vai ficar aí, deixando ele falar assim comigo?
+
+O velho apoiou as mãos nos joelhos.
+
+— Eu vi você tirar Breno do rio. Também sei por que caiu no fim. Não posso fingir que a regra não existe.
+
+Bruno apertou os punhos.
+
+— Então pronto! Me manda de volta! Quero ver quem vai se importar!
+
+— Eu me importo! — Breno respondeu antes de qualquer um. A voz falhou de raiva. — Se o Bruno voltar, nós todos voltamos. Eu não vou deixar um irmão sozinho na Terra.
 
 — Eu não vou voltar! — protestou Banjo. — E nem o Bruno! Lá em casa eu só ficava... lá. Aqui eu fiz uma pedra voar!
 
-O silêncio voltou, pesado. Velho-Sábio olhou para cada um deles, com a voz embargada.
+Beatriz estava encolhida na cadeira, com os olhos marejados. Bruno desviou o rosto quando a viu.
+
+O silêncio voltou. Velho-Sábio olhou para cada um deles.
 
 — Eu lamento muito. Se essa é a sua escolha, Breno, não posso impedir.
 
 Ele se levantou, evitando os olhares, e foi para o quarto.
 
-No quarto dos irmãos, a noite foi de soluços abafados. Beatriz e Banjo se encolhiam nos cobertores. Breno, sentado na beira da cama, não parava de repetir, baixinho: "Se o Bruno tiver que ir, a gente vai." Bruno se deitou de costas para todos, tentando manter a respiração calma, mas uma lágrima solitária escorreu mesmo assim, pelo canto do olho.
+No quarto dos irmãos, a noite foi de soluços abafados. Beatriz e Banjo se encolhiam nos cobertores. Breno se sentou na beira da cama, de braços cruzados. Ainda estava zangado demais para conversar com Bruno, mas repetiu, desta vez para os mais novos: "Se ele tiver que ir, a gente vai." Bruno ouviu cada palavra. Virou-se de costas para todos e apertou os olhos, furioso por estar naquela situação e ainda mais por não poder culpar só os gêmeos. Uma lágrima escorreu pelo canto do olho. Ele a enxugou na fronha antes que alguém visse.
 
 Mais tarde, Velho-Sábio bateu na porta.
 
@@ -62,13 +82,13 @@ Minutos depois, eles voltaram, com olhos insistentes.
 
 — O Breno está te chamando na cozinha — disse Beatriz.
 
-Bruno hesitou, mas algo no jeito dos irmãos o fez levantar. Na mesa, Breno tinha montado um prato com o que havia de melhor, o purê de abóbora com sálvia e um pão ainda quente, e esperava ao lado, calado e paciente. Bruno se sentou, pegou os talheres com um misto de raiva e resignação e começou a comer.
+Bruno hesitou, mas algo no jeito dos irmãos o fez levantar. Na mesa, Breno tinha montado um prato com o que havia de melhor, o purê de abóbora com sálvia e um pão ainda quente, e esperava ao lado, calado e paciente. Bruno se sentou, mas deixou os talheres ao lado do prato.
 
-— Vocês não precisam fazer isso — murmurou. — Eu volto e vocês ficam.
+— Não pedi comida pra ninguém — disse, sem olhar para o irmão.
 
-— Come, Maria-chatice. Esfria — disse Breno, balançando a cabeça.
+— Eu sei. — Breno puxou a cadeira para junto da mesa, mas continuou de pé. — Pode ficar bravo comigo. Só não fica sem jantar por causa disso.
 
-Bruno engoliu em seco, assentiu sem olhar para ele, e Breno deu um tapinha nas costas dele e saiu. Quando ficou sozinho, Bruno encarou o prato vazio e socou a mesa.
+Bruno pegou um pedaço do pão, arrancou a casca e começou a comer em silêncio. Breno saiu sem insistir. Nenhum dos dois estava pronto para pedir desculpas. Quando ficou sozinho, Bruno encarou o prato vazio e socou a mesa.
 
 — Que se dane — murmurou. O pão tilintou no prato, e uma geada fina correu pelo tampo, deixando uma marca branca. Ele respirou fundo, o olhar endurecendo. Não ia deixar aquilo ser o fim.
 
@@ -119,6 +139,10 @@ Os quatro congelaram. Beatriz soltou um suspiro e sorriu sem querer. Bruno ergue
 
 — Eu... passei? — murmurou.
 
+Garmande olhou diretamente para ele.
+
+— Sua eliminação não foi anulada. Auream pediu que eu reconsiderasse sua avaliação. Você demonstrou aptidão, mas também uma indisciplina que pôs seu resultado em risco. Terá a oportunidade de disputar a última prova. É uma chance, não uma aprovação.
+
 — Passou, Bruno! — gritou Banjo, rindo, com os olhos marejados, e deu um empurrão no irmão. — A gente está de volta!
 
 Breno respirou como se tivesse tirado uma rocha das costas.
@@ -126,6 +150,8 @@ Breno respirou como se tivesse tirado uma rocha das costas.
 — Eu falei que a gente ficava junto. E você fingindo que tanto fazia.
 
 — Fingindo nada — disse Bruno, tentando parecer casual. — Vocês não durariam muito sem mim.
+
+Breno o encarou por um instante. Depois lhe deu um leve empurrão no ombro. Ainda havia muita coisa a dizer, mas não ali.
 
 Garmande continuou a lista, e então disse:
 
