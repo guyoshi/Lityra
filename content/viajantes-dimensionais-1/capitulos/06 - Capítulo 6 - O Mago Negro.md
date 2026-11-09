@@ -69,13 +69,45 @@ Breno fechou os olhos e estendeu a mão. Encontrou uma superfície dura e fria. 
 
 Na geleira, Bruno pisou no gelo com ar de quem já sabia o que fazer.
 
-— Está vendo a poça? — disse Velho-Sábio. — Congele só o centro. O resto, não.
+— Está vendo a poça? — disse Velho-Sábio. — Tente congelar só o centro. Sem pressa.
 
-Bruno estendeu a mão. Um tilintar cristalino soou, como um sino de gelo, e a poça inteira congelou de uma vez. Ele puxou a mão, mas a geada escapou da borda, subiu por um pedregulho e formou uma torre torta de gelo, pouco mais alta que seu joelho. Bruno tentou acrescentar uma escadinha. Surgiu apenas um caroço branco, que se partiu e caiu dentro da poça. A torre durou alguns instantes antes de tombar com um estalo.
+Bruno estendeu a mão. Apontou dois dedos para a água, depois mexeu o pulso do jeito que vira os aprendizes fazerem. Nada aconteceu.
+
+— Engraçado. No volante eu nem queria, e congelou tudo.
+
+— E o que você sentiu?
+
+— Desespero, porque minha mão ficou grudada!
+
+— E quando tocou o espelho?
+
+Bruno olhou para os dedos. Lembrou-se do frio que subira pela palma ao encostar no vidro e do formigamento que continuara por um instante depois. Tentou encontrar aquilo de novo. Na primeira vez, só percebeu o frio do chão sob os pés. Na segunda, sentiu uma dormência leve nas pontas dos dedos, mas ela sumiu assim que ele se animou.
+
+— Espera. Eu tava conseguindo!
+
+— Então tente de novo — respondeu Velho-Sábio. — Preste atenção no que sente antes de querer fazer alguma coisa com isso.
+
+Bruno respirou fundo. A água continuou parada enquanto ele tentava, perdia a sensação e recomeçava. Só depois de algumas tentativas o formigamento voltou e permaneceu. Uma película de gelo começou a se formar bem no centro da poça.
+
+— Agora vai — murmurou.
+
+Quis fazer a camada crescer mais depressa. Apertou os dedos, impaciente, e perdeu a medida. Um tilintar cristalino soou, como um sino de gelo. A poça inteira congelou de uma vez. A geada escapou pela borda, cobriu um pedregulho e subiu até formar uma torre torta, pouco mais alta que o joelho dele.
+
+— Não era pra ir até aí! — Bruno puxou a mão.
+
+Tentou acrescentar uma escadinha à torre, mas a sensação lhe escapou outra vez. Quando finalmente conseguiu esfriar a lateral, apareceu apenas um caroço branco, que se partiu e caiu sobre a poça. A torre tombou com um estalo.
 
 — Só um pedacinho, só um pedacinho — resmungou. — Ótimo. Agora é a ruína de um castelo.
 
-— Pequeno. Comece muito pequeno — disse o velho, achando graça. — O frio é uma centelha, não uma tempestade.
+Velho-Sábio examinou a poça congelada.
+
+— Sentiu a diferença entre a primeira tentativa e a última?
+
+— Na última eu consegui. Só foi mais do que eu queria.
+
+— Foi. Você encontrou o frio, mas se apressou quando ele começou a responder.
+
+Bruno olhou para a torre caída. Era irritante ter conseguido fazer tanto gelo e, mesmo assim, não conseguir o pouco que o velho pedira.
 
 Na clareira, Banjo ficou sozinho, com Velho-Sábio observando de longe. Entre as raízes de uma árvore, escondida, havia uma criaturinha que parecia um misto de roedor e pássaro, de penas macias e patas finas.
 
@@ -109,7 +141,7 @@ Num intervalo, Bruno olhou para o castelo torto e para a duna ao lado, e teve um
 
 — Breno, vem aqui. Não pensa. Só vem.
 
-Antes que o irmão respondesse, ele encostou a mão na areia. O tilintar do sino de gelo correu por uma faixa estreita da duna. A areia ganhou uma crosta de gelo irregular, escorregadia o bastante para uma descida curta, mas cheia de ressaltos que ameaçavam derrubar quem passasse. Banjo foi o primeiro a se jogar, com um grito de alegria. Beatriz foi atrás, rindo, com o capuz lilás voando. Bruno desceu de pé, com os braços abertos, num equilíbrio perfeito. E Breno, depois de contar até três, deslizou sentado, com a cara mais séria do mundo. Quando o zumbido grave subiu no peito dele, atravessou sem querer um monte de neve fofa e saiu do outro lado coberto de gelo, gargalhando.
+Antes que o irmão respondesse, ele se agachou e apoiou a mão na areia. Tentou recuperar a sensação da geleira. Os primeiros grãos apenas esfriaram, e Bruno soltou um palavrão baixinho quando o formigamento desapareceu. Recomeçou, desta vez sem tirar os olhos do trecho que queria cobrir. Levou um tempo até conseguir manter o frio nos dedos. Então o tilintar do sino de gelo correu por uma faixa estreita da duna. A areia ganhou uma crosta irregular, escorregadia o bastante para uma descida curta, mas cheia de ressaltos que ameaçavam derrubar quem passasse. Bruno se levantou, sacudindo a mão dormente, orgulhoso do resultado. Banjo foi o primeiro a se jogar, com um grito de alegria. Beatriz foi atrás, rindo, com o capuz lilás voando. Bruno desceu de pé, com os braços abertos, num equilíbrio perfeito. E Breno, depois de contar até três, deslizou sentado, com a cara mais séria do mundo. Quando o zumbido grave subiu no peito dele, atravessou sem querer um monte de neve fofa e saiu do outro lado coberto de gelo, gargalhando.
 
 Era a primeira vez, desde a caverna, que Breno ria assim. Os irmãos ficaram olhando, e ninguém disse nada, para não estragar.
 
