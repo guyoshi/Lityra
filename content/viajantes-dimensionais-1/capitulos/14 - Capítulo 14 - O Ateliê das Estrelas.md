@@ -71,7 +71,7 @@ O tom grave fez até Bruno se calar. Os irmãos se acomodaram no sofá e nas cad
 
 — Velho-Sábio — disse Breno —, nós fizemos alguma coisa errada?
 
-— Não é questão de certo ou errado. — O mago começou a andar pela sala. — O que vocês fizeram hoje foi além do que eu imaginava possível para quem começou a treinar há tão pouco tempo. Eu planejava treiná-los para sincronizar os poderes. Levaria meses. E hoje vocês mostraram algo que nem aprendizes avançados conseguem.
+— Não é questão de certo ou errado. — O mago começou a andar pela sala. — O que vocês fizeram hoje foi além do que eu esperava de quem começou a treinar há tão pouco tempo. A Lucía soube organizar vocês, e vocês conseguiram seguir o plano mesmo quando tudo começou a dar errado. Bruno, você abriu caminho com gelo para Breno. Banjo, usou sua magia para apoiar os outros. E Beatriz... — Ele olhou para a caçula. — Você encontrou uma maneira de mover aquela Marqe sem tocá-la. São coisas que costumam exigir muito mais treino. E vocês ainda mal conseguem repetir alguns desses movimentos.
 
 Beatriz arriscou um sorriso, mas ele levantou a mão.
 
@@ -79,7 +79,7 @@ Beatriz arriscou um sorriso, mas ele levantou a mão.
 
 — Preocupante? — Bruno cruzou os braços. — A gente vence uma partida e vira problema?
 
-— Vocês começaram há muito pouco tempo e já mostram um domínio muito acima do normal. Isso chamou atenção. Muita atenção. E, neste momento, é a última coisa que eu queria.
+— Vocês ainda estão aprendendo a controlar o que fazem, mas a velocidade com que estão avançando não é comum. Isso chamou atenção. Muita atenção. E, neste momento, é a última coisa que eu queria.
 
 — Ah, qual é! Tem gente muito mais forte que a gente lá. O Ferris quase acabou conosco no primeiro tempo.
 

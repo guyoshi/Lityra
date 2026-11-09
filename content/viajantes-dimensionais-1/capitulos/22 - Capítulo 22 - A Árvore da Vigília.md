@@ -146,17 +146,23 @@ Todos riram. Velho-Sábio esperou o riso passar.
 
 Bruno desviou o olhar. Mas um sorriso pequeno ficou nos cantos da boca, e demorou a sair.
 
-— Velho-Sábio... — Bruno coçou a nuca. — Por que o Garmande me deixou passar? Eu cheguei sem lárida. Ele tinha razão.
+— Velho-Sábio... — Bruno coçou a nuca. — Por que o Garmande me deixou disputar a última prova? Eu caí antes do arco. E fui eu que voltei pra atacar os gêmeos.
 
-— Tinha — respondeu o mago. — Você não cumpriu aquela regra. Mas entregou sua lárida ao Breno para que os outros chegassem e ficou sozinho enfrentando a criatura. Pedi a Garmande que levasse isso em conta, e ele aceitou.
+— Foi. — O mago não tentou suavizar. — Você tirou Breno da água quando ele perdeu a montaria. Mas, na chegada, deixou a raiva falar mais alto e perdeu a sua. Eu pedi a Garmande que não julgasse seu futuro inteiro por aquela escolha. Você tinha mostrado talento nos treinos, e eu acreditava que ainda podia aprender a usá-lo melhor.
 
-— Então ele não teve pena de mim?
+— Então ele passou por cima da regra?
 
-— Deu a você uma chance de disputar a última prova, Bruno. Não uma aprovação automática. O resto você conquistou.
+— Não. A eliminação aconteceu. Garmande concedeu uma chance excepcional de disputar a última prova, sob minha responsabilidade. Você ainda precisava demonstrar que merecia continuar.
 
-Bruno ficou quieto por um instante.
+Bruno olhou para as mãos.
 
-— Não conta pra ele, mas até que foi justo.
+— Eu podia ter passado com os outros. Fui um idiota.
+
+Velho-Sábio não discordou. Apenas esperou.
+
+— Não conta pro Garmande que eu disse isso — acrescentou Bruno.
+
+O mago sorriu e se virou para a caçula.
 
 Velho-Sábio sorriu e se virou para a caçula.
 

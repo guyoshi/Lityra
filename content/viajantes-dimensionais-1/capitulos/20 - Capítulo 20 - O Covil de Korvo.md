@@ -324,6 +324,16 @@ Os irmãos a encararam.
 
 Breno passou à frente dos irmãos num movimento só. Korvo caminhou pela sala sem pressa, passando os dedos pela mesa posta.
 
+— Por que você levou a Beatriz? — perguntou Breno, sem sair da frente dela.
+
+Korvo parou e olhou para ele.
+
+— Você teria vindo até aqui se eu tivesse apenas mandado um convite?
+
+Breno sentiu a mão de Beatriz agarrar a manga de sua camisa. Não respondeu.
+
+Korvo voltou os olhos para a menina.
+
 — Conheci uma garota uma vez. Gabrielle. Uma senavelita de um poder enorme, maior do que muitos magos já sonharam ter. Tinha o brilho de uma estrela, e era incompreendida como toda estrela.
 
 Beatriz franziu a testa, com o nome da mãe girando dentro dela.

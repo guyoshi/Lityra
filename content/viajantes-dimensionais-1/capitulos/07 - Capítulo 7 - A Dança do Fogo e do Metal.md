@@ -151,7 +151,7 @@ Tayo, porém, não estava calada. Num poste, uma mulher de colete listrado anunc
 
 — Que a luz te encontre — respondeu Banjo, sem pensar, e depois ficou muito satisfeito consigo mesmo pelo resto do quarteirão. Já conhecia o caminho de Brisália até a estação e apontou o atalho para os irmãos antes que Velho-Sábio precisasse fazê-lo.
 
-No saguão, um homem alto, de cabelo grisalho cortado rente, esperava ao lado do elevador. Usava o uniforme cinza da Vigilância com uma postura firme e, ao mesmo tempo, quase acolhedora. Tinha o rosto de quem já enfrentou coisas demais e ainda assim sabe sorrir.
+No saguão, um homem alto, de cabelos loiro-acinzentados, esperava ao lado do elevador. Usava o uniforme cinza da Vigilância com uma postura firme e, ao mesmo tempo, quase acolhedora. Tinha o rosto de quem já enfrentou coisas demais e ainda assim sabe sorrir.
 
 — Velho-Sábio, sempre um prazer — disse ele, apertando a mão do mago. — Como estão os novos aprendizes?
 
