@@ -14,7 +14,7 @@ Breno respirou fundo, contou até três e não respondeu. Era sempre assim nas �
 
 Ninguém ouviu. Bruno soltou uma piada sobre vento mágico e vitória sentada, Breno retrucou, e logo os dois falavam ao mesmo tempo. Eshley segurou a mão de Beatriz.
 
-— Eles só precisam de um minuto — sussurrou.
+— Eles só precisam de um minuto — sussurrou Beatriz.
 
 — Chega! — Shirley bateu palmas. — Cada um é bom em alguma coisa. Os Drakons atacam rápido, os Vardeks dão cobertura, e o Banjo nos distrai com a telecinese. Ninguém precisa carregar o time nas costas.
 
@@ -71,7 +71,7 @@ O Garras de Ferro estava mais coeso, e Ferris era o motivo. Ele subia e descia d
 
 Breno, decidido a surpreender Denis na Zona de Arremesso, saltou para o pilar do garoto e transformou o corpo em metal. Denis arregalou os olhos e recuou.
 
-— Isso é trapaça! — guinchou. — Amanhã a cidade inteira vai saber!
+— Isso é trapaça! — guinchou Denis. — Amanhã a cidade inteira vai saber!
 
 Mas Ferris surgiu como uma sombra e lançou uma descarga elétrica curta contra Breno. Era uma técnica secundária que ele aprendera com muito treino, diferente dos deslocamentos luminosos que lhe vinham naturalmente. A carga percorreu o metal de seu corpo e o fez perder o apoio. A rede de segurança o devolveu dois pilares atrás, de barriga para baixo.
 
@@ -81,7 +81,7 @@ Mas Ferris surgiu como uma sombra e lançou uma descarga elétrica curta contra 
 
 Os irmãos, em vez de se ajudarem, trocaram palavras ásperas de um pilar a outro. Quando Breno gritou "Bruno, preciso de você na defesa!", Bruno respondeu "Não sou seu guarda-costas!", e Ferris percebeu o descompasso e usou isso. Banjo, tentando ajudar, jogou uma pedra que passou rente a Eshley e a fez perder uma Marqe quase conquistada.
 
-— Eu sinto muito! — murmurou ele.
+— Eu sinto muito! — murmurou Banjo.
 
 O estádio, então, mostrou o que tinha por baixo. Do chão e do teto começaram a nascer correntes de vento, horizontais, verticais, em espirais, que empurravam jogadores para o lado ou os faziam flutuar sem querer. O Vórtice Monumental virou um labirinto de ar. Ferris foi o primeiro a entender como aproveitar aquilo e reuniu o Garras de Ferro num pilar alto. Em seguida, os Vardeks passaram a usar as correntes para redirecionar Beatriz e Banjo, e Nicolas e Erick, lançados para o alto, sobrevoavam o campo e roubavam Marqes sem esforço.
 
