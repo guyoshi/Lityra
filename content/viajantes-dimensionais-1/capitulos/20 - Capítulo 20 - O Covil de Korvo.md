@@ -166,11 +166,21 @@ Breno se lembrou do dassi que batera no deles, na volta das ruínas. Dos dois ho
 
 — E aquele dassi que quase derrubou a gente? Também foi você?
 
-— Auream estava fazendo perguntas demais — respondeu Garien. — Organizei a colisão para tirá-lo do caminho. Aqueles dois eram meus homens.
+— Eu precisava ver como Auream reagiria a um perigo de verdade. — Garien cruzou os braços. — E o que vocês fariam quando sentissem medo. Meus homens ficaram ali para observar.
 
-— A Beatriz estava lá dentro! — Bruno avançou um passo.
+— Então mandou bater no nosso dassi de propósito? — Breno mal acreditava no que estava ouvindo.
 
-— Eu sei — disse Garien.
+— O velho mostrou exatamente do que é capaz.
+
+— Você podia ter matado a Beatriz! — Bruno avançou um passo. — Podia ter matado todos nós!
+
+Garien desviou os olhos para ele.
+
+— Eu apostei que Auream não deixaria.
+
+— Apostou com a nossa vida? — Bruno apertou os punhos.
+
+Garien não respondeu.
 
 — O anel — disse Bruno de repente, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo do McCroys e depois no estojo que você mostrou. Foi o que acharam na Central.
 
