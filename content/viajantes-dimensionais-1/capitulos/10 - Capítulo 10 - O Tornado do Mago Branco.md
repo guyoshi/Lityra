@@ -253,7 +253,7 @@ Velho-Sábio sustentou o olhar deles, sem raiva.
 
 — Deixa eu adivinhar — resmungou Bruno. — Trabalho em equipe.
 
-— Exatamente. Os Primordiais lutavam lado a lado, em perfeita sincronia, dois, três ou quatro, operando em uníssono. Vi momentos em que vocês conseguiram se ajudar assim. Também vi o que acontece quando cada um só pensa no próprio caminho. Ainda têm muito o que aprender.
+— Exatamente. Viram como as figuras avançaram juntas? Aqueles magos não ficaram conhecidos apenas pela força que tinham, mas também pelo que conseguiam fazer uns pelos outros. Vi momentos em que vocês se ajudaram assim. Também vi o que acontece quando cada um só pensa no próprio caminho. Ainda têm muito o que aprender.
 
 — Por que não nos disse antes? — perguntou Breno.
 

@@ -162,6 +162,16 @@ Houve um silêncio estranho. Breno sentiu o estômago se fechar, devagar, como u
 
 — Desde que pisaram em Tayo, todos os passos de vocês foram anotados — continuou Garien. — Eu organizei os turnos dos vigilantes que os acompanhavam, e cada detalhe chegou a Korvo. Foi o que me deu a honra de abrir a porta dos fundos da Central e deixar sua irmã ser levada.
 
+Breno se lembrou do dassi que batera no deles, na volta das ruínas. Dos dois homens uniformizados que tinham ficado olhando, em vez de ajudar.
+
+— E aquele dassi que quase derrubou a gente? Também foi você?
+
+— Auream estava fazendo perguntas demais — respondeu Garien. — Organizei a colisão para tirá-lo do caminho. Aqueles dois eram meus homens.
+
+— A Beatriz estava lá dentro! — Bruno avançou um passo.
+
+— Eu sei — disse Garien.
+
 — O anel — disse Bruno de repente, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo do McCroys e depois no estojo que você mostrou. Foi o que acharam na Central.
 
 — Eu o plantei lá — confirmou Garien, com um aceno quase educado. — Pedi aos gêmeos que me trouxessem o anel dele. Eles não sabiam para quê. Achavam que era um favor, uma prova de lealdade.
