@@ -32,7 +32,7 @@ Mariv franziu a testa, ainda pressionando a ferida.
 
 — Que cristal?
 
-— Eu e Jokara tocamos nele. Vimos coisas… — A voz saiu fraca. — Mas não contamos uma à outra.
+— Eu toquei. Jokara também. Quando a luz passou, nós duas estávamos chorando. — Nestira puxou o ar com dificuldade. — Não contamos o que vimos.
 
 Mariv aproximou o rosto, sem entender de que cristal ela falava, nervoso com o esforço que cada palavra exigia.
 
@@ -140,9 +140,7 @@ Quebrou a parte apodrecida do esqueleto o mais próximo possível da base e, com
 
 Mariv a carregou para longe das carcaças. Não procurou o rio primeiro.
 
-Lembrou-se da árvore sob a qual haviam deixado Maletar. Naquele dia, cavar a terra parecera um gesto estranho. Agora, sem os outros ao seu lado, era a única despedida que conseguia oferecer a Nestira.
-
-Não queria apenas encontrar terra macia. Queria um lugar bonito.
+Lembrou-se de Nestira olhando a copa da árvore onde haviam enterrado Maletar e dizendo que ele gostaria de ficar ali. Agora precisava encontrar para ela um lugar que ela também pudesse ter escolhido.
 
 Caminhou até a mata se abrir numa pequena clareira onde o rio passava entre árvores antigas. A luz começava a atravessar as folhas, refletindo em pontos dourados sobre a água. Flores pequenas cresciam junto às pedras da margem, e uma árvore enorme dominava o centro da clareira. Parte das raízes saía da terra antes de mergulhar de novo, grossas e firmes, agarradas ao chão apesar da corrente que passava perto. Mariv parou com Nestira nos braços.
 
@@ -176,7 +174,7 @@ Mariv deixou os dedos repousarem por um instante na raiz.
 
 — Permanece. Nem que seja aqui.
 
-Só então cobriu o rosto dela. Não sabia para onde o Sopro de Nestira seguiria. Quis acreditar que a terra guardaria apenas aquilo de que ela já não precisava.
+Só então cobriu o rosto dela. Deixou a palma pousada sobre a terra úmida por algum tempo, até conseguir afastar a mão.
 
 Quando terminou, juntou pequenas pedras ao redor da terra recém-remexida e deixou uma das raízes expostas atravessando o centro. Escolheu uma pedra clara e a pousou junto ao tronco. Ficou olhando para ela sem saber o que mais fazer.
 
