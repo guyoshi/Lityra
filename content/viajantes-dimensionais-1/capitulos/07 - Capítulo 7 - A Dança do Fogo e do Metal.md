@@ -338,7 +338,7 @@ Ele, já com a pele de volta ao normal, a levantou do chão num abraço.
 — Por hoje chega, garotos — disse Velho-Sábio, e a voz dele soou macia, quase paterna. — Amanhã tem desafio, então comam e durmam. — E tirou o próprio manto e o pôs nos ombros de Beatriz, que ainda tremia, fingindo que era só para ajeitar a dobra.
 
 
-O refeitório do Edifício ficava num salão redondo com janelas gigantes que davam para o céu. Em cada mesa, uma lamparina flutuava a um palmo da toalha, e a luz dela mudava de cor conforme as conversas. Havia travessas fumegantes de legumes assados com um molho que cheirava a laranja, pães de casca crocante e jarras de um suco turquesa, que Banjo provou desconfiado e depois pediu mais duas vezes. Eshley, Maria, Shirley e Emiris já estavam sentados, cercados de tiras de papel colorido e potes de cola dourada.
+O refeitório do Edifício ficava num salão redondo com janelas gigantes que davam para o céu. Em cada mesa, uma lamparina flutuava a um palmo da toalha, e a luz dela mudava de cor conforme as conversas. Havia travessas fumegantes de legumes assados com um molho que cheirava a laranja, pães de casca crocante e jarras de um suco turquesa, que Banjo provou desconfiado e depois pediu mais duas vezes. Eshley, Maria, Shirley e Emiris já estavam sentados, cercados de tiras de papel colorido, aros finos de metal e potes de cola dourada.
 
 — Que a luz te encontre, Bia! — disse Shirley, estendendo uma tira. — Vem ajudar!
 
@@ -356,17 +356,29 @@ Beatriz, radiante, não conseguia ficar quieta.
 
 — Vocês não vão acreditar no que eu consegui! Uma chama de verdade! Pra cima!
 
-— Sério? — Eshley arregalou os olhos. — Eu ainda estou em objetos pequenos. Nada de fogo.
+— Perto das lanternas, não! — Shirley afastou as tiras de papel, rindo.
 
-— Eu ainda não consegui mover nem uma brisa — confessou Maria. — Meu M.A. é o ar, mas ele não me escuta.
+— Eu não vou fazer aqui! — Beatriz ergueu as mãos vazias.
 
-— Ele vai escutar — disse Banjo, com um sorriso. — Comigo foi assim. Hoje levantei uma pedra. Como se fosse normal as coisas voarem ao meu redor.
+— Eu descobri que consigo amortecer quedas — contou Eshley. — Hoje uma bola caiu do alto da sala de treino e mal quicou. Na segunda tentativa, ela bateu no chão e saiu pulando para todo lado. Ainda não consigo fazer quando quero.
+
+Maria virou uma tira de papel entre os dedos.
+
+— Eu ainda não tenho certeza da minha. Acho que tem a ver com luz e cores. Uma fita ficou mais brilhante na aula, mas, quando tentei de novo, não aconteceu nada.
+
+— Comigo também era assim — disse Banjo. — Mas hoje levantei uma pedra! Sem encostar nela!
+
+— A minha é conduzir eletricidade — disse Shirley. Pegou um dos aros finos que sustentariam as lanternas e fez uma faísca percorrer o metal. Ela se apagou antes de completar a volta. — Só consigo por um pedacinho ainda.
 
 Emiris sorriu, mas o sorriso parecia emprestado.
 
-— Eu fiz luz na mão — falou. — Dizem que é difícil. Estou indo bem.
+— A minha também é eletricidade. Só que eu consigo produzir a carga sem metal — disse, estendendo a mão.
 
-Para provar, abriu a palma, e um ponto dourado, pequeno e firme, acendeu ali, como um vaga-lume obediente. Os olhos de Beatriz brilharam.
+Uma centelha dourada saltou entre os dedos dele e desapareceu quase no mesmo instante. Emiris fechou a mão depressa.
+
+— Amanhã vai durar mais — murmurou.
+
+— Ainda dá tempo de fazer uma lanterna que dure até amanhã — disse Eshley, empurrando um aro para ele.
 
 Bruno não viu nada disso. Tinha visto, pela janela do salão, uma capa escura virando no corredor.
 
