@@ -104,19 +104,29 @@ O quarto era diferente do que ele esperava. Era vasto, aconchegante e antigo, co
 
 Ao lado da cama, um cubo prateado de um metro e meio de altura repousava no chão, com linhas brilhantes percorrendo a superfície. Bruno viu seu próprio reflexo ali, distorcido e fragmentado. Estendeu a mão e tocou o metal.
 
-Imagens invadiram a mente dele. Um jovem de uns dezoito anos, caído numa ruína, com um facão de cabo escuro preso ao cinto, os olhos manchados como sombras e um olhar de ódio e dor. Em seguida, Velho-Sábio, mais jovem, flutuando numa noite iluminada por uma energia colossal que ele tentava conter com o cajado, enquanto atrás dele pessoas de rostos assustados buscavam proteção. Depois, Velho-Sábio, dez anos mais jovem do que aquele que conhecia, num espaço inteiramente branco, com a mão no peito, os olhos fechados, absorvendo uma notícia que mudaria tudo.
+Imagens invadiram a mente dele. Um jovem de uns dezoito anos, caído numa ruína, com um facão de cabo escuro preso ao cinto, os olhos manchados como sombras e um olhar de ódio e dor. Em seguida, Velho-Sábio, mais jovem, flutuando numa noite iluminada por uma energia colossal que ele tentava conter com o cajado, enquanto atrás dele pessoas de rostos assustados buscavam proteção. Depois, Velho-Sábio outra vez, com o rosto menos marcado pelo tempo, num espaço inteiramente branco, com a mão no peito e os olhos fechados, como se acabasse de ouvir uma notícia terrível.
 
-Bruno voltou ao quarto com o coração disparado e a cabeça girando. Ao levantar os olhos, viu Velho-Sábio parado à porta, o olhar triste e compreensivo.
+Bruno voltou a si ainda diante do cubo, com o coração disparado. A mão continuava encostada no metal. Recuou depressa e encontrou Velho-Sábio parado à porta. O mago olhou primeiro para o garoto, depois para o orcídeo.
 
-— Desculpe — murmurou Bruno, sem saber exatamente por quê.
+— Eu não devia ter entrado — disse Bruno, contrariado.
 
-— Isso que você tocou é um orcídeo, Bruno. — O mago hesitou. — Serve para guardar o excesso de energia que nós, senavelitas, acumulamos na vida. Com a idade, o corpo não consegue mais filtrar sozinho o limite da magia. O orcídeo impede que o excesso nos sobrecarregue.
+— Isso é um orcídeo — respondeu Velho-Sábio, sem se aproximar. — Serve para guardar o excesso de energia que nós, senavelitas, acumulamos ao longo da vida. Quando o corpo já não consegue filtrar tudo sozinho, ele impede que a magia nos sobrecarregue.
 
-Bruno escutava, sem saber como reagir.
+Bruno enfiou as mãos nos bolsos. As imagens ainda estavam na sua cabeça, mas ele não sabia se tinham sido reais, nem se queria perguntar.
 
-— O que você viu não era para ser visto, Bruno — continuou ele, com a voz firme. — Mas não vou te castigar. Vai dormir. Amanhã é um dia grande.
+Velho-Sábio observou o cubo por mais um instante.
 
-Bruno quis responder, mas não conseguiu. Saiu do quarto sem olhar para ele, sentindo o olhar do mago nas costas. Não queria que ele visse a mistura de raiva, medo e incerteza que dançava em seu rosto.
+— Às vezes, um orcídeo guarda mais do que energia. Lembranças ligadas a emoções muito fortes podem deixar marcas nele. A magia guarda essas marcas e, de certo modo, a memória também.
+
+Bruno ergueu os olhos, mas o mago não fez nenhuma pergunta.
+
+— Tá bom. Já entendi — respondeu, seco.
+
+— Não vou te castigar por ter entrado. Mas não volte a mexer nas minhas coisas sem pedir. Vá descansar, Bruno.
+
+— Como se eu conseguisse dormir — resmungou Bruno.
+
+Passou pela porta antes que Velho-Sábio respondesse. Ainda estava com raiva da eliminação, dos gêmeos e, sobretudo, de Breno ter razão. As imagens do orcídeo só tinham acrescentado mais uma coisa que ele não conseguia explicar. Seguiu para o quarto dos irmãos de punhos fechados, sem olhar para trás.
 
 
 Na manhã seguinte, o céu mal tinha clareado quando Velho-Sábio acordou os irmãos. Havia uma xícara quente na mesinha de cada um, e Átila dormia sentado ao pé da cama de Banjo, como um guarda de honra cansado.
@@ -129,7 +139,7 @@ Ninguém teve coragem de perguntar o quê. Banjo, de olhos vermelhos, já se des
 
 O dassi parou. Para a surpresa deles, estavam de novo diante do prédio de treinamento. Velho-Sábio disse apenas "Vamos", e subiram de elevador a um andar superior, onde Garmande e vários aprendizes aguardavam numa sala clara. O coração de Bruno bateu mais forte ao ver a expressão severa do tutor.
 
-— Hoje anuncio os aprendizes que passaram nos dois primeiros desafios e participarão do último — disse Garmande. — É uma honra.
+— Hoje anuncio os aprendizes autorizados a participar do último desafio — disse Garmande. — É uma honra.
 
 Ele começou a citar nomes. Brenda, Isabelle, Ferris. Isabelle não participara da travessia do Rio Celeste, e ainda assim seu nome estava na lista. Garmande não ofereceu nenhuma explicação. Depois:
 
@@ -143,7 +153,7 @@ Garmande olhou diretamente para ele.
 
 — Sua eliminação não foi anulada. Auream pediu que eu reconsiderasse sua avaliação. Você demonstrou aptidão, mas também uma indisciplina que pôs seu resultado em risco. Terá a oportunidade de disputar a última prova. É uma chance, não uma aprovação.
 
-— Passou, Bruno! — gritou Banjo, rindo, com os olhos marejados, e deu um empurrão no irmão. — A gente está de volta!
+— Você vai fazer o último desafio com a gente, Bruno! — gritou Banjo, rindo, com os olhos marejados, e deu um empurrão no irmão. — A gente está de volta!
 
 Breno respirou como se tivesse tirado uma rocha das costas.
 
@@ -153,11 +163,17 @@ Breno respirou como se tivesse tirado uma rocha das costas.
 
 Breno o encarou por um instante. Depois lhe deu um leve empurrão no ombro. Ainda havia muita coisa a dizer, mas não ali.
 
-Garmande continuou a lista, e então disse:
+Garmande continuou a lista.
+
+— Denis.
+
+— Eu consegui voltar pra lárida! — anunciou Denis, abrindo os braços como se ainda estivesse contando o caso da bolha.
+
+Garmande esperou o riso diminuir e prosseguiu:
 
 — Emiris.
 
-Os irmãos ficaram paralisados. Tinham certeza de que Emiris havia sido eliminado. No fundo do salão, o menino de cabelos claros empalideceu e olhou na direção da porta, onde um homem alto, de uniforme cinza da Vigilância, trocou com Garmande um aceno breve, sem sorrir. Emiris baixou os olhos, e as orelhas dele ficaram vermelhas. Os gêmeos Nicolas e Erick foram chamados em seguida, e Bruno apertou os dentes.
+Os irmãos ficaram paralisados. No refeitório, depois da primeira corrida, Maria lhes contara que Emiris e o parceiro tinham sido eliminados na tempestade. Agora o nome dele estava na lista. No fundo do salão, o menino de cabelos claros empalideceu e olhou na direção da porta, onde um homem alto, de uniforme cinza da Vigilância, trocou com Garmande um aceno breve, sem sorrir. Emiris baixou os olhos, e as orelhas dele ficaram vermelhas. Os gêmeos Nicolas e Erick foram chamados em seguida, e Bruno apertou os dentes.
 
 — O último desafio será na sexta à tarde — concluiu Garmande. — Será o mais difícil de todos. Boa sorte.
 

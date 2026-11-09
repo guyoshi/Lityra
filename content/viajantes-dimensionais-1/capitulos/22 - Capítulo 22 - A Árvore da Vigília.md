@@ -160,11 +160,23 @@ Bruno olhou para as mãos.
 
 Velho-Sábio não discordou. Apenas esperou.
 
-— Não conta pro Garmande que eu disse isso — acrescentou Bruno.
+Bruno olhou para Breno, do outro lado da mesa.
+
+— Eu ouvi você mandar seguir reto. E mesmo assim virei. Quase fiz você cair também. Foi mal.
+
+Breno passou o polegar pela borda do copo.
+
+— Eu só queria que a gente chegasse junto.
+
+— Eu sei — respondeu Bruno, sem encará-lo por muito tempo. — Da próxima eu tento ouvir.
+
+— Tenta mesmo.
+
+Bruno soltou o ar pelo nariz. Não era fácil admitir aquilo, principalmente diante dos outros, mas dessa vez não tentou pôr a culpa nos gêmeos.
+
+— Não conta pro Garmande que eu disse isso — acrescentou, olhando para Velho-Sábio.
 
 O mago sorriu e se virou para a caçula.
-
-Velho-Sábio sorriu e se virou para a caçula.
 
 — Beatriz.
 
