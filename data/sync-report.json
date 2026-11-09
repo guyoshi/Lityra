@@ -1,10 +1,10 @@
 {
-  "generatedAt": "2026-11-09T01:53:34Z",
+  "generatedAt": "2026-11-09T09:51:31Z",
   "sourceRepository": "guyoshi/dimensoesinfinitas",
-  "sourceCommit": "20098134b79d881f2d24f2710213b59db4961632",
+  "sourceCommit": "b78325cf6a118fee0fad7bd36d4c63aee0785917",
   "status": "warning",
   "summary": {
-    "warnings": 24
+    "warnings": 23
   },
   "issues": [
     {
@@ -126,12 +126,6 @@
       "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
       "bookId": "viajantes-dimensionais-6",
       "item": "Viajantes Dimensionais/6 - Livro 6/00 - Texto/capitulos"
-    },
-    {
-      "area": "cover",
-      "message": "Capa aprovada não encontrada; a capa publicada anteriormente foi mantida.",
-      "bookId": "viajantes-dimensionais-1",
-      "item": "Viajantes Dimensionais/1 - A Patrulha de Korvo/02 - Assets/Capas/Viajantes 1 Capa.png"
     },
     {
       "area": "cover",
