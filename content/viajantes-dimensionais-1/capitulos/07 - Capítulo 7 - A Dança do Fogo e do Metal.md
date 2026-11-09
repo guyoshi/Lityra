@@ -116,7 +116,7 @@ Aos domingos havia jantar, e o jantar era ordem de Velho-Sábio. Nada de treino,
 
 Contaram. Foi a primeira vez que alguém descreveu um purê de tubérculo como "um abraço morno com pedacinhos", e Kali anotou a frase.
 
-Tayo, aos poucos, deixou de ser um mapa e virou um distrito com gente que os reconhecia. Em Brisália, Beatriz sabia que Pelan, da padaria, sempre dava um pão a mais. Banjo cumprimentava o homem da previsão do tempo pelo nome. Bruno tinha opinião sobre todos os dassis da rua. E Breno, que detestaria admitir, já não procurava as saídas quando entrava num lugar novo.
+Tayo, aos poucos, deixou de ser um mapa e virou um distrito com gente que os reconhecia. Em Brisália, Beatriz sabia que Pelan, da padaria, sempre dava um pão a mais. Banjo cumprimentava a mulher da previsão do tempo pelo nome. Bruno tinha opinião sobre todos os dassis da rua. E Breno, que detestaria admitir, já não procurava as saídas quando entrava num lugar novo.
 
 Às vezes, depois das aulas, passavam pelo Largo dos Ponteiros, onde o relógio público mudava de cor e as crianças disputavam quem conseguiria fazê-lo tocar fora de hora. No Parque do Arco Manso, Banjo descobriu uma árvore que deixava as folhas cair apenas quando alguém lhe contava uma coisa engraçada. Bruno tentou fazê-la rir por dez minutos e saiu debaixo dela com um único graveto no cabelo. Beatriz conseguiu uma chuva de folhas contando que o irmão tinha ensaiado uma reverência para o próprio reflexo. Bruno jurou que a árvore estava roubando.
 
@@ -141,13 +141,13 @@ Dez metros adiante, descobriu que fazer curva exigia diminuir a velocidade. A bi
 
 Numa dessas manhãs, perto do fim da terceira semana, o céu de Tayo estava cor de pêssego e as ruas cheiravam a pão de mel. Velho-Sábio caminhou calado até o Edifício Arcano, o cajado batendo no calçamento num ritmo lento, e os irmãos acharam melhor não interromper os pensamentos dele.
 
-Tayo, porém, não estava calada. Num poste, um homem de colete listrado anunciava a previsão do dia, olhando para o céu com uma lupa de latão:
+Tayo, porém, não estava calada. Num poste, uma mulher de colete listrado anunciava a previsão do dia, olhando para o céu com uma lupa de latão:
 
-— Nuvens de bom humor até o meio-dia, meus senhores! Depois, mau humor leve, com chance de garoa emburrada. Levem casaco!
+— Nuvens de bom humor até o meio-dia, minha gente! Depois, mau humor leve, com chance de garoa emburrada. Levem casaco!
 
 — E se elas mudarem de ideia? — perguntou Banjo.
 
-— Mudam sempre, rapaz. Por isso eu cobro só meio pêndulo! — O homem tocou o chapéu. — Que a luz te encontre!
+— Mudam sempre, rapaz. Por isso eu cobro só meio pêndulo! — A mulher tocou o chapéu. — Que a luz te encontre!
 
 — Que a luz te encontre — respondeu Banjo, sem pensar, e depois ficou muito satisfeito consigo mesmo pelo resto do quarteirão. Já conhecia o caminho de Brisália até a estação e apontou o atalho para os irmãos antes que Velho-Sábio precisasse fazê-lo.
 
