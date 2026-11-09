@@ -235,6 +235,16 @@ Erla inclinou o corpo para a frente.
 
 — Auream me avisou que alguém da Vigilância podia estar usando a Central para esconder alguma coisa. Recusei acusar meus oficiais sem provas. Depois do Festival, porém, descobri alterações nas escalas de serviço e nos registros de acesso à prisão.
 
+— E havia outra coisa — continuou Erla. — Um parecer da Vigilância usado para readmitir Emiris nos desafios. O documento dizia que uma falha na proteção da pista tinha provocado a queda do dassi. Foi Garien quem apresentou o parecer. Os registros originais da corrida não indicam defeito nenhum.
+
+Garmande apertou as mãos sobre a mesa.
+
+— Eu aceitei a revisão porque acreditei no relatório. Não seria justo eliminar um aprendiz por uma falha da organização.
+
+Erla assentiu, sem desviar o olhar.
+
+— Garien sabia disso.
+
 Erla passou os dedos pelo broche em forma de árvore.
 
 — Mandei o capitão Marcus investigar. Ele conhecia as caixas de alarme nos corredores da Presália. Quando uma é acionada, a Central recebe o número do setor, não a localização de uma pessoa. Marcus conseguiu ativar uma. Foi assim que soubemos que havia perigo lá dentro.

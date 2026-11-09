@@ -84,33 +84,35 @@ Eshley piscou, sem saber o que dizer, e trocou com Beatriz um olhar rápido, mei
 
 — É que tem muita coisa acontecendo — respondeu Beatriz. — Às vezes eu não consigo entender tudo de uma vez.
 
-— Meu pai diz que a gente aprende mais ouvindo do que falando. — Emiris sorriu de lado. — Ele diz que as coisas mais importantes as pessoas contam quando nem percebem que estão contando.
+— Lá em casa, meu pai vive contando histórias da Terra — disse Emiris, apoiando as mãos nos joelhos. — Ele reclama da chuva de lá, mas acho que sente saudade.
 
-— Seu pai é da Vigilância, não é?
+— Você me contou dos guarda-chuvas — lembrou Beatriz, sorrindo.
 
-— É. Ele é muito... dedicado ao trabalho. — Ele esfregou as mãos, olhando para elas. — E os seus? Ouvi dizer que eles também já estiveram aqui. Na quarta dimensão.
+— E das enchentes. — Emiris riu. — Seus pais também estiveram em Belfex, não foi? Vocês descobriram alguma coisa sobre quando vieram?
 
-Beatriz sentiu o estômago afundar. Lembrou do que Velho-Sábio dissera depois da reunião: o que ouviram ficava com eles. E lembrou, sem saber bem por quê, do homem de uniforme cinza que trocara um aceno com Garmande no dia em que Emiris voltou.
+Beatriz tocou o colar por baixo da gola. Lembrou do pedido de Velho-Sábio para guardarem o que tinham ouvido na reunião. Ainda estava tentando entender aquilo tudo.
 
-— Não sei de nada — disse, e achou a própria voz pequena demais. — Eles nunca contaram nada pra gente.
+— Pouca coisa. Eles não falavam daqui com a gente.
 
-— Interessante. — Emiris se inclinou um pouco. — Mas você deve ter ouvido alguma coisa. Os nomes, onde...
+— Deve ser estranho — disse Emiris. — O meu fala até quando ninguém pergunta.
 
 — Bia! — Bruno cruzou o pátio a passos largos, o cabelo ainda amassado do travesseiro. — Velho-Sábio quer ver a gente.
 
-Beatriz se levantou depressa demais. Emiris ficou no banco, sozinho, os lábios apertados como quem perdeu uma pergunta pela metade.
+Beatriz se levantou, aliviada por ter uma desculpa para sair. Emiris ficou no banco, brincando com uma pedrinha entre os dedos.
 
-— O que ele queria saber? — murmurou Bruno, quando se afastaram.
+— O que vocês estavam conversando? — perguntou Bruno, quando se afastaram.
 
-— Dos nossos pais.
+— Da Terra. Do pai dele e dos nossos.
 
-— O pai dele é da Vigilância — disse Bruno, num fio de voz. — Depois do que aconteceu com o nosso dassi, não gosto dele fazendo perguntas sobre os nossos pais.
+Bruno olhou para trás, na direção do banco.
 
-— Ele só estava sendo simpático.
+— O Velho-Sábio não me chamou. Eu inventei.
 
-— Pode ser. — Bruno olhou por cima do ombro. — Mas Velho-Sábio não me chamou. Eu inventei.
+— Bruno!
 
-Beatriz deu uma risada curta e soltou o ar. Ele tinha feito isso por ela, e os dois sabiam.
+— Você tava com uma cara de quem queria sair dali.
+
+Beatriz deu uma risada curta e soltou o ar. O irmão tinha percebido.
 
 
 Banjo, enquanto isso, havia seguido Shirley até uma área de treinamento vazia, onde ela o derrotou em cinco duelos seguidos. Era rápida, ágil, e tinha uma determinação feroz que não combinava com o sorriso, mas ela perdoava cada tropeço dele com uma gargalhada, e a derrota ficava menos amarga.
@@ -258,7 +260,7 @@ Diante deles se erguia o Vórtice Monumental, no meio das fachadas iluminadas de
 
 Antes do portal, dois vigilantes de uniforme cinza conferiam nomes numa prancheta de cristal. Um deles, de olhos cansados e sorriso gentil, ergueu o rosto quando os irmãos se aproximaram.
 
-— Fulgor Dourado, certo? Eu sou o Garien. Já vi vocês no Edifício Arcano, mas nunca de perto. — Tirou do bolso um saquinho de balas de mel e estendeu a Banjo. — Para os nervos. Não contem para a Erla. Ela acha que doce é falta de disciplina.
+— Fulgor Dourado, certo? Sou o Garien. Nós nos vimos no Edifício Arcano, lembram? — Tirou do bolso um saquinho de balas de mel e estendeu a Banjo. — Para os nervos. Não contem para a Erla. Ela acha que doce é falta de disciplina.
 
 — O senhor é vigilante de verdade? — perguntou Bruno, aceitando duas balas em vez de uma.
 
