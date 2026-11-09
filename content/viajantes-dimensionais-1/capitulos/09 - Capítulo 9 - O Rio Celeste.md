@@ -196,7 +196,9 @@ Ele correu até a entrada e se atirou na água com o irmão. A criatura os perse
 
 — CORRAM! — berrou Bruno. — SÉRIO, CORRAM!
 
-A água atrás deles explodiu, e a criatura emergiu num rugido que sacudiu o rio inteiro. Eshley, que passava perto, arregalou os olhos. Denis, que chegava naquele momento, soltou um grito agudo. A criatura o agarrou com uma garra e o puxou para dentro da água, em um turbilhão. Segundos depois, uma bolha enorme subiu à superfície, brilhando, com Denis dentro dela, de olhos arregalados e as mãos no vidro. A bolha flutuou para longe, para fora do rio, e se perdeu entre as nuvens, levando o dono para uma eliminação sem arranhões e com muito a contar.
+A água atrás deles explodiu, e a criatura emergiu num rugido que sacudiu o rio inteiro. Eshley, que passava perto, arregalou os olhos. Denis, que vinha logo atrás na própria lárida, soltou um grito agudo. A criatura o agarrou com uma garra e o puxou para dentro da água, em um turbilhão. Segundos depois, uma bolha enorme subiu à superfície, brilhando, com Denis dentro dela, de olhos arregalados e as mãos contra a parede transparente. A lárida dele escapou da confusão e nadou atrás da bolha, que desceu sobre outra curva do rio. Quando a proteção se desfez, Denis caiu de barriga sobre o dorso da montaria e agarrou as cordas com tanta força que os nós estalaram.
+
+— EU NÃO QUERO MAIS VER ESSE BICHO! — gritou, disparando rio abaixo sem olhar para trás.
 
 — MINHA NOSSA! — gritou Breno. Os quatro incitaram as láridas, e a criatura emergiu de novo, com uma velocidade absurda.
 
