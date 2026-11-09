@@ -185,7 +185,7 @@ Quando a névoa passou, estavam de volta à superfície, e a linha de chegada br
 
 Eles se aproximaram do dassi preto, e Erick lançou uma saraivada de bolas de fogo que formou uma cortina incandescente na frente deles. O calor encheu a cabine. Banjo tapou o rosto com o braço.
 
-— Desse jeito a gente perde!
+— Desse jeito a gente perde! — gritou Bruno.
 
 — Não — sussurrou Beatriz.
 

@@ -122,7 +122,7 @@ Bruno montou na lárida e, antes que alguém o impedisse, guiou-a para baixo da 
 
 Os outros aprendizes chegavam, lutando contra as correntezas que giravam em torno da área, puxando-os para as bordas do rio. Breno segurava as cordas com força. Beatriz estava branca de tensão.
 
-— SEGURA, MANINHA! — gritou ele.
+— SEGURA, MANINHA! — gritou Breno.
 
 No meio do turbilhão, Beatriz perdeu o controle, e a lárida a derrubou. Ela foi arrastada pela água. Banjo estendeu a mão, mas hesitou. Até uma colher às vezes escapava do seu controle. E se não conseguisse segurá-la?
 

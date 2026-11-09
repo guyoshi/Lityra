@@ -296,7 +296,7 @@ Bruno juntou frio entre os dedos para provar que podia melhorar o resultado. A c
 
 — Reclama pro cozinheiro — disse Beatriz.
 
-— Cozinheira. E eu cobro caro.
+— Cozinheira. E eu cobro caro — insistiu Beatriz.
 
 Velho-Sábio, na pedra, fingiu que dormia, para ninguém ver que estava sorrindo.
 
@@ -391,7 +391,7 @@ Bruno congelou. Saiu devagar, com a nuca arrepiada.
 
 — Eu só... estava...
 
-— Estava me espionando. — McCroys se aproximou, a voz baixa e controlada. — Ele inclinou-se. — A Vigilância anda de olho nos dimensais, garoto. E quem bisbilhota os meus aprendizes costuma ser o primeiro a ser observado.
+— Estava me espionando. — McCroys se aproximou, a voz baixa e controlada, e inclinou-se. — A Vigilância anda de olho nos dimensais, garoto. E quem bisbilhota os meus aprendizes costuma ser o primeiro a ser observado.
 
 Ele sabe que eu vi os gêmeos, pensou Bruno, e a espinha gelou.
 
@@ -420,8 +420,8 @@ O nome fez Beatriz empalidecer, e Banjo largou o papel que dobrava.
 
 Ninguém disse mais nada por um momento. Na mesa ao lado, uma lanterna terminada subiu do tampo e ficou pairando acima deles, balançando como um balão preguiçoso, com a luz dourada acesa lá dentro.
 
-Banjo esticou a mão e a lanterna veio até ela.
+Banjo esticou a mão e a lanterna veio até ele.
 
-— Quem fez essa? — perguntou.
+— Quem fez essa? — perguntou Banjo.
 
 Ninguém sabia. A lanterna ficou ali um instante, quente, quieta, e então subiu, subiu até o teto alto do refeitório, e se apagou sozinha.

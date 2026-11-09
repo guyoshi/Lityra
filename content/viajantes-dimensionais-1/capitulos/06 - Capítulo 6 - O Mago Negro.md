@@ -306,7 +306,7 @@ Brenda suspirou, entediada, e percebeu o olhar de Bruno. Ergueu as sobrancelhas 
 
 O velho ficou em silêncio por um longo momento.
 
-— As circunstâncias pedem ação. Se continuarmos esperando, pode começar uma guerra civil em Tayo. A Sociedade talvez seja o melhor caminho.
+— As circunstâncias pedem ação — disse Velho-Sábio, rompendo o silêncio. — Se continuarmos esperando, pode começar uma guerra civil em Tayo. A Sociedade talvez seja o melhor caminho.
 
 Garmande virou-se para os irmãos.
 
