@@ -228,9 +228,9 @@ Lá embaixo, as nuvens se abriram como uma almofada e embalaram a menina, que de
 
 — Que bicho insistente! — resmungou Breno, olhando para a besta.
 
-A criatura avançava em zigue-zague, aprendendo o ritmo deles. Beatriz lançou bolas de fogo, e elas iluminaram o rio, mas não adiantaram nada. A fera mergulhou e voltou com um salto, quase alcançando-os.
+A criatura avançava em zigue-zague, aprendendo o ritmo deles. Beatriz tentou fazer o que fizera contra Erick. Agitou a mão, procurando aquele calor de antes, mas só conseguiu um formigamento na ponta dos dedos. Sacudiu o braço mais uma vez. Nada. A fera mergulhou e voltou com um salto, quase alcançando-os.
 
-— Isso não está funcionando — murmurou Banjo, olhando a criatura com atenção. Havia algo nos olhos dela que ele não conseguia ignorar. — Vou tentar do meu jeito.
+— A gente não vai conseguir despistar ela — murmurou Banjo, olhando a criatura com atenção. Havia algo nos olhos dela que ele não conseguia ignorar. — Vou tentar do meu jeito.
 
 — Do seu jeito o quê? — perguntou Breno.
 
@@ -294,7 +294,7 @@ Mas, assim que avançaram juntos, Nicolas e Erick surgiram à frente, montados n
 
 — Vocês estão acabados! — gritou Nicolas, fazendo nascer estacas de gelo ao redor dos braços. Erick acendeu uma chama na palma da mão. — Já era pra vocês terem caído!
 
-Erick disparou fogo, e Nicolas lançou uma lâmina de gelo. Beatriz e Bruno reagiram, mas os contra-ataques erraram o alvo e espirraram água para todos os lados. Os gêmeos gargalharam. Acima deles, a criatura saltou de um braço do rio para outro. A sombra atravessou a água, e Banjo encolheu os ombros, esperando outro ataque. Mas a fera mergulhou de novo.
+Erick disparou fogo, e Nicolas lançou uma lâmina de gelo. Bruno tentou erguer uma barreira de gelo, mas ela surgiu torta, longe demais para protegê-los. Beatriz agitou o braço na direção dos gêmeos, procurando a chama azul de antes. Não saiu nada. Os ataques passaram perto das láridas e atingiram a água, que espirrou para todos os lados. Os gêmeos gargalharam. Acima deles, a criatura saltou de um braço do rio para outro. A sombra atravessou a água, e Banjo encolheu os ombros, esperando outro ataque. Mas a fera mergulhou de novo.
 
 — O arco! — gritou Beatriz. — Tá logo ali!
 
