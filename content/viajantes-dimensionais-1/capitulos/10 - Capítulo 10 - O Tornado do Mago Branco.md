@@ -116,7 +116,7 @@ Bruno enfiou as mãos nos bolsos. As imagens ainda estavam na sua cabeça, mas e
 
 Velho-Sábio observou o cubo por mais um instante.
 
-— Às vezes, um orcídeo guarda mais do que energia. Lembranças ligadas a emoções muito fortes podem deixar marcas nele. A magia guarda essas marcas e, de certo modo, a memória também.
+— Às vezes, um orcídeo guarda mais do que energia. Há lembranças tão ligadas a emoções fortes que deixam marcas na magia. Algumas dessas marcas podem ficar presas aqui.
 
 Bruno ergueu os olhos, mas o mago não fez nenhuma pergunta.
 
