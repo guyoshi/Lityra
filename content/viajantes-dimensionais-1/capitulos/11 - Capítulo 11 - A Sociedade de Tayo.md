@@ -176,7 +176,7 @@ Bruno engoliu em seco. Sentiu o peso dos olhares caindo sobre ele e os irmãos.
 
 Os membros se entreolharam, alarmados.
 
-— Uma aracna? Mas elas não vivem...
+— Uma aracna? — estranhou Elowen. — Mas elas não vivem...
 
 — Em túneis profundos — completou Velho-Sábio. — Não costumam sair ao ar livre.
 

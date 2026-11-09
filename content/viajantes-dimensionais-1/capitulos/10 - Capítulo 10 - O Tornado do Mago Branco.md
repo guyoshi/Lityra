@@ -66,7 +66,7 @@ Bruno hesitou, mas algo no jeito dos irmãos o fez levantar. Na mesa, Breno tinh
 
 — Vocês não precisam fazer isso — murmurou. — Eu volto e vocês ficam.
 
-— Come, Maria-chatice. Esfria. — Breno balançou a cabeça.
+— Come, Maria-chatice. Esfria — disse Breno, balançando a cabeça.
 
 Bruno engoliu em seco, assentiu sem olhar para ele, e Breno deu um tapinha nas costas dele e saiu. Quando ficou sozinho, Bruno encarou o prato vazio e socou a mesa.
 

@@ -16,7 +16,7 @@ Ele examinou o céu com a expressão mais inocente que conseguiu. Banjo riu tão
 
 Banjo tentou contar a história da criatura da banca, mas se atrapalhou tanto que todos começaram a rir. Voltaram por conta própria, com moedas a menos e nada de extraordinário para relatar. Kali perguntou se tinham se comportado. Bruno respondeu que dependia de quem estivesse avaliando, e Átila examinou os sacos de papel em busca de migalhas.
 
-Na quinta à noite, ele serviu o jantar mais simples de todos, sopa e pão, e disse apenas:
+Na quinta à noite, Velho-Sábio serviu o jantar mais simples de todos, sopa e pão, e disse apenas:
 
 — Durmam bem. O que vier, vocês já têm.
 
