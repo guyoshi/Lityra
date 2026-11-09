@@ -148,11 +148,17 @@ Bruno não tinha saída. Desviou de uma rajada por pouco.
 
 — TEM MEDO DE FOGO, BRUNO?
 
-— E VOCÊ? — gritou uma voz próxima.
+Beatriz viu Erick erguer o braço para atacar de novo. Estava agarrada às cordas da lárida de Banjo e mal conseguia se equilibrar, mas soltou uma das mãos e agitou o braço na direção do garoto, como se pudesse afastar as chamas dali.
 
-Era Beatriz, na lárida de Banjo, com uma chama azul intensa na mão. A bola de fogo cruzou o ar e acertou a lárida de Erick, que subiu fora de controle e despencou do rio. Erick ficou preso numa tira de água, no meio do caminho, sem montaria, urrando de raiva.
+Um calor repentino correu pelo braço dela. Beatriz sentiu as pontas dos dedos arderem e tentou sacudir a mão. Nesse instante, uma labareda azul escapou de sua palma e cruzou o espaço entre as duas láridas.
 
-— HAHA, SEU BABACA! — gritou Bruno, com os olhos faiscando, e seguiu com os irmãos.
+O fogo atingiu a lateral da montaria de Erick. Assustada, ela deu um salto brusco, saiu do curso do rio e derrubou o rapaz. Erick ficou preso numa tira de água, no meio do caminho, sem montaria, urrando de raiva.
+
+— HAHA, SEU BABACA! — gritou Bruno, com os olhos faiscando.
+
+Beatriz encarou a própria mão. Não havia nem uma faísca nela agora.
+
+— Vocês viram o que eu fiz?! — perguntou, olhando de Banjo para Bruno, ainda espantada. — Foi fogo azul!
 
 — Bruno, dessa vez espera a gente — pediu Breno. — Precisamos ir juntos.
 
