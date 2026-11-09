@@ -9,9 +9,9 @@ Os quatro irmãos se juntaram a uma mesa onde Eshley, Maria e Emiris já convers
 
 A mesa ficou em silêncio por um instante, e foi um silêncio bom, de quem respeita uma confissão. Maria pousou a mão no ombro da amiga.
 
-— Eu moro só com a minha mãe e o meu irmãozinho — disse, com a voz baixa. — Minha mãe trabalha o dia todo, e eu cuido dele. Vim tentar uma coisa nova. Talvez eu consiga ajudar a minha mãe de algum jeito.
+— Eu moro só com a minha mãe e o meu irmãozinho — disse Maria, com a voz baixa. — Minha mãe trabalha o dia todo, e eu cuido dele. Vim tentar uma coisa nova. Talvez eu consiga ajudar a minha mãe de algum jeito.
 
-Maria olhou para os quatro irmãos.
+Ela olhou para os quatro irmãos.
 
 — E vocês? Vieram com alguém da família?
 
