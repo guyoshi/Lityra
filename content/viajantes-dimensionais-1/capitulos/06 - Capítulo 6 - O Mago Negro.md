@@ -135,7 +135,11 @@ Foi quando o ar em volta dela esquentou. Um estalo, como o de uma brasa se parti
 
 Beatriz se encolheu. O mago observava com a cabeça inclinada.
 
-— O ar esquentou outra vez — disse Velho-Sábio, observando a pedra rachada e a luz quebrada. — Vamos parar por aqui antes que alguma coisa estoure perto de você.
+— Mas eu nem tava tentando fazer isso agora... — Beatriz olhou para a pedra rachada. — Eu só fiquei com raiva dela.
+
+Velho-Sábio observou a rachadura.
+
+— Pode ser uma pista. Mas ainda precisamos descobrir o que aconteceu. Vamos parar por aqui antes que alguma coisa estoure perto de você.
 
 Num intervalo, Bruno olhou para o castelo torto e para a duna ao lado, e teve uma ideia.
 

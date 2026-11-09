@@ -206,13 +206,13 @@ Breno se agachou ao lado dela.
 
 — Calma, Bia. A gente está seguro. E eu estou aqui.
 
-— Só sai quando eu tô brava — ela murmurou. — E agora eu só tô com medo!
+— Naquele treino do vulcão, só funcionou quando eu fiquei com raiva — ela murmurou. — Mas agora eu tô com medo!
 
 — Então tenta outra coisa. Pensa em algo que te tire do sério.
 
 Ela fechou os olhos. Pensou no Bruno chamando-a de maninha na frente dos outros, e nada. Pensou na altura, e o estômago virou. Abriu os olhos, desanimada.
 
-— E se não for a emoção certa?
+— Não adianta, Breninho. Eu não consigo ficar com raiva agora!
 
 Breno sorriu, aquele sorriso paciente de irmão mais velho, e se levantou.
 
