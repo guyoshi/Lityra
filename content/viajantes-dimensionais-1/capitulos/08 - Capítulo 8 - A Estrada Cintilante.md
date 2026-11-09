@@ -253,7 +253,7 @@ Logo atrás dele, William McCroys observava os irmãos com a frieza de sempre.
 
 — Segundo lugar — disse, seco. — Uma colocação decente.
 
-Bruno olhou feio para ele, e foi quando percebeu, no dedo do homem, um anel negro e chamativo, que parecia sugar a luz à volta.
+Bruno olhou feio para ele e percebeu um anel negro no dedo do homem. O aro parecia sugar a luz à volta, mas um risco prateado, em forma de raio e interrompido bem no meio, brilhava quando McCroys movia a mão.
 
 
 No refeitório, a empolgação ainda corria solta. Eshley e Maria vieram com os olhos brilhando.
