@@ -170,7 +170,7 @@ Breno se lembrou do dassi que batera no deles, na volta das ruínas. Dos dois ho
 
 — Então mandou bater no nosso dassi de propósito? — Breno mal acreditava no que estava ouvindo.
 
-— O velho mostrou exatamente do que é capaz.
+— Mandei. E o velho mostrou exatamente do que é capaz.
 
 — Você podia ter matado a Beatriz! — Bruno avançou um passo. — Podia ter matado todos nós!
 
@@ -180,9 +180,9 @@ Garien desviou os olhos para ele.
 
 — Apostou com a nossa vida? — Bruno apertou os punhos.
 
-Garien não respondeu.
+Garien não respondeu. Bruno olhou para o uniforme cinza do vigilante, e uma lembrança voltou à sua cabeça.
 
-— O anel — disse Bruno de repente, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo do McCroys e depois no estojo que você mostrou. Foi o que acharam na Central.
+— O anel do McCroys... — disse, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo dele e depois no estojo que você mostrou. Foi o que acharam na Central.
 
 — Eu o plantei lá — confirmou Garien, com um aceno quase educado. — Pedi aos gêmeos que me trouxessem o anel dele. Eles não sabiam para quê. Achavam que era um favor, uma prova de lealdade.
 
