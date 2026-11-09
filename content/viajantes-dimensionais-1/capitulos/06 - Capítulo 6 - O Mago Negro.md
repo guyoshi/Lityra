@@ -176,7 +176,7 @@ O de Velho-Sábio ficou verde-acinzentado e tinha gosto de sopa de cebola. Ele t
 
 Depois, atravessaram uma pequena praça, onde crianças e velhos se amontoavam em torno de uma senhora de xale turquesa, sentada num banquinho. A cada palavra que dizia, uma fumacinha prateada subia da boca dela e se desenhava no ar.
 
-— ...e dizem que era um menino de outro mundo — contava a senhora, e a fumaça formou um garoto pequeno, de braços finos — com mais poder do que cabia no corpo. Ninguém lhe deu a mão. Ninguém lhe ensinou a segurar. E o poder, que ninguém segura, aprende a andar sozinho...
+— ...e dizem que era um menino de outro mundo — contava a senhora, enquanto a fumaça formava um garoto pequeno, de braços finos. — Tinha um poder enorme, mas ninguém lhe ensinou direito a controlá-lo. Com o tempo, começou a perder o controle da própria magia. Às vezes aconteciam coisas que nem ele queria. E, quando isso acontecia, em vez de parar, ele procurava ainda mais poder...
 
 A fumaça se transformou numa sombra enorme, de asas, e as crianças soltaram um "oooh" encantado.
 
@@ -188,17 +188,21 @@ Nesse instante, o som de botas atravessou a praça. Três vigilantes de capa cin
 
 As crianças saíram, uma a uma, com a cabeça baixa. Banjo ficou olhando a praça se esvaziar.
 
-— Esse é o Korvo? — sussurrou. — O que o Cachorro falou?
+— Era o Korvo? — sussurrou Banjo. — O que o Cachorro falou ontem?
 
-— É — disse Velho-Sábio, ajustando o manto. — A lenda tem metade de verdade. E é a metade que dá medo.
+Velho-Sábio não respondeu de imediato. Olhou para o lugar por onde os vigilantes tinham passado e depois para a senhora, que guardava o xale.
 
-— Ela disse que o poder aprendeu a andar sozinho — lembrou Banjo. — Isso acontece mesmo?
+— É uma história que contam sobre ele — disse, por fim. — Mas não foi bem desse jeito.
 
-— A magia não anda sozinha — disse Velho-Sábio. — Mas quem deixa de escutá-la pode acabar obedecendo a ela. Korvo chama isso de liberdade.
+— Então o que aconteceu?
 
-— Por que mandaram ela parar? — perguntou Breno.
+— É uma história comprida, Banjo. — O velho ajeitou o manto. — E acho melhor não conversar sobre ela no meio da praça.
 
-— Ninguém mandou. Aqui, algumas coisas não precisam ser mandadas. — O velho olhou para as janelas fechadas. — Há quem prefira fechar as janelas a olhar pra fora.
+Breno ainda observava as janelas fechadas.
+
+— Por que todo mundo parou de ouvir?
+
+— Porque não querem problemas por causa dessa história — respondeu Velho-Sábio. — Vamos para casa.
 
 O dassi chegou, suave, e os quatro entraram em silêncio. Pela primeira vez em Belfex, ninguém reparou no caminho.
 
@@ -221,9 +225,9 @@ Em casa, Kali acendeu a tela da sala quando os irmãos entraram. As roupas amass
 
 Banjo se virou para Velho-Sábio, que pousava o cajado junto à porta.
 
-— E aquele menino da história? — perguntou Banjo. — Ele perdeu o controle, igual a gente nos exercícios?
+— Aquela senhora falou que o menino começou a perder o controle da magia — disse Banjo, virando-se para Velho-Sábio. — Foi igual ao que aconteceu com a gente no treino?
 
-— Não foi igual — respondeu Velho-Sábio. — Vocês erraram e tentaram de novo. Korvo continuou procurando mais poder, até começar a deixar a magia decidir por ele.
+— Não — respondeu o velho. — Vocês tentaram, erraram e pararam para aprender. Korvo continuou procurando mais poder, mesmo quando já não conseguia controlar o que fazia. Chegou a um ponto em que começou a deixar a magia decidir por ele.
 
 Beatriz, que até então escutava em silêncio, ergueu os olhos.
 
