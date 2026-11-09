@@ -61,6 +61,8 @@ O café da manhã do primeiro desafio foi o mais silencioso desde que tinham che
 
 — Kali! — reclamou Beatriz.
 
+— A gente só vai de dassi até o Edifício, Kali — disse Bruno. — Não precisa anunciar nossa queda logo no café da manhã.
+
 — Mas a sorte é um conceito que ainda não entendo — continuou ela. — Vocês dizem "boa sorte" como quem deseja uma coisa que não pode ser medida. Quero aprender a desejar assim. Boa sorte.
 
 Houve um silêncio. Bruno ergueu os olhos para a tela.
@@ -93,7 +95,25 @@ Os aprendizes formavam grupos ao redor deles. Eshley e Maria, os gêmeos Erick e
 
 — Bem-vindos ao primeiro desafio — anunciou Garmande, e a voz dele rolou pelo salão. — Hoje o teste é de coordenação e trabalho em equipe. Uma corrida de dassis por uma estrada de luz que atravessa Tayo. Magia é permitida, mas o dassi é o corpo de vocês, e vocês vão ter de pilotá-lo. Os dois últimos serão eliminados. E os dimensais eliminados... voltam para casa.
 
-Os irmãos se entreolharam. Um homem robusto de pele escura, risada fácil e braços cheios de roupas brilhantes se aproximou deles.
+Os irmãos se entreolharam.
+
+— Uma corrida? — Banjo apontou para os veículos. — A gente é que vai dirigir?
+
+— Na Terra a gente nem tem idade pra isso! — Beatriz olhou de um dassi para outro.
+
+— Ainda bem que é o Breno no volante — disse Bruno. — Ele já nasceu com cara de quem reclama do trânsito.
+
+— Muito engraçado — resmungou Breno, sem tirar os olhos dos veículos.
+
+Beatriz cutucou o braço de Bruno.
+
+— A Kali sabia! Ela disse que tínhamos quarenta e dois por cento de chance de cair de um dassi!
+
+— E a gente achando que ela tava falando da viagem até aqui — disse Banjo.
+
+Bruno olhou para Velho-Sábio, que ajeitou a manga do manto sem dizer nada.
+
+Um homem robusto de pele escura, risada fácil e braços cheios de roupas brilhantes se aproximou deles.
 
 — Pra quem não me conhece, sou o Tango! — disse ele. — Vistam a proteção, pessoal!
 
