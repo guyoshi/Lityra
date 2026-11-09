@@ -4,7 +4,7 @@ Numa curva mais aberta do rio, pararam para dividir os biscoitos de Ricochet e b
 
 Alguma coisa estalou perto da bota de Bruno. Era um animalzinho do tamanho de um coelho, coberto de pelo lilás-claro, com orelhas em forma de leque e bigodes que brilhavam em pequenos pontos azuis. Tinha uma cauda comprida, enrolada como uma interrogação. Sentado numa pedra, observava Bruno com uma expressão descaradamente satisfeita.
 
-— Olha que gracinha! — Banjo se agachou. — Deve ser um risquilho. Acho que vi um desenho dele numa das aulas.
+— Olha que gracinha! — Banjo se agachou. — Deve ser um risquilho. Acho que vi um desenho dele numa das salas do Edifício Arcano.
 
 Bruno estendeu o dedo para afastá-lo. O bichinho desapareceu, deixando no ar apenas um estalinho seco. Reapareceu junto ao outro ombro de Bruno e soltou três guinchos curtos, quase uma risadinha.
 

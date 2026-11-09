@@ -54,7 +54,7 @@ Os dois se olharam e riram. Foi um alívio, como abrir uma janela num quarto aba
 
 À tarde, Velho-Sábio os parabenizou pela corrida e avisou que o próximo desafio exigiria magia de verdade. Nas duas semanas seguintes, o treino foi intenso, e aconteceu o que costuma acontecer quando se treina bastante: os dedos ficaram mais firmes, as respostas mais rápidas. Breno conseguiu atravessar trechos finos de parede depois de várias tentativas, mas ainda precisava parar, respirar e recuperar a solidez com cuidado. Bruno conseguiu segurar uma lasca de gelo por um minuto inteiro sem que virasse um castelo, embora a perdesse quando se distraía. Beatriz fez chamas pequenas que às vezes obedeciam ao assovio e, às vezes, cresciam de repente, obrigando-a a recomeçar. Banjo fez folhas pousarem em fila na mesa da cozinha, uma ao lado da outra, como cartas de baralho. Certa manhã, conseguiu recuperar do chão uma colher que caíra atrás do armário. Na seguinte, tentou repetir o truque diante de Bruno e puxou junto um punhado de poeira. Bruno começou a rir, mas depois prendeu a própria manga numa película de gelo que produzira sem olhar. Banjo considerou aquilo uma vitória.
 
-Entre uma aula e outra, a vida foi criando hábitos. Às quartas, Eshley e Maria apareciam lá em casa para desenhar lanternas, e a sala ficava coberta de papel dourado e de cola que cheirava a mel. Num desses dias, os seis foram até o Parque do Arco Manso depois do lanche. Eshley arremessou uma bolinha luminosa, das que tinham sobrado das lanternas, para ver se ela passava entre os galhos. A bolinha ficou presa e passou a iluminar um ninho vazio.
+Entre um treino e outro, a vida foi criando hábitos. Às quartas, Eshley e Maria apareciam lá em casa para desenhar lanternas, e a sala ficava coberta de papel dourado e de cola que cheirava a mel. Num desses dias, os seis foram até o Parque do Arco Manso depois do lanche. Eshley arremessou uma bolinha luminosa, das que tinham sobrado das lanternas, para ver se ela passava entre os galhos. A bolinha ficou presa e passou a iluminar um ninho vazio.
 
 — Agora ela é dona da árvore? — perguntou Beatriz.
 
@@ -284,34 +284,78 @@ Quando estavam fundo o bastante, Bruno deu um impulso forte e subiu a toda a vel
 
 Eles viram a ilhota de areia onde tudo tinha começado. Estavam perto do fim.
 
-Mas, assim que avançaram juntos, a figura de Nicolas e Erick surgiu na frente, montados numa só lárida, cheios de presunção.
+Mas, assim que avançaram juntos, Nicolas e Erick surgiram à frente, montados numa só lárida, com o arco de chegada já visível atrás deles.
 
-— Vocês estão acabados! — zombou Nicolas, com estacas de gelo se formando ao seu lado, enquanto Erick acendia uma chama na palma da mão. — Já era para vocês terem caído.
+— Vocês estão acabados! — gritou Nicolas, fazendo nascer estacas de gelo ao redor dos braços. Erick acendeu uma chama na palma da mão. — Já era pra vocês terem caído!
 
-Erick disparou fogo, e Nicolas lançou uma lâmina de gelo. Beatriz e Bruno reagiram, mas os contra-ataques erraram o alvo e só espirraram água. Os gêmeos gargalharam. Então a criatura saltou do rio de cima para o deles, com os olhos fixos nos gêmeos, e os gêmeos tentaram desviar, mas ela era ágil.
+Erick disparou fogo, e Nicolas lançou uma lâmina de gelo. Beatriz e Bruno reagiram, mas os contra-ataques erraram o alvo e espirraram água para todos os lados. Os gêmeos gargalharam. Acima deles, a criatura saltou de um braço do rio para outro. A sombra atravessou a água, e Banjo encolheu os ombros, esperando outro ataque. Mas a fera mergulhou de novo.
 
-Bruno viu a chance. Respirou fundo, concentrou toda a sua força e estendeu a mão. Uma onda gelada partiu dele, atingiu a criatura e os gêmeos, e em um instante a fera estava envolta em cristais, um bloco gigante que refletia as luzes do rio. Erick e Nicolas tropeçaram nos fragmentos, a lárida deles foi arremessada para longe, e os dois afundaram, sem conseguir reagir.
+— O arco! — gritou Beatriz. — Tá logo ali!
 
-— O que foi isso, Bruno? — perguntou Breno, com orgulho discreto.
+Banjo puxou as cordas de sua lárida. Breno, atrás de Bruno na outra montaria, apontou para a faixa luminosa à frente.
 
-O gelo começou a rachar, e Bruno olhou para os irmãos.
+— Vai reto, Bruno. Não olha pra eles.
 
-— VÃO! — disse, soltando a sua lárida para Breno. — Eu vou segurá-lo. Eu alcanço vocês.
+Bruno olhou. Os gêmeos já estavam virando para a chegada, ainda rindo. Lembrou do gelo de Nicolas prendendo sua lárida na largada, das provocações, do jeito como os dois atacavam quem estivesse por perto. Podia seguir com os irmãos. Estava perto o bastante para enxergar a areia da ilhota.
 
-Breno agarrou a lárida e, com os dois irmãos mais novos, seguiu para o arco final. Atrás deles, Bruno atirava cortinas de gelo a cada segundo para manter a criatura no lugar. Quando viu que estavam a uma distância segura, mergulhou e nadou o mais depressa que podia. Houve um estrondo e a criatura se libertou, mas eles já estavam longe.
+Em vez disso, puxou a corda para o lado.
 
-Banjo, na lárida, olhou para trás uma última vez. A fera, no meio do rio, não os perseguia. Estava parada, com os olhos fixos neles, e havia nela algo que lembrava uma tristeza imensa. Ele prometeu a si mesmo, sem saber a quem, que voltaria.
+— Bruno! — Breno agarrou a borda da montaria. — Que droga você tá fazendo?
 
-Quando cruzaram o arco de chegada, os irmãos se jogaram na areia da ilhota, exaustos e triunfantes. Bruno saiu da água logo depois, ofegante, e se deixou cair ao lado deles.
+— Eles vão cair. Agora é a vez deles.
 
-— Parabéns a todos pelo desafio — disse a voz de Garmande. Ele estava de pé diante deles, de braços cruzados. — Para três de vocês.
+— Deixa esses dois! A gente tá chegando!
 
-— Três? — perguntou Beatriz.
+Bruno reuniu a água em volta da lárida, sentindo a corrente empurrar seus braços. Conseguiu levantá-la numa onda curta, que passou por baixo da montaria dos gêmeos. Então congelou a crista. O gelo se abriu em lascas brilhantes, e a lárida de Erick e Nicolas virou de lado. Os dois despencaram na água, gritando, enquanto a montaria escapava deles.
 
-— Bruno, você chegou sem lárida. As regras eram claras: era preciso chegar em uma lárida. Isso significa que você foi eliminado.
+— ISSO! — Bruno ergueu um punho, rindo. — Quero ver fazer graça agora!
 
-As palavras caíram como um peso. Bruno piscou, atordoado.
+Breno o agarrou pelo ombro.
 
-— Eliminado? — murmurou, incrédulo.
+— Você acabou de perder tempo por causa deles!
 
-Os irmãos ficaram em silêncio, e o triunfo de antes se transformou numa sombra, enquanto entendiam o que aquilo significava.
+O arco de chegada estava a poucos metros. Banjo e Beatriz passaram primeiro, agarrados à mesma lárida. Bruno puxou a sua para alcançá-los, mas a onda que ele próprio criara voltou pela curva do rio. A montaria subiu de lado. Breno se abaixou e apertou as cordas, tentando equilibrá-la.
+
+— Bruno, segura!
+
+Bruno ainda estava virado para trás. Quando tentou se endireitar, a lárida sacudiu de novo. A mão dele agarrou uma das cordas, escorregou, agarrou só o ar. Breno se lançou para segurá-lo pelo pulso, mas seus dedos roçaram a manga molhada e perderam o apoio.
+
+Bruno caiu na água um instante antes de a lárida atravessar o arco luminoso com Breno sozinho.
+
+Ele emergiu cuspindo água. A faixa da chegada brilhava a pouco mais de um braço de distância. Nadou até ela com toda a força, atravessou o arco sem montaria e alcançou a areia logo depois dos irmãos. Atrás deles, Nicolas conseguira erguer a própria lárida com uma placa de gelo, e Erick se agarrava à borda para voltar a subir. Bruno viu os dois retomarem o percurso e cerrou os dentes.
+
+Banjo saiu correndo ao seu encontro.
+
+— Bruno! Você quase conseguiu!
+
+— Eu consegui! — Bruno bateu com a mão na areia. — Eu tava bem ali!
+
+— Parabéns por concluir o percurso — disse Garmande, que os esperava de braços cruzados. Olhou para os quatro. — Três de vocês passaram.
+
+Bruno se levantou de um salto.
+
+— Como assim, três?
+
+— Você cruzou o arco sem uma lárida. A regra foi anunciada antes da prova. Está eliminado.
+
+— Eu caí quase em cima da linha!
+
+— Mas caiu antes dela — respondeu Garmande.
+
+— Porra, foram eles que começaram! — Bruno apontou para o rio, onde os gêmeos ainda tentavam alcançar o arco. — Vocês viram o que eles fizeram?
+
+— Eu vi o que você fez também, Bruno — disse Garmande, sem levantar a voz. — Você tinha a chegada à sua frente e escolheu voltar para atacá-los.
+
+Breno se aproximou, com as roupas encharcadas.
+
+— Eu mandei você seguir. Você nem ouviu!
+
+— Ah, claro. Agora a culpa é toda minha! — Bruno virou-se para ele. — Se não fosse por mim, você nem tava mais numa lárida!
+
+— E se você tivesse parado de brigar, nós quatro teríamos passado! — Breno deu um passo à frente, mas se conteve. — Você precisava mesmo derrubar aqueles dois?
+
+Bruno abriu a boca. Não tinha uma resposta que não soasse pior do que a anterior.
+
+— Vão se ferrar — soltou, mais baixo. Passou pelos irmãos e foi se sentar sozinho na outra ponta da ilhota.
+
+Beatriz ficou olhando para ele. Banjo deu um passo para segui-lo, mas Breno segurou seu ombro. Por um instante, ninguém comemorou a chegada.

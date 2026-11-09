@@ -50,7 +50,7 @@ Foi então que uma sombra saltou entre as rochas. Um animal de pelo avermelhado 
 
 Acima deles, dezenas de aves de peito cor de cobre e asas finas, quase transparentes, deslizavam em círculos, tão próximas umas das outras que o céu parecia atravessado por uma fita ondulante de luz. Banjo chamou Bruno e Breno para olhar. Por um instante até Breno esqueceu a pressa. Três das aves baixaram até as rochas, sem bater uma pena. Na ponta de cada asa havia um pequeno leque luminoso que se abria ao mudar de direção. Banjo ficou imóvel para não assustá-las. Uma pousou na rocha, inclinou a cabeça para ele e deixou cair uma pena que demorou tanto a descer que Bruno tentou apanhá-la duas vezes.
 
-— Auripenas — murmurou Banjo, lembrando o nome que ouvira numa aula. — Elas planam até quando não tem vento.
+— Auripenas — murmurou Banjo, lembrando o nome que ouvira numa das atividades do Edifício Arcano. — Elas planam até quando não tem vento.
 
 — Ótimo — respondeu Bruno. — Até as galinhas daqui sabem voar melhor que eu.
 

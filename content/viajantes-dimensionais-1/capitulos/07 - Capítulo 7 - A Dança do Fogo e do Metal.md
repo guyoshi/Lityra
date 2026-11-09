@@ -44,7 +44,7 @@ Como se tivesse ouvido a deixa, Átila empurrou a porta com o focinho e entrou a
 
 Banjo obedeceu, mas Átila permaneceu junto da cama, como se estivesse esperando a próxima missão.
 
-Depois vinham o Edifício Arcano, o elevador de vidro, as aulas. Aprenderam a consultar os avisos luminosos das placas de vidro nas galerias, a esperar a indicação de acesso antes de abrir portas e a não tocar nos painéis de identificação do Edifício. Ao entardecer, no jardim da casa, Velho-Sábio treinava os quatro. Breno aprendeu a firmar os pés. Bruno aprendeu que o gelo, quando ele estava distraído, virava escorregador. Beatriz tentava aquecer o pavio de uma vela, mas ele não acendia, por mais que ela se esforçasse. Banjo aprendeu que as folhas do jardim gostavam de conversa e perdeu uma tarde inteira ouvindo.
+Depois vinham o Edifício Arcano, o elevador de vidro, os treinos. Aprenderam a consultar os avisos luminosos das placas de vidro nas galerias, a esperar a indicação de acesso antes de abrir portas e a não tocar nos painéis de identificação do Edifício. Ao entardecer, no jardim da casa, Velho-Sábio treinava os quatro. Breno aprendeu a firmar os pés. Bruno aprendeu que o gelo, quando ele estava distraído, virava escorregador. Beatriz tentava aquecer o pavio de uma vela, mas ele não acendia, por mais que ela se esforçasse. Banjo aprendeu que as folhas do jardim gostavam de conversa e perdeu uma tarde inteira ouvindo.
 
 Mas os progressos não vieram de primeira. Breno atravessava a ponta dos dedos numa tábua e, na tentativa seguinte, batia a mão na madeira. Bruno recebia a tarefa de congelar uma gota e acabava cobrindo a tigela inteira de geada. Banjo tentava descobrir se era sua mão ou uma corrente de ar que fazia as folhas tremerem. Bastava Átila latir para perder a concentração. Beatriz às vezes conseguia aquecer o pavio por um instante, mas, quando Bruno a provocava, nem isso saía direito.
 
@@ -118,7 +118,7 @@ Contaram. Foi a primeira vez que alguém descreveu um purê de tubérculo como "
 
 Tayo, aos poucos, deixou de ser um mapa e virou um distrito com gente que os reconhecia. Em Brisália, Beatriz sabia que Pelan, da padaria, sempre dava um pão a mais. Banjo cumprimentava a mulher da previsão do tempo pelo nome. Bruno tinha opinião sobre todos os dassis da rua. E Breno, que detestaria admitir, já não procurava as saídas quando entrava num lugar novo.
 
-Às vezes, depois das aulas, passavam pelo Largo dos Ponteiros, onde o relógio público mudava de cor e as crianças disputavam quem conseguiria fazê-lo tocar fora de hora. No Parque do Arco Manso, Banjo descobriu uma árvore que deixava as folhas cair apenas quando alguém lhe contava uma coisa engraçada. Bruno tentou fazê-la rir por dez minutos e saiu debaixo dela com um único graveto no cabelo. Beatriz conseguiu uma chuva de folhas contando que o irmão tinha ensaiado uma reverência para o próprio reflexo. Bruno jurou que a árvore estava roubando.
+Às vezes, depois dos treinos, passavam pelo Largo dos Ponteiros, onde o relógio público mudava de cor e as crianças disputavam quem conseguiria fazê-lo tocar fora de hora. No Parque do Arco Manso, Banjo descobriu uma árvore que deixava as folhas cair apenas quando alguém lhe contava uma coisa engraçada. Bruno tentou fazê-la rir por dez minutos e saiu debaixo dela com um único graveto no cabelo. Beatriz conseguiu uma chuva de folhas contando que o irmão tinha ensaiado uma reverência para o próprio reflexo. Bruno jurou que a árvore estava roubando.
 
 Em outra saída, encontraram Eshley e Shirley perto do Parque do Arco Manso. Acabaram passando a tarde tentando inventar nomes para flores que mudavam de cor quando alguém espirrava.
 
@@ -344,7 +344,7 @@ O refeitório do Edifício ficava num salão redondo com janelas gigantes que da
 
 — O que é isso? — perguntou Banjo, sentando-se e pegando um pedaço de papel que fazia cócegas nos dedos.
 
-— Lanternas para o Festival das Luzes — explicou Eshley, dobrando uma com cuidado. — Daqui a umas três semanas toda a cidade solta luzes no céu, uma de cada pessoa. A gente vai fazer as nossas na aula de artes. Cada lanterna sobe com um desejo, mas não pode contar o desejo para ninguém, senão ele não se realiza.
+— Lanternas para o Festival das Luzes — explicou Eshley, dobrando uma com cuidado. — Daqui a umas três semanas toda a cidade solta luzes no céu, uma de cada pessoa. A gente vai terminar as nossas aqui mesmo, depois dos treinos. Cada lanterna sobe com um desejo, mas não pode contar o desejo para ninguém, senão ele não se realiza.
 
 — E o que acontece se alguém contar? — perguntou Bruno, que tinha acabado de chegar, mas ainda estava de olho em outra coisa.
 
@@ -364,7 +364,7 @@ Beatriz, radiante, não conseguia ficar quieta.
 
 Maria virou uma tira de papel entre os dedos.
 
-— Eu ainda não tenho certeza da minha. Acho que tem a ver com luz e cores. Uma fita ficou mais brilhante na aula, mas, quando tentei de novo, não aconteceu nada.
+— Eu ainda não tenho certeza da minha. Acho que tem a ver com luz e cores. Uma fita ficou mais brilhante no treino, mas, quando tentei de novo, não aconteceu nada.
 
 — Comigo também era assim — disse Banjo. — Mas hoje levantei uma pedra! Sem encostar nela!
 
