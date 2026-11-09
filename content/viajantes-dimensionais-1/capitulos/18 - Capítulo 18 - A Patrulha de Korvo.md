@@ -16,7 +16,7 @@ Lanigiah se inclinou, e a sombra dela cobriu os três.
 
 — É — respondeu Bruno, com um sorriso muito falso. — Vamos pensar no caso, rainha aranha.
 
-Banjo sorriu, tímido e vermelho. Breno, ainda esfregando os braços doloridos da teia, só ergueu uma sobrancelha.
+Banjo sorriu, tímido e vermelho, ajeitando os óculos redondos. Breno, ainda esfregando os braços doloridos da teia, só ergueu uma sobrancelha.
 
 Lanigiah apontou uma pata para um dos túneis.
 

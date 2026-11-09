@@ -98,7 +98,7 @@ A ideia só liberou faíscas e fumaça, e pareceu mostrar que, se havia alguma c
 
 Breno socou a parede, respirou fundo e guardou o rádio na mochila. Depois subiu para o quarto e voltou a desenhar. Ele adorava desenhar rostos, e por incrível que pareça sempre tirava os rostos da própria imaginação. No guarda-roupa havia cadernos e mais cadernos cheios deles.
 
-Cada um tinha sua distração. Beatriz olhava as nuvens pela janela e assistia ao canal de esportes, algo que costumava fazer com o pai. Banjo lia os quadrinhos que ganhara dele, torcendo para que Bad Rock soltasse mais uma frase de efeito antes de derrotar um chefão alienígena. As distrações ajudavam o tempo a passar, mas deixavam todos sozinhos, cada um do seu jeito.
+Cada um tinha sua distração. Beatriz olhava as nuvens pela janela e assistia ao canal de esportes, algo que costumava fazer com o pai. Banjo, de óculos redondos escorregando no nariz, lia os quadrinhos que ganhara dele, torcendo para que Bad Rock soltasse mais uma frase de efeito antes de derrotar um chefão alienígena. As distrações ajudavam o tempo a passar, mas deixavam todos sozinhos, cada um do seu jeito.
 
 Bruno, por trás das piadas, era quem menos conseguia se conter. No quarto, enquanto a chuva batia na janela, chorou escondido no lençol. Quando ouviu Frank chegar, ficou mais um instante deitado, esperando a voz não denunciar o choro. Nem ao tio saberia explicar o que sentia.
 
@@ -188,7 +188,7 @@ Beatriz tirou da mochila uma bola amarela de borracha, meio murcha, com quatro B
 
 — Queimada! Eu e o Banjo contra a árvore.
 
-— A árvore não joga, Bia — disse Banjo.
+— A árvore não joga, Bia — disse Banjo, empurrando os óculos redondos no nariz.
 
 — Joga sim. Se a bola bater nela, ela queimou.
 

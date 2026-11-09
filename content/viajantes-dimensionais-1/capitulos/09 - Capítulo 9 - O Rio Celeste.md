@@ -116,7 +116,7 @@ Bruno afundou. O pânico apertou o peito. A água era profunda, e, quando olhou 
 
 — Desculpa — disse, sem graça. — Era só pra mostrar. Mas só eu consigo. Talvez o meu M.A. não seja só gelo. Talvez seja água.
 
-— Incrível — murmurou Banjo, ainda ofegante e já sorrindo, porque era impossível ficar bravo com uma descoberta daquelas.
+— Incrível — murmurou Banjo, ainda ofegante, ajeitando os óculos molhados e já sorrindo, porque era impossível ficar bravo com uma descoberta daquelas.
 
 Bruno montou na lárida e, antes que alguém o impedisse, guiou-a para baixo da superfície. Fechou os olhos, tentou lembrar o que Velho-Sábio dizia: sentir a magia. E sentiu. Era uma correnteza que o empurrava por dentro, e a lárida disparou por baixo de todos, rápida como um peixe. Ele nadou mais de um minuto sem subir, sem sentir o pulmão apertar, até que uma força o empurrou para a superfície no meio de uma área de redemoinhos.
 

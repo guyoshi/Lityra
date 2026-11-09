@@ -1,6 +1,6 @@
 Sonhos são incríveis. Levam a gente aos lugares mais distantes e às maiores aventuras. Banjo sempre tivera uma imaginação gigante. Usava-a para criar histórias, inventar desculpas e, muitas vezes, para mentir para si mesmo. Era a fuga que ele tinha da realidade, a chance de que, em algum universo escondido por aí, ele valesse alguma coisa. No entanto, um velho sábio lhe disse uma vez que a imaginação é muito mais poderosa e perigosa que a realidade.
 
-Foi com a imaginação ainda no escuro que Banjo abriu os olhos. Demorou para entender onde estava. Quando enfim se lembrou da bolinha, da luz e do raio, levantou-se depressa e chamou pelos irmãos.
+Foi com a imaginação ainda no escuro que Banjo abriu os olhos. Tateou o rosto até achar os óculos redondos, tortos, mas inteiros. Demorou para entender onde estava. Quando enfim se lembrou da bolinha, da luz e do raio, levantou-se depressa e chamou pelos irmãos.
 
 — Banjo? — Bruno foi o primeiro a responder. — Onde a gente tá?
 
