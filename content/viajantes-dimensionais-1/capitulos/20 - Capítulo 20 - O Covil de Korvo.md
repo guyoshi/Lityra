@@ -162,7 +162,7 @@ Houve um silêncio estranho. Breno sentiu o estômago se fechar, devagar, como u
 
 — Desde que pisaram em Tayo, todos os passos de vocês foram anotados — continuou Garien. — Eu organizei os turnos dos vigilantes que os acompanhavam, e cada detalhe chegou a Korvo. Foi o que me deu a honra de abrir a porta dos fundos da Central e deixar sua irmã ser levada.
 
-— O anel — disse Bruno de repente, com a voz baixa. — O anel preto que eu vi no dedo do McCroys. O que acharam na Central.
+— O anel — disse Bruno de repente, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo do McCroys e depois no estojo que você mostrou. Foi o que acharam na Central.
 
 — Eu o plantei lá — confirmou Garien, com um aceno quase educado. — Pedi aos gêmeos que me trouxessem o anel dele. Eles não sabiam para quê. Achavam que era um favor, uma prova de lealdade.
 

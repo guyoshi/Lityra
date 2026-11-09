@@ -163,7 +163,7 @@ Quando terminaram de comer, Velho-Sábio apareceu no refeitório e os levou por 
 
 Bruno abriu um sorriso.
 
-— Finalmente uma aula em que eu já sou bom.
+— Finalmente um treino em que eu já sou bom.
 
 Velho-Sábio tocou um dos painéis junto à parede. As estrelas do teto se apagaram, as bordas da sala perderam a nitidez e, ao redor deles, apareceu uma floresta antiga no alto de uma montanha. Uma brisa fresca soprou por entre as árvores. Centenas de flores rosadas passaram dançando no vento e espalharam um perfume doce.
 
@@ -466,7 +466,7 @@ Banjo parou com o garfo no ar. Velho-Sábio escondeu um sorriso atrás da xícar
 
 Naquela noite, o quarto ficou quieto antes de Banjo conseguir dormir. Breno e Bruno já estavam apagados nas camas do outro lado, mas ele continuava sentado, com o cobertor sobre os joelhos. Pela janela, via a lua enorme de Belfex, quase dourada, acima dos telhados de Tayo.
 
-Tentou repassar o dia inteiro na cabeça. As flores da floresta que desapareciam quando alguém tentava pegá-las, o chão coberto de água, as ondas que tinham derrubado os quatro. E o tabuleiro que fazia bolhas saírem da boca de Bruno. Banjo precisou morder o lábio para não rir outra vez. Depois olhou para as próprias mãos. Tinham formigado durante a aula, como se alguma coisa estivesse prestes a acontecer. Mas o quê? As vozes do espelho, as árvores que pareciam querer falar com ele... Será que tudo aquilo tinha alguma ligação?
+Tentou repassar o dia inteiro na cabeça. As flores da floresta que desapareciam quando alguém tentava pegá-las, o chão coberto de água, as ondas que tinham derrubado os quatro. E o tabuleiro que fazia bolhas saírem da boca de Bruno. Banjo precisou morder o lábio para não rir outra vez. Depois olhou para as próprias mãos. Tinham formigado durante o treino, como se alguma coisa estivesse prestes a acontecer. Mas o quê? As vozes do espelho, as árvores que pareciam querer falar com ele... Será que tudo aquilo tinha alguma ligação?
 
 Ouviu um farfalhar de cobertor.
 
@@ -748,7 +748,7 @@ Foi então que um homem de cabelo castanho-escuro e barba aparada se aproximou, 
 
 — Oi, turma!
 
-— Lioro! — Maria abriu um sorriso e acenou para ele. — Já tá na hora da aula?
+— Lioro! — Maria abriu um sorriso e acenou para ele. — Já tá na hora do treino?
 
 — Daqui a pouquinho. — Ele olhou para os quatro irmãos. — Vocês são os recém-chegados, não são? Como estão se saindo?
 
@@ -756,9 +756,9 @@ Foi então que um homem de cabelo castanho-escuro e barba aparada se aproximou, 
 
 — É normal. Velho-Sábio é um dos melhores senavelitas que já conheci. Vocês vão longe com ele.
 
-Lioro chamou Maria e Eshley para a aula seguinte. Beatriz ficou mais um pouco ao lado de Banjo, que ainda tentava recuperar a atenção de Pitu. O bichinho já estava enrolado no colo de Eshley, de olhos fechados, sem a menor intenção de atendê-lo.
+Lioro chamou Maria e Eshley para o treino seguinte. Beatriz ficou mais um pouco ao lado de Banjo, que ainda tentava recuperar a atenção de Pitu. O bichinho já estava enrolado no colo de Eshley, de olhos fechados, sem a menor intenção de atendê-lo.
 
-As aulas continuaram durante a tarde. Banjo e Beatriz só se despediram de Pitu quando Eshley precisou levá-lo embora, e os irmãos ainda passaram por outras salas antes de Velho-Sábio chamá-los, no fim das atividades.
+Os treinos continuaram durante a tarde. Banjo e Beatriz só se despediram de Pitu quando Eshley precisou levá-lo embora, e os irmãos ainda passaram por outras salas antes de Velho-Sábio chamá-los, no fim das atividades.
 
 Os quatro o encontraram no saguão do Edifício Arcano. Saíram juntos e embarcaram num dassi para voltar para casa. Pelo vidro, viram as torres do Edifício ficarem para trás enquanto atravessavam Tayo. Banjo tentou imitar a cara ofendida de Pitu e arrancou uma risada de Beatriz. Bruno passou a viagem olhando pela janela. Breno, sentado do outro lado, não entrou na brincadeira.
 

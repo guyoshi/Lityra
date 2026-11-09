@@ -213,7 +213,7 @@ O dassi chegou, suave, e os quatro entraram em silêncio. Pela primeira vez em B
 
 Em casa, Kali acendeu a tela da sala quando os irmãos entraram. As roupas amassadas e os passos lentos dispensavam perguntas sobre o treino.
 
-— Primeira aula de arcanismo concluída — disse ela, mais baixo que de costume.
+— Primeiro treino de arcanismo concluído — disse ela, mais baixo que de costume.
 
 — Arcanismo é o nome do treino? — perguntou Banjo.
 
@@ -392,7 +392,7 @@ Bruno quase riu.
 
 Bruno ficou quieto. Sentiu uma inquietação que não soube nomear e se levantou, evitando olhar a tela. Mas a luz dela o acompanhou até o fim do corredor, como quem espera por uma resposta que ainda não veio.
 
-No quarto de Bruno, a porta estava encostada. Alguém tinha deixado uma fresta, e por ela entrou, pesado e silencioso, Átila. Subiu na cama sem pedir licença, deu três voltas e se deitou aos pés dele. Bruno ficou olhando para o teto, com a mão afundada no pelo morno do cachorro.
+No quarto dos irmãos, a porta estava encostada. Alguém tinha deixado uma fresta, e por ela entrou, pesado e silencioso, Átila. Subiu na cama sem pedir licença, deu três voltas e se deitou aos pés dele. Bruno ficou olhando para o teto, com a mão afundada no pelo morno do cachorro.
 
 — Eu não chorei — murmurou.
 
