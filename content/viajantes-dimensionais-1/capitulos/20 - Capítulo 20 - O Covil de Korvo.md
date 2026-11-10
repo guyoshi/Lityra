@@ -322,13 +322,13 @@ Banjo tirou do bolso o cristal de reflexão que ainda lhe restava.
 
 — Vai usar? — perguntou Bruno.
 
-— Por que não? — Banjo olhou para os irmãos, apertou o cristal entre os dedos, e a imagem se acendeu. Era uma pilha de destroços de pedra. Ele e Beatriz estavam caídos no chão, imóveis. Breno, de joelhos, chorava. E, de pé entre eles, estava Bruno, com as mãos tomadas por uma mancha escura que subia pelos braços. A imagem tremeu, e o cristal se partiu.
+— Por que não? — Banjo olhou para os irmãos, apertou o cristal entre os dedos, e a imagem se acendeu. Era uma pilha de destroços de pedra. Bruno estava caído no meio deles, pálido, com uma mancha escura crescendo no peito. Ele e Beatriz estavam ajoelhados ao lado, chorando. Breno, de joelhos, segurava o rosto do irmão e também chorava. A imagem tremeu, e o cristal se partiu.
 
 Banjo levantou os olhos direto para Bruno.
 
 — O que você viu? — perguntou Bruno.
 
-— Você... — Banjo hesitou. — Estava num lugar de pedras quebradas. Eu e a Bia no chão. O Breno chorando. E você de pé, com as mãos... escuras.
+— Você... — Banjo hesitou. — Estava deitado num lugar de pedras quebradas. Com uma mancha escura no peito. Eu e a Bia do lado, chorando. O Breno também.
 
 — Chega — disse Breno, de repente. — Os cristais não revelam nada. O Taony avisou para ter cuidado com o que a gente vê neles.
 
