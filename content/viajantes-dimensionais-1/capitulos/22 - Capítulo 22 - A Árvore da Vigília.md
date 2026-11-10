@@ -447,7 +447,7 @@ Eshley olhou para Beatriz.
 
 — E você, Bia? Está bem?
 
-Beatriz tocou o pingente verde no pescoço.
+Beatriz tocou o pingente azul-claro no pescoço.
 
 — Estou ótima. Isso me ajudou a me sentir segura o tempo todo.
 

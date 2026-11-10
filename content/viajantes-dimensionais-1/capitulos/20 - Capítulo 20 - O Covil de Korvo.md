@@ -278,7 +278,7 @@ Ela arregalou os olhos.
 
 — Como você está? — perguntou Breno. — Alguém machucou você? Fez alguma coisa?
 
-— Estou bem. O colar da Maria me ajudou muito. — Ela tocou o pingente verde, que pulsava fraco. — E vocês estão péssimos, sabiam?
+— Estou bem. O colar da Maria me ajudou muito. — Ela tocou o pingente azul-claro, que pulsava fraco. — E vocês estão péssimos, sabiam?
 
 Mas havia algo distante nos olhos dela, e Breno percebeu.
 
