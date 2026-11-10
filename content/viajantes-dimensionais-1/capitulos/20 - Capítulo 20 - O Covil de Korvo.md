@@ -180,7 +180,15 @@ Garien desviou os olhos para ele.
 
 — Apostou com a nossa vida? — Bruno apertou os punhos.
 
-Garien não respondeu. Bruno olhou para o uniforme cinza do vigilante, e uma lembrança voltou à sua cabeça.
+Garien não respondeu.
+
+— A Serafira também foi atacada — lembrou Banjo. — Foi você?
+
+— Havia dois dimensais com ela — disse Garien. — Queríamos ver o que faziam quando não tinham tempo para pensar. Korvo procura jovens fortes para o lado dele. Precisa saber de que são capazes.
+
+Banjo se lembrou do relato da tutora. Khalil e Kevin tinham sido obrigados a usar magia para escapar. O mesmo tinha acontecido com eles no dassi.
+
+Bruno olhou para o uniforme cinza do vigilante, e uma lembrança voltou à sua cabeça.
 
 — O anel do McCroys... — disse, com a voz baixa. — O preto, com o raio prateado. Eu vi no dedo dele e depois no estojo que você mostrou. Foi o que acharam na Central.
 
