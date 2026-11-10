@@ -28,7 +28,7 @@ A sexta-feira amanheceu clara e silenciosa. No pátio do Edifício Arcano, os ap
 
 Isabelle empurrou seu ombro, rindo. Ninguém sabia qual seria o último desafio. "Todo ano é diferente", repetiam os senavelitas. "E nunca avisam."
 
-Depois da reunião da Sociedade, ninguém tinha voltado ao assunto. Mas Bruno não tirava os olhos da mão de McCroys, que conversava com os gêmeos do outro lado do pátio. O dedo continuava sem anel, e a pele ali ficara mais clara, marcando o lugar onde ele estivera. Erick percebeu o olhar e devolveu uma careta. Bruno virou o rosto primeiro, e isso o irritou mais do que a careta.
+Depois da reunião da Sociedade, ninguém tinha voltado ao assunto. Do outro lado do pátio, McCroys conversava com os gêmeos. Bruno acompanhou os três por um instante, lembrando-se do que observara na reunião. Erick percebeu seu olhar e devolveu uma careta. Bruno virou o rosto primeiro, e isso o irritou mais do que a careta.
 
 — Dezoito — disse uma voz atrás deles.
 
