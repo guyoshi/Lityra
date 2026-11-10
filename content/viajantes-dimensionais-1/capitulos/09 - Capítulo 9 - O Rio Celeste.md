@@ -8,11 +8,11 @@ O rosto de Velho-Sábio se fechou.
 
 — Na noite passada alguém invadiu os fundos da Central. — Erla fez uma pausa, deixando a frase pairar. — Nada foi roubado. Mas o vigilante Garien encontrou isto na cena.
 
-Garien abriu um pequeno estojo transparente. Dentro havia um anel negro, com um risco prateado em forma de raio, interrompido bem no meio.
+Garien abriu um pequeno estojo transparente. Dentro havia um anel de metal escuro, pousado sobre um tecido cinza.
 
 — Veio da terceira dimensão — disse Erla. — Algum de vocês reconhece?
 
-Bruno reconheceu o risco prateado. Tinha visto aquele mesmo desenho no dedo de McCroys no dia anterior. Beatriz e Banjo se entreolharam, sem entender por que ele ficara tão sério. Bruno sustentou o olhar da édion, mas não disse nada. Ter visto o anel em outro lugar não provava quem havia entrado na Central.
+Os irmãos se entreolharam. Nenhum deles sabia o que responder.
 
 — Um anel — repetiu Velho-Sábio. — E a senhora acha que é de um dos meus aprendizes? Eles passaram a noite em casa, sob os meus olhos. E, nas últimas semanas, sob os olhos dos seus próprios agentes.
 
@@ -40,13 +40,7 @@ No caminho até o ponto do dassi, a rua parecia mais longa do que de costume. Fo
 
 — Então a gente observa antes de julgar. — Velho-Sábio sorriu, cansado. — Vamos para casa. Eu prometi um almoço.
 
-Em casa, Bruno e Banjo tiraram os sapatos no quarto, ainda calados. O cheiro de especiarias e legumes cozidos subia da cozinha, com o som de panelas e risadas de Beatriz e Breno ajudando com o almoço.
-
-— Aquele anel... — murmurou Bruno. — O McCroys estava usando um igual ontem. Preto, com o mesmo raio prateado, cortado no meio.
-
-— Mas e daí? — disse Banjo. — Pode ter perdido. Não quer dizer que ele entrou na Central.
-
-— Pode ser. — Bruno cruzou os braços. — Eu ainda quero provas antes de contar pro Velho-Sábio.
+Em casa, Bruno e Banjo tiraram os sapatos no quarto, ainda incomodados com a abordagem da Vigilância. O cheiro de especiarias e legumes cozidos subia da cozinha, com o som de panelas e risadas de Beatriz e Breno ajudando com o almoço.
 
 — EI, PREGUIÇOSOS! — berrou Beatriz da cozinha, com uma colher de pau na mão. — VENHAM AJUDAR! NINGUÉM AQUI É EMPREGADO DE NINGUÉM!
 
@@ -67,8 +61,6 @@ Banjo estendeu a mão, e um galho se inclinou o suficiente para devolver a esfer
 O papel continuou ali até chegarem em casa.
 
 O jantar de domingo continuou de pé, mesmo com todo mundo cansado. Foi num deles que Bruno ganhou a primeira partida de Tepone contra o mago, com uma trapaça tão descarada que Velho-Sábio pagou o mico de bom grado, imitando uma volha por dois minutos inteiros. Kali pediu a gravação. Ninguém deixou. Todo mundo sabia que ela tinha feito uma mesmo assim. Velho-Sábio passou a deixar pequenos bilhetes junto às quatro camas no quarto dos irmãos, às vezes com desenhos que se mexiam. O de Breno dizia: "Durma mais." O de Beatriz tinha um coelho que acenava. O de Bruno dizia apenas: "Acorda. Você também." Bruno guardou o dele na gaveta e fingiu que nunca o tinha lido.
-
-A desconfiança de Bruno com o anel de McCroys ficou quieta nesse tempo, como brasa debaixo de cinza.
 
 Na manhã do segundo desafio, Velho-Sábio os levou de volta ao prédio. As portas do andar designado se abriram para um grande salão de teto abobadado, que imitava o céu do meio-dia, e uma brisa fresca atravessava o espaço de ponta a ponta. A luz vinha de cristais flutuantes, azuis como água rasa.
 
