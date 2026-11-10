@@ -421,9 +421,9 @@ Breno sentiu o corpo se transformar em metal.
 
 — Ah, vamos sair. — Nicolas sorriu. — Mas antes vamos nos divertir um pouco.
 
-Erick lançou uma onda de fogo, e Breno a bloqueou com os braços de metal, mas foi empurrado para trás. Nicolas aproveitou e atirou lâminas de gelo que ricochetearam no corpo dele. Estava quase cedendo quando um brilho inesperado surgiu ao lado: Farol saltou e mordeu a perna de Erick, que gritou e perdeu o controle das chamas.
+Erick lançou uma onda de fogo, e Breno a bloqueou com os braços de metal, mas foi empurrado para trás. Nicolas aproveitou e atirou lâminas de gelo que ricochetearam no corpo dele. Estava quase cedendo quando um brilho inesperado surgiu ao lado: Farol saltou e mordeu a perna de Erick, que deu um pulo e perdeu o controle das chamas.
 
-— Tira essa coisa de mim!
+— Tira essa coisa de mim! — gritou Erick, sacudindo a perna para se livrar de Farol.
 
 — Parece que a festa chegou! — gritou Bruno, com gelo cobrindo as mãos. Banjo veio logo atrás, com pedras flutuando em volta.
 
@@ -505,13 +505,13 @@ Foi então que o céu inteiro apareceu. Havia balões em todo lugar, enormes, de
 
 — O mundo conspira contra nós — respondeu Breno, entre dentes, enquanto fazia uma curva que levantou o estômago dos três.
 
-Uma sirene soou atrás deles. Três dassis escuros, com luzes vermelhas girando, entraram na rua de lanternas.
+Uma sirene soou atrás deles. Três dassis escuros, com luzes vermelhas girando, surgiram atrás deles no corredor aéreo das lanternas.
 
 — PAREM ESTE DASSI! ESTÃO VIOLANDO O DECRETO DE SEGURANÇA DO FESTIVAL!
 
 — Claro. Como se a gente fosse parar — disse Bruno, e se virou no banco.
 
-Breno meteu o dassi num beco estreito entre dois prédios, com um espelho lateral raspando a parede e soltando fagulhas. Os vigilantes entraram atrás. O primeiro estava tão perto que Bruno via o bigode do piloto.
+Breno baixou o dassi até quase roçar os toldos e o enfiou no vão estreito entre dois prédios. Um espelho lateral raspou a parede, soltando fagulhas. Os vigilantes mergulharam atrás deles, ainda suspensos no ar. O primeiro estava tão perto que Bruno via o bigode do piloto.
 
 — Banjo, balão! — gritou ele.
 
@@ -525,17 +525,21 @@ Banjo estendeu as mãos, tremendo, e um balão verde que passava devagar desviou
 
 — Você fez! — Bruno bateu no ombro dele. — Agora, fica focado!
 
-O segundo dassi colou na traseira. Bruno abriu a janela, deixou o vento chicotear o rosto e atirou uma lâmina de gelo, larga e fina, que se espalhou no vidro do perseguidor como uma geada instantânea. O piloto, cego, freou, deslizou rodando e ficou parado no meio da rua, o vigilante gesticulando por trás do gelo.
+O segundo dassi colou na traseira. Bruno abriu a janela, deixou o vento chicotear o rosto e atirou uma lâmina de gelo, larga e fina, que se espalhou no vidro do perseguidor como uma geada instantânea. O piloto, cego, freou. O dassi rodopiou acima da rua e ficou suspenso a pouco mais de um metro dos ladrilhos, com o vigilante gesticulando por trás do gelo.
 
 — Dois fora! — gritou Bruno.
 
 — Falta um! — gritou Breno.
 
-O terceiro era mais esperto. Cortou caminho por cima de um telhado, desceu na frente deles e quase os esmagou no meio de uma praça de barracas. Breno derrapou, subiu numa fonte, saiu do outro lado com água escorrendo pela porta, e passou tão perto da Torre Branca que as janelas do governo refletiram, por um instante, três rostos apavorados num dassi roubado.
+O terceiro era mais esperto. Passou por cima dos telhados e desceu na frente deles, fechando a passagem sobre uma praça cheia de barracas. Breno puxou o volante e fez uma curva tão baixa que a base do dassi riscou a água de uma fonte. Subiu de novo entre as fachadas e passou tão perto da Torre Branca que as janelas do governo refletiram, por um instante, três rostos apavorados num dassi roubado.
 
-— Lá! — gritou Banjo.
+A Torre Branca ficou para trás, mas o Portão Leste ainda estava longe, além de bairros inteiros de telhados e jardins. Breno manteve o dassi acima das ruas, cortando caminho por entre os prédios e passando sobre avenidas iluminadas. Os grandes edifícios do centro foram dando lugar a casas mais baixas e, depois, a uma faixa de jardins e árvores. O último dassi da Vigilância continuava atrás deles, mergulhando entre passarelas suspensas e desviando das copas mais altas. Banjo se virou para olhar: os balões do festival já eram pontos luminosos ao longe.
 
-À frente, além do último cinturão de balões, surgiu o Portão Leste, uma estrutura colossal de pedra azul-acinzentada, incrustada de cristais azuis em forma de losango e enfeitada com estandartes dourados, com runas que brilhavam entre as pedras. As portas, altas como montanhas, estavam entreabertas, e por entre elas se via o escuro lá fora.
+A muralha oriental finalmente cresceu diante deles. Breno acelerou, e o dassi ganhou altura por cima das últimas ruas, antes de descer em direção à abertura no muro.
+
+— Lá! — gritou Banjo, apontando para o portão.
+
+O Portão Leste era uma estrutura colossal de pedra azul-acinzentada, incrustada de cristais azuis em forma de losango e enfeitada com estandartes dourados, com runas que brilhavam entre as pedras. As portas, altas como montanhas, estavam entreabertas, e por entre elas se via o escuro lá fora.
 
 — Segurem! — berrou Breno, e acelerou.
 

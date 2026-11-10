@@ -62,7 +62,7 @@ Subiram e desceram colinas durante horas. A língua de Banjo começou a grudar n
 
 Breno hesitou, mas abriu o saquinho que Velho-Sábio lhe entregara. Pedras ásperas rolaram para a palma de sua mão, em seis cores: verde, laranja, vermelha, azul, roxa e amarela. E havia mais de uma de cada.
 
-— Quinze, de seis cores — contou ele. — Cada cor tem uma função, e Velho-Sábio disse que a gente descobre testando. Mas aposto que cada pedra só funciona uma vez.
+— Quinze, de seis cores — contou Breno. — Segundo o Velho-Sábio, cada cor tem uma função. A gente descobre qual é testando. Mas aposto que cada pedra só funciona uma vez.
 
 — E se uma for exatamente o que a gente precisa, e a gente não souber? — insistiu Bruno. — Eu não quero descobrir o que uma pedra faz no meio de uma emergência.
 
