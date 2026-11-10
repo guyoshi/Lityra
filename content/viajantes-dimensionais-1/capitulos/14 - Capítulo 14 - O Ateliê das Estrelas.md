@@ -79,21 +79,33 @@ Beatriz arriscou um sorriso, mas ele levantou a mão.
 
 — Preocupante? — Bruno cruzou os braços. — A gente vence uma partida e vira problema?
 
-— Vocês ainda estão aprendendo a controlar o que fazem, mas a velocidade com que estão avançando não é comum. Isso chamou atenção. Muita atenção. E, neste momento, é a última coisa que eu queria.
+— Vocês ainda estão aprendendo a controlar o que fazem, mas, em poucas semanas, já conseguem o que os outros dimensais da turma de vocês levam bem mais tempo para alcançar. A velocidade com que estão avançando não é comum. Isso chamou atenção. Muita atenção. E, neste momento, é a última coisa que eu queria.
 
 — Ah, qual é! Tem gente muito mais forte que a gente lá. O Ferris quase acabou conosco no primeiro tempo.
 
-— Ferris reprovou duas vezes, Bruno. Teve anos para treinar. — Ele parou diante deles. — E vocês, com um pouco de motivação e uma boa estratégia, superaram alguém como ele. Isso é impressionante. E perigoso.
+— Ferris reprovou duas vezes, Bruno. E continua aqui, com anos de treino e novas chances para chegar onde chegou.
+
+— Duas vezes? — repetiu Bruno, com uma risada curta e sem humor. — Ele erra duas vezes e ganha outra chance. Eu caí a um metro do arco e quase fui mandado pra casa.
+
+— É a regra, e já disse que não fui eu quem a fez. — O mago parou diante deles. — Por isso mesmo o que vocês fizeram hoje pesa tanto. Com um pouco de motivação e uma boa estratégia, ajudaram um time a vencer outro que tinha alguém como ele. Isso é impressionante. E perigoso.
 
 — Por que perigoso? — perguntou Beatriz, num fio de voz. — Não é bom sermos bons nisso?
 
 Velho-Sábio se agachou à altura dela e pousou a mão em seu ombro.
 
-— Beatriz, sua mãe era uma senavelita extraordinária. Tão poderosa que Korvo percebeu, e tentou atraí-la. Ela recusou. E pouco depois voltou para a terceira dimensão, deixando para trás os poderes e o lugar onde nasceram. — Ele suspirou. — O resto da história, eu ainda não sei contar por inteiro.
+— Beatriz, sua mãe era uma senavelita extraordinária. Tão poderosa que Korvo percebeu, e tentou atraí-la. Ela recusou.
 
-— Ela nunca nos disse — murmurou Beatriz.
+— Atraí-la para quê? — perguntou Beatriz, e a voz falhou. — O que o Korvo queria dela? E o que custou recusar?
 
-— Mas isso não quer dizer que façam o mesmo com a gente — disse Bruno, de pé. — Por que estamos tanto no radar?
+— O que o Korvo queria, só ele sabe. — O mago hesitou. — Sei que sua mãe disse não, e que pouco depois o caminho dela em Tayo terminou, como contei no dassi.
+
+— Mais um pedaço que a gente só descobre pelo senhor — disse Bruno, de pé, com os braços cruzados. — Ela escondeu isso a vida inteira.
+
+— O rádio do papai tem o mesmo símbolo do arco — disse Breno, devagar. — Foi ele que abriu o caminho até aqui. Eles sabiam de tudo isso, não sabiam?
+
+— O resto, eu ainda não sei contar — disse Velho-Sábio, baixo.
+
+— Se ele tentou com a mamãe, isso não quer dizer que vá fazer o mesmo com a gente — disse Bruno, respirando fundo. — Por que estamos tanto no radar?
 
 — Porque vocês são dimensais talentosos, exatamente o que Korvo procura. E nem todo mundo na cidade vai gostar de ver isso.
 
@@ -107,13 +119,13 @@ O silêncio ficou denso. Breno baixou os olhos, e por um momento parecia pronto 
 
 — Não posso decidir pelos meus irmãos.
 
-— Eu fico — disse Bruno, sem hesitar. — Se o senhor viu que está acima da média, imagina o que a gente faz com alguns meses de treino.
+— Eu fico — disse Bruno, sem hesitar. — Se o senhor viu que a gente avança mais rápido que os outros, imagina o que a gente faz com alguns meses de treino.
 
 — Preciso dizer alguma coisa? — perguntou Banjo, hesitante, e quando viu os olhares, assentiu. — Eu fico também.
 
 Beatriz respirou fundo.
 
-— Eu fico. Quero ser forte como a mamãe era.
+— Eu fico — disse Beatriz, olhando para a lareira, para o Átila e para a sala que já parecia dela. — Eu gosto daqui. E preciso saber o que aconteceu com ela.
 
 Velho-Sábio olhou para os quatro, e o rosto suavizou.
 
@@ -259,7 +271,7 @@ Antes do almoço, Beatriz subiu a escada correndo e voltou ao jardim com a bola 
 
 — Eu. Meu aniversário é amanhã, então hoje eu escolho.
 
-— Não é assim que funciona.
+— Não é assim que funciona — disse Breno.
 
 — É assim aqui. — Beatriz apontou para a flor luminosa que se curvava na beira do canteiro. — Ela concordou. Eu vi.
 
@@ -289,7 +301,7 @@ Breno estava de lado, soprando o chá. Bruno mirou nas costas dele e arremessou.
 
 Beatriz apanhou a bola, apertou entre as mãos e sorriu de um jeito que fez Banjo dar um passo para trás.
 
-— Bia. Não esquenta muito.
+— Bia. Não esquenta muito — pediu Banjo.
 
 — Só um pouquinho.
 

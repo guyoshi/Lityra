@@ -6,7 +6,7 @@ Estavam numa sala baixa, retangular, com dois sofás empoeirados virados para um
 
 — É uma prisão, Banjo. Claro que moravam — disse Bruno, passando o dedo pelas lombadas de uns livros gordos de capa mofada. — Pelo menos eles tinham o que ler.
 
-Beatriz tentou rir, mas a risada saiu torta. Estendeu a mão para acender uma chama pequena, só uma luzinha para enxergar melhor, como tinha feito mil vezes em Tayo. A chama nasceu do tamanho de um punho e, antes que ela pudesse piscar, virou uma bola ardente do tamanho de uma cabeça. Lambeu o teto, chamuscou a poeira do sofá e fez Bruno pular para trás.
+Beatriz tentou rir, mas a risada saiu torta. Estendeu a mão para acender uma chama pequena, só uma luzinha para enxergar melhor, como tinha feito tantas vezes em Tayo desde o jogo. A chama nasceu do tamanho de um punho e, antes que ela pudesse piscar, virou uma bola ardente do tamanho de uma cabeça. Lambeu o teto, chamuscou a poeira do sofá e fez Bruno pular para trás.
 
 — Opa! — Ele bateu na manga, onde tinha pegado uma faísca. — Mais devagar, Bia!
 
