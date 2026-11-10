@@ -148,7 +148,7 @@ Lioro se levantou, inquieto.
 
 — Você fala do pântano que supostamente esconde o covil? — ironizou McCroys, com um olhar cínico. — Quer que abandonemos a cidade, atravessemos as montanhas Karagan e a floresta de Elthenor para procurar um covil secreto num pântano? São só rumores, Lioro. Ninguém jamais confirmou que ele esteja lá. A Vigilância me abordou hoje com diversas perguntas. Não consigo sair de casa sem estar sendo seguido. É contra isso que devemos lutar.
 
-Enquanto ele falava, Bruno notou a mão do homem e a marca clara na pele de um dos dedos, onde faltava um anel. Ele já estava procurando por isso, e as suspeitas dele estavam certas.
+Bruno ainda se irritava com o jeito de McCroys falar, mas logo a discussão tomou outro rumo.
 
 Garmande bateu a mão no braço da cadeira, e todos se calaram.
 
@@ -167,6 +167,12 @@ Os irmãos observavam em silêncio, tentando acompanhar o debate. Era difícil s
 — Sempre confiei na Erla — respondeu Velho-Sábio, num sussurro quase triste. — Ela foi uma das poucas dentro da Vigilância em quem acreditei. Mas hoje... não sei o que pensar. Gostaria de dizer que minha confiança continua íntegra, mas estaria mentindo.
 
 — Esta semana tivemos um caso estranho — disse Garmande. — Houve uma invasão na Central. Eles não encontraram nada conclusivo, exceto um anel de dimensal. Auream pediu que Erla examinasse quem tinha acesso à prisão, mas ela não quis acusar seus homens sem provas.
+
+A palavra *anel* fez Bruno olhar para McCroys. Lembrou-se do aro negro com um raio prateado interrompido, que vira no dedo do homem depois da corrida. Lembrou-se também do estojo que Garien mostrara na entrada do Edifício Arcano. Naquela hora não pensara em ligar as duas coisas.
+
+McCroys continuava sentado, com a mesma expressão fechada. Mas passou o polegar pela pele mais clara de um dos dedos, onde já não havia anel, e recolheu a mão para o colo. O gesto foi breve. Bruno só o percebeu porque estava olhando.
+
+E se o anel encontrado na Central fosse aquele? A ausência não provava que McCroys tivesse participado da invasão, mas Bruno já não conseguia afastar a ideia.
 
 Sussurros ansiosos tomaram o salão.
 
@@ -310,7 +316,7 @@ Os olhos de Bruno se arregalaram. Beatriz entrelaçou os dedos, e Banjo olhou fi
 
 — Conhecia. Muita gente aqui conheceu os dois.
 
-— E por que nunca nos contaram?
+— E por que nunca nos contaram? — perguntou Breno.
 
 — Porque eles escolheram assim. Enfrentaram muitos desafios aqui em Tayo, como vocês agora. Korvo viu neles um potencial imenso e tentou manipulá-los. Mas, ao contrário de vocês, eles não chegaram ao último desafio. Foram enviados de volta à terceira dimensão.
 
