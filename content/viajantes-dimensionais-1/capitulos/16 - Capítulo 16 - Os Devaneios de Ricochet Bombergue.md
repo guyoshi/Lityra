@@ -462,13 +462,15 @@ Do chão, das frestas, dos buracos nas paredes, centenas de trolhos saltaram e s
 
 — Pro rio! — ordenou Breno.
 
-Correram até a margem, os trolhos pendurados em cabelos, bolsos e mochilas, e se jogaram na água. A correnteza arrancou os pequenos agressores e os levou de volta à margem, soltando gritinhos agudos de frustração.
+Correram até a margem, os trolhos pendurados em cabelos, bolsos e mochilas, e se jogaram na água. Bruno sentiu o fluxo da correnteza e, sem pensar, o conduziu para longe da margem, do mesmo jeito que fizera com a lárida no Rio Celeste. Os três deslizaram na água mais depressa do que qualquer um deles conseguiria nadar, e a corrente arrancou os pequenos agressores, devolvendo-os à margem entre gritinhos agudos de frustração.
 
-Os três emergiram ofegantes. Bruno cuspia água. Banjo, para surpresa dos irmãos, segurava com cuidado dois trolhos pelas pontas dos dedos, como se fossem objetos delicados.
+Os três emergiram ofegantes. Bruno cuspia água, com as pontas dos dedos ainda formigando. Banjo, para surpresa dos irmãos, segurava com cuidado dois trolhos pelas pontas dos dedos, como se fossem objetos delicados.
 
 — Banjo, larga esses bichos.
 
 — Eles estavam só defendendo o mel. Não é culpa deles. — Ele os depositou na margem, e os dois saíram correndo, atônitos, para junto do grupo.
+
+Banjo ficou olhando os trolhos sumirem entre as pedras, e a cena o levou de volta à criatura do Rio Celeste, que ele quase tinha esquecido. Ela dissera que os senavelitas feriam as águas onde vivia e que todos eles mentiam. Na hora, ele só pensara em não ser mordido. Agora percebia que ninguém inventa um medo desses sozinho: alguém tinha feito mal a ela, e ela passara a ver qualquer senavelita como o próximo. Ele prometera que não a machucariam, e ela não acreditara. Talvez falar com os bichos não fosse convencê-los, e sim escutar primeiro. Guardou o pensamento para si, junto com a vontade de voltar àquele rio um dia.
 
 Bruno balançou a cabeça, incrédulo, mas acabou rindo. Breno também, de cansaço.
 

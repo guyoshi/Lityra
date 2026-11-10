@@ -146,7 +146,7 @@ Contornaram a parede de rocha na ponta dos pés, passo por passo, até que o som
 
 Seguiram a margem do rio, olhando para trás a cada galho que estalava, até que, depois de minutos que pareceram horas, viram uma abertura entre as pedras da montanha, escondida atrás de um véu de samambaias.
 
-— Ali!
+— Ali! — apontou Breno.
 
 Entraram agachados, a entrada estreita engolindo as sombras deles. Lá fora, passos pesados se aproximavam, e uma das criaturas tentou forçar a passagem. Uma pata enorme, de garras escuras, atravessou a abertura, arranhando as paredes de pedra e soltando lascas. Farol, tremendo, soltou um guincho baixo.
 

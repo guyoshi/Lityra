@@ -224,7 +224,7 @@ O silêncio durou quase um minuto. Bruno congelou com uma esfera na mão. Banjo 
 
 — O quê?!
 
-— Ovas de insetos? A gente comeu... inseto em conserva?
+— Ovas de insetos? A gente comeu... inseto em conserva? — perguntou Banjo.
 
 Seti deu de ombros.
 
