@@ -126,13 +126,21 @@ Um murmúrio inquieto percorreu a sala.
 
 O anúncio caiu como uma bomba. Todos os olhos se voltaram para a mulher de cabelos prateados, que até então permanecia em silêncio. Serafira se inclinou para a frente, e os olhos verdes cintilaram sob a luz.
 
-— Foi um ataque rápido — começou, com uma voz fria e um leve tremor por baixo. — Eu tinha saído do centro comercial e andava por uma rua deserta. Senti uma presença estranha. Antes que reagisse, um mago encapuzado me atacou.
+— Eu estava voltando do centro comercial com dois dos meus aprendizes, Khalil e Kevin — começou ela. A voz estava firme, mas as mãos se apertaram sobre a mesa. — Tínhamos ido buscar material para o treino. Pegamos uma rua mais vazia, e um homem encapuzado apareceu no nosso caminho.
 
-A sala ficou em silêncio mortal.
+— O que ele fez? — perguntou Lioro.
 
-— Ele usava um cajado negro. Tentou dominar minha mente com uma magia de controle. Eu resisti e contra-ataquei. Vocês sabem que não sou iniciante, mas aquele homem era extremamente forte. A Vigilância nunca o encontrou. Desde então, suspeito de todos.
+— Bateu um cajado negro no chão. Umas faixas escuras se estenderam de um lado ao outro da rua. Tentei abrir passagem, mas elas vinham atrás de nós, como se quisessem nos amarrar. Fiquei na frente dos meninos e lancei minhas correntes de luz contra ele. Não consegui prendê-lo.
 
-— Um usuário de magia negra — concluiu Garmande, em voz grave. — Eles usam cajados negros para direcionar a magia em outros indivíduos.
+Serafira olhou para Garmande antes de continuar.
+
+— Uma das faixas quase alcançou Kevin. Ele fez um ruído seco soar atrás do agressor, do outro lado da rua. O homem se virou e atacou na direção do som. Khalil aproveitou para fazer as pedras sob os pés dele vibrarem. Foi pouco, só o bastante para desequilibrá-lo. Assim consegui puxar os dois para trás de mim.
+
+— Eles se machucaram? — perguntou Karoli.
+
+— Não. Ficaram assustados, mas nenhum de nós se feriu. E foi isso que me deixou desconfiada. O homem não tentou nos atingir com nada além daquelas faixas. Quando os dois usaram a magia, ele recuou. Tive uma oportunidade de lançar outra corrente, mas ele já estava fugindo.
+
+— Talvez quisesse capturá-los — disse Garmande, em voz grave. — Um cajado negro não basta para dizer quem era, mas escolher dois aprendizes como alvo não parece coincidência.
 
 Lioro se levantou, inquieto.
 
