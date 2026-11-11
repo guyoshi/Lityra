@@ -122,6 +122,16 @@
       "series": "Spacetheft",
       "order": 2,
       "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/spacetheft/livro-2/"
+    },
+    {
+      "id": "viajantes-dimensionais-2",
+      "title": "A Máscara do Contracanto",
+      "subtitle": "Viajantes Dimensionais — Livro 2",
+      "manifest": "data/viajantes-dimensionais-2.json",
+      "signupAvailable": false,
+      "series": "Viajantes Dimensionais",
+      "order": 2,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/a-mascara-do-contracanto/"
     }
   ]
 }
