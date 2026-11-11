@@ -26,11 +26,9 @@ Klafres foi o primeiro a falar, e falou de leve.
 
 Kedran não respondeu. Já tinha o arco na mão e examinava a encosta da base ao topo, devagar, procurando o que se procura primeiro quando se vive longe de tudo: fumaça, pegadas, a mancha escura de uma pessoa parada contra a neve. Sefter fez o mesmo. Havia a crista, havia o céu cinzento atrás dela, e do meio da encosta uma fina linha de neve se soltou e subiu. Subiu rente ao chão, a passo de gente, desenhando uma curva preguiçosa, e Sefter percebeu que o vento que lhe batia no rosto vinha exatamente do outro lado. A linha durou o tempo de duas respirações e se desfez.
 
-— Viram isso? — perguntou.
+— Vocês viram aquilo? — perguntou, e a voz saiu mais baixa do que pretendia. — Ali no meio da encosta, a neve levantou e foi subindo. Rente ao chão, devagar, e o vento está vindo do lado contrário.
 
-— O quê? — disse Kedran.
-
-— A neve. Subiu a encosta. Contra o vento.
+— Eu vi neve — disse Kedran, sem tirar os olhos da crista. — O que você viu?
 
 Kedran olhou para o ponto que Sefter indicava, depois para o irmão, depois outra vez para o ponto.
 
@@ -50,11 +48,9 @@ A curva de baixo era um alargamento do riacho onde a água, correndo mais devaga
 
 — Você — disse Kedran.
 
-— Eu?
+— Eu? O tio atira melhor do que eu, e você sabe.
 
-— Tem outro Sefter na família?
-
-— O tio é melhor atirador.
+— Atira. Mas o tio não consegue ficar parado, e quem fica na saída tem que ficar parado até o bicho chegar perto. — Kedran olhou para ele como olhava para um arco antes de armá-lo. — Você consegue. É a única coisa em que você é melhor do que a gente e não gosta de ouvir.
 
 — Esse tio aí é melhor em contar vantagem — disse Klafres. — Vai, rapaz, antes que seu irmão mude de ideia.
 
@@ -178,7 +174,7 @@ Sefter puxou o trenó por alguns passos antes de responder.
 
 — Você nunca falou de casa nenhuma.
 
-— Todo mundo acaba tendo uma.
+— Nunca falei porque não tive o que falar. — Kedran ajeitou Bera no braço. — Mas não vamos ser sempre nós oito num abrigo dividido, Sef. O pai sabe disso, a tia sabe, só você finge que não.
 
 — Então eu bato na sua porta todo dia até você abrir. — Sefter riu, mas a corda tinha apertado a mão sem ele perceber, e só então os dedos doeram. — Só para você saber.
 
@@ -200,9 +196,9 @@ O abrigo ficava ao fundo, onde uma laje de pedra avançava sobre o chão como um
 
 Mentesra foi a primeira a aparecer. Alta, magra, o lenço cobrindo parte das tranças, saiu da pele da entrada com uma panela de água quente nas mãos e olhou primeiro para o embrulho nos braços de Kedran, depois para o rosto de Kedran, depois para as mangas encharcadas de Sefter, e apenas então para o trenó.
 
-— Quem caiu? — perguntou.
+— Quem caiu? Foi o gelo da curva? — perguntou, sem tirar os olhos do embrulho.
 
-— A Bera — disse Kedran. — O Sefter tirou.
+— A Bera. Cedeu embaixo do sarnak e ela foi atrás. O Sefter entrou para buscar.
 
 — Entra com ela. Perto do fogo, mas não em cima, que se esquentar depressa demais ela não aguenta. — Os olhos dela voltaram às mangas de Sefter, e a boca se apertou. — E o seu irmão que tire essa roupa antes que congele nele.
 
@@ -210,7 +206,7 @@ Ela passou a panela e um pano seco a Kedran. Depois voltou para dentro. Sefter r
 
 Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para o cátilo, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
 
-— Por Jesed. Eu pedi carne para o inverno, não um mergulho. — Olhou do cátilo embrulhado para as mangas de Sefter. — Quem tirou quem do buraco dessa vez?
+— Por Jesed. Eu pedi carne para o inverno, não um mergulho. — Olhou do cátilo embrulhado para as mangas de Sefter. — Quem foi atrás de quem dessa vez?
 
 — A Bera caiu e o Sefter foi buscar — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
 
@@ -258,9 +254,9 @@ A tábua de esfolar tinha dois ganchos de osso presos em cima que Klafres tinha 
 
 — Foi até a cintura. Eu estava em cima da pedra.
 
-— Você me viu levantar, não me viu cair.
+— Você me viu levantar. Não me viu cair, e quem não viu não pode jurar.
 
-— Quando você levantou, já estava na cintura. No joelho não estaria.
+— Quando você levantou, a água já estava na cintura. No joelho não estaria. E ninguém grita daquele jeito por causa de um joelho.
 
 — Você inventou isso.
 
@@ -290,7 +286,7 @@ Nefestra cortou o último tendão da pele, puxou o couro inteiro para trás com 
 
 Sefter esperou que os adultos se ocupassem do fogo e baixou a voz, sem tirar os olhos da faca.
 
-— Tinha uma pegada no gelo da curva.
+— Tinha uma pegada no gelo da curva. — A faca dele ficou parada. — Se eu guardar isso sozinho, vou acabar falando no meio do jantar.
 
 — Do sarnak?
 
@@ -338,15 +334,15 @@ Jelatira só desceu para perto do fogo depois que todos tinham comido. Era uma v
 
 — Vovó — disse Sefter —, conta uma.
 
-— Já contei todas.
+— Já contei todas. Até as que inventei no caminho, e vocês acreditaram.
 
 — Conta a dos tarraks.
 
 Klafres gemeu, sem convicção.
 
-— Essa de novo?
+— Essa de novo? Eu sei até onde ela perde o fôlego.
 
-— É a melhor.
+— É a melhor. É a única em que ninguém precisa matar ninguém.
 
 — É a que ela mais muda — disse Nefestra. — Da última vez eram nove tarraks e o vento era do sul.
 
