@@ -492,4 +492,8 @@ Bandos de aves luminosas atravessavam a galeria pertinho da cabeça dele, rasgan
 
 — Vomita, vomita — disse Banjo, que tinha os joelhos moles e o maior sorriso do mundo. — Eu fiz isso da outra vez.
 
-Eles estavam de volta à 4ª Dimensão. 
+Uma figura saiu de trás de uma das colunas. Era um homem alto, de cabelos escuros presos na nuca, vestido com um casaco comprido sobre roupas claras. Trazia quatro toalhas dobradas debaixo do braço e um sorriso cansado no rosto.
+
+Ao lado dele apareceu uma criatura pequena, de pelo castanho e orelhas redondas. O jovem Traio usava um colete cheio de bolsos e observava os quatro com olhos grandes, atentos, que devolviam a luz das aves.
+
+— Olá, garotos — disse Lioro, abrindo os braços. — Vejo que ainda não aprenderam a usar uma porta.
