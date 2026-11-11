@@ -168,17 +168,15 @@ Amarraram o sarnak sobre o couro que Klafres trazia enrolado nas costas, para se
 
 Klafres tinha ficado para trás, cortando outro galho para a trilha, e Sefter, na corda do trenó, esperou que a distância crescesse.
 
-— Quando eu tiver a minha casa, você vai ter que aprender a pensar antes de se jogar no gelo — disse Kedran, de trás, sem soltar a Bera. A voz ainda estava rouca. — Porque eu não vou estar por perto.
+— Quando eu tiver a minha casa — disse Kedran, de trás, sem soltar a Bera —, vou pôr uma regra na porta: quem chegar encharcado dorme do lado de fora.
 
-Sefter puxou o trenó por alguns passos antes de responder.
+— Você me deixaria dormir lá fora? Com esse frio? Eu bateria até você abrir.
 
-— Você nunca falou de casa nenhuma.
+— Eu sei. Conheço o barulho. — A voz ainda estava rouca, mas o canto da boca se mexeu. — Por isso a porta ia ser bem grossa.
 
-— Nunca falei porque não tive o que falar. — Kedran ajeitou Bera no braço. — Mas não vamos ser sempre nós oito num abrigo dividido, Sef. O pai sabe disso, a tia sabe, só você finge que não.
+— Então eu entraria pelo telhado. A Bera ajudava. — Sefter riu, mas a corda tinha apertado a mão sem ele perceber, e só então os dedos doeram.
 
-— Então eu bato na sua porta todo dia até você abrir. — Sefter riu, mas a corda tinha apertado a mão sem ele perceber, e só então os dedos doeram. — Só para você saber.
-
-Kedran não disse nada. Ajeitou Bera no braço esquerdo e pousou a mão direita, pesada e ainda úmida, no ombro do irmão, e a deixou ali até o fim da mata de pinho.
+Kedran ajeitou Bera no braço esquerdo e pousou a mão direita, pesada e ainda úmida, no ombro do irmão, e a deixou ali até o fim da mata de pinho.
 
 — Se tivesse alguém lá em cima, na encosta — disse Kedran, depois de muito tempo —, a Bera ainda estaria rosnando.
 
