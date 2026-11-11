@@ -1,10 +1,10 @@
 {
-  "generatedAt": "2026-11-11T09:42:39Z",
+  "generatedAt": "2026-11-11T09:46:44Z",
   "sourceRepository": "guyoshi/dimensoesinfinitas",
-  "sourceCommit": "5dbc2dd9b01b895ca941bad63c7600ff88383fae",
+  "sourceCommit": "8d2dd936a03ccc5c7e1032e8101921d5c22a33b8",
   "status": "warning",
   "summary": {
-    "warnings": 24
+    "warnings": 25
   },
   "issues": [
     {
@@ -98,10 +98,10 @@
       "item": "Spacetheft/6 - Livro 6/00 - Texto/capitulos"
     },
     {
-      "area": "book",
-      "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
+      "area": "chapter",
+      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
       "bookId": "viajantes-dimensionais-2",
-      "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto/00 - Texto/capitulos"
+      "item": "01 - Capítulo 1.md"
     },
     {
       "area": "book",
@@ -150,6 +150,12 @@
       "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
       "bookId": "spacetheft-2",
       "item": "Spacetheft/2 - Livro 2"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-2",
+      "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto"
     }
   ]
 }
