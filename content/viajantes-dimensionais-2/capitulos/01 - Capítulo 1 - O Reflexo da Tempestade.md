@@ -576,7 +576,7 @@ Da mochila aberta, Farol acompanhava uma das aves, que se separara do bando e cr
 
 — A gente voltou — disse. — A gente voltou pra 4ª Dimensão.
 
-— Voltamos — repetiu Breno, com a voz estranha. Colocou a mão na cabeça, tentando disfarçar o rosto. Bruno, ao lado dele, estava deitado no chão de costas, olhando para o gelo cheio de estrelas, e ria sem parar.
+— Voltamos — repetiu Breno, com a voz estranha. Colocou a mão na cabeça, tentando disfarçar o rosto. Bruno, ao lado dele, estava deitado no chão de costas, olhando para a cúpula de vidro, e ria sem parar.
 
 — Eu vou vomitar — disse.
 
