@@ -131,7 +131,8 @@
       "signupAvailable": false,
       "series": "Viajantes Dimensionais",
       "order": 2,
-      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/a-mascara-do-contracanto/"
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/a-mascara-do-contracanto/",
+      "cover": "assets/covers/viajantes-dimensionais-2.webp?v=a614cf6bd8428df5"
     }
   ]
 }
