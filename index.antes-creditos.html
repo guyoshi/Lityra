@@ -1,0 +1,288 @@
+<!doctype html>
+<html lang="pt-BR">
+<head>
+<meta charset="utf-8">
+<meta name="viewport" content="width=device-width, initial-scale=1, viewport-fit=cover">
+<title>Lityra</title>
+<meta name="description" content="Leitura, beta reading e gestão de manuscritos">
+<meta name="robots" content="noindex,nofollow,noarchive,nosnippet,noimageindex">
+<meta name="googlebot" content="noindex,nofollow,noarchive,nosnippet,noimageindex">
+<meta name="lityra-version" content="0.9.17-beta">
+<meta name="theme-color" content="#faf6ef">
+<link rel="manifest" href="manifest.webmanifest">
+<link rel="icon" href="icons/icon-192.png">
+<link rel="apple-touch-icon" href="icons/icon-192.png">
+    <meta name="mobile-web-app-capable" content="yes">
+<meta name="apple-mobile-web-app-capable" content="yes">
+<meta name="apple-mobile-web-app-status-bar-style" content="default">
+<link rel="preconnect" href="https://fonts.googleapis.com">
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link href="https://fonts.googleapis.com/css2?family=Atkinson+Hyperlegible:ital,wght@0,400;0,700;1,400&family=EB+Garamond:ital,wght@0,400;0,500;0,600;1,400&family=Inter:wght@400;500;600;700&family=Literata:ital,opsz,wght@0,7..72,400;0,7..72,500;0,7..72,600;1,7..72,400&family=Lora:ital,wght@0,400;0,500;0,600;1,400&family=Merriweather:ital,opsz,wght@0,18..144,400;0,18..144,600;1,18..144,400&display=swap" rel="stylesheet">
+<link rel="stylesheet" href="assets/style-v6.css?v=20261107-fish-dot-1">
+<link rel="stylesheet" href="assets/chapter-editor-v1.css?v=20261007-3">
+<link rel="stylesheet" href="assets/tts-reader-v1.css?v=20261027-2">
+<link rel="stylesheet" href="assets/admin-sync-v1.css?v=20261105-sync-report">
+<link rel="stylesheet" href="assets/book-fx-v1.css?v=20261112-1">
+</head>
+<body>
+
+<div id="app">
+
+  <!-- BIBLIOTECA -->
+  <section id="view-library" class="view" data-view>
+    <header class="topbar">
+      <h1 class="brand">Lityra</h1>
+      <button id="btnReaderHub" class="icon-btn reader-hub-launch" title="Minha central" aria-label="Minha central">
+        <svg viewBox="0 0 24 24" width="20" height="20"><path id="topProfileIconPath" fill="currentColor" d="M12,2C6.48,2,2,6.48,2,12s4.48,10,10,10s10-4.48,10-10S17.52,2,12,2z M12,5c1.66,0,3,1.34,3,3s-1.34,3-3,3 s-3-1.34-3-3S10.34,5,12,5z M12,19.2c-2.5,0-4.71-1.28-6-3.22c0.03-1.99,4-3.08,6-3.08c1.99,0,5.97,1.09,6,3.08 C16.71,17.92,14.5,19.2,12,19.2z"/></svg>
+        <span id="readerHubBadge" class="reader-hub-launch-badge" hidden></span>
+      </button>
+      <button id="btnSettings" class="icon-btn" title="Ajustes" aria-label="Ajustes">
+        <svg viewBox="0 0 24 24" width="20" height="20"><path fill="currentColor" d="M19.14,12.94c0.04-0.3,0.06-0.61,0.06-0.94c0-0.32-0.02-0.64-0.07-0.94l2.03-1.58c0.18-0.14,0.23-0.41,0.12-0.61 l-1.92-3.32c-0.12-0.22-0.37-0.29-0.59-0.22l-2.39,0.96c-0.5-0.38-1.03-0.7-1.62-0.94L14.4,2.81c-0.04-0.24-0.24-0.41-0.48-0.41 h-3.84c-0.24,0-0.43,0.17-0.47,0.41L9.25,5.35C8.66,5.59,8.12,5.92,7.63,6.29L5.24,5.33c-0.22-0.08-0.47,0-0.59,0.22L2.74,8.87 C2.62,9.08,2.66,9.34,2.86,9.48l2.03,1.58C4.84,11.36,4.8,11.69,4.8,12s0.02,0.64,0.07,0.94l-2.03,1.58 c-0.18,0.14-0.23,0.41-0.12,0.61l1.92,3.32c0.12,0.22,0.37,0.29,0.59,0.22l2.39-0.96c0.5,0.38,1.03,0.7,1.62,0.94l0.36,2.54 c0.05,0.24,0.24,0.41,0.48,0.41h3.84c0.24,0,0.44-0.17,0.47-0.41l0.36-2.54c0.59-0.24,1.13-0.56,1.62-0.94l2.39,0.96 c0.22,0.08,0.47,0,0.59-0.22l1.92-3.32c0.12-0.22,0.07-0.47-0.12-0.61L19.14,12.94z M12,15.6c-1.98,0-3.6-1.62-3.6-3.6 s1.62-3.6,3.6-3.6s3.6,1.62,3.6,3.6S13.98,15.6,12,15.6z"/></svg>
+      </button>
+      <span class="spacer"></span>
+      <button id="btnSwitchReader" class="icon-btn switch-reader-btn" type="button" title="Trocar usuário" aria-label="Trocar usuário">
+        <svg viewBox="0 0 24 24" width="20" height="20" aria-hidden="true">
+          <path fill="currentColor" d="M9 11a4 4 0 100-8 4 4 0 000 8zm0 2c-4.42 0-7 2.17-7 5v1h9.1a6.9 6.9 0 01-.1-1 7 7 0 011.27-4.03A10.96 10.96 0 009 13zm8-2v2.17A3 3 0 1019.83 16H22a5 5 0 11-5-5zm0-3l-4 4 4 4v-3h4v-2h-4V8z"/>
+        </svg>
+      </button>
+    </header>
+    <p class="brand-sub">Biblioteca</p>
+    <p id="readerIdentityBar" class="reader-identity-bar" hidden></p>
+
+    <div id="bookList" class="book-list"></div>
+  </section>
+
+  <!-- CAPÍTULOS DE UM LIVRO -->
+  <section id="view-book" class="view" data-view hidden>
+    <header class="topbar">
+      <button class="icon-btn" data-back="library" aria-label="Voltar">
+        <svg viewBox="0 0 24 24" width="20" height="20"><path fill="currentColor" d="M15.5 4.5L8 12l7.5 7.5 1.4-1.4L10.8 12l6.1-6.1z"/></svg>
+      </button>
+      <h1 id="bookTitle" class="brand small"></h1>
+      <span class="spacer"></span>
+    </header>
+    <div id="bookScroll" class="book-scroll">
+      <p id="bookSubtitle" class="brand-sub"></p>
+      <div class="book-cover-hero">
+        <img id="bookCoverImg" alt="" hidden>
+      </div>
+      <p id="bookProgress" class="book-progress-line"></p>
+      <div id="chapterList" class="chapter-list"></div>
+    </div>
+  </section>
+
+  <!-- LEITURA / PLAYER -->
+  <section id="view-reader" class="view" data-view hidden>
+    <header class="topbar reader-topbar">
+      <button class="icon-btn" data-back="book" aria-label="Voltar">
+        <svg viewBox="0 0 24 24" width="20" height="20"><path fill="currentColor" d="M15.5 4.5L8 12l7.5 7.5 1.4-1.4L10.8 12l6.1-6.1z"/></svg>
+      </button>
+      <div class="reader-heading">
+        <span id="readerChapter" class="reader-chapter"></span>
+      </div>
+      <span id="readerProgressLabel" class="reader-progress-label">0%</span>
+      <button id="btnReaderDisplay" class="reader-aa-btn" type="button" title="Aparência da leitura" aria-label="Aparência da leitura" aria-expanded="false">Aa</button>
+      <div id="readerProgress" class="reader-progress">
+        <div id="readerProgressFill" class="reader-progress-fill"></div>
+      </div>
+    </header>
+
+    <div id="readerDisplayPop" class="reader-display-pop" role="dialog" aria-label="Aparência da leitura" hidden>
+      <div class="reader-display-title">
+        <strong>Aparência da leitura</strong>
+        <button id="readerDisplayClose" type="button" class="icon-btn small" aria-label="Fechar">✕</button>
+      </div>
+      <div class="reader-display-section">
+        <span class="reader-display-label">Tamanho do texto</span>
+        <div class="reader-size-controls">
+          <button type="button" data-reader-size="-" aria-label="Diminuir texto">A−</button>
+          <span id="readerSizeLabel">100%</span>
+          <button type="button" data-reader-size="+" aria-label="Aumentar texto">A+</button>
+        </div>
+      </div>
+      <div class="reader-display-section">
+        <span class="reader-display-label">Fonte</span>
+        <div id="readerFontPicker" class="reader-font-picker"></div>
+      </div>
+      <div class="reader-display-section">
+        <span class="reader-display-label">Tema</span>
+        <div id="readerThemePicker" class="theme-picker compact"></div>
+      </div>
+    </div>
+
+    <div id="readerScroll" class="reader-scroll">
+      <img id="chapterArt" class="chapter-art" alt="" hidden>
+      <div id="chapterNotes" class="chapter-notes" hidden></div>
+      <article id="chapterText" class="chapter-text"></article>
+
+      <div class="chapter-complete-area">
+        <button id="btnCompleteChapter" class="complete-btn">
+          <svg viewBox="0 0 24 24" width="18" height="18"><path fill="currentColor" d="M12 2a10 10 0 100 20 10 10 0 000-20zm-1.3 14.8l-4.5-4.5 1.4-1.4 3.1 3.1 6.2-6.2 1.4 1.4z"/></svg>
+          <span id="completeBtnLabel">Concluir capítulo</span>
+        </button>
+        <p id="bookProgressEnd" class="book-progress-end"></p>
+      </div>
+
+      <button id="btnNextChapterEnd" class="next-chapter-btn" hidden>
+        <span id="nextChapterLabel">Próximo capítulo</span>
+        <svg viewBox="0 0 24 24" width="18" height="18"><path fill="currentColor" d="M8.59 16.59L13.17 12 8.59 7.41 10 6l6 6-6 6z"/></svg>
+      </button>
+    </div>
+
+    <button id="focusExit" class="focus-exit" hidden aria-label="Sair do modo foco">
+      <svg viewBox="0 0 24 24" width="18" height="18"><path fill="currentColor" d="M18.3 5.71L12 12l6.3 6.29-1.41 1.42L10.59 13.4 4.3 19.7l-1.42-1.42L9.17 12 2.88 5.71 4.3 4.29l6.29 6.3 6.29-6.3z"/></svg>
+    </button>
+
+    <!-- Controles de voz sintetizada, exibidos apenas sem MP3 -->
+    <details id="ttsOptions" class="tts-options" hidden>
+      <summary aria-label="Ajustar voz sintetizada">Voz do aparelho · Ajustar</summary>
+      <div class="tts-config">
+      <label for="ttsVoice">Voz <select id="ttsVoice" aria-label="Voz em português"><option>Voz do dispositivo (PT-BR)</option></select></label>
+      <label for="ttsRate">Velocidade <input id="ttsRate" type="range" min="0.75" max="1.5" step="0.05" value="1" aria-label="Velocidade da leitura"><span id="ttsRateValue">1×</span></label>
+      <p id="ttsNotice" class="tts-note" aria-live="polite">Voz do dispositivo (Google, Microsoft ou outra voz instalada). Alguns navegadores interrompem a leitura com a tela bloqueada.</p>
+      </div>
+    </details>
+    <!-- narração + música do capítulo -->
+    <div id="playerBar" class="player-bar" hidden>
+      <button id="btnPlay" class="play-btn" aria-label="Tocar narração" title="Tocar narração" aria-pressed="false">
+        <svg id="narrationStateIcon" viewBox="0 0 24 24" width="22" height="22" aria-hidden="true"><path id="narrationStatePath" fill="currentColor" d="M8 5v14l11-7z"/></svg>
+      </button>
+      <div class="player-mid">
+        <div class="player-times">
+          <span id="timeCurrent">0:00</span>
+          <span id="timeTotal">0:00</span>
+        </div>
+        <input id="seek" type="range" min="0" max="1000" value="0" class="seek">
+      </div>
+      <button id="btnBack15" class="icon-btn small" aria-label="Voltar 15s" title="Voltar 15s">
+        <svg viewBox="0 0 24 24" width="18" height="18"><path fill="currentColor" d="M12 5V1L7 6l5 5V7c3.31 0 6 2.69 6 6s-2.69 6-6 6-6-2.69-6-6H4c0 4.42 3.58 8 8 8s8-3.58 8-8-3.58-8-8-8z"/></svg>
+      </button>
+      <button id="btnNextPara" class="icon-btn small tts-only-control" type="button" aria-label="Avançar um parágrafo" title="Avançar um parágrafo" hidden>Próx. ¶</button>
+      <button id="btnAmbient" class="ambient-player-btn" type="button" aria-label="Tocar música do capítulo" title="Tocar música do capítulo" aria-pressed="false" hidden>
+        <svg viewBox="0 0 24 24" width="22" height="22" aria-hidden="true"><path fill="currentColor" d="M12 3v10.55A4 4 0 1014 17V7h5V3h-7z"/></svg>
+      </button>
+    </div>
+  </section>
+
+  <!-- AJUSTES -->
+  <div id="settingsSheet" class="sheet" hidden>
+    <div class="sheet-card">
+      <h2>Ajustes</h2>
+      <div class="field">
+        <span>Tema de leitura</span>
+        <div id="themePicker" class="theme-picker"></div>
+      </div>
+
+      <div class="field">
+        <span>Fonte do texto</span>
+        <div id="settingsFontPicker" class="settings-font-picker"></div>
+      </div>
+
+      <label class="field-check">
+        <input id="cfgHideArt" type="checkbox">
+        <span>Ocultar imagens dos capítulos (pra quem prefere imaginar a obra)</span>
+      </label>
+
+      <label class="field-check">
+        <input id="cfgAutoAmbient" type="checkbox">
+        <span>Iniciar capítulo com música ambiente automática</span>
+      </label>
+
+      <div id="adminBox" class="admin-box" hidden>
+        <label class="field-check">
+          <input id="cfgShowAll" type="checkbox">
+          <span>Mostrar os comentários de todo mundo pra todo mundo</span>
+        </label>
+      </div>
+      <div class="app-about" aria-label="Informações do aplicativo">
+        <div class="app-about-mark">
+          <strong>Lityra</strong>
+          <span id="appVersionLabel">v0.9.14-beta</span>
+        </div>
+        <small id="appBuildLabel">Build —</small>
+      </div>
+
+      <div class="sheet-actions">
+        <button id="cfgSave" class="btn-primary">Salvar</button>
+        <button id="cfgClose" class="btn-ghost">Fechar</button>
+      </div>
+    </div>
+  </div>
+
+  <!-- PERFIL / PRIMEIRO ACESSO -->
+  <div id="nameSheet" class="sheet" hidden>
+    <div class="sheet-card profile-entry-card">
+      <div id="nameStartBox">
+        <div class="reader-onboarding-kicker">Lityra</div>
+        <h2>Bem-vindo</h2>
+        <p class="sheet-hint">Escolha como quer entrar. Seu perfil guarda progresso, comentários, reações e preferências.</p>
+        <div class="profile-entry-actions">
+          <button id="nameStartCreate" class="btn-primary" type="button">Criar perfil</button>
+          <button id="nameUseCode" class="btn-ghost" type="button">Já tenho um código</button>
+        </div>
+        <button id="nameAdminLogin" class="profile-author-link" type="button">Sou o autor</button>
+      </div>
+
+      <div id="nameCreateBox" hidden>
+        <div class="reader-onboarding-kicker">Novo perfil</div>
+        <h2>Como podemos te chamar?</h2>
+        <p class="sheet-hint">Seu nome aparece nos comentários. Depois criaremos um código privado para recuperar este perfil em outro aparelho.</p>
+        <label class="field">
+          <span>Seu nome</span>
+          <input id="nameInput" type="text" placeholder="ex.: Gui" maxlength="40">
+        </label>
+        <fieldset id="initialBookField" class="initial-book-field">
+          <legend>Qual livro você quer solicitar primeiro?</legend>
+          <p class="sheet-hint">Escolha o livro inicial. A leitura só é liberada depois que o autor aprovar seu cadastro.</p>
+          <div id="initialBookPicker" class="initial-book-picker" aria-live="polite">
+            <p class="initial-book-status">Carregando os livros…</p>
+          </div>
+        </fieldset>
+        <div class="sheet-actions name-sheet-actions">
+          <button id="nameSave" class="btn-primary" disabled>Criar meu perfil</button>
+          <button id="nameCreateBack" class="btn-ghost" type="button">Voltar</button>
+        </div>
+      </div>
+
+      <div id="nameCodeBox" class="reader-code-login profile-entry-subview" hidden>
+        <div class="reader-onboarding-kicker">Perfil existente</div>
+        <h2>Entrar com código</h2>
+        <p class="sheet-hint">Use o código privado do seu perfil para continuar de onde parou.</p>
+        <label class="field">
+          <span>Código de acesso</span>
+          <input id="nameCodeInput" type="text" inputmode="text" autocomplete="off" autocapitalize="characters" spellcheck="false" placeholder="ex.: DE2E40" maxlength="24">
+        </label>
+        <div class="sheet-actions">
+          <button id="nameCodeLogin" class="btn-primary" type="button">Entrar</button>
+          <button id="nameCodeBack" class="btn-ghost" type="button">Voltar</button>
+        </div>
+        <p id="nameCodeStatus" class="reader-code-status" aria-live="polite"></p>
+      </div>
+    </div>
+  </div>
+
+</div>
+
+<audio id="audioEl" preload="metadata"></audio>
+<audio id="ambientEl" preload="none" loop></audio>
+<audio id="ambientElAlt" preload="none" loop></audio>
+
+<script src="https://www.gstatic.com/firebasejs/10.14.1/firebase-app-compat.js"></script>
+<script src="https://www.gstatic.com/firebasejs/10.14.1/firebase-firestore-compat.js"></script>
+<script src="https://www.gstatic.com/firebasejs/10.14.1/firebase-auth-compat.js"></script>
+<script src="assets/firebase-config.js?v=20261007-59"></script>
+<script src="assets/feedback-core-v8.js?v=20261009-3"></script>
+<script src="assets/beta-diagnostics-v1.js?v=20261007-65"></script>
+<script src="assets/beta-analytics-v1.js?v=20261009-1"></script>
+<script src="assets/beta-presence-v1.js?v=20261007-59"></script>
+<script src="assets/beta-feedback-v1.js?v=20261007-59"></script>
+<script src="assets/feedback-admin-v3.js?v=20261105-sync-report"></script>
+<script src="assets/admin-sync-v1.js?v=20261105-sync-report"></script>
+<script src="assets/popup-messages.js?v=20261007-59"></script>
+<script src="assets/reader-hub-v3.js?v=20261007-59"></script>
+<script src="assets/tts-reader-v1.js?v=20261027-2"></script>
+<script src="assets/app-v3.js?v=20261107-fish-dot-1"></script>
+<script src="assets/chapter-editor-v1.js?v=20261022-viajantes-canonical"></script>
+<script src="assets/book-fx-v1.js?v=20261112-1"></script>
+</body>
+</html>
