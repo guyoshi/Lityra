@@ -31,19 +31,25 @@ Ainda amanhecia. Lavei o rosto no banheiro e, ao levantar a cabeça, vi no espel
 Suspirei. Se ficasse mais dois minutos, chegaria atrasada.
 
 — Se você tivesse de escolher entre ficar comigo ou com o seu pai, quem escolheria? — disse ela, como quem fala do tempo. — Não é de quem você gosta mais. Só supondo que tivesse de deixar um dos dois. E pode ficar tranquila, eu não vou te julgar se escolher o seu…
+
 — Você — interrompi.
 
 Ela hesitou, parecendo ter mais frases preparadas, que morreram na garganta.
 
 — Eu amo o papai, mas ele não é como você. Não me passa segurança. Não consigo imaginar a minha vida só com ele.
+
 — Então você viria comigo?
+
 — Sim. Mas por que está perguntando isso agora? Vocês já não estão separados informalmente há anos? Vivem repetindo que vão vender a casa e dividir o dinheiro pra cada um ir pro seu canto.
+
 — Eu sei, Jenni — respondeu ela, fugindo com o olhar. — É só que eu e o seu pai estamos ficando mal com essa forma como vivemos, e a qualquer momento podemos decidir o que achamos melhor. Mas não queremos te obrigar a nada.
+
 — Você fala como se vocês se entendessem em tudo. Como se chegassem a conclusões juntos, pacificamente.
 
 Ela apertou a minha mão.
 
 — Não chegamos a nenhuma conclusão pacificamente. Mas quando envolve você, não cabe só a nós decidir. Você merece viver num ambiente que não esteja em guerra.
+
 — Mereço? — ri, sem humor. — E que diferença isso faz agora que já tenho dezesseis? Eu fui obrigada a crescer mais cedo por causa dessa instabilidade ridícula de vocês dois.
 
 As palavras começaram a sair sozinhas e eu só as deixei.
@@ -63,6 +69,7 @@ Não consegui segurar o choro no caminho. A tristeza era tão grande que quase f
 Na escola fui direto ao banheiro lavar o rosto, e quando levantei a mulher de cabelos brancos estava de novo no espelho, atrás de mim.
 
 — JENNIFER…
+
 — O que é? — gritei, socando o espelho.
 
 Abriu-se um trinco no canto do vidro. Uma garota que passava me olhou assustada e entrou rápido num dos boxes, fingindo que não vira nada.
@@ -74,6 +81,7 @@ Na aula de Português descemos para a biblioteca, onde o professor queria que es
 Aquele tipo de frase nunca é boa. Eu não arranjava confusão na escola, e isso só piorava, porque se não era comigo era com quem?
 
 — O que aconteceu? Meus pais estão aqui? — perguntei, mal cheguei à porta.
+
 — Só um minuto — respondeu a secretária de olhos verdes, cujo nome eu sempre esquecia. — Senta ali.
 
 Sentei num banco duro, a perna balançando sozinha. Dois minutos depois a porta dos fundos abriu e entraram dois policiais, um alto, outro mais baixo, que vieram direto até mim. Meu coração apertou.
@@ -83,21 +91,29 @@ Sentei num banco duro, a perna balançando sozinha. Dois minutos depois a porta 
 Assenti e levantei. Nunca tinha falado com policiais de perto. Na televisão era simples, ou eles salvavam alguém ou prendiam alguém, e na vida real era tudo mais cinzento.
 
 — Aconteceu alguma coisa com os meus pais?
+
 — Não, senhorita — respondeu Felipe. — Aconteceu um homicídio e um sequestro no bairro, ontem à tarde, e há suspeitas de que Vinicius Silva, seu vizinho, tenha algum envolvimento. É apenas suspeito e, há pouco, fugiu de nós. Gostaríamos de saber se tem alguma informação. Conhecia o rapaz? Sabe os locais que ele frequenta?
 
 A respiração falhou um segundo.
 
 — N-não. Eu nunca falei com ele, nem falo com ninguém. Ainda por cima aquele menino.
+
 — “Aquele menino”? — repetiu Diego. — O que quer dizer?
+
 — Se estão falando do meu vizinho, o filho do homem mal-encarado, ele é perturbado, maloqueiro, anda com gente errada. Se querem minha opinião, eu não duvidaria se tivesse sido ele.
+
 — Isso ajuda na nossa análise. Mas precisamos saber se conhece algum lugar onde ele pudesse estar.
+
 — Não o conheço a esse ponto. Deve estar com os amigos, em alguma favela, escondido, como todos os bandidos fazem.
 
 Felipe sorriu de forma profissional.
 
 — Certo. Desculpe atrapalhar a sua aula. Pode voltar às atividades.
+
 — Só mais uma coisa. Se o encontrarem, mantenham ele preso. Ele matou alguém.
+
 — Faremos o possível. Fazemos a nossa parte, mas é do país que esperamos justiça.
+
 — Ela nem sempre vem — disse.
 
 Ele assentiu e os dois foram embora.
@@ -109,18 +125,27 @@ Depois da última aula, às 12h30, voltei por outro caminho, pela Rua dos Afogad
 Ouvi as vozes antes de ver a casa. Abri a porta e a discussão já estava a meio caminho do desastre: minha mãe berrava que o dinheiro era dela e que fazia o que quisesse com ele, meu pai respondia que o dinheiro dela também era dele, porque tinham juntado tudo, e que ela devia fazer um curso, melhorar o salão, porque as coisas não iam bem. Ele queria que ela crescesse, ficasse rica, “virasse alguém”, mas era caixa de supermercado e ganhava pouco mais que um salário mínimo, o que dava para as compras, e o resto, contas, aluguel, remendos, vinha do salão dela. Pode chamar isso de hipocrisia. Eu chamo de vida adulta fracassada. Minha mãe vivia dizendo que ele nunca seria nada se não montasse um negócio próprio, e ele respondia que não queria ser autônomo, queria carreira, plano, estabilidade, mas as portas não ficavam abertas, e quando ficavam eles mesmos as fechavam, intoxicados pelo estresse diário. Eram vítimas e culpados ao mesmo tempo, e ainda não tinham percebido.
 
 — A sua filha estava com ideias de suicídio hoje cedo, sabia? — gritou minha mãe. — Disse que talvez nem chegue aos dezoito. Olha o que VOCÊ está fazendo com ela.
+
 — O que EU estou fazendo? Quem não faz nada pra melhorar é você. Eu levava a Jennifer no psicólogo toda quinta-feira e você nunca ficava até o fim da consulta. Você é quem é ausente, nem a escola acompanha.
+
 — Você cale a sua boca. Quantas noites eu perdi ajudando com tarefa? Quantas madrugadas passei com ela no hospital?
+
 — Hum-hum — anunciei a minha chegada. — Já cheguei.
+
 — Oi, minha princesa — disse meu pai, forçando um sorriso e com uma veia saltada na testa, estágio de nervos que eu conhecia. — Tem arroz e frango na geladeira, se estiver com fome.
+
 — Quando é que vocês vão acabar com isso?
+
 — Com o quê?
+
 — Com essa droga de relacionamento inexistente. Se querem paz, vivam sozinhos. É simples. — Suspirei. — Não estou com fome. Vou subir. Obrigada, pai.
 
 Subi alguns degraus.
 
 — Jennifer, o que você queria dizer com aquilo hoje de manhã? — perguntou minha mãe.
+
 — Não sei, mãe. Só falei.
+
 — Sabe que a mãe te ama muito, não sabe? Nunca pense em fazer nada de mal, tá?
 
 Forcei um sorriso. Meu pai suspirou ao lado.
@@ -146,19 +171,29 @@ Levantou, puxou uma mala do fundo do guarda-roupa e começou a enchê-la de roup
 Ligou para ele e ouvi metade da conversa: “não aguento mais”, “ficar uns dias”, “depois vejo o que faço”. Quando desligou, me puxou pela mão. Descemos à sala e meu pai se levantou do sofá.
 
 — O que você vai fazer?
+
 — O que eu devia ter feito há anos.
+
 — Mônica, você não vai levar a Jennifer — ele disse, posicionando-se na frente da porta.
+
 — Ela escolheu vir comigo, Rogério. Agora sai da frente.
+
 — Ela não quer ir com você. Você é louca, não vai saber criá-la.
+
 — E você é doente, Rogério. A decisão não cabe a você.
+
 — As suas palavras não batem com as suas ações. É fácil dizer que a ama, mas você não se dedica nenhum pouco.
+
 — Sou eu que mais trabalho aqui. O tempo que tenho eu fico do lado da minha filha. A culpa não é minha se você é fracassado profissionalmente e tem mais tempo livre.
+
 — Mônica…
+
 — Eu vou com ela — cortei de uma vez. — Eu vou com ela, pai.
 
 O silêncio caiu na sala como um peso. Vi os ombros dele descerem, o olhar mudar de raiva para algo entre culpa e derrota.
 
 — Jenni…
+
 — SAI DA FRENTE, PAI.
 
 Eu só queria sair daquela casa. Ele desviou e ficou ao lado da geladeira, e eu passei sem olhar, fui direto para a rua e entrei no carro, enquanto minha mãe fechava a porta, trancando mais do que madeira e cimento. Ela pôs a mala no porta-malas, entrou e ligou o carro. Meu pai estava na porta, o rosto vermelho, os olhos brilhando, e não consegui evitar chorar outra vez. Eles não mereciam aquilo e, ao mesmo tempo, mereciam, e era essa a contradição.
@@ -178,24 +213,35 @@ Meu peito acelerou. Olhei para fora outra vez e não havia nenhum espírito ali,
 O sinal abriu, minha mãe virou à esquerda e entrou na estrada. Estávamos oficialmente fora da cidade.
 
 — Vamos pela estrada de fora — falei.
+
 — Oi?
+
 — Melhor irmos pela de fora, mãe.
+
 — Claro que não — respondeu, rindo. — É mais perigosa, mais estreita, cheia de buracos.
+
 — Mas é mão única. É mais seguro, se pensarmos bem.
+
 — A sua mãe sabe dirigir, menina.
 
 O comentário não me tranquilizou. Lá em cima os pássaros continuavam em círculos, como se seguissem o carro.
 
 — Por que eles estão assim?
+
 — Quem? — perguntou ela, com um sorriso distraído.
+
 — Os pássaros. Lá fora.
 
 Ela inclinou a cabeça para fora e olhou para cima, e eu fiz o mesmo. Estavam exatamente em cima de nós, circulando, e alguns corvos davam rasantes e voltavam.
 
 — É estranho, não acha, mãe?
+
 — É… estranho… — disse, com metade do corpo para fora da janela. — O que é estranho?
+
 — Os pássaros, mãe.
+
 — Ah — murmurou, e não voltou para dentro, hipnotizada pelas aves.
+
 — Mãe? Você ainda está dirigindo.
 
 Olhei para a estrada. Um caminhão vinha na faixa da esquerda, ainda longe, mas avançando rápido. Em menos de um minuto cruzaria conosco.

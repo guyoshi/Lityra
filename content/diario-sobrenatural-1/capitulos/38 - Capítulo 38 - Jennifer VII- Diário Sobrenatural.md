@@ -5,15 +5,21 @@ Cheguei ao hospital de manhã cedo e não lembro de quase nada do que veio depoi
 Meu pai estava sentado ao lado da cama, segurando a minha mão com os dedos úmidos de suor.
 
 — Pai? — murmurei, com a voz arranhada.
+
 — Oi, minha menina. Como você está? — ele se inclinou, o rosto cansado, a barba por fazer, as olheiras fundas.
+
 — Estou com dor. Mas acho que estou bem — tentei me sentar e uma pontada atravessou minha barriga. Gemi e desisti, afundando de novo no travesseiro.
+
 — Não faz esforço, querida. Você ainda precisa se recuperar.
 
 Fiquei olhando o teto branco. A pontada voltou quando tentei virar de lado; o monitor continuou marcando os batimentos no mesmo ritmo.
 
 — O que aconteceu, Jennifer? — ele perguntou, a voz presa. — O que aquele moleque fez com você? Como a gente pôde viver ao lado daquele demônio esse tempo todo?
+
 — Que moleque?
+
 — O nosso vizinho. O Vinicius — disse, como se cuspisse o nome.
+
 — O Vinicius não fez nada, foi um acidente — respondi, e a lembrança da Kelly atravessou meus pensamentos como uma faca. — Pai, a Kelly… ela…
 
 Ele hesitou, como se procurasse uma versão menos cruel da verdade, mas não existia.
@@ -56,15 +62,16 @@ Ele chorou de verdade. Abaixou a cabeça e encostou a testa na minha mão, como 
 
 Essa promessa é para você também, mãe. Não vou desistir da vida pela qual você lutou.
 
-
-
 Os dias seguintes foram estranhamente silenciosos. Nenhum pesadelo, nenhum bicho preto, nenhum sussurro na madrugada, como se todos os meus monstros tivessem ficado presos naquela casa. A barriga ainda doía quando eu me mexia, mas já dava para andar devagar pelo corredor, arrastando o soro e ouvindo o barulho mecânico dos monitores alheios. Os médicos queriam observação, e a comida sem gosto parecia castigo. O cheiro de hospital ainda me lembrava o pior dia da minha vida, o dia em que minha mãe me deixou de verdade. Mas dessa vez eu não estava completamente sozinha ali.
 
 Recebi alta numa quarta-feira, quatro dias depois. Em casa, fui direto ao quarto da minha mãe e abri o guarda-roupa. O cheiro dela ainda estava lá, misturado com naftalina e pó. Comecei a separar as roupas e meu pai apareceu na porta, confuso.
 
 — O que está fazendo?
+
 — Separando as roupas da mãe. Ela não vai mais precisar. Tem gente que precisa muito.
+
 — Quer doar? — ele perguntou, hesitante.
+
 — Se a gente quer mudar a forma como vive, precisa se desligar do passado, pai — falei, sem tirar os olhos do cabide. — Não adianta dormir no sofá e manter esse quarto intocado. Ela não vai voltar.
 
 Foi como apertar um botão de choque nele. Vi a dor subir no rosto, mas vi também alguma coisa se quebrar, e, por incrível que pareça, isso era bom. Ele assentiu devagar. Empacotamos roupas, sapatos, acessórios, e separamos só o que dizia “ela” de verdade: fotos, presentes, bilhetes. Coisas para lembrar que existiu, não para fingir que ainda morava ali.
@@ -78,14 +85,19 @@ Virei rápido e a vi ao lado da cama. Minha mãe.
 Estava como eu lembrava dos dias bons: cabelo arrumado, roupa simples, sorriso triste. Meus olhos se encheram e as pernas ficaram bambas.
 
 — Achei que não ia mais ver vocês — falei, engolindo o choro.
+
 — Você tem um dom, filha — disse ela, a voz suave. — Sem ele, talvez vocês não tivessem conseguido.
 
 Ela falava do que a D. Maria chamara de Selifa, que para mim sempre fora só um incômodo permanente: ver o que os outros fingem que não existe.
 
 — Sinto sua falta — falei.
+
 — Eu também, minha menina. Te devo desculpas por não ter sido a mãe que você esperava. Acho que hoje você entende um pouco mais.
+
 — Entendo, sim, mãe — respondi, com uma sinceridade que doeu.
+
 — Cuida do seu pai.
+
 — Tá bom. Prometo.
 
 Ela tocou meu rosto com a ponta dos dedos, secando as lágrimas de um jeito que eu nunca mais pensei sentir. Não houve frio nem toque de verdade, mas o coração reagiu como se houvesse.
@@ -97,27 +109,37 @@ Num piscar de olhos ela não estava mais ali. Ficou um silêncio diferente, de d
 Os olhos dele estavam vermelhos, o rosto inchado, como se tivesse chorado mais do que dormido.
 
 — Oi — falei.
+
 — Oi.
 
 Ele me estendeu um caderno grosso, envolto numa pasta transparente.
 
 — O que é isso?
+
 — Depois você lê. Vai saber o que fazer com isso.
 
 Peguei, sentindo o peso literal e o outro, o invisível.
 
 — Como você está?
+
 — Sobrevivendo — respondeu, sem graça nenhuma na palavra. — Eu vim me despedir.
 
 Meu estômago afundou.
 
 — Meus pais se mudam amanhã. Depois do que aconteceu, a gente vai sair da cidade, por segurança. E para fugir da exposição.
+
 — Conversa com eles. Pode ser que fiquem.
+
 — Não são eles, Jennifer. Sou eu — ele me encarou. — Fui eu que pedi, e eles entenderam que era o melhor.
+
 — E o Junior? Vai sentir sua falta — falei, sabendo que cutucava uma ferida.
+
 — O Junior? — a voz mudou. — Aquele cara morreu para mim.
+
 — Pedro, você viu aquela noite. Eu não sei o que era ele e o que era o Agouro. Acho que nem ele sabe.
+
 — Ele puxou o gatilho — a voz embargou de raiva. — Primeiro contra a nossa amizade. Depois contra a Kelly. Com o Agouro ou sem ele, a mão era a dele.
+
 — Não culpa ele. Ele perdeu tanto quanto a gente.
 
 Ele me olhou por alguns segundos. Havia nos olhos dele algo que eu nunca vira: ódio misturado com decepção. O punho cerrou, os dedos ficaram brancos, depois relaxaram.
@@ -159,6 +181,7 @@ Dei a volta no quarteirão e voltei pela pracinha ao lado da casa do Junior, ouv
 Ele levantou o rosto devagar.
 
 — Jennifer? Tudo bem?
+
 — Estou, sim. Você é que não está. Está péssimo.
 
 Ele tentou sorrir, mas o sorriso não chegou aos olhos.
@@ -172,12 +195,15 @@ Ele ficou em silêncio, segurando o lápis como uma arma descarregada.
 Eu tinha pensado nisso desde a noite na casa, mas era a primeira vez que alguém perguntava.
 
 — Lembra do que a Luiza disse? Ele precisava que alguém aceitasse entregar a própria alma. Não adiantava obrigar.
+
 — Eu lembro.
+
 — A Kelly levou você até ele, no lago. E ele recusou. Depois conseguiu entrar no corpo dela, mas ainda não tinha o que queria.
 
 Junior baixou os olhos para o lápis.
 
 — Porque ela não aceitou?
+
 — Talvez. Só que, no fim, quem ele convenceu a aceitar um acordo foi você.
 
 Ele demorou a responder.
@@ -195,11 +221,13 @@ Junior olhou para a praça vazia.
 Não soube o que responder. Talvez tivesse começado muito antes de qualquer um de nós entrar naquela casa.
 
 — Mas por quê, Jennifer? O que eu tenho?
+
 — Não sei. A Luiza disse que não servia qualquer alma. Não explicou por quê.
 
 Ele apertou o lápis entre os dedos.
 
 — E eu achei que estava salvando todo mundo.
+
 — Eu sei, Junior.
 
 Não disse mais nada. Havia coisas que nenhuma explicação podia consertar.
@@ -213,8 +241,11 @@ Coloquei tudo no banco, entre nós.
 Ele pegou o diário da Kelly e folheou. Reconheci o jeito dela ali: organizada, fria por fora, aos poucos amolecendo.
 
 — Você está me pedindo para escrever um livro.
+
 — Estou te pedindo para fazer o que você já faz. Só que sem inventar outro mundo pra fugir deste. Escreve o que você lembra, o que sentiu. Até o que você queria esquecer.
+
 — Por que eu deveria?
+
 — A Priscila encontrou uma coisa no final. — Apontei para a folha dobrada na contracapa. — Está com seu nome. Eu não li.
 
 Junior desdobrou o papel devagar. A letra era da Kelly. Ele ficou um instante só olhando para ela, antes de começar a ler:

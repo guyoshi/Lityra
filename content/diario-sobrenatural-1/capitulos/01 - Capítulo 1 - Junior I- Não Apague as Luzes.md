@@ -1,10 +1,8 @@
-
-
 Abri um caderno novo, de capa azul, e fiquei olhando para a primeira página em branco. A cidade tinha voltado a fazer barulho do lado de fora: carros, crianças, uma televisão ligada na casa vizinha. Só eu parecia ter ficado preso naquela noite.
 
 Meu nome é Junior. Sempre gostei de inventar histórias, mas dessa vez não havia nada para inventar. Eu precisava escrever o que tinha vivido, antes que a lembrança mudasse de forma ou que eu começasse a fingir que certas coisas não tinham acontecido.
 
-Antes de começar, escrevi duas palavras na capa: *Diário Sobrenatural*.
+Antes de começar, escrevi duas palavras na capa: "Diário Sobrenatural".
 
 Ainda sinto o frio daquela noite. Às vezes, quando apago a luz do quarto, parece que a escuridão fica… olhando de volta. Cada sombra na parede é uma lembrança. E agora, pra completar, o Pedro já não está mais aqui. Às vezes ainda tenho vontade de pegar o telefone e chamar meu melhor amigo, como fazia antes. A Kelly também não está por perto, mas essa é outra história.
 
@@ -30,8 +28,6 @@ A casa grande era dos meus avós, e o homem que eu me recuso a chamar de pai, ao
 
 O importante é que, naquela manhã, com novos vizinhos chegando e a cabeça cheia de perguntas, tudo começou a mudar.
 
-
-
 Minha mãe tinha acabado de passar pano na cozinha e finalmente sentava pra tomar o café. Eu, com minha velha mania de provocar, desci de mansinho pelas escadas de madeira, desviando dos degraus que rangiam, e toquei forte nos ombros dela.
 
 O grito veio na hora.
@@ -42,7 +38,7 @@ Comecei a rir antes mesmo de pedir desculpa.
 
 — Você não se cansa, não? — resmungou, com aquele olhar de “vou te matar” que eu sabia que era de mentira.
 
-— Desculpa, mãe, mas é impossível resistir!
+— Desculpa, mãe, mas é impossível resistir.
 
 Ela balançou a cabeça, derrotada:
 
@@ -63,8 +59,6 @@ Pedro é meu melhor amigo desde o primeiro dia da quinta série, quando ele cheg
 Liguei três vezes. Só o telefone chamando, chamando, chamando. Suspirei, larguei o fone no gancho e subi pro quarto.
 
 Se o Pedro não ia aparecer, eu ia pro meu segundo melhor lugar do mundo: a praça.
-
-
 
 A praça fica quase ao lado da minha casa. É o meu refúgio, meu cenário favorito. Lá eu coloco os fones do Discman, um xodó que ganhei do meu tio, encaixo um CD de trilhas sonoras e deixo a criatividade trabalhar. A maior parte das minhas histórias nasce num banco daquela praça.
 
@@ -118,8 +112,6 @@ A última que morou lá era um pesadelo. Toda vez que eu e o Pedro jogávamos bo
 
 Um pug. Sério. Aquele cachorro pequeno, gorducho e ofegante que parecia ter sido projetado pra tudo, menos pra ser vilão de bola de futebol. Até hoje não entendo. Talvez nem o universo saiba.
 
-
-
 Cheguei em casa e fui direto pro telefone, com a minha mãe lavando o banheiro, o chinelo fazendo aquele barulho de borracha molhada. Tentei o Pedro de novo. Nada.
 
 Você deve estar pensando: “Junior, a casa dele é na esquina. Por que você não vai lá chamar?”.
@@ -127,8 +119,6 @@ Você deve estar pensando: “Junior, a casa dele é na esquina. Por que você n
 Simples: os pais dele têm implicância comigo. Na cabeça deles, casa grande é sinônimo de “playboy do bairro”. O próprio Pedro vive zoando isso. Mas, de “rico”, a gente só tem o tamanho da casa e a pilha de contas que vem junto. Minha mãe trabalha em dois empregos pra manter esse padrão e, às vezes, eu acho que a casa pesa mais do que ajuda.
 
 Como ninguém atendia e eu não queria causar climão batendo na porta deles num domingo, voltei pro quarto, liguei o ventilador barulhento e passei a tarde escrevendo mais um capítulo da história dos quatro irmãos.
-
-
 
 Quando anoiteceu, minha mãe avisou que ia comprar carne pra assar na janta. Só de imaginar a churrasqueira, minha boca encheu d’água. Terminei o capítulo, percebi que a garganta estava seca porque não tinha bebido nada o dia todo e desci pra pegar água.
 
@@ -221,4 +211,3 @@ Meu coração congelou outra vez.
 — Não… — respondi, devagar.
 
 Seja lá o que fosse aquilo… comeu.
-

@@ -55,7 +55,9 @@ Ergui uma sobrancelha, pronto pra perguntar, mas o Pedro surgiu com um salgadinh
 Eu e o Pedro nunca fomos convocados pra seleção. Ele se virava como goleiro; eu era um desastre em qualquer posição, e só me destacava como “alvo de críticas”. Pedro insistiu, eu recusei umas três vezes, e “vai ser legal”, na boca dele, nunca combinou com moleques gritando meu nome seguido de xingamento. Entrei em campo marcando o Flávio, metade do meu tamanho e o dobro de vergonha na cara, que me driblou e tocou pro Nathan fazer o gol. Eu corria como se um vento só batesse em mim.
 
 — Seu mongol!
+
 — Perna de pau!
+
 — Não faz nada, moleque!
 
 Entre um erro e outro, pensei que, se isso fosse um livro, o leitor teria pena do personagem. Eu só tinha vergonha. Pedro defendia bem no gol e gritava “Vai, mano, continua!”. Continuei, até tentar tomar a bola do Gerson, um gordinho folgado, e chutar a perna dele.

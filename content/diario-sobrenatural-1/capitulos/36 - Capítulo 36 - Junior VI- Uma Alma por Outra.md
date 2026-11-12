@@ -307,6 +307,7 @@ Mas, quando minha consciência começou a falhar, vi Pedro se levantando, tonto,
 — VAMOS SAIR DAQUI! — gritou Pedro, levantando Kelly, que tinha apagado outra vez.
 
 — Pedro, espera! — chamei, ainda tentando recuperar o ar. — Sobre o que você disse antes...
+
 — Depois, Junior. Se houver depois, você me explica. Agora corre!
 
 Os móveis começaram a tombar, os vidros das janelas explodiram. Vinícius passou meu braço pelo ombro dele e me puxou, com Priscila logo atrás. Descemos as escadas quase tropeçando, a cada passo um novo barulho de coisa quebrando. A casa inteira parecia desmoronar por dentro.

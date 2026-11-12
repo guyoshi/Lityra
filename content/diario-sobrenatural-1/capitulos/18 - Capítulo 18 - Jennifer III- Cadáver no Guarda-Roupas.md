@@ -13,6 +13,7 @@ A palavra “bem” quase me deu vontade de rir, com uma máscara de oxigênio n
 Meu pai segurava a minha mão com tanta força que parecia me desmontar. Eu estava numa sala de hospital, num andar alto, dava para ver o céu pelas janelas; à direita, duas macas vazias e um vaso de flores cansadas numa mesinha, e na TV uma reportagem sobre pássaros na Amazônia. A vida continuava como se nada tivesse acontecido.
 
 — O que aconteceu? — perguntei.
+
 — Você sofreu um acidente, Jennifer, mas está bem. Está no Hospital das Lajes, em segurança — respondeu a enfermeira.
 
 Acidente. A palavra puxou as imagens de volta: eu no carro com minha mãe, ela distraída com as aves, a buzina, o carro vindo de frente, o impacto, o silêncio depois. Olhei para o meu pai, que tinha os olhos prestes a transbordar.
@@ -26,6 +27,7 @@ Ele apertou ainda mais a minha mão, baixou a cabeça e fechou os olhos com for�
 Senti um frio que não vinha do ar-condicionado, um frio por dentro, coisa de morto. O ar sumiu dos pulmões, como se tivessem desistido de trabalhar, e meu olhar saiu do rosto deles e foi parar num ponto vazio da parede, só para não encarar ninguém. Os olhos encheram e as lágrimas caíam sem que eu conseguisse segurar.
 
 — O quê? — foi o máximo que saiu.
+
 — Querida, eu sinto muito.
 
 Meu pai começou a emitir sons que eu nunca ouvira, um choro feio, pesado, cheio de culpa. A minha respiração ficou curta e o mundo, pequeno demais. A enfermeira gritou por um doutor, que entrou, encostou minha cabeça no travesseiro e recolocou a máscara no meu rosto.
@@ -45,13 +47,17 @@ Eu e meu pai nos viramos na hora, porque a palavra “cirurgia” trouxe um fio 
 Olhei para o chão, e as lágrimas voltaram como se nunca tivessem parado. Meu pai pôs as mãos no rosto.
 
 — Minha Mônica, minha Mônica…
+
 — Preciso falar com o senhor — o doutor olhou para ele. — Perder alguém que amamos é terrível, mas nem tudo na morte é só perda. Há vidas que podem ser salvas. Os órgãos da sua esposa estão em excelente estado. Podemos ajudar outras pessoas, se o senhor…
+
 — NÃO. MINHA MÔNICA NÃO. VOCÊS NÃO VÃO TOCAR NELA — gritou meu pai, levantando.
+
 — Acalme-se, senhor Rogério. Eu sei que é difícil falar disso agora, mas pense no que ela faria. Ela iria querer ajudar outras pessoas?
 
 Meu pai voltou a cobrir o rosto.
 
 — Pai — falei, sentando. — Responde ao doutor.
+
 — NÃO. MINHA MÔNICA NÃO.
 
 O doutor respirou fundo, olhou para mim, balançou a cabeça e disse “muito obrigado, senhor Rogério” antes de sair. Chamei meu pai, que veio até a cama quando abri os braços, e ficamos os dois cercados por máquinas, cheiro de hospital e uma ausência que já parecia maior que o mundo.
@@ -97,6 +103,7 @@ Em casa, meu pai foi tomar banho e eu fui tentar comer qualquer coisa. Quando el
 Ele arregalou os olhos e virou para o sofá.
 
 — É muito mais complexo do que você imagina, Jennifer — respondeu, sentando e apoiando a cabeça nos braços.
+
 — Você podia ter impedido ela de sair de casa anteontem. É isso que pais fazem. Podia ter evitado ela chegar nesse ponto muito antes. Os últimos anos da vida dela foram infelizes por sua causa…
 
 Parei, não por falta de coisas para jogar na cara dele, mas porque ouvi o barulho. Meu pai soluçava, desmoronado no sofá, chorando como uma criança.

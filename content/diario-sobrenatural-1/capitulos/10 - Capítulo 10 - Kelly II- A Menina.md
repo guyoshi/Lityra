@@ -19,7 +19,9 @@ Puxei o edredom até o rosto na hora em que a porta se abriu.
 Ele fechou imediatamente, pedindo desculpas. Claro que eu não estava nua. Mas, às vezes, a mentira é só um mecanismo de defesa com outra roupa.
 
 — Quando se arrumar, desce aqui. Preciso conversar com você — disse ele do corredor.
+
 — Não estou bem, pai, sério. Me deixa um pouco sozinha.
+
 — Kelly, não vou falar de novo.
 
 Aquele tom eu conhecia bem: não era pedido, era ordem. Coloquei a touca dos Ursinhos Carinhosos que guardava para emergências e uma blusa de manga comprida. Precisava esconder as marcas.
@@ -29,6 +31,7 @@ Aquele tom eu conhecia bem: não era pedido, era ordem. Coloquei a touca dos Urs
 Desci devagar, cada degrau me aproximando de uma conversa que eu não queria ter.
 
 — Oi, pai — disse, cuidando para que ele não visse meu rosto inteiro.
+
 — Dá pra colocar uma meia nesses pés? — perguntou.
 
 Eu tinha o péssimo hábito de andar descalça pela casa. A casa estava limpíssima, eu mesma garantira isso, mas ele sempre implicava com esses detalhes quando estava preocupado com coisas maiores.
@@ -38,7 +41,9 @@ Eu tinha o péssimo hábito de andar descalça pela casa. A casa estava limpíss
 No instante em que fui ajeitar o cabelo que caía sobre os olhos, ele me olhou. Virei o rosto rápido demais. Tarde demais.
 
 — O que você está escondendo? — A voz dele vinha com a calma perigosa de antes da tempestade.
+
 — N-nada.
+
 — Kelly, está um calor absurdo e você está assim, toda coberta.
 
 Ele veio até mim e, quando me virei, puxou a touca com um movimento rápido.
@@ -48,15 +53,21 @@ Ele veio até mim e, quando me virei, puxou a touca com um movimento rápido.
 Por um momento pensei em culpar diretamente o Agouro, mas duvidava que ele aceitasse “demônio” como resposta.
 
 — Não aconteceu nada. Eu estava com o Junior…
+
 — Junior? Quem é Junior? — A maneira como ele disse o nome fez parecer que eu tinha xingado alguém.
+
 — O menino, nosso vizinho. Mas não foi nada demais. Eu estava voltando pra casa e me machuquei.
+
 — Como assim, se machucou?
+
 — Pai, eu só me machuquei. Agora pode dizer logo o que o senhor quer?
 
 Ele suspirou. Se fosse a Priscila falando daquele jeito, estaria de castigo eterno. Comigo ele tinha mais paciência. Mamãe era mais “igualitária” nas broncas, embora o estoque de problemas da Priscila fosse sempre maior. Graças a Deus eu não era a irmã mais velha. Duas vezes, para garantir.
 
 — Preciso que você fique de olho na sua irmã pra mim. Em todos os movimentos dela.
+
 — Por quê? Ela não é grandinha? Sabe se cuidar.
+
 — Priscila é imatura. Acha que sabe tomar as melhores decisões, mas está fazendo tudo errado. Então tudo o que ela fizer, me conte. Por favor. Você vê quanta violência tem por aí. Não quero que minha filha apareça um dia no jornal como mais uma vítima.
 
 A frase tinha peso. Ele não falava de teimosia. Falava de perigo.
@@ -68,6 +79,7 @@ Agora eu era oficialmente babá da minha irmã mais velha. Poderia ser pior. Pod
 Voltei ao quarto e continuei lendo sobre Paris, sabendo que o assunto dos meus ferimentos não tinha terminado, só adiado. No fim da tarde, mamãe chegou mais cedo do que o normal e veio falar comigo, como eu imaginava.
 
 — Eu já falei pro papai que não foi nada demais. Só me machuquei — adiantei.
+
 — Bom, se você prefere continuar mentindo, eu mesma vou descobrir o que houve — disse, prática. — Agendei um jantar com a nossa vizinha, dona Adriana, e vou perguntar pessoalmente pro seu colega o que aconteceu.
 
 Fiquei em silêncio. Odiava quando ela transformava minha vida em inquérito policial.
@@ -107,11 +119,10 @@ A garota virou o rosto para a parede e entrou nela, como se o concreto fosse né
 Poucos segundos depois, vi Priscila na calçada, caminhando para o portão com a chave na mão.
 
 — O que você está fazendo aí fora? — perguntou.
+
 — Tá quente lá em cima. Vim tomar um ar — respondi.
 
 Entrei. As luzes tinham voltado. Subi ao quarto e me enrolei nas cobertas. Pensando bem, era melhor deixá-las acesas.
-
-
 
 Acordei cedo com o despertador do rádio-relógio, tomei banho, me vesti e comi algumas frutas antes de ir à escola. Pedro tentou puxar assunto antes da primeira aula, mas eu não estava com vontade de conversar. Continuei escrevendo no diário e respondendo o questionário de inglês. Mesmo querendo espaço, acabei cercada por ele e por Junior, um de cada lado, como se eu fosse o centro de uma experiência social. Eles enrolaram antes de chegar ao ponto, mas quando Junior finalmente falou, algo no tom dele chamou minha atenção.
 
@@ -136,21 +147,29 @@ Resolvi parar por ali. Aquilo ocupava espaço demais na minha cabeça. Fechei o 
 Tudo seguia tranquilo até mamãe chegar, por volta das seis. Fechou o guarda-chuva molhado e perguntou:
 
 — Onde está sua irmã?
+
 — E eu lá vou saber? Não vejo a Priscila desde de manhã.
+
 — Como assim não vê? Ela não está no quarto?
+
 — Não está — suspirei. — Você sabe bem onde ela pode estar, não sabe?
+
 — Eu não acredito. Sanderson! — chamou papai.
 
 Ele saiu do escritório, sobrancelhas franzidas.
 
 — O que foi, Karen?
+
 — Cadê sua filha?
+
 — Não sei, deve estar no quarto. Por quê?
+
 — Eu não acredito. Tenho um marido que não sabe nem onde a própria filha está. E sobra pra quem no final ir atrás dela?
 
 Ela sabia perfeitamente que ele passava o dia inteiro no escritório, mas adorava fingir que ele jogava videogame em vez de trabalhar. Mamãe tinha uma relação intensa com a palavra “drama”.
 
 — Karen, não vou me estressar com você. Você sabe o que eu estava fazendo o dia inteiro — respondeu papai, cansado.
+
 — Vou atrás dela. Fica com a Kelly.
 
 Ele assentiu e foi abrir os portões. Priscila adorava causar problemas entre os dois. Era um dom.
@@ -180,7 +199,9 @@ Um rugido baixo ecoou lá de dentro. Algo estava por perto. Virei o rosto e, ao 
 A voz respondeu, mas não pela boca dela:
 
 — Meu Senhor disse que está esperando.
+
 — Esperando o quê? — perguntei, tentando manter a lógica enquanto a pele congelava.
+
 — Ele quer que você encontre o que ele precisa.
 
 Tentei subir de novo. Caí. Tentei mais uma vez. A parede parecia feita de sabão. Levei a mão ao bolso e senti o celular, e é impressionante como, nessas horas, a gente descobre que não decorou número nenhum. Entrei um pouco mais na gruta, para fugir da água que caía direto sobre mim, e abri a bolsa. Havia algo no fundo: o livreto de Paris. Claro. O destino tem senso de humor.
@@ -190,7 +211,9 @@ Lembrei, então, que anotara os telefones dos garotos pela manhã. O livreto est
 Tentei de novo. Dessa vez, alguém atendeu, mas não consegui entender a voz, porque a chuva fazia muito barulho.
 
 — M-me ajudem! — consegui dizer.
+
 — Oi? — alguém respondeu.
+
 — Eu estou na floresta, socorro!
 
 O celular escorregou da minha mão e caiu. Quando me abaixei para pegá-lo, a ligação tinha caído. Tentei ligar novamente. Nada: a tela apagada, o aparelho encharcado.

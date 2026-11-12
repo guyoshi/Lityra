@@ -16,6 +16,7 @@ Apareceram umas páginas de fundo preto com letras piscando em vermelho, mas ant
 Gelei.
 
 Corri até a porta do quarto.
+
 — MÃE, NÃO ATENDE! — quis gritar.
 
 Tarde demais. Assim que ela atendeu, a internet caiu. A página congelou, apareceu o erro, e eu ia ter que discar tudo de novo. Ódio mortal de telefone fixo.
@@ -23,15 +24,16 @@ Tarde demais. Assim que ela atendeu, a internet caiu. A página congelou, aparec
 Fiquei no batente, mãos suadas, ouvindo a conversa acabar.
 
 — JUNIOR! — a voz dela subiu da cozinha. — O PEDRO DISSE QUE VAI DORMIR AQUI HOJE!
+
 — SIM, MÃE!
+
 — ENTÃO VEM ME AJUDAR A FAZER ALGO PRA ELE COMER!
+
 — MÃE, É O PEDRO! A GENTE DÁ BANANA PRA ELE! — gritei de volta.
 
 O modem chiou outra vez e a página carregou. Tentei “Monstro preto dos sonhos”. Só encontrei demônio de lenda urbana, sombra noturna e besteira de fórum. Nada que explicasse o frio absurdo, o escuro da cozinha, os sussurros.
 
 O Bicho Preto continuava um mistério. O meu mistério. E agora, aparentemente, também o da Jennifer.
-
-
 
 Naquela manhã, eu tinha tentado falar com a Kelly, mas ela me evitou o tempo todo: saía antes, olhava pro outro lado, se ocupava com qualquer coisa que me cortasse da cena.
 
@@ -41,8 +43,6 @@ Será que eu estava… gostando dela?
 Parecia cena de romance barato: o escritor apaixonado pela vizinha misteriosa. Mas a Kelly devia ter um monte de pretendentes, e eu nunca fui o protagonista favorito de ninguém. Mesmo morando ao lado, mesmo depois de ela me chamar pra pracinha, eu não conseguia acreditar que ela pudesse me olhar daquele jeito.
 
 Ou será que podia?
-
-
 
 Depois do almoço, subi com o caderno e tentei voltar pro meu romance. Escrever sempre foi o jeito que achei de organizar o mundo, os meus medos, as coisas que eu não entendo.
 
@@ -54,8 +54,6 @@ Ou me tira dela.
 Escrevi por umas três horas, mas tudo que saía no papel parecia contaminado: pássaros, olhos brancos, cozinha escura. Eu tentava inventar outra coisa, e a cabeça voltava sempre pra mesma imagem.
 
 Foi então que o telefone tocou: era o Pedro avisando que já estava saindo de casa.
-
-
 
 — Cadê minhas bananas? — foi a primeira coisa que ele disse quando abri a porta.
 
@@ -70,9 +68,11 @@ Fomos pra cozinha.
 Mamãe abriu o forno e olhou o bolo.
 
 — Oi, Pedro! Como vai? E seus pais?
+
 — Oi, dona Adriana. — Ele se embolou, como sempre. — Ah… não sei nem por onde começo, é… eles estão ótimos, e eu tô… também.
 
 — E as aulas?
+
 — Muito bacanas. Já faz um mês que começou, mas ainda tá com cara de turma nova, gente nova chegando, aquele clima…
 
 Mamãe secou as mãos no pano e sorriu.
@@ -112,6 +112,7 @@ Aí me lembrei de outra coisa. Não só da Kelly. Dos arranhões.
 Sentei na cama.
 
 — Sei lá… parece que a Kelly tá me evitando desde ontem, depois dos pássaros.
+
 — Ou acha que você é um feiticeiro que invocou um exército de aves malucas pra atacar vocês — disse Pedro.
 
 — Cale a boca. — Suspirei. — A gente só precisava saber que horas eles vão chegar pra…
@@ -121,6 +122,7 @@ A campainha tocou.
 Meu coração quase parou. Pedro arregalou os olhos.
 
 — MEU DEUS. Ela chegou. JUNIOR. ELA CHEGOU — berrou, mais do que eu.
+
 — Não era pra eu ficar calmo?
 
 — Como eu tô? — ele correu pro espelho. — Me empresta gel aí, rápido.
@@ -130,6 +132,7 @@ Meu coração quase parou. Pedro arregalou os olhos.
 Pedro passou no banheiro e voltou. Tive vontade de rir alto: parecia que uma vaca tinha lambido a cabeça dele.
 
 — Tá estranho?
+
 — Tá horrível.
 
 — Ah, não deve estar tão… — Ele viu o reflexo e arregalou os olhos. — Cara, isso tá horrível.
@@ -143,6 +146,7 @@ Improvisou um topete qualquer com os dedos.
 Pedro pegou o frasco e começou a se encharcar.
 
 — Ei, calma aí, esse é o meu favorito!
+
 — Tá bom, tá bom. Agora foi.
 
 Descemos juntos. Na sala, dois adultos sentados, provavelmente os pais da Kelly. Perto deles, mamãe e a irmã mais velha da Kelly.
@@ -172,17 +176,21 @@ Cadê a Kelly?
 Priscila forçou outro sorriso.
 
 — Vocês comem frango? — mamãe perguntou. — Esqueci de perguntar. Imagina se fossem vegetarianos…
+
 — Comemos sim, dona Adriana. Amamos frango.
 
 Vieram as conversas de adultos.
 
 — O que trouxe vocês pra nossa cidadezinha? — quis saber mamãe.
+
 — As contas estavam muito altas e queríamos um lugar mais tranquilo — explicou a mãe. — E a Priscila também andava tendo alguns problemas na escola…
 
 Olhei pra ela, que mexia no garfo sem comer.
 
 — Vila Velha é um paraíso — exagerou mamãe. — Ninguém mexe com ninguém.
+
 — E o que vocês fazem?
+
 — O Sanderson é advogado autônomo, e eu sou delegada em Itupeva.
 
 Delegada. Como se já não houvesse pressão demais, agora a mãe da Kelly era autoridade.
@@ -202,6 +210,7 @@ Priscila serviu duas colheradas de arroz e um pedacinho microscópico de frango.
 Em dado momento, o senhor Sanderson olhou pra mim e pro Pedro.
 
 — Pelo que eu soube, vocês estudam na mesma escola das nossas meninas, não é?
+
 — Somos da mesma sala da Kelly — respondeu o Pedro, rápido demais.
 
 Meu estômago gelou.
@@ -221,7 +230,9 @@ Antes que eu dissesse qualquer coisa, o Pedro entrou em cena:
 — Árvore? A Kelly não disse nada sobre árvore.
 
 — Pois é, seu… San… — Pedro travou.
+
 — Sanderson.
+
 — Isso! A gente tava na educação física, correndo pro lado de uma árvore. A Kelly e o Junior acabaram se arranhando nos galhos.
 
 — Junior — minha mãe me encarou —, você me disse que foi o gato do Pedro.
@@ -267,7 +278,9 @@ Cada coisa que diziam da Kelly me apertava o peito. Eu sabia mais do que eles so
 A noite foi passando, a chuva começou a cair forte, e finalmente eles se levantaram. Mamãe emprestou um guarda-chuva.
 
 — Foi um jantar ótimo, dona Adriana. E desculpe pelo comportamento da nossa filha — disse o senhor Sanderson.
+
 — Que isso, ela é adolescente, tem muita coisa na cabeça.
+
 — Esse é o problema — murmurou Karen. — O que passa na cabeça dela.
 
 Mamãe fechou a porta e suspirou. Ajudei a guardar as coisas. Pedro abriu o forno, tirou o bolo de banana e se serviu como se não tivesse jantado.
@@ -289,6 +302,7 @@ Eu ia hesitar, mas o Pedro pulou na frente:
 — Tá bom. Mas não durmam tarde. A barraca tá no armário da sala — avisou, subindo.
 
 — Você tem certeza? — perguntei ao Pedro, tirando a barraca do armário.
+
 — Ué, não é você que quer saber o que era aquele bicho? E, pra mim, foi só sonho mesmo.
 
 — Não foi sonho, idiota. Tinha alguma coisa aqui dentro.
@@ -306,6 +320,7 @@ Pedro, com toda a calma do mundo, tirou do pacote um pedaço de carne podre.
 — Você não disse que o Bicho Preto pegou a carne estragada que sua mãe esqueceu no balcão? Se queremos que ele volte, temos que dar o que ele quer.
 
 — Você tá louco?
+
 — Quem dera. — Ele pôs a carne no balcão. — Quem tá de brincadeira é você, com essa imaginação.
 
 Me abaixei na barraca, estendendo os cobertores. O cheiro de carne podre começava a se espalhar. Por baixo dele surgiu outro, de pelo molhado e hálito azedo, embora nada tivesse entrado ainda. Tive a impressão de que o bicho seguia o cheiro de nós dois, não o da isca.
@@ -339,6 +354,7 @@ As luzes piscaram e se apagaram. Levei um susto tão grande que o corpo todo deu
 — Pedro… Acorda. Ele tá aqui. O Bicho Preto.
 
 — Hm? Você apagou a luz?
+
 — Não. — Minha voz mal saía.
 
 Pedro se sentou. O tecido da barraca era meio fosco, e a luz fraca do luar pela janela deixava ver sombras lá fora.
@@ -348,7 +364,9 @@ Foi aí que começaram os sussurros. Baixos, depois mais altos, como uma voz mui
 E então veio o outro som: uma mistura de rosnado e porta velha se abrindo.
 
 — Junior… me diz que é a sua mãe — sussurrou Pedro.
+
 — A minha mãe não rosna, Pedro.
+
 — A minha rosnava quando tava nervosa…
 
 A sombra apareceu na frente da barraca. O Bicho Preto estava exatamente entre nós e a janela.
@@ -398,8 +416,6 @@ Tentei gritar, mas a voz não saía.
 Um escuro tomou conta de tudo, como se alguém tivesse desligado o mundo. A cabeça doeu, como se apertassem por dentro.
 
 E então… nada.
-
-
 
 Acordei no chão da cozinha.
 

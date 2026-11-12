@@ -17,6 +17,7 @@ Ele nem pensou.
 Tirou o lápis da minha mão, puxou o papel e rabiscou por cima do meu desenho. Entre as princesas e os arco-íris surgiram homens com facas, monstros de dentes pontudos e olhos pretos demais.
 
 — Ficou feio, Suéten.
+
 — Não mais feio que você.
 
 Levantou rindo e saiu levando o desenho. Levantei também.
@@ -26,6 +27,7 @@ Levantou rindo e saiu levando o desenho. Levantei também.
 Meu pai entrou no quarto antes que eu o alcançasse.
 
 — O que está havendo?
+
 — O Suéten pegou meu desenho e não quer devolver.
 
 Meu pai pegou o papel da mão dele e olhou por alguns segundos. Eu esperei que mandasse devolver. Ele devolveu ao Suéten e virou para mim, calmo demais.
@@ -55,17 +57,21 @@ Suéten passou correndo por mim, me empurrando de leve, para chegar primeiro às
 Desci correndo e achei minha avó.
 
 — Vovó, o Ibliso está sem casinha.
+
 — Ele não precisa de casinha — respondeu meu pai, saindo de uma porta.
 
 Minha avó me puxou para perto dela.
 
 — Mas e se chover? Ele pode pegar um resfriado.
+
 — Ele não precisa de casinha — repetiu meu pai, mais alto.
 
 Não respondi. Minha avó me abraçou por trás e meu pai saiu.
 
 — Vem cá, meu amor. A vovó vai construir uma casinha para o Ibliso.
+
 — Posso te ajudar?
+
 — Claro, meu amor.
 
 Naquele momento eu não percebi o olhar que os dois trocaram. Havia um conflito grande entre eles, ideias diferentes, medos diferentes. Minha mãe via o que meu pai fazia e sempre o defendia. Dizia que ele estava “estressado”. Dizia isso olhando para o chão.
@@ -73,15 +79,21 @@ Naquele momento eu não percebi o olhar que os dois trocaram. Havia um conflito 
 Numa noite chuvosa meu pai saiu para caçar. Eu brincava na sala, alinhando brinquedos sempre na mesma ordem, quando ouvi minha avó na cozinha.
 
 — Ele é um cara ruim, Isabela. Maltrata sua filha, prioriza o menino, e você não faz nada.
+
 — Ele só está estressado esses dias, mãe. Passou por muita coisa.
+
 — Sua irmã não aguentou um mês aqui, filha.
+
 — Minha irmã não é casada com ele, mãe.
+
 — Isabela, nós não somos obrigadas a passar pelo que ele passa. É ele que está sendo caçado, não nós. Por que insiste em ficar?
+
 — Porque eu o amo, mãe. Não é porque você abandonou o bêbado do seu marido que eu vou fazer o mesmo com o meu, só porque ele é estressado.
 
 Pouco depois minha avó saiu apressada pela porta da cozinha. Corri até ela.
 
 — Vovó, vamos brincar?
+
 — Meu amor, a vó está cansada. Brincamos amanhã — beijou minha testa e subiu as escadas.
 
 Nos dias seguintes os avisos continuaram. Minha avó falava, minha mãe defendia, e alguma coisa no olhar da minha mãe começava a rachar. Até o dia em que meu pai chegou sem elas perceberem. Ficou parado na porta, ouvindo, em silêncio. Só eu o vi. Antes de entender se aquilo era bom ou ruim, corri e o abracei.
@@ -97,13 +109,17 @@ Quando ele entrou na cozinha, minha mãe e minha avó se viraram como se vissem 
 Minha avó recuou.
 
 — Ela não estava falando mal de você, meu amor. Você entendeu errado — disse minha mãe, nervosa.
+
 — E você estava só ouvindo? Não disse uma palavra pra me defender, Isabela? — ele berrou.
 
 A voz dele ecoou pela casa inteira. Soltei o braço dele e corri para perto da minha mãe. Quando ele gritava assim, o mundo inteiro encolhia.
 
 — Até sua filha percebe o quanto você é terrível — disparou minha avó, passando ao lado dele.
+
 — Filha, vai para o seu quarto — disse minha mãe.
+
 — Mas eu quero ficar aqui com vo…
+
 — Para o seu quarto — repetiu, firme.
 
 Obedeci. Subi de cabeça baixa e passei pelo Suéten na sala, admirando o relógio dourado novo que meu pai deu para ele. Fui para o quarto e me deitei abraçada ao meu ursinho.
@@ -135,13 +151,17 @@ Na manhã seguinte à briga na cozinha, minha mãe e meu pai saíram juntos e de
 Cheguei perto da porta devagar e olhei pela fresta.
 
 — O que houve? — perguntou minha avó.
+
 — Ela foi picada por uma cobra. Mordeu várias vezes o rosto dela. As presas pegaram nos dois olhos.
 
 Os gritos da minha mãe eram como facadas no ar.
 
 — Meu Deus. Era venenosa?
+
 — Creio que não, senão ela já estaria morta. Eu a trouxe por quase dez quilômetros.
+
 — Precisamos levar ela a um hospital.
+
 — NÃO — gritou meu pai. — Não podemos ser descobertos. Se levarmos, vão saber onde nos escondemos. Eu me viro, aprendi muita coisa no exército.
 
 Empurrei a porta só um pouco.
@@ -151,6 +171,7 @@ Empurrei a porta só um pouco.
 Meu pai veio e fechou a porta com força na minha cara.
 
 — O que aconteceu com a mãe? — perguntou o Suéten, atrás de mim.
+
 — Eu não sei.
 
 Corri para o quarto e me enfiei na cama, virada para a parede, chorando. Eu nunca tinha ouvido minha mãe gritar assim.
@@ -164,16 +185,23 @@ Depois disso minha mãe nunca mais enxergou. Ficou cega dos dois olhos e passou 
 Um dia ouvi um barulho no corredor. Saí do quarto e vi o Suéten com um facão na mão.
 
 — O que você está fazendo, Suéten?
+
 — Eu sou um samurai, ráá! — virou a lâmina na minha direção.
+
 — Isso é perigoso. A mamãe não deixa a gente brincar com isso.
+
 — A mamãe não pode nos ver. Ela é cega.
 
 Olhei para o facão e cheguei mais perto.
 
 — Deixa eu brincar também?
+
 — Claro que não. Você é deficiente, não pode brincar com essas coisas.
+
 — Minha mãe falou que eu não sou deficiente.
+
 — É claro que é. Você tem quase dez anos e ainda não sabe ler, não consegue montar um quebra-cabeça, nem fazer a lição da escola.
+
 — Eu não sou deficiente! — gritei e corri para cima dele.
 
 Ele riu, virou o corpo, e eu o empurrei. Suéten caiu no chão. Eu só ia reclamar, mas ele não levantou. Quando contornei o corpo dele, vi o facão cravado na barriga. O sangue começou a se espalhar no chão. Fiquei paralisada. Ouvi passos correndo na escada.
@@ -181,6 +209,7 @@ Ele riu, virou o corpo, e eu o empurrei. Suéten caiu no chão. Eu só ia reclam
 Meu pai apareceu, se jogou ao lado do Suéten e o virou.
 
 — A Ingrid me esfaqueou, pai! Ela me esfaqueou!
+
 — É mentira! Foi um acidente! — tentei explicar.
 
 Meu pai me lançou um olhar rápido e não disse nada. Levou o Suéten para o quarto e, com a ajuda da minha avó, tratou o ferimento. Não foi fundo o bastante para matar, só pegou pele e tecido. Fiquei na porta, olhando, com a sensação de que tudo aquilo era culpa minha.
@@ -188,10 +217,15 @@ Meu pai me lançou um olhar rápido e não disse nada. Levou o Suéten para o qu
 Quando meu pai saiu do quarto, fez uma coisa que nunca tinha feito comigo. Me pegou pelos cabelos e me arrastou pelo corredor até a escada.
 
 — Para, pai, por favor!
+
 — Larga ela, Carnam! — gritou minha avó.
+
 — Essa aberração quase matou o meu filho!
+
 — Ela também é sua filha!
+
 — Ela não é minha filha. Minha filha não teria problema algum. Ela é assim por sua culpa, seus genes podres!
+
 — Ela não é assim por culpa de ninguém. Nasceu assim e deve ser tão amada quanto qualquer um. Você é um monstro, Carnam! Devia ter sido pego pelos homens do Regime. Assim a nossa família estaria livre de você.
 
 Eles se encararam. Eu só chorava, sentindo a mão dele puxar meu cabelo. Quando ele começou a descer os degraus comigo, minha avó avançou.
@@ -209,6 +243,7 @@ Minha mãe surgiu na porta do quarto, tateando.
 Veio andando com as mãos erguidas e os olhos fechados, tentando se guiar. Tentei correr até ela, mas meu pai me segurou.
 
 — Estou dando uma lição. Essa menina brincava com faca e machucou o Suéten.
+
 — Meu Deus. Não machuque ela, por favor, Carnam. Como está o Suéten? Cadê minha mãe?
 
 Meu pai fez sinal com o dedo para eu ficar quieta.
@@ -294,8 +329,11 @@ Numa tarde chuvosa de quinta-feira, meu pai mandou que eu limpasse o salão do p
 “Oi, minha criança.”
 
 — Amigo! Que saudade! — sussurrei.
+
 — O que você disse? — o Suéten parou de tocar.
+
 — Nada. Eu tava falando com o meu amigo.
+
 — Você não tem amigos, sua estranha.
 
 Ele riu e voltou ao seu “grande concerto” desajeitado.
@@ -317,19 +355,29 @@ Ele riu e voltou ao seu “grande concerto” desajeitado.
 Assenti. Fui até meu irmão e toquei no ombro dele.
 
 — Me solta, sua nojenta.
+
 — Eu vou dar uma volta lá fora. Quer ir comigo?
+
 — Ficou maluca?
+
 — Rapidinho.
+
 — Me deixa em paz, aberração.
 
 Ele virou para o piano. “Vamos, você consegue. Pense só um pouquinho.” Eu pensei. Tive uma ideia.
 
 — Suéten.
+
 — Ai, o que é agora?
+
 — Acho que você tá com medo de ir lá fora essa hora.
+
 — Eu não tenho medo.
+
 — Eu vou sair, vou me molhar toda, vou até a floresta. E você vai ficar aqui. Será que uma deficiente vai fazer uma coisa que você não consegue?
+
 — Cala a boca. Eu duvido você ir mais longe do que eu.
+
 — Aceito o desafio.
 
 Abrimos a porta. Um vento gelado entrou com a chuva. Suéten parou à minha frente, na soleira.
@@ -347,11 +395,13 @@ Ele me fuzilou com os olhos e avançou ainda mais. Foi quando algo passou atrás
 “Não.”
 
 — Não podemos — respondi.
+
 — Como assim, não podemos?
 
 “Parabéns, menina. Agora vou te dizer o que vai fazer. Olhe para cima. Está vendo aqueles bugios nas árvores? Atice-os contra seu irmão.”
 
 — E como eu vou fazer isso?
+
 — Fazer o quê? — perguntou o Suéten, confuso.
 
 “Só faça.”
@@ -367,6 +417,7 @@ Corri. Os macacos vieram também, gritando.
 Subimos uma parte da trilha. De repente ele desapareceu da minha frente. Quando cheguei ao ponto onde estava, vi o buraco. Me ajoelhei na beirada. Ele estava lá embaixo, num fundo escuro, e o relógio dourado no pulso dele brilhou uma vez sob a lua.
 
 — Socorro! Me ajuda, irmã!
+
 — Acho que vou chamar o pai.
 
 “Não.”
@@ -376,6 +427,7 @@ Subimos uma parte da trilha. De repente ele desapareceu da minha frente. Quando 
 “Seu irmão é um monstro. Deixe-o aí. Ele não vai mais apavorar ninguém.”
 
 — Ingrid, me ajuda!
+
 — Mas tá frio. Tá chovendo.
 
 “Os monstros te deixaram no escuro quando você tinha medo do escuro. A melhor forma de derrotá-los é dando o mesmo remédio. Você vai deixá-lo aí, menina. E nunca vai contar para ninguém onde.”
@@ -409,7 +461,9 @@ Quando subi as escadas, encharcada, meu pai apareceu.
 Pensei em dizer a verdade. Mas, se eu dissesse, o monstro não ia morrer.
 
 — Eu não sei.
+
 — Como não sabe? Ele não está em lugar nenhum e você aparece encharcada. O que estava fazendo?
+
 — Brincando na chuva.
 
 Ele passou por mim e saiu na tempestade atrás do Suéten. Não o encontrou. Voltou tomado de ódio. Me bateu como nunca. Depois me jogou de novo no porão, dessa vez por sete dias. Sete dias sem comer, sem beber, chamando pelo meu “amigo”. Ele não respondeu. Nem uma vez.
@@ -431,13 +485,17 @@ Os homens vasculharam a casa, encontraram o corpo da minha mãe e seguiram até 
 Um dos homens pegou o revólver. Outro se ajoelhou perto de mim.
 
 — O que houve com você? Qual seu nome?
+
 — Ingrid — respondi, com dificuldade.
+
 — Meu nome é Francis, Ingrid. Esse homem é seu pai?
+
 — É.
 
 Francis olhou para ele, depois para mim.
 
 — Ele fez isso com você? Te deixou nesse estado?
+
 — Não — tentou negar meu pai.
 
 Um dos homens deu um soco nele.
@@ -457,12 +515,15 @@ Francis ajoelhou ao lado dele e cravou a faca na pele do pescoço, puxando até 
 Quando tudo acabou, Francis se levantou, pegou a arma e atirou na cabeça dele.
 
 — Pronto. Este nunca mais vai fazer isso com outra criança.
+
 — E a menina? Precisamos levar ela para o hospital.
 
 Francis voltou até mim. Encostou a mão no meu pescoço e no meu pulso. Balançou a cabeça.
 
 — Ela não vai sobreviver.
+
 — Como assim?
+
 — A cidade mais próxima fica a quilômetros daqui. Ela está agonizando. Se tirarmos daqui, morre no caminho.
 
 Ele podia estar errado. Estava errado. Eu ainda respirava. Eu ainda podia ter tido uma chance. Uma casa nova. Outra família. Crescer, estudar, namorar, trabalhar, envelhecer, morrer de velha, não ali, naquele chão frio. Mas, para ele, eu era só a filha de um traidor. Um peso. Um risco. Uma mancha no relatório. Ele preferiu salvar a própria carreira, a própria patente, a salvar a minha vida.

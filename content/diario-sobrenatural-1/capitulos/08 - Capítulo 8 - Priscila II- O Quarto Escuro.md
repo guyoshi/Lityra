@@ -17,7 +17,9 @@ Já ia mandar um “tô ocupada, meu bem”, mas virei e vi os olhos, claros, li
 Forcei um sorriso. Claro que ele tinha apelido pra outra. Uma garota de cabelo escuro e vestido curto veio saltitante do fundo da sala.
 
 — Fala, Jason. Oi, você é a Priscila, né? — perguntou Vitória, com uma voz de comercial de iogurte, doce, animada e irritante.
+
 — É como me chamam. Vamos na casa de alguém fazer esse trabalho?
+
 — Nem precisa — disse Jason. — Cada um faz sua parte e manda tudo pra Vi. Ela é ótima na montagem.
 
 Claro que é. A princesinha do PowerPoint. Jason parecia ter saído de um conto de fadas, rosto quadrado, cabelo liso, braços fortes, coisa rara naquele lugar, mas eu não tinha ido ali para casar com ninguém, tinha ido para ser a melhor.
@@ -27,6 +29,7 @@ Claro que é. A princesinha do PowerPoint. Jason parecia ter saído de um conto 
 Ela queria que eu mandasse foto e textinho picado para ela montar? Na minha antiga escola eu fazia o trabalho inteiro e tirava dez. Não ia virar figurante agora.
 
 — Prefiro montar a introdução e parte do desenvolvimento. Vocês dois se viram com o resto.
+
 — Por mim, ok, garota de atitude — disse Vitória, com um sorrisinho cínico. Olha a falsidade.
 
 Quando Jason chamou para descer ao pátio, olhei de um para a outra e entendi que os dois queriam que eu fosse junto, como donos da escola.
@@ -48,7 +51,9 @@ Claro. A escola parecia um filme de terror em forma de limpeza, era óbvio que e
 Falei olhando nos olhos de cada uma, e a expressão delas mudou na hora. Notei uma câmera fotográfica na mão da Karina. Ótimo, tinha testemunha.
 
 — Vou te explicar uma coisa, querida — riu Any. — Você é nova aqui e parece ter vindo da vida boa. Nessa escola, tudo o que você fala ou faz pode voltar pra você com mais força do que imagina.
+
 — O que você quer dizer com isso? — perguntei. Adoro quando acham que conseguem me intimidar.
+
 — Que fica atrás da sua linha e não ultrapassa a nossa — respondeu Paty.
 
 Elas saíram com andar de pavão, cabeça erguida. Eu já tinha entendido o recado; o problema era que elas não tinham entendido com quem estavam mexendo. Peguei uma caneta, enfiei no bolso e desci atrás. As três foram direto ao banheiro, como toda menina assim, retocar gloss e tirar foto. Esperei um pouco e entrei. Lá estavam elas arrumando o cabelo e fotografando com a câmera da Karina, e me olharam com a cara de nojo padrão. Entrei num box, fechei a porta, tirei a caneta do bolso, brinquei com ela na mão, respirei fundo e abri a porta com força.
@@ -82,19 +87,25 @@ O jantar foi um desastre, como tudo o que eles organizam: pagaram de pais exempl
 No dia seguinte observei o triozinho atrás de mim. Any tinha cara de quem passara a noite pensando em mim, Paty estava pronta para me matar com os olhos (que viesse), e Karina, coitada, era a típica maria-vai-com-as-outras, brilhando para as outras na esperança de sobrar alguém olhando para ela. No intervalo vi minha irmã com o Junior e o gordinho amigo dele num canto. Ignorei, já tinha problemas suficientes. Na última aula, Jason puxou assunto, e até que era bacana. A Vitória continuava irritantemente feliz, mas não tão insuportável quanto eu achara, só aquela voz doce demais e o jeitinho “ai, gente” me davam nos nervos.
 
 — Tentem me enviar as atividades até as 19h — disse ela quando saíamos —, porque depois vou pra casa da minha tia e não vou ter mais internet.
+
 — Vou fazer o possível — respondi, e depois sorri. — Tô brincando, pode deixar.
 
 Na saída fui direto à casa do meu namorado, menos de cinco minutos andando. Quando cheguei à rua dele, começou a chover, e corri até a calha da casa para não virar um pinto molhado. Liguei de novo. Nada. Bati na porta. Vini nunca quis que eu conhecesse o pai, dizia que o homem era complicado e era melhor eu ficar longe, e no fundo eu achava que ele tinha vergonha da vida que levava. A porta se abriu e um homem me deu um sorriso, de barba malfeita, cabelo escuro com fios brancos, pelo saindo pela regata velha, bermuda escura e chinelo de dedo, o oposto exato do meu pai chegando em casa.
 
 — Posso ajudar?
+
 — O Vinicius tá?
+
 — Não tá. Quer deixar recado?
+
 — Sou a namorada dele. Sabe se vai demorar?
 
 Os olhos dele arregalaram, como se “namorada do Vini” fosse negócio raro.
 
 — Foi ali comprar cigarro e já volta.
+
 — O Vinicius fuma? — fiz careta. Ele sempre disse que não fumava.
+
 — Quer entrar? Ele não deve demorar.
 
 Eu ia dizer não por educação, mas alguma coisa dentro de mim gritou: entra.
@@ -118,52 +129,75 @@ Empurrei a caixa de volta com o pé. Vini estava na porta.
 Ele arrancou o baseado da minha mão e o enfiou debaixo da cama.
 
 — Meu pai não sabe disso. Você não pode chegar assim na minha casa sem avisar, entendeu?
+
 — Ah, não posso? Sou sua namorada e não posso ir na sua casa? Então quem pode? A vadia que te deu essa caixa de chocolates? — puxei a caixa de debaixo da cama.
+
 — Minha madrasta não gosta de chocolate. Foi ela que me deu.
+
 — A mesma que você vive dizendo que te odeia?
+
 — Não começa com crise de ciúmes, por favor. Desculpa não te responder antes, eu fiquei puto contigo. Mas cansei disso. Não consigo ficar longe de você.
+
 — Não adianta bancar o amorzinho de novela agora, Vinicius. Fiquei mais de um dia sem notícia sua. Sou sua namorada, não um amigo que você conheceu numa festa.
+
 — Eu sei — disse, pegando minha mão. Puxei de volta, ele segurou de novo, mais firme. — Vem comigo.
 
 Descemos. Perguntei se o pai dissera que eu estava lá, e ele respondeu que não, que correra para casa ao ver as janelas abertas, achando que a Ana tinha entrado no quarto. O pai estava no sofá, pernas abertas, jornal na mão, óculos no rosto. Olhei o bebê no colo da Ana, lindo. Eu odiava criança, mas com bebê era diferente.
 
 — Acho que você já conheceu meu irmão — disse o Vini.
+
 — Meio-irmão — corrigiu Ana, sem graça nenhuma.
+
 — Não tinha visto ainda. Oi, bebê.
 
 Sorri para ele, e Ana o cobriu na mesma hora, dizendo que estava frio e que ia pô-lo para dormir. Sumiu pela porta ao lado.
 
 — Onde você vai? — perguntou o sogro.
+
 — E te interessa? — retrucou o Vini, abrindo a porta da rua. — Vem.
 
 Sorri para o pai e me despedi. Lá fora a chuva tinha parado e o céu seguia cinza. Vini me levou por umas ruas acima até um beco com um carro preto parado e três moleques, um deles fumando encostado no capô.
 
 — Salve — disse o Vini, cumprimentando um por um. Só fiz que sim com a cabeça.
+
 — Essa é a mina do Vini. Garota de sorte, hein.
+
 — Esse é o Caneca, aquele é o Pepeu e o menor é o Pézinho — Vini apresentou.
 
 Pepeu, o do carro, tinha cara de poucos amigos e boné. Caneca era o mais gordinho, de óculos com lente amarelada. Pézinho era o mais felizinho, baixinho, de aparelho.
 
 — Você que é a mina do Vini — disse Pézinho, vindo bater a mão comigo. — Garota de sorte.
+
 — Eu sei que você sempre me quis, Pézinho — zombou Vini.
+
 — Quis meter meu bilau na tua boca — respondeu Pézinho.
+
 — Vai com calma, Pézinho — riu Pepeu. — A menina não tá acostumada com nóis.
+
 — Eu tô acostumada com o Vini, então não precisa se preocupar com cordialidade.
+
 — Cordial o quê? A menina fala bonito, hein, Vini.
+
 — Cadê o Thiaguinho?
+
 — Foi dar um jet. Quer deixar recado?
+
 — Vou dar um pulo ali na mansão com a Pri. Bora?
 
 Mansão?
 
 — Tá falando da casa abandonada, parça? — perguntou Caneca.
+
 — Lá mesmo. Vamo dar uma geral.
 
 Ele estava falando sério. Ia mesmo me levar lá.
 
 — Ih, mano, aquelas banda lá é do Juarez. Melhor nem chegar perto — disse Pepeu.
+
 — Qual é, o Juarez não quer nada com aquele lugar. Tá com medo, seu bosta? — provocou Vini.
+
 — Medo? Não tenho medo de nada, parça. Nem da morte, nem dos vivos — Pepeu desencostou do carro e passou por mim. — Na volta tu vai pagar um beck pra nóis.
+
 — Vou pagar uma pra tua mãe.
 
 Eu não entendia metade daquele linguajar, mas sabia que nada ali era coisa de gente santa. Seguimos os cinco por ruas que eu não conhecia bem, até a Rua dos Afogados.
@@ -185,12 +219,15 @@ Vini foi na frente até a porta, subiu os dois degraus e empurrou.
 Luzes fracas entravam pelas frestas das tábuas pregadas nas janelas, e com a luz da porta aberta dava para ver o salão enorme: escadaria subindo para o andar de cima, portas nas laterais, um lustre pendurado, tudo tomado de pó. Apesar de velho, o lugar era lindo, o corrimão trabalhado, o armário do canto entalhado, só o piso de mármore quebrado em partes. Vi uma boneca de pano, um garfo, um livro rasgado ao meio.
 
 — Bora morar aqui, Vini? — brincou Pézinho.
+
 — Pode ir tirando o cavalinho da chuva — respondi, rindo.
+
 — Ouvi dizer que tem um quarto enorme lá em cima — disse Caneca, subindo a escada correndo.
 
 Subi também, com Vini me segurando pela mão. Ele mancava por causa da perna ruim, então eu o ajudava, puxando de leve. No andar de cima, um corredor cheio de portas.
 
 — Onde será que é o de casal, ursinha?
+
 — Talvez o último.
 
 Ele foi tentar abrir as portas, e a última estava trancada.
@@ -206,7 +243,9 @@ Então ouvi o grito.
 Era a voz de um dos amigos do Vini, lá embaixo. Corri até a porta, mas ela bateu na minha cara, fechando sozinha. Dei um passo para trás. A luz que entrava pela janela escureceu, como se algo enorme tivesse passado na frente, e uma onda de frio atravessou o quarto. Meus dedos congelaram.
 
 — NÃO! — alguém gritou.
+
 — O QUE VOCÊ FEZ, MANO? — era Pepeu. — PEZINHO, PUTA MERDA!
+
 — PRISCILA, VAMOS EMBORA! — gritou Vini, da escadaria.
 
 Virei-me para o banheiro. No meio da poeira havia um vulto, que não dava para saber se era gente, animal ou coisa, só sombra na parte mais escura do quarto. Dois pontos vermelhos se acenderam onde deveriam estar os olhos. Não sabia se era real ou se eu estava surtando, mas tinha alguma coisa ali. Dei dois passos para trás e o vulto também se moveu. Me afastei mais, e ele correu para cima de mim. O quarto apagou, breu total, e gritei. Senti a porta abrir atrás de mim e uma mão me puxar para fora. Vini.

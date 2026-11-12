@@ -13,6 +13,7 @@ O espírito dele apareceu diante do relógio dourado, caído no chão. Junior es
 O garoto se abaixou diante de nós e esticou a mão para o relógio. Antes de pegá-lo, travou e olhou para nós.
 
 — Eu avisei que, se vocês entrassem, um não ia voltar.
+
 — Me entregue o Elo, Abigor — insistiu Junior, com uma voz que já nem parecia dele.
 
 Uma das sombras rastejou pelo gramado até o corpo de Kelly. Ficou ali, estendida, enquanto o garoto segurava o relógio, como se esperasse por alguma coisa.
@@ -36,7 +37,9 @@ Jennifer estava ali, pálida, uma mão contra a barriga ferida, as lágrimas des
 O Pedro explodiu.
 
 — O QUE VOCÊ FEZ? — largou a minha irmã por um instante e foi para cima dele, socando o rosto do Junior várias vezes, como se quisesse amassar o mundo inteiro com os punhos. Junior caiu, levou mais dois, três socos, até o Vini agarrá-lo por trás.
+
 — PARA, CARA, PARA!
+
 — FOI ELE! ELE QUE FEZ ISSO! — Pedro apontava para o Junior, o rosto molhado de lágrimas e ódio. — VOCÊ MATOU ELA!
 
 Junior se levantou de novo, com um corte aberto na sobrancelha e o olho inchando, foi até a Kelly e tomou a mão dela entre as dele.
@@ -58,7 +61,9 @@ A minha mãe congelou ao ver a cena. Os olhos dela bateram no corpo da Kelly e e
 Senti as primeiras lágrimas descerem, quentes e rápidas, como se estivessem atrasadas. A cada vez que ela dizia “minha Kelly”, eu me lembrava de quantas vezes esse “minha” nunca foi para mim.
 
 — Por favor, tem outra garota ferida — disse o Vinicius, aproximando-se. — A Jennifer precisa de ajuda.
+
 — SAI DAQUI! — minha mãe berrou, sacando o revólver e apontando na cara dele. — FOI VOCÊ QUE FEZ ISSO!
+
 — Eu não fiz nada — Vini ergueu as mãos, recuando.
 
 Ela se levantou, ainda segurando o corpo da Kelly como se pudesse acordá-la, me empurrou para trás dela e virou a arma para o resto do grupo.
@@ -71,8 +76,6 @@ Pegou o rádio, mas a voz embolava no choro: “Atenção, todas as viaturas, pr
 
 Não voltei. Atravessei o matagal, com os galhos arranhando minhas pernas, até a rua. O sol começava a nascer, jogando raios amarelos fracos por cima das casas, e as lágrimas no meu rosto pareciam prata, pesadas no queixo. Parei ao lado do cercado de um terreno vazio, numa parte da rua nem asfaltada ainda, só terra batida e mato alto, e fiquei olhando o sol subir como se me provocasse: o mundo continuando normal enquanto a minha vida estava em pedaços. Fiquei ali até os carros da polícia passarem do meu lado e mandarem eu levantar as mãos. Não resisti. Me algemaram e me puseram na viatura como mais uma suspeita. Em certo nível, eu era.
 
-
-
 Me levaram à delegacia da cidade, a uma salinha com mesa, duas cadeiras e um relógio barulhento demais na parede. Mandaram sentar, e sentei. Depois de uns bons minutos, um policial entrou, sentou na minha frente e ficou me encarando, como se fosse ler a verdade na minha testa.
 
 — O que aconteceu na casa?
@@ -80,13 +83,17 @@ Me levaram à delegacia da cidade, a uma salinha com mesa, duas cadeiras e um re
 Olhei os olhos claros dele, desisti da troca de olhares e virei o rosto para o relógio, cujo tic-tac parecia entrar na minha cabeça à força.
 
 — Eu não sei.
+
 — A sua irmã foi morta. Sei que é difícil, mas precisamos saber a verdade. Quem atirou e o que houve lá dentro?
+
 — Eu não vi. Só ouvi o som. Quando vi, ela já tava no chão.
+
 — Não dificulta pra gente, Priscila — a voz endureceu. — Recolhemos a arma. Ainda vamos examinar as digitais. A não ser que… — fez uma pausa dramática, achando que era personagem de série policial — você tenha atirado na sua própria irmã e esteja com medo de assumir.
 
 Virei o rosto de volta para ele. Um segundo de silêncio.
 
 — Eu não fiz isso com ela. — Era verdade. O resto eu não fazia questão de explicar, porque ninguém ia acreditar. Demônios, sombras, Elo, relógio amaldiçoado, espírito de garoto morto? Eles mal acreditavam em gente viva. Eu estava pouco me lixando para o que iam achar, se iam dizer que era culpa minha, do Vini, do Junior. A única coisa que eu sabia era que a Kelly estava morta, e nada do que eu dissesse mudaria isso.
+
 — Se não foi você, quem foi? Quem tava com a arma na hora em que ela foi baleada?
 
 Em vez de responder, abaixei a cabeça, peguei um lápis e uma folha em cima da mesa e comecei a desenhar o contorno da casa, as sombras, alguns rostos. A porta atrás de mim se abriu.
@@ -102,7 +109,9 @@ No salão principal, minha mãe e meu pai estavam com dois outros policiais, ela
 Depois ela se afastou para resolver algo com os policiais, e fiquei sentada num banco com meu pai, em silêncio. Foi quando vi o Junior e o Pedro, escoltados por dois PMs, passando pelo corredor. Procurei o Vinicius com o olhar, e alguns segundos depois ele apareceu, algemado, cabeça baixa. Quando passou, levantou os olhos por um instante, e o olhar dele encontrou o meu, com medo, culpa e uma decisão tomada. Depois sumiu num corredor lateral.
 
 — Vinicius Silva disse que atirou na sua filha, Sr. Fontenelle — disse um dos policiais. — Preciso ouvir de vocês o que viram.
+
 — Aquele desgraçado! — explodiu meu pai. — Eu vou matar ele!
+
 — Preciso que sua filha responda, por favor.
 
 Aquilo não era verdade. Eu sabia quem tinha atirado, eu vi. Mas uma parte de mim queria que fosse, queria que o Vini carregasse a culpa. Ele merecia, pela traição, pelas escolhas, por tudo.
@@ -112,7 +121,9 @@ Aquilo não era verdade. Eu sabia quem tinha atirado, eu vi. Mas uma parte de mi
 O policial olhou para o Junior, que continuava de cabeça baixa, e o garoto assentiu, quase imperceptível. Depois virou o rosto para o Pedro.
 
 — Não — disse o Pedro, a voz firme. — Foi o Junior. Foi o Junior que atirou nela.
+
 — Garoto, isso é uma acusação séria. Não tá falando isso só pra defender o Vinicius, tá?
+
 — Tô falando a verdade. O Junior matou a Kelly.
 
 O policial o mediu em silêncio, respirou fundo e se virou para nós.
@@ -128,8 +139,6 @@ Saí e fui direto para a viatura da minha mãe, onde fiquei encarando os vidros 
 “Primeiro dia de aula. Conheci dois amigos, Junior (o magrinho) e Pedro (o mais gordinho). Estava indo pra casa quando um vira-lata preto começou a latir pra mim. Me assustei e corri atravessando a rua. Quando me dei por conta, um caminhão que quase havia me atropelado passou por cima do animal. Eu nunca vou conseguir esquecer essa cena horrorosa.”
 
 Fechei os olhos por um instante. Depois continuei folheando. Ela tinha escrito quase tudo: as coisas que vivemos nas últimas semanas estavam todas ali, em versões dela, com pensamentos que nunca me dissera. Presa à parte de trás do caderno, havia uma folha dobrada, com o nome do Junior escrito do lado de fora. Não abri. Havia coisas que eu não suportava descobrir naquele dia. Passei a tarde lendo, parando só quando minha mãe veio com uma comida que recusei. Mais tarde ela me levou aos fundos da delegacia, onde havia um chuveiro, e tomei um banho longo, tentando tirar o sangue e o cheiro de fumaça da pele. A água descia quente, mas tudo dentro de mim continuava gelado. Quando enfim liberaram o corpo da Kelly, fomos ao cemitério.
-
-
 
 O caixão da Kelly era pequeno e brilhante demais para o que sobrara dela. O rosto estava calmo, os olhos fechados, a pele pálida, e os cortes, mesmo disfarçados, ainda estavam lá, lembrando o que fizeram com ela, o que vimos naquela casa. À nossa volta, muita gente chorando: meu pai, meu tio Leandro, primos, alguns conhecidos. Não vi minha avó em lugar nenhum. Junior e a mãe estavam num banco ao lado, e Pedro, com os pais, perto do caixão.
 
@@ -151,24 +160,32 @@ Na saída do cemitério, alguém tocou meu ombro. Era a Vitória.
 
 Tem coisas que a gente não lembra exatamente como começam. Para mim foi assim: num segundo eu ouvia, no outro meu punho já estava no rosto dela. Só percebi quando duas pessoas nos separaram, segurando meus braços. A Vitória levou a mão ao nariz, sangrando, assustada, e eu tremia dos pés à cabeça, mais de raiva do que de esforço. Pelo jeito, eu tinha gritado “vagabunda” na frente de todo mundo.
 
-
-
 No carro, a caminho da nossa nova casa, me estiquei no banco de trás, o mesmo onde, na mudança para Vila Velha, eu e a Kelly estávamos sentadas reclamando de cidade, de escola. Abri o diário de novo e fui lendo, página por página, como se conhecesse minha irmã de verdade pela primeira vez. Descobri o que ela sentiu no dia em que me conheceu de novo, o que pensou do Junior, do Pedro, das histórias sobre a cidade assombrada. Havia ali coisas que me davam mais raiva dela e coisas que me faziam sentir só orgulho. Nem vi a estrada, até a voz da minha mãe me interromper, muito tempo depois.
 
 — Filha?
+
 — Oi — respondi, sem fechar o diário.
+
 — Me desculpa — disse, a voz falhando — por ter sido tão bruta contigo esse tempo todo. Te devo desculpas por ter ficado tão longe de você. Mas eu te amo muito. E, do que você precisar, sua mãe tá aqui. Seu pai também te ama demais.
 
 Fiquei alguns segundos em silêncio. Eu podia aceitar, abraçá-la e fingir que estava tudo bem, mas algo em mim tinha quebrado de um jeito diferente naquele dia.
 
 — Você chegou a delegada, mãe. Eu sei quanto batalhou por isso — falei, encarando o banco da frente. — Tenho orgulho de você. Mas não consigo esquecer como vocês me trataram todos esses anos. Só agora que não existe mais a Kelly é que eu recebo um abraço.
+
 — Do que você tá falando? — meu pai se intrometeu.
+
 — Tô dizendo que, quando a gente chegar na casa nova, vou pegar minhas coisas e arrumar um lugar pra morar. Eu não aceito mais morar com vocês.
+
 — Priscila, por favor, olha o que você tá dizendo — quase implorou minha mãe. — Você quer abandonar a gente justo quando mais precisamos ficar juntos?
+
 — Eu não preciso de vocês. Vou ser maior de idade em alguns meses e dou um jeito de me virar.
+
 — Deixa de ser tola, menina — rebateu meu pai. — Você não tem condição de pagar faculdade, curso, nada.
+
 — Não preciso de condição nenhuma pra viver — cortei. — Com ou sem dinheiro, um dia todo mundo acaba como a Kelly.
+
 — É DA SUA IRMÃ QUE VOCÊ TÁ FALANDO! — gritou minha mãe.
+
 — Da mesma irmã que você queria que tivesse ficado no meu lugar — respondi, fria. — Ia ser bem melhor, né? Se a filha rebelde tivesse ido e a filha-exemplo ficasse. Se eu tô tomando essa decisão, é por sua culpa, mãe. E por causa de você, pai, que foi frouxo esse tempo todo e nunca teve coragem de discordar dela.
 
 Vi a mão da minha mãe subir, pronta para me dar um tapa, como tantas outras vezes. Dessa vez, segurei o pulso dela no ar.
