@@ -206,13 +206,15 @@ O cão se abaixou, pronto para atacar. O focinho passou de Pedro para mim sem se
 
 — O que você tá fazendo? — perguntei, sem tirar os olhos da criatura.
 
-— Confia em mim. Eu conheço o amigo que tenho.
+— Confia em mim. Lembra da carne que sumiu da minha cozinha? Esse bicho vai atrás de carne.
 
 — Junior, seja lá o que seja esse plano, despacha. — O cão estava mais perto, a saliva pingando das presas.
 
-Junior arrancou o sapato e a meia do Pedro. Quando levantou com a meia dentro do sapato, o cheiro subiu como um ataque químico.
+Junior arrancou o sapato e a meia do Pedro. O joelho dele, o mesmo que tinha achado o caco de vidro no posto, estava aberto, a calça escura de sangue. Junior esfregou a meia no corte até ela ficar encharcada, e a enfiou de volta no sapato. O cheiro de ferro subiu quente, doce demais.
 
 — Mon Dieu… — escapou.
+
+— A carne podre sumiu da cozinha dele — Junior murmurou, entre os dentes. — Se ele gosta de carne, vai gostar mais de sangue fresco.
 
 — Ei, cachorrão! Procura isso aqui! — gritou Junior.
 
