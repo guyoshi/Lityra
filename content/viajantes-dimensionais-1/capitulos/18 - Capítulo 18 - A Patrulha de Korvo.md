@@ -324,17 +324,23 @@ Bruno recuou, levando as mãos à frente, e ela se moveu rápido. Mas em vez de 
 
 — É pessoal!
 
-— Eu acho que você está passando por algo difícil. Tem muita força aí dentro, muita sabedoria, mas é tanta coisa que fica pesado carregar sozinho. — A voz dela era calma e serena. — Seus irmãos se importam com você, mas você fica sempre menor diante deles. Existe quem trate você como igual.
+— Pessoal, então. Tudo bem — disse Anasin, sem insistir. — Mas ninguém atravessa um pântano de madrugada, sozinho e de olhos vermelhos, por capricho. Ou está atrás de alguém, ou fugindo de alguém.
 
 — Se afaste! — disse Bruno, quando ela chegou mais perto.
 
 A mulher inclinou a cabeça e riu, um som baixo e quase bonito, que arrepiou a nuca dele. Os outros ficavam em silêncio, mas a presença deles pesava no ar.
 
-— Tão jovem e tão valente. Eu me chamo Anasin. O que faz aqui, perdido em território Obb?
+— Tão jovem e tão valente. Eu me chamo Anasin. — Apontou com o queixo as algemas caídas. — Como vê, não vim machucar você. Quando alguém chora sozinho no escuro, quase sempre é porque alguém que ele ama disse algo que cortou mais fundo do que devia. Foi isso?
 
-— Como você sabe dos meus irmãos?
+Bruno não respondeu. A pergunta era exata demais, e o cansaço pesava mais que a desconfiança.
 
-— Eu os vi chegar. Costumamos passar por essas terras. Mas não é comum ver senavelitas tão jovens. Uma missão, não é? Que interessante.
+— Eu ouvi uma coisa que não devia — disse Bruno, por fim, com a voz falhando. — Da minha irmã.
+
+— Da sua irmã — disse Anasin, devagar, sem pressa. — E os outros? Alguém tão novo não atravessa território Obb sozinho. Onde estão os seus?
+
+— Dormindo. Os meus irmãos estão... — disse Bruno, e se calou, tarde demais.
+
+— Irmãos — disse Anasin, e dessa vez os olhos dela brilharam. — Então não é só você. Uma missão, não é? Que interessante.
 
 — É uma missão de família.
 
