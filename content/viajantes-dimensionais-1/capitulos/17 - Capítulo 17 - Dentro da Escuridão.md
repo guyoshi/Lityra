@@ -274,13 +274,13 @@ Ouviu movimentos fracos lá dentro. As teias eram grossas como cordas.
 
 Os olhos dela o atravessaram.
 
-— Sua determinação é admirável, pequeno senavelita. Mas palavras são frágeis como teia mal tecida. Para libertá-los, você precisará provar que é digno da minha ajuda.
+— Sua determinação é admirável, pequeno senavelita. Mas palavras são frágeis como teia mal tecida. A única forma de libertá-los é vencer um desafio. Só assim vou saber se é digno da minha ajuda.
 
-— Qual é o desafio? — perguntou ele, com a voz mais firme do que esperava.
+— Desafio? Como assim? — perguntou ele, com a voz mais firme do que esperava.
 
-Uma aracna pequena trouxe até o centro da câmara um objeto cristalino, que pulsava com uma luz interior. Lanigiah o empurrou com a pata até a frente dos pés de Banjo.
+Lanigiah não respondeu logo. Uma aracna pequena trouxe até o centro da câmara um objeto cristalino, que pulsava com uma luz interior. A rainha o empurrou com a pata até a frente dos pés de Banjo.
 
-— Isto é um Minori. Dentro dele há uma verdade que você esconde de si mesmo. Seu desafio é simples: olhe o cristal. Veja o que ele mostra. E aceite, sem desviar os olhos.
+— Em minhas cavernas, todo desafio começa com um Minori. Dentro dele há uma verdade que você esconde de si mesmo. O seu é simples: olhe o cristal. Veja o que ele mostra. E aceite, sem desviar os olhos.
 
 — Só isso? Eu só... olho?
 
