@@ -1,28 +1,26 @@
-Bruno caiu de costas na plataforma molhada, com as pernas ainda presas dentro do brilho azulado.
-
-— Um ano inteiro fora e vocês ainda não aprenderam a usar uma porta — disse Lioro.
-
-O brilho se desfez. As pernas de Bruno despencaram sobre o piso com um baque.
-
-— Uma porta não me deixaria de cabeça para baixo.
-
-— Depende da porta.
-
-Beatriz mal esperou o irmão se levantar. Correu e abraçou Lioro com tanta força que o fez dar um passo para trás. Ele pareceu surpreso, mas logo a envolveu com os braços.
+Beatriz chegou a Lioro e o abraçou com tanta força que o fez dar um passo para trás. As quatro toalhas dobradas debaixo do braço dele quase caíram. Lioro pareceu surpreso, mas logo a envolveu com o braço livre.
 
 — Você veio buscar a gente!
 
 — Eu disse que estaria aqui.
 
-— Disse há um ano — lembrou Breno, saindo da passagem com a roupa encharcada.
+— Disse há um ano — lembrou Breno, com a roupa encharcada e uma das mãos ainda apoiada na cabeça.
 
 — Em minha defesa, vocês se atrasaram bastante.
 
-Banjo atravessou por último. A passagem se fechou às suas costas, deixando os quatro pingando no centro de uma plataforma cercada por arcos de metal e painéis de vidro. A Central Interdimensional continuava tão vasta quanto Beatriz recordava, embora agora houvesse placas novas sobre algumas entradas e trabalhadores ocupados junto às bases dos arcos. Um deles girava uma manivela. Fileiras de luz verde acenderam-se no chão, indicando o caminho até as saídas.
+Bruno continuava deitado no chão, olhando para a cúpula e rindo. Ergueu uma das mãos sem se levantar.
+
+— Uma porta não me deixaria de cabeça para baixo.
+
+— Depende da porta — respondeu Lioro.
+
+Banjo estava ao lado de Breno, com os joelhos ainda moles e a mochila acesa nas costas. Os quatro pingavam no centro de uma plataforma cercada por arcos de metal e painéis de vidro. A Central Interdimensional continuava tão vasta quanto Beatriz recordava, embora agora houvesse placas novas sobre algumas entradas e trabalhadores ocupados junto às bases dos arcos. Um deles girava uma manivela. Fileiras de luz verde acenderam-se no chão, indicando o caminho até as saídas.
+
+Lioro distribuiu as quatro toalhas. Bruno recebeu a dele ainda no chão.
 
 — Eles estão pingando a plataforma — observou uma voz desconhecida.
 
-Ao lado de Lioro havia um rapaz magro, de pele acinzentada e olhos grandes demais para o rosto. Segurava um disco de vidro preso entre aros de cobre. Pequenos sinais luminosos corriam pela superfície enquanto ele o inclinava.
+O pequeno ser de pelo castanho ao lado de Lioro continuava observando os irmãos como quem conferia uma contagem. De um dos bolsos do colete, retirou um disco de vidro preso entre aros de cobre. Pequenos sinais luminosos correram pela superfície quando ele o inclinou.
 
 — Molhando — corrigiu Lioro.
 
@@ -34,7 +32,7 @@ Bruno olhou para Beatriz.
 
 — Este é Bug — apresentou Lioro. — Está me ajudando hoje.
 
-Bug guardou o disco numa bolsa lateral e estendeu a mão para Beatriz com toda a seriedade.
+Bug guardou o disco num dos bolsos do colete e estendeu a mão para Beatriz com toda a seriedade.
 
 — Beatriz Batista.
 
@@ -60,11 +58,17 @@ Banjo apertou a mochila contra o peito.
 
 Farol empurrou a aba da mochila com o focinho. Dois olhos luminosos apareceram por um instante antes de Banjo fechá-la de novo.
 
-— Ele não podia ficar na Terra — explicou. — Sentiu falta daqui.
+— Eu deixei ele trancado no quarto — explicou Banjo. — Ele entrou sozinho na mochila.
+
+— O tio Frank já deve ter descoberto — disse Beatriz.
+
+Banjo apertou os lábios.
+
+— Quando a gente voltar, eu explico.
 
 — E nós sentimos falta de dormir sem um animal brilhante andando na nossa cara — disse Breno.
 
-Lioro entregou a Bug quatro toalhas que estavam dobradas sobre um banco.
+Quando terminaram de se enxugar, Lioro recolheu as toalhas e apontou para as mochilas.
 
 — Leve as bagagens para a casa do Velho-Sábio. Eles precisam ir ao Arcano antes.
 
@@ -118,7 +122,7 @@ Bug pensou a respeito.
 
 — Vai logo, Bug — pediu Lioro.
 
-O rapaz assentiu e retomou o caminho.
+Bug assentiu e retomou o caminho.
 
 — Gosto mais dele a cada frase — comentou Bruno.
 
@@ -128,7 +132,7 @@ Era incrível estar de volta.
 
 — Onde está o Velho-Sábio? — perguntou Banjo.
 
-— No Arcano. Passou os últimos meses discutindo a readmissão de vocês e hoje foi garantir que ninguém mudasse de ideia nos últimos cinco minutos.
+— No Arcano. Passou os últimos meses discutindo a readmissão de vocês e hoje foi garantir que não mudassem de ideia nos últimos cinco minutos.
 
 — Readmissão? — Breno franziu a testa. — Então ainda não estava decidido?
 
@@ -136,25 +140,25 @@ Era incrível estar de volta.
 
 — Ontem? — Bruno se aproximou. — Você esperou até ontem para avisar?
 
-— Eu tentei antes. Liguei para três telefones. No primeiro, uma senhora disse que não conhecia nenhum Batista. No segundo, um homem tentou me vender um colchão. No terceiro, uma criança respirou no aparelho por dois minutos e desligou.
+— Eu tentei três orelhões próximos do caminho de vocês. No primeiro, uma senhora disse que não conhecia nenhum Batista. No segundo, um homem tentou me vender um colchão. No terceiro, Breno atendeu.
 
 Beatriz riu.
 
-— Você ligou para números errados.
+— Você ligou para orelhões errados.
 
 — Descobri isso.
 
 — E como soube da tempestade? — perguntou Breno.
 
-— A autorização chegou quando as condições entre os mundos começaram a mudar. A tempestade criou uma janela curta. Eu fiquei na Central e liguei do telefone público mais próximo da casa de vocês até alguém atender.
+— A autorização chegou quando as condições entre os mundos começaram a mudar. A tempestade criou uma janela curta. Fiquei na Central e continuei tentando os orelhões até alguém atender.
 
-— Foi a mamãe — disse Beatriz, lembrando-se da expressão dela ao chamá-los.
+— Eu reconheci sua voz — disse Breno. — Mas quase não dava para ouvir.
 
-— Sua mãe fez muitas perguntas.
+— Eu também quase não ouvia você. Por isso mandei olhar a poça antes que a ligação caísse.
 
-— Ela faz isso quando está nervosa.
+— Podia ter dito seu nome — reclamou Bruno.
 
-— E quando não está — acrescentaram os três irmãos ao mesmo tempo.
+— Eu estava ocupado gritando “a poça”.
 
 Lioro conduziu-os para fora da Central. Na plataforma de embarque, um karto de laterais curvas aguardava junto ao trilho. O condutor verificou uma placa de vidro, empurrou uma alavanca e o veículo deslizou para a túbula transparente.
 
@@ -298,7 +302,7 @@ Breno puxou-o pela camisa para fazê-lo sentar.
 
 — Eles pediram.
 
-— Ninguém pediu autógrafo.
+— Não pediram autógrafo.
 
 — Ainda. É importante organizar a fila antes do tumulto.
 
@@ -436,7 +440,7 @@ Eshley olhou para Shirley. O entusiasmo das duas perdeu um pouco da força.
 
 — Desapareceu onde? — perguntou Breno.
 
-— Ninguém sabe direito — disse Shirley. — Ferris não para de procurar. Ele vive discutindo com a Vigilância porque acha que estão procurando nos lugares errados.
+— Ainda não sabem ao certo — disse Shirley. — Ferris não para de procurar. Ele vive discutindo com a Vigilância porque acha que estão procurando nos lugares errados.
 
 O Velho-Sábio surgiu ao lado deles.
 
@@ -576,13 +580,19 @@ Ele entrou. As luzes do corredor acenderam-se pouco antes de cada passo, como co
 
 Bruno obedeceu sem discutir. Beatriz percebeu e sorriu, mas teve a inteligência de não comentar.
 
-O quarto ainda tinha quatro camas. Sobre o teto, uma lente presa a um pequeno cristal projetava constelações pálidas. Os lençóis estavam limpos, as prateleiras vazias esperando pelos objetos deles. No meio da cama de Beatriz estava a bola amarela de BBBB.
+O quarto ainda tinha quatro camas. Sobre o teto, uma lente presa a um pequeno cristal projetava constelações pálidas. Os lençóis estavam limpos, as prateleiras vazias esperando pelos objetos deles. No meio da cama de Beatriz estava a bola amarela de BBBB, ainda úmida da chuva.
 
 Ela pegou-a com as duas mãos.
 
-— Você guardou.
+— Bug tirou da minha mochila.
 
-— Eu guardo tudo o que vocês deixam espalhado — respondeu o Velho-Sábio.
+— Você levou uma bola para a escola? — perguntou Breno.
+
+— Coloquei na mochila depois que a gente brincou e esqueci de tirar.
+
+Banjo pegou a bola das mãos dela.
+
+— Pela primeira vez, esquecer alguma coisa ajudou.
 
 As mochilas já estavam encostadas na parede. Bug deixara um bilhete preso sobre elas: BAGAGENS ENTREGUES. NENHUMA CRIANÇA PERDIDA. Um segundo risco acrescentava: UM ANIMAL ESCONDENDO UMA CRIANÇA.
 
@@ -642,7 +652,7 @@ Bruno inclinou-se para a frente.
 
 — Não.
 
-O Velho-Sábio falou com simplicidade, mas Bruno entendeu o que havia por baixo da palavra. Ele tinha mantido as camas. Guardado a bola. Brigado com a Sociedade. Desobedecido antes mesmo de saber se algum dia conseguiriam voltar.
+O Velho-Sábio falou com simplicidade, mas Bruno entendeu o que havia por baixo da palavra. Ele tinha mantido as camas e o quarto pronto. Brigado com a Sociedade. Desobedecido antes mesmo de saber se algum dia conseguiriam voltar.
 
 Bruno levantou-se e o abraçou.
 
@@ -686,15 +696,15 @@ Beatriz olhou para o Velho-Sábio.
 
 — O estojo na escola — disse Breno.
 
-— O prato da mamãe — acrescentou Bruno.
+— A tampa da panela — acrescentou Bruno.
 
 Banjo baixou a cabeça.
 
-— Ela ainda acha que foi o gato.
+— O tio ainda acha que ela escorregou sozinha.
 
-— Vocês não têm gato — disse o Velho-Sábio.
+— Tampas não escorregam para cima — disse o Velho-Sábio.
 
-— Por isso ela continua confusa.
+— Por isso ele continua confuso.
 
 O Velho-Sábio olhou para Breno.
 
@@ -788,13 +798,13 @@ O Velho-Sábio apontou para os pratos.
 
 — Ele vai voltar — afirmou o Velho-Sábio. — E vocês não irão atrás dele.
 
-— Ninguém sugeriu isso — disse Beatriz.
+— Eu não sugeri isso — disse Beatriz.
 
 Breno olhou para ela.
 
 — Ainda.
 
-— Ninguém vai procurar homem desaparecido nenhum — afirmou Breno.
+— A gente não vai procurar homem desaparecido nenhum — afirmou Breno.
 
 Beatriz ergueu as mãos.
 
@@ -906,7 +916,7 @@ Beatriz ergueu o braço com o curativo.
 
 — E eu seguro a bola — disse Breno.
 
-— Você não tem poder — lembrou Bruno.
+— Isso nem é usar poder — lembrou Bruno.
 
 — Tenho mãos.
 
