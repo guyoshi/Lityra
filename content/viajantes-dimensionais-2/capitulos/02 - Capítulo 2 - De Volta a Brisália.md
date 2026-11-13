@@ -30,7 +30,7 @@ Lioro inclinou a cabeça.
 
 Banjo riu. Beatriz ainda não havia largado Lioro. Depois de um ano inteiro ouvindo ônibus, sinal de escola e televisão do vizinho, escutar alguém falar de uma passagem entre dimensões como se fosse uma questão de horários parecia maravilhoso.
 
-Lioro distribuiu as toalhas. Beatriz enrolou uma na cabeça; Bruno a esfregou nos cabelos até ficar ainda mais despenteado, e Breno aproveitou a sua para limpar os óculos de Banjo. O menino protestou, pegou-os de volta e colocou-os no rosto antes de as lentes secarem por completo.
+Lioro distribuiu as toalhas. Beatriz enrolou uma na cabeça. Bruno a esfregou nos cabelos até ficar ainda mais despenteado, e Breno aproveitou a sua para limpar os óculos de Banjo. O menino protestou, pegou-os de volta e colocou-os no rosto antes de as lentes secarem por completo.
 
 A pequena criatura de pelo castanho continuava ao lado de Lioro. Tinha os braços carregados de etiquetas e um colete cheio de bolsos, dos quais saíam lápis, cordões e uma régua curta. Observava os irmãos com os olhos arregalados.
 
@@ -102,9 +102,9 @@ Banjo já tinha visto.
 
 — Aquele menor está tentando roubar alguma coisa.
 
-O animal enfiou o focinho entre as frutas, puxou uma bolinha verde e saiu correndo. O homem agitou os braços; os outros bichos se dispersaram. Banjo deu uma gargalhada que os vidros do karto devolveram em eco.
+O animal enfiou o focinho entre as frutas, puxou uma bolinha verde e saiu correndo. O homem agitou os braços, e os outros bichos se dispersaram. Banjo deu uma gargalhada que os vidros do karto devolveram em eco.
 
-Bruno procurou um ponto conhecido entre os telhados. Tinha sentido falta daquela cidade mais do que admitira a Frank. Na Terra, podia atravessar a rua inteira e encontrar sempre o mesmo mercado, o mesmo muro, o mesmo ponto de ônibus. Em Tayo, uma rua que ele conhecia de cor ainda conseguia lhe mostrar alguma coisa diferente.
+Bruno procurou um ponto conhecido entre os telhados. Beatriz viu o irmão se inclinar para a janela, prestando atenção em cada rua que aparecia. Um ano antes, ele tinha opinião sobre todos os dassis de Tayo. Agora comentava as fachadas, as árvores e até os cartazes, sem conseguir ficar quieto.
 
 — Ali! — gritou, apontando para a distância. — As três torres!
 
@@ -168,7 +168,7 @@ Banjo parou para observar uma espécie de aro com três discos giratórios.
 
 — Isso é uma resposta horrível — comentou Bruno.
 
-A entrada do salão principal estava cheia de aprendizes. Alguns eram mais altos que Breno; outros mal passavam do ombro de Banjo. Havia grupos de recém-chegados que seguravam a identificação com cuidado, com medo de perdê-la, e veteranos que se cumprimentavam aos gritos, comparando uniformes, medalhas e as férias que haviam passado em Tayo.
+A entrada do salão principal estava cheia de aprendizes. Alguns eram mais altos que Breno. Outros mal passavam do ombro de Banjo. Havia grupos de recém-chegados que seguravam a identificação com cuidado, com medo de perdê-la, e veteranos que se cumprimentavam aos gritos, comparando uniformes, medalhas e as férias que haviam passado em Tayo.
 
 Beatriz sentiu um frio na barriga. Desde que entrara no Edifício Arcano pela primeira vez, aprendera a reconhecer o cheiro das oficinas, os pisos claros e o barulho de dezenas de conversas se misturando. Mesmo assim, ao ver tantos rostos desconhecidos, procurou os irmãos antes de seguir.
 
@@ -210,7 +210,7 @@ Eshley tinha aparecido do outro lado e a abraçou com tanta força que a toalha 
 
 Eshley riu, mas seus olhos baixaram para o pingente azul-claro no pescoço de Beatriz. O sorriso dela mudou. Tocou de leve a peça e olhou para a amiga.
 
-— Você ainda usa.
+— Você ainda usa o da Maria.
 
 Beatriz fechou a mão sobre o colar.
 
@@ -270,7 +270,7 @@ Beatriz viu primeiro o cajado, encostado ao lado de uma porta de vidro. Depois a
 
 O mago ergueu a cabeça. Os papéis quase lhe escaparam das mãos.
 
-Banjo passou por Beatriz numa corrida tão rápida que os dois chegaram juntos. O velho abriu os braços, largou de vez a papelada numa mesa e os recebeu, um de cada lado. Beatriz se enterrou na barba dele; Banjo agarrou a cintura do mentor, com a mochila atravessada nas costas e Farol reclamando lá dentro.
+Banjo passou por Beatriz numa corrida tão rápida que os dois chegaram juntos. O velho abriu os braços, largou de vez a papelada numa mesa e os recebeu, um de cada lado. Beatriz se enterrou na barba dele. Banjo agarrou a cintura do mentor, com a mochila atravessada nas costas e Farol reclamando lá dentro.
 
 — Eu sabia que vocês encontrariam o caminho — murmurou Velho-Sábio.
 
@@ -282,7 +282,7 @@ Breno se aproximou e recebeu um abraço antes mesmo de estender a mão. Seu rost
 
 Bruno chegou por último.
 
-Por um instante, ficou diante de Velho-Sábio sem saber onde pôr as mãos. Tinha pensado naquele reencontro durante a travessia inteira e agora que estava ali o abraço dos irmãos parecia uma coisa que eles podiam fazer, mas ele não. Apertou a alça da mochila, coçou a cabeça e ergueu a palma aberta.
+Ficou diante de Velho-Sábio, com a alça da mochila apertada entre os dedos. Olhou para os braços do mentor, ainda abertos, coçou a cabeça e ergueu a palma da mão.
 
 — E aí, velho! Toca aqui!
 
@@ -482,21 +482,7 @@ Pelan aceitou a resposta, mesmo parecendo decepcionado. Deu a Beatriz mais um p�
 
 — É por isso que não vamos contar nada.
 
-O velho vinha atrás, apoiado no cajado, com o saco dos pães pendurado no braço. Bruno voltou-se para ele e, antes de pensar, ergueu a mão.
-
-— Toca aqui! O Pelan quase acreditou no dragão!
-
-Velho-Sábio ergueu também a mão. Em vez de bater a palma na dele, encostou o nó do dedo indicador no punho que Bruno acabara de fechar.
-
-— Estou melhorando?
-
-Bruno olhou para os próprios dedos. Soltou uma gargalhada.
-
-— Tá chegando perto, velho. Tá chegando perto.
-
-— Fico satisfeito.
-
-E seguiram pela rua, enquanto Breno dizia que aquilo não podia virar uma tradição e Banjo respondia que já tinha virado.
+O velho vinha atrás, apoiado no cajado, com o saco dos pães pendurado no braço. Bruno voltou a contar a história do dragão, inventando as partes que Pelan não tinha perguntado. Velho-Sábio ouviu até o menino dizer que havia montado na criatura e pediu, com toda a seriedade, que o deixasse terminar a história antes de inventar outra. Breno concordou imediatamente, o que só fez Bruno rir mais.
 
 A casa de Velho-Sábio apareceu depois da curva, com as janelas acesas e os arbustos do jardim tão cheios que dois ramos tinham avançado sobre o caminho de entrada. Bruno reconheceu uma pedra achatada perto da porta, onde deixara certa vez um sapato encharcado durante a chuva de flores. A pedra ainda estava lá. O sapato, felizmente, não.
 
@@ -650,7 +636,7 @@ Velho-Sábio olhou de um para o outro.
 
 O mentor apoiou a colher no prato. Não parecia zangado. Esperou até Bruno acabar de olhar para a mesa e erguer de novo a cabeça.
 
-— Você pode proteger seu irmão sem escolher o castigo por ele.
+— E você podia ter chamado um adulto, Bruno. Eu entendo que ficou bravo. Só não precisava machucar outro menino por isso.
 
 Bruno fez uma careta.
 
@@ -706,7 +692,7 @@ O jardim estava mais bonito do que lembrava. Uma fileira de flores pequenas se f
 
 — Eu consigo.
 
-Beatriz levantou a mão, e uma chama pequenina apareceu acima da ponta do indicador. A luz passou da mão dela para uma flor próxima, iluminando as pétalas por dentro sem tocá-las. Bruno parou na porta.
+Beatriz olhou por um instante para o anel. Então levantou a mão, devagar, até uma chama pequenina aparecer acima da ponta do indicador. A luz passou da mão dela para uma flor próxima, iluminando as pétalas por dentro sem tocá-las. Bruno parou na porta.
 
 — Tá tentando cozinhar o jardim?
 

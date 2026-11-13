@@ -4,7 +4,7 @@ Segurava o copo com as duas mãos, como quem esquenta os dedos, e olhava para a 
 
 Sob a palma de Bruno, uma casquinha branca crescia da borda do copo para o meio. Ele esperou até ela ficar do tamanho de uma moeda, olhou para os lados, enfiou o copo no micro-ondas e apertou trinta segundos. Depois ficou de costas para a mesa, de braços cruzados, assobiando.
 
-Breno chegou com seus papéis e seu lápis e se sentou na mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal do outro lado da mesa. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali.
+Breno chegou com seus papéis e seu lápis e se sentou na mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal do outro lado da mesa. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
 
 Banjo usava o moletom grosso de capuz, apesar do abafado da cozinha, e a barriga do moletom tinha um volume que não existia no ano anterior. De vez em quando o volume se mexia, e uma luz fraca escapava pela gola. Banjo empurrava a coisa para dentro com a palma, por cima do tecido, sem tirar os olhos do gibi.
 
@@ -108,7 +108,7 @@ Na porta, quando Frank a abriu, o moletom de Banjo deu um tranco. Uma luzinha es
 
 — Casa — disse Frank, baixinho, apontando para dentro. — Agora.
 
-Banjo subiu correndo, trancou Farol no quarto e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus.
+Banjo subiu correndo, acomodou Farol no fundo da mochila, por baixo de um casaco, e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus. Frank não percebeu que o petrisco continuava com ele.
 
 Saíram debaixo do guarda-chuva grande do tio, que não cobria ninguém inteiro, até o ponto do ônibus escolar. Foi só na esquina que Bruno enfiou a mão no bolso, procurou o discman e achou o bolso vazio.
 
@@ -502,6 +502,16 @@ Foram em fila debaixo da chuva. Bruno carregava o guarda-chuva pequeno aberto so
 
 — EU TAMBÉM TÔ COM FOME! — respondeu Banjo, e Breno bateu a mão na testa.
 
+Alguma coisa mexeu na gola do moletom de Banjo. Farol apareceu com a cabecinha de fora, olhando a chuva. Breno viu o brilho amarelo e parou na mesma hora.
+
+— Olha só quem resolveu ir pra escola! — disse Breno, apontando para o petrisco. — Banjo, volta pra casa e deixa o Farol lá.
+
+— Não! — Banjo puxou a gola para protegê-lo da chuva e depois acomodou Farol na mochila. — Ele vai ficar quietinho comigo.
+
+— Agora, Banjo! Corre! — insistiu Breno.
+
+— Não dá tempo, a gente vai perder o ônibus! — disse Bruno, segurando melhor o guarda-chuva sobre Beatriz.
+
 Foi perto da esquina da escola que Banjo ouviu um toque agudo no meio da chuva. Ele achou que era a campainha de uma bicicleta, mas não viu nenhuma passando. O som veio outra vez, seguido de uma pausa. Depois tocou de novo, do mesmo jeito. Banjo parou no meio da calçada para escutar melhor, e os irmãos só perceberam alguns passos adiante que ele tinha ficado para trás.
 
 — Tá tocando alguma coisa — disse Banjo, e ninguém ouviu.
@@ -532,7 +542,7 @@ Beatriz já estava olhando para o chão, na beira da calçada, onde a água da e
 
 — SERÁ QUE ESTAVA FALANDO DAQUELA POÇA?
 
-Os garotos olharam pra onde a menina olhava. Havia uma poça pequena a alguns metros deles, e algo estava estranho nela. O reflexo não era o do céu. Acima deles, o céu era de chumbo. Dentro da poça havia uma cidade de torres altas e curvas, enroladas em espiral, com jardins nos andares e árvores de folhas azuis, e fontes que flutuavam no ar entre elas. Caminhos de luz cruzavam a cidade, e veículos prateados, quase transparentes, deslizavam por eles sob um céu laranja e violeta, com faixas verdes, enormes, que se dobravam devagar como fitas de um vestido. Uma lua muito maior do que qualquer lua da Terra pendia na beirada da água, e entre as torres passava um bando de pássaros que deixavam rastros de luz, como cometas pequenos. Nenhuma daquelas cores estava no céu verdadeiro. Alguma coisa, dentro da poça, estava acesa.
+Os garotos olharam pra onde a menina olhava. Era a mesma poça grande que Beatriz tinha visto, e algo estava estranho nela. O reflexo não era o do céu. Acima deles, o céu era de chumbo. Dentro da poça havia uma cidade de torres altas e curvas, enroladas em espiral, com jardins nos andares e árvores de folhas azuis, e fontes que flutuavam no ar entre elas. Caminhos de luz cruzavam a cidade, e veículos prateados, quase transparentes, deslizavam por eles sob um céu laranja e violeta, com faixas verdes, enormes, que se dobravam devagar como fitas de um vestido. Uma lua muito maior do que qualquer lua da Terra pendia na beirada da água, e entre as torres passava um bando de pássaros que deixavam rastros de luz, como cometas pequenos. Nenhuma daquelas cores estava no céu verdadeiro. Alguma coisa, dentro da poça, estava acesa.
 
 — É Tayo — disse Beatriz, sem gritar, e ninguém ouviu.
 
@@ -540,7 +550,7 @@ Os quatro se aproximaram, de mochilas e cabelos escorrendo, olhando para uma coi
 
 O zíper da mochila de Banjo se abriu sozinho um palmo, e Farol espiou para fora, aceso como não ficava havia um ano, com a luz tremendo na direção da poça.
 
-— Eu deixei você no quarto! — sussurrou Banjo. Farol não deu a menor bola.
+— Fica quietinho aí — sussurrou Banjo. Farol não deu a menor bola.
 
 Bruno puxou um sorriso de lado e se abaixou perto da poça. Então, sem avisar, a poça acendeu e água o engoliu de cabeça. Bruno deu um grito que virou gargalhada, e o resto dele sumiu como um fio de linha puxado de uma agulha. Beatriz agarrou a perna dele no último instante e foi levada junto. Breno se atirou para segurar os dois, com o braço estendido, e a poça o engoliu um dos braços.
 
@@ -550,7 +560,7 @@ Banjo olhou para a esquina vazia. O orelhão balançava no fio, pingando. Depois
 
 Não houve respingo. A água o recebeu com a firmeza mole de uma gelatina, e ele afundou em câmera lenta, primeiro os tornozelos, depois os joelhos, e as gotas de chuva em volta ficaram paradas no ar. Cada uma se abriu, uma por uma, numa florzinha de luz, e Banjo olhou para cima e viu centenas delas, como um céu de lanternas, descendo até onde ele alcançava. A voz da chuva chegou muito esticada, comprida, e virou uma fita roxa que passou por cima do ombro dele. O som ficou com gosto de laranja. Pelo zíper entreaberto da mochila, a luz de Farol brilhava mais forte que nunca. Depois, o toque do orelhão entrou no corpo de Banjo pelos ossos, e ele viu o som: dourado, em círculos, girando em torno dos irmãos.
 
-Estava sendo puxado para baixo e para cima ao mesmo tempo. Olhou para os lados e viu Bruno, gritando uma coisa que não tinha som, rindo com a boca inteira, e atrás dele havia cinco, sete, vinte Brunos de gelo e riso, empilhados no ar como cartas de um baralho que alguém espalhava. Breno flutuava de olhos fechados, com a mão apertada na de Beatriz, e o corpo dele, solto do peso, subia e descia como uma folha. Beatriz abriu os olhos e soltou uma risada que saiu dela em faíscas pequenas, cor de brasa, e pousou nas mãos de todos.
+Estava sendo puxado para baixo e para cima ao mesmo tempo. O corredor de luz se abriu por um instante para um mar suspenso, com peixes nadando acima de ondas que não caíam. Antes que Banjo entendesse onde estava, atravessaram outro lugar: ruas pendiam de um céu escuro, e a luz vinha do chão, iluminando os pés por baixo. Cada mudança trazia uma nota diferente, algumas graves, outras tão agudas que ele as sentia nos dentes. Os lugares sumiam antes que conseguisse tocá-los. Olhou para os lados e viu Bruno, gritando uma coisa que não tinha som, rindo com a boca inteira, e atrás dele havia cinco, sete, vinte Brunos de gelo e riso, empilhados no ar como cartas de um baralho que alguém espalhava. Breno flutuava de olhos fechados, com a mão apertada na de Beatriz, e o corpo dele, solto do peso, subia e descia como uma folha. Beatriz abriu os olhos e soltou uma risada que saiu dela em faíscas pequenas, cor de brasa, e pousou nas mãos de todos.
 
 Então ele sentiu o poder voltar.
 
