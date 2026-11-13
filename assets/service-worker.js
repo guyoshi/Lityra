@@ -1,7 +1,7 @@
 // Cache leve: guarda a casca do app pra abrir offline/instantâneo, e
 // guarda em cache (sem travar a rede) os textos e áudios de capítulo
 // conforme você vai abrindo — assim, na segunda vez, funcionam offline.
-const SHELL_CACHE = "lityra-shell-v121";
+const SHELL_CACHE = "lityra-shell-v122";
 const CONTENT_CACHE = "lityra-content-v3";
 const SHELL_FILES = [
   "./",
@@ -14,8 +14,6 @@ const SHELL_FILES = [
   "assets/admin-sync-v1.css",
   "assets/chapter-editor-v1.js",
   "assets/chapter-editor-v1.css",
-  "assets/book-fx-v1.js",
-  "assets/book-fx-v1.css",
   "assets/feedback-core-v8.js",
   "assets/beta-diagnostics-v1.js",
   "assets/beta-analytics-v1.js",
