@@ -134,7 +134,7 @@ Beatriz foi, aliviada de sair da fila. A sala de adereços ficava depois de uma 
 
 Foi aí que sentiu o calor.
 
-Começou no meio do peito, como uma panela esquentando em fogo baixo, e subiu para os ombros, para o pescoço e para as mãos. As palmas dela formigaram. A caixa de papelão sob os seus dedos escureceu num círculo do tamanho de uma moeda, depois de uma mão aberta, e cheirou a pão esquecido no forno.
+Começou no meio do peito, como uma panela esquentando em fogo baixo, e subiu para os ombros, para o pescoço e para as mãos. Beatriz apertou o anel com o polegar. Continuava usando, como Velho-Sábio pedira. Na Presália, quando o tirara para salvar Bruno, o fogo derrubara parte do teto da caverna, e Breno precisara carregá-la para fora. Depois, até uma chama pequena crescera sem que ela conseguisse apagá-la de imediato, e outra queimara a manga de Banjo. Beatriz não queria que aquilo acontecesse outra vez. Tentou respirar, mas as palmas formigaram. A caixa de papelão sob os seus dedos escureceu num círculo do tamanho de uma moeda, depois de uma mão aberta, e cheirou a pão esquecido no forno.
 
 — Não — disse Beatriz, baixinho. — Para, para, para.
 
@@ -502,11 +502,11 @@ Foram em fila debaixo da chuva. Bruno carregava o guarda-chuva pequeno aberto so
 
 — EU TAMBÉM TÔ COM FOME! — respondeu Banjo, e Breno bateu a mão na testa.
 
-Foi perto da esquina da escola que Banjo ouviu um toque agudo no meio da chuva. Achou que fosse a campainha de uma bicicleta, mas não viu nenhuma passando. O som veio outra vez, seguido de uma pausa. Depois tocou de novo, do mesmo jeito. Banjo parou no meio da calçada para escutar melhor, e os irmãos só perceberam alguns passos adiante que ele tinha ficado para trás.
+Foi perto da esquina da escola que Banjo ouviu um toque agudo no meio da chuva. Ele achou que era a campainha de uma bicicleta, mas não viu nenhuma passando. O som veio outra vez, seguido de uma pausa. Depois tocou de novo, do mesmo jeito. Banjo parou no meio da calçada para escutar melhor, e os irmãos só perceberam alguns passos adiante que ele tinha ficado para trás.
 
 — Tá tocando alguma coisa — disse Banjo, e ninguém ouviu.
 
-Bruno girou nos calcanhares com o guarda-chuva pequeno, procurando o som como quem procura o despertador pelo toque. Breno ergueu o rosto, tentando descobrir de que lado vinha. Beatriz puxou a manga de Banjo e apontou com o queixo para a esquina, onde a cortina de chuva se abria um pouco. Lá estava, debaixo de uma cobertura de plástico amarelado que pingava pelas bordas: o orelhão da esquina, de placa descascada, com o fone tremendo no gancho a cada toque. Orelhão não toca, e aquele tocava. Breno olhou para os irmãos, deu de ombros, fechou o guarda-chuva e foi até lá, com a água escorrendo nas costas.
+Bruno girou nos calcanhares com o guarda-chuva pequeno, procurando o som como quem procura o despertador pelo toque. Breno ergueu o rosto, tentando descobrir de que lado vinha. Beatriz puxou a manga de Banjo e apontou com o queixo para a esquina, onde a cortina de chuva se abria um pouco. Lá estava, debaixo de uma cobertura de plástico amarelado que pingava pelas bordas: o orelhão da esquina, de placa descascada, com o fone tremendo no gancho a cada toque. Breno olhou para os irmãos, deu de ombros, fechou o guarda-chuva e foi até lá, com a água escorrendo nas costas.
 
 — ALÔ? — gritou, de encontro ao fone. — ALÔ? NÃO TÔ OUVINDO!
 
