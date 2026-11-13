@@ -1,5 +1,3 @@
-
-
 — Eu te amo — foi o que escapou da minha boca.
 
 Só percebi o que tinha dito depois que as palavras já estavam soltas, voando entre nós e o lago. Kelly se sentou e me olhou com estranheza, como se eu tivesse soltado um palavrão na sala de aula.
@@ -116,7 +114,7 @@ O corpo dele se dissolveu no ar, me deixando sozinho outra vez na floresta. Ante
 
 — Impeça. Não deixe o Agouro ficar com ela. Senão… será o início do fim.
 
-Piscei, e já não havia ninguém. As palavras ficaram ecoando em mim até o momento em que fomos resgatar Kelly na casa.
+Pisquei, e já não havia ninguém. As palavras ficaram ecoando em mim até o momento em que fomos resgatar Kelly na casa.
 
 Eu não podia deixar o Agouro conseguir o que queria. Na minha cabeça, o plano era simples: salvar Kelly, destruir o demônio. A vida real não costuma respeitar planos simples.
 
@@ -395,4 +393,3 @@ Abri os olhos e os meus se encontraram com os dela pela última vez. Coloquei o 
 Sem dar tempo para mim mesmo de pensar de novo, tirei a arma da minha própria cabeça, virei o braço e mirei no peito de Kelly.
 
 E atirei.
-
