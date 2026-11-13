@@ -278,8 +278,6 @@ Sorri de leve, me levantei e saí da pracinha. Junior ficou no banco, com o diá
 
 Quando olhei para trás, ele ainda estava ali, de cabeça baixa. Um brilho avermelhado atravessou por um instante a lente dos seus óculos. Pisquei, e o reflexo já tinha sumido. Continuei andando.
 
----
-
 **Junior**
 
 Nos dias seguintes, voltei àquele caderno todas as noites. Não era como escrever meus romances. Neles, eu sabia o que os personagens precisavam fazer para chegar ao final. Naquele, eu sabia o que tinha acontecido e ainda assim não entendia como deixei chegar tão longe.
