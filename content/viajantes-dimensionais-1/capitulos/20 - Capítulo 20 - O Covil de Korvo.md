@@ -306,7 +306,19 @@ Bruno ficou muito parado.
 
 — Foi o que eu vi no meu cristal, na cela.
 
-— Foi mentira, Bruno! — Beatriz segurou o braço dele, e as lágrimas escorreram. — Eu pensei que, se ele achasse que você não valia nada, não iria atrás de você. Eu queria que você ficasse fora disso. Foi só para te proteger.
+Beatriz ergueu a cabeça, surpresa.
+
+— Você viu aquela conversa?
+
+— Vi. — Bruno desviou os olhos. — Achei que era mesmo o que você pensava de mim.
+
+— Não! — Beatriz segurou o braço dele. — Ele queria saber de vocês três. Eu fiquei com medo de contar o que vocês sabiam fazer, então falei daquele jeito. Pensei que, se ele achasse que vocês não eram perigosos, talvez deixasse todo mundo em paz.
+
+— E você não pensa aquilo de mim?
+
+— Claro que não, bobo! — Ela enxugou as lágrimas com a manga. — Você faz piada de tudo, isso é verdade. Mas a gente conta com você. Eu menti sobre todos vocês para ele não querer ir atrás de nenhum.
+
+Breno olhou para Bruno. Na cela, o irmão não contara o que tinha visto, e depois saíra escondido. Não disse nada.
 
 Bruno respirou fundo, devagar, uma vez, duas. Depois sorriu, e foi um sorriso pequeno, mas verdadeiro.
 
