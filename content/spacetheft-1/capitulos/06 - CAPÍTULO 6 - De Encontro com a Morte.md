@@ -268,7 +268,7 @@ Vek não iria me ouvir, eu sabia. Mas eu precisava alertá-lo disso, caso não s
 
 — DEIXE-O, Vek — interveio Jelles, descartando sua própria arma ao chão.
 
-Vek se afastou com relutância, e eu ataquei Jelles com toda a fúria que acumulara. Cada soco que tentei acertar em sua face era frustração pura, mas Jelles, com a experiência de incontáveis batalhas, reagia com destreza inumana. O choque inicial nos levou ao chão, numa dança caótica de golpes e esquivas.
+Vek se afastou com relutância, e eu ataquei Jelles com toda a fúria que acumulara. Cada soco que tentei acertar em sua face era frustração pura, mas o capitão reagia com a destreza de quem passara a vida lutando com armas ou sem elas. Tinha celebrado o terceiro vigésimo aniversário e ainda se movia mais depressa que muitos Dales jovens. Eu sabia disso dos treinos. Esqueci no instante em que o alcancei. O choque inicial nos levou ao chão, numa disputa caótica de golpes e esquivas.
 
 Jelles me lançou ao chão com força descomunal e acertou meu estômago com um soco que roubou o ar dos pulmões. A dor só alimentou minha determinação: segurei o braço dele, inverti a posição e devolvi o soco com juros. Jelles recuou, o lábio sangrando.
 

@@ -1,14 +1,14 @@
 A decolagem foi mais rápida que um piscar de olhos e, em meros ectons, o manto estrelado se abriu diante de nós, revelando a anã vermelha que dominava o sistema. No vácuo, avistei a Lebargan, aparecendo como uma ex que você não superou: linda, ameaçadora e prestes a destruir sua paz de novo. Invisível a olho nu, ela devorava a luz ao redor e virava um buraco nas estrelas.
 
-Conforme nos aproximávamos da barreira temporal quântica, a nave reduziu a velocidade. O laser de identificação da Lebargan, invisível no vácuo até tocar o vidro, pintou o interior da cabine de vermelho, prenunciando a chegada, e a Lebargan se revelou em toda a sua glória.
+Conforme nos aproximávamos da barreira temporal quântica, a nave reduziu a velocidade. O laser de identificação da Lebargan, invisível no vácuo até tocar o vidro, pintou o interior da cabine de vermelho. A nave se revelou em toda a sua glória. Diziam que valia uma frota inteira. Eu não apostaria contra ela.
 
-“Seja bem-vindo à Lebargan”, eu poderia ter dito, mas a saudação não valia para todos. Aquilo era um paraíso só para quem se atrevesse a reclamá-lo. A nave parecia um navio antigo magnificado, com torres que subiam e se estendiam para os lados, de onde vigias escrutinavam o cosmos com telescópios de potência inigualável.
+“Seja bem-vindo à Lebargan”, eu poderia ter dito, mas a saudação não valia para todos. Os veteranos juravam que aquela fortaleza existia desde quando Trimonius ainda aprendia a construir naves. Olhando o casco, dava para acreditar. Aquilo era um paraíso só para quem se atrevesse a reclamá-lo. A nave parecia um navio antigo magnificado, com torres que subiam e se estendiam para os lados, de onde vigias escrutinavam o cosmos com telescópios de potência inigualável.
 
 Um espetáculo de luzes dançava em cada recanto, e as velas solares bebiam a radiação estelar e a transformavam em energia. Na proa, um holograma do emblema pirata, um crânio ladeado por armas entrecruzadas, brilhava com orgulho.
 
 A nave era um microcosmo de delícias: piscinas termais, gastronomia que satisfazia os paladares mais exigentes, música que convidava ao movimento e liberdade para os prazeres carnais, tudo regado a rum antigo. Em troca, tínhamos as missões esporádicas, que na verdade eram saques brutais.
 
-Para a tripulação, a lealdade a Jelles era, em grande parte, uma obediência à capitã Nastácia, de quem ele havia herdado o comando em sua ausência.
+Para boa parte da tripulação, obedecer a Jelles ainda era obedecer à capitã Nastácia. Ela comandara a Lebargan até um ataque à nave deixá-la em coma. Desde então, Jelles ocupava seu lugar. Ninguém sabia quando ela voltaria, mas ele já se sentava como se o lugar fosse seu.
 
 No perímetro, Dales mais velhos orientavam os jovens na arte da sobrevivência e da estratégia espacial. E lá estava ele, o Capitão Jelles, uma silhueta marcante contra as estrelas, observando minha chegada. Com um aceno, levei a nave à doca da popa, onde o chão se partiu para acolher meu retorno. Pousei com a dignidade dos conquistadores e desafivelei os cintos, ansioso pelo reencontro.
 

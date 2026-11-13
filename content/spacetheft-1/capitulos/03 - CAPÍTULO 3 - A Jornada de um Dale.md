@@ -1,4 +1,4 @@
-A Lebargan se divide em duas seções principais, a origem leste e a origem oeste. O destino me reservou a ala oeste, junto a Amanda e Vek. Genrir e Eric ficaram na leste. Os dormitórios nos são atribuídos no instante em que deixamos a Ala 66, nosso rito de passagem de uma infância isolada para a fraternidade dos Dales.
+A Lebargan se divide em duas seções principais, a origem leste e a origem oeste. O destino me reservou a ala oeste, junto a Amanda e Vek. Genrir e Eric ficaram na leste. Os dormitórios nos são atribuídos no instante em que deixamos a Ala 66. A maioria de nós foi recolhida ainda criança nos mundos de onde viemos. Disseram que eu viera de um planeta esquecido do braço menor da galáxia. Do planeta, mal me lembrava; da ala, lembrava cada parede.
 
 Sim, até deixarmos de ser pirralhos não temos contato com nenhum Dale: vivemos presos numa sala, estudando e treinando para virar guerreiros. Mas depois que você é solto, meu amigo, é aí que a vida começa. Lembro da euforia de ver o universo lá fora pela primeira vez: as estrelas, as nebulosas, a dobra espacial, a luz azulada à frente e um rastro rubro ficando para trás.
 
@@ -194,11 +194,11 @@ Jelles guardou a chave nas vestes e se afastou, deixando-me sozinho sob as estre
 
 — Somente se a capitã não despertar, e Jelles morrer — eu disse, minimizando a possibilidade.
 
-— Pensa, é só matar o Jelles. Com a Nastácia basta desligar os equipamentos — disse Vek, com cara de bobo.
+— Pensa, é só matar o Jelles. Com a Nastácia basta desligar os equipamentos — disse Vek, com um sorriso torto. — Eu vi a câmara de cura. Não deve ser difícil encontrar o interruptor.
 
 — Cale a boca Vek — disse Amanda — se alguém nos ouve falando isso, somos retirados.
 
-Num canto isolado do dormitório, baixamos as vozes.
+Vek acompanhara uma inspeção à enfermaria blindada no núcleo da Lebargan, depois do ataque. Vira Nastácia imóvel no leito de regeneração, as queimaduras do lado direito do rosto ainda expostas, ligada a tubos e aparelhos que faziam por ela até o esforço de respirar. Quando nos contara, não fizera uma única piada. Agora, num canto isolado do dormitório, baixamos as vozes.
 
 — Olha Jasmey, de todas as coisas idiotas que você já fez… essa foi a pior, cara — Amanda reprovou.
 
