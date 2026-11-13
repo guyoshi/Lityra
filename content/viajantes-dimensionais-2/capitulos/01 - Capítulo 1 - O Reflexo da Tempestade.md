@@ -502,7 +502,7 @@ Foram em fila debaixo da chuva. Bruno carregava o guarda-chuva pequeno aberto so
 
 — EU TAMBÉM TÔ COM FOME! — respondeu Banjo, e Breno bateu a mão na testa.
 
-Foi na esquina da rua da escola que Banjo ouviu. Achou que era trovão, mas trovão rola, e aquilo não rolava. Era um toque agudo e limpo, um trinado seco que se repetia em intervalos certos por baixo da chuva, claro demais para aquele dia. Banjo o sentiu por dentro dos ossos antes de ouvi-lo direito. Parou no meio da calçada, e os outros foram parando atrás dele, um por um, com a água escorrendo dos capuzes.
+Foi perto da esquina da escola que Banjo ouviu um toque agudo no meio da chuva. Achou que fosse a campainha de uma bicicleta, mas não viu nenhuma passando. O som veio outra vez, seguido de uma pausa. Depois tocou de novo, do mesmo jeito. Banjo parou no meio da calçada para escutar melhor, e os irmãos só perceberam alguns passos adiante que ele tinha ficado para trás.
 
 — Tá tocando alguma coisa — disse Banjo, e ninguém ouviu.
 
