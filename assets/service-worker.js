@@ -1,7 +1,7 @@
 // Cache leve: guarda a casca do app pra abrir offline/instantâneo, e
 // guarda em cache (sem travar a rede) os textos e áudios de capítulo
 // conforme você vai abrindo — assim, na segunda vez, funcionam offline.
-const SHELL_CACHE = "lityra-shell-v122";
+const SHELL_CACHE = "lityra-shell-v123";
 const CONTENT_CACHE = "lityra-content-v3";
 const SHELL_FILES = [
   "./",
