@@ -232,7 +232,7 @@ Melissa nada disse, apenas olhou pra amiga, que de cabeça baixa disse: 
 
 Melissa suspirou. 
 
-— Foi no auditório — disse ela, falando a verdade. — Hoje mais cedo, no ensaio. Ela pôs fogo na cortina.
+— Foi na sala de adereços, atrás do palco — disse Melissa. — A Bia perdeu o controle do fogo. Quando cheguei, ele já tinha alcançado os programas e a cortina.
 
 Beatriz não negou. Olhou para o chão e apertou os lábios.
 
