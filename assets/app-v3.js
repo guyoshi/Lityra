@@ -80,7 +80,7 @@ function refreshedAssetUrl(src){
 }
 function coverUrl(bookId){
   const book=bookArtMeta(bookId);
-  return refreshedAssetUrl(book.cover || ART_BASE + bookId + "/cover.webp");
+  return refreshedAssetUrl(book.cover || (book.artBase ? book.artBase + "cover.webp" : ART_BASE + bookId + "/cover.webp"));
 }
 function chapterArtUrl(bookId,n){
   const book=bookArtMeta(bookId);
@@ -441,9 +441,18 @@ async function openChapter(idx){
   if(prefGet(HIDE_ART_KEY,"0") === "1"){
     art.removeAttribute("src");
   }else{
-    art.onerror = () => { art.hidden = true; };
+    const chapterImage=chapterArtUrl(book.id,ch.n);
+    const coverImage=coverUrl(book.id);
     art.onload = () => { art.hidden = false; };
-    const imageSrc=chapterArtUrl(book.id,ch.n);
+    art.onerror = () => {
+      // Se a arte própria não existir ou falhar, mostrar a capa no mesmo recorte 16:9.
+      if(coverImage && art.getAttribute("src") !== coverImage){
+        art.src = coverImage;
+      }else{
+        art.hidden = true;
+      }
+    };
+    const imageSrc=chapterImage || coverImage;
     if(imageSrc)art.src=imageSrc;
     else art.removeAttribute("src");
   }
