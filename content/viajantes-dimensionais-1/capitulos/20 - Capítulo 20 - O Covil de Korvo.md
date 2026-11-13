@@ -316,7 +316,7 @@ Beatriz ergueu a cabeça, surpresa.
 
 — E você não pensa aquilo de mim?
 
-— Claro que não, bobo! — Ela enxugou as lágrimas com a manga. — Você faz piada de tudo, isso é verdade. Mas a gente conta com você. Eu menti sobre todos vocês para ele não querer ir atrás de nenhum.
+— Claro que não, bobo! — Ela enxugou as lágrimas com a manga. — Você faz piada de tudo, isso é verdade. Mas a gente conta com você. Eu só queria proteger todos nós.
 
 Breno olhou para Bruno. Na cela, o irmão não contara o que tinha visto, e depois saíra escondido. Não disse nada.
 
@@ -418,7 +418,7 @@ Breno sentiu isso no estômago. Nada do que treinaram em Tayo, nem do que fizera
 
 As palavras bateram em Breno com a força de um soco. Ele abriu a boca, e nada saiu.
 
-— Eu vi o que os seguidores dele fizeram — disse, por fim, a voz quase rouca. — Eles destruíram Pinesoto, Bia. Mataram o Grande Pai. Isso não é liberdade.
+— Eu vi o que os seguidores dele fizeram — disse, por fim, a voz quase rouca. — Destruíram uma cidade no pântano, Bia. Mataram o líder enquanto ele tentava salvar seu povo. Isso não é liberdade.
 
 Bruno se aproximou da irmã e se ajoelhou diante dela, segurando as mãos dela entre as suas. Pela primeira vez em muito tempo, ele não tinha nenhuma piada pronta.
 
@@ -438,7 +438,7 @@ Breno ergueu a cabeça.
 
 Korvo ficou imóvel por um instante.
 
-— Corajoso. E insensato. — Caminhou até eles, com as mãos atrás das costas. — Muitos me enfrentaram antes de você, garoto. Alguns gritaram. Outros imploraram. Todos eles, no fim, desapareceram. — O sorriso dele foi lento. — Eu não vou obrigá-los a nada. Vou propor um desafio. Um duelo. Provem que merecem viver.
+— Corajoso. E insensato. — Caminhou até eles, com as mãos atrás das costas. — Muitos já me disseram não, garoto. Alguns gritaram. Outros imploraram. Todos eles, no fim, desapareceram. — O sorriso dele foi lento. — Eu não vou obrigá-los a nada. Vou propor um desafio. Um duelo. Provem que merecem viver.
 
 — Isso é entre você e eu — disse Breno, dando um passo à frente. — Você não encosta nos meus irmãos.
 
