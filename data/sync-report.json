@@ -1,10 +1,10 @@
 {
-  "generatedAt": "2026-11-13T22:17:44Z",
+  "generatedAt": "2026-11-13T22:27:30Z",
   "sourceRepository": "guyoshi/dimensoesinfinitas",
-  "sourceCommit": "21371bc8af464f94e30078c8967ec003049458d2",
+  "sourceCommit": "d5b999ef0a53abb0ca1b8f0e7c16a0592a6133a4",
   "status": "warning",
   "summary": {
-    "warnings": 24
+    "warnings": 23
   },
   "issues": [
     {
@@ -96,12 +96,6 @@
       "message": "Nenhum capítulo Markdown válido encontrado; livro ignorado.",
       "bookId": "spacetheft-6",
       "item": "Spacetheft/6 - Livro 6/00 - Texto/capitulos"
-    },
-    {
-      "area": "chapter",
-      "message": "Capítulo listado no livro.json não foi encontrado; item ignorado.",
-      "bookId": "viajantes-dimensionais-2",
-      "item": "02 - Capítulo 2 - De Volta a Brisália.md"
     },
     {
       "area": "book",
