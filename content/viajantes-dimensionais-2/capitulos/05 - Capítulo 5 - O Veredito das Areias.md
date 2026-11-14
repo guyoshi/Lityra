@@ -247,7 +247,7 @@ O primeiro ponto de água era um poço baixo de pedra, com uma lona esticada em 
 
 Amadou fechou a boca com tanta força que os dentes bateram. Bruno olhou para o céu inexistente, bem sério, e Beatriz percebeu que ele segurava a risada com uma mão por baixo da outra e que o interesse real dele estava na jaqueta azul. Da jaqueta ninguém falou mais.
 
-Breno e Ferris chegaram por último, cada um de um lado do véu, e sentaram um de cada ponta do banco. Ferris tinha o cabelo claro grudado na testa e bebia devagar, de olho nas dunas, e Breno olhou para Beatriz com o cenho franzido de sempre.
+Breno e Ferris chegaram por último, cada um de um lado do véu, e sentaram um de cada ponta do banco. Ferris tinha o cabelo ruivo grudado na testa e bebia devagar, de olho nas dunas, e Breno olhou para Beatriz com o cenho franzido de sempre.
 
 — Você está pálida — disse Breno. — Está tomando água direito? Dois goles de cada vez, não um só grande, que o calor aqui é de dentro. O anel está esquentando?
 
@@ -332,7 +332,7 @@ A luz branca da sala ficou amarela devagar, e Nayra parou no meio de um passo, c
 
 — Está.
 
-A parede de areia apareceu no fim do corredor, da altura de duas casas, chiando como chuva grossa numa lona. Banjo agarrou o pulso de Nayra e correu. Ela correu junto, e quando a areia os alcançou, abriu os braços e puxou. O ar à volta deles virou um funil, e a areia rodou em torno e caiu longe, deixando um espaço do tamanho de um quarto onde dava para respirar. Os véus se rasgaram nas laterais, e não havia ninguém do outro lado. Só vento, e longe, entre dois golpes de areia, uma silhueta de cabelo claro caminhando contra a tempestade sem inclinar o corpo. Banjo achou que fosse Ferris, e a silhueta sumiu.
+A parede de areia apareceu no fim do corredor, da altura de duas casas, chiando como chuva grossa numa lona. Banjo agarrou o pulso de Nayra e correu. Ela correu junto, e quando a areia os alcançou, abriu os braços e puxou. O ar à volta deles virou um funil, e a areia rodou em torno e caiu longe, deixando um espaço do tamanho de um quarto onde dava para respirar. Os véus se rasgaram nas laterais, e não havia ninguém do outro lado. Só vento, e longe, entre dois golpes de areia, uma silhueta de cabelo ruivo caminhando contra a tempestade sem inclinar o corpo. Banjo achou que fosse Ferris, e a silhueta sumiu.
 
 — Eu seguro isso por uns quatro minutos! — gritou Nayra. — Depois o meu braço acaba, e eu não sei dizer o que acontece com o resto!
 

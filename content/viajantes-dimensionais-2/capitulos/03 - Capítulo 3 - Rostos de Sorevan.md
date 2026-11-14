@@ -54,7 +54,7 @@ Amadou Diop era alto e magro, de pele escura e cabelo cortado rente, e gesticula
 
 — Então são as verdadeiras.
 
-Amadou bateu a palma na mesa, e Bruno riu junto. Banjo viu o irmão relaxar os ombros pela primeira vez desde a manhã. Em dois minutos os dois já tinham combinado uma aposta de quem congelava o suco mais rápido, desde que Eshley não olhasse, e Breno suspirou do jeito de quem prevê o fim de alguma coisa.
+Amadou bateu a palma na mesa, e Bruno riu junto. Banjo viu o irmão relaxar os ombros pela primeira vez desde a manhã. Em dois minutos os dois já tinham combinado uma aposta de quem acertava primeiro a temperatura do suco, Bruno gelando e Amadou esquentando com uma faísca, desde que Eshley não olhasse, e Breno suspirou do jeito de quem prevê o fim de alguma coisa.
 
 — Você teve notícia da Maria? — perguntou Beatriz.
 
@@ -212,11 +212,11 @@ Erick enxugou os olhos com o dorso da mão.
 
 — Dura até o sino do meio-dia, menininhos. Até lá, o Bruno é bonzinho e o Banjo é metido. Até que melhorou.
 
-Bruno avançou. A palma dele já estava branca, com geada nos dedos. Erick acendeu uma chama na mão, um pavio vermelho que cuspiu faísca no piso, e Nicolas ergueu o braço, e a água de um vaso ao lado dele começou a girar. Banjo abriu os dedos por reflexo, e o vaso tremeu no ar, a meio caminho do chão, sem saber para onde ir.
+Bruno avançou. A palma dele já estava branca, com geada nos dedos. Erick acendeu uma chama na mão, um pavio vermelho que cuspiu faísca no piso, e Nicolas ergueu o braço, e a água de um vaso ao lado dele começou a endurecer em espirais de gelo. Banjo abriu os dedos por reflexo, e o vaso tremeu no ar, a meio caminho do chão, sem saber para onde ir.
 
 Foi então que ouviu o som, um estalo seco e repetido, como contas de madeira escorregando num fio. Vinha do fundo do corredor, atrás dos gêmeos, sem pressa nenhuma.
 
-Os gêmeos pararam. Erick fechou o punho sobre a chama, e Nicolas deixou a água cair no vaso, sem barulho.
+Os gêmeos pararam. Erick fechou o punho sobre a chama, e Nicolas deixou as espirais de gelo se desmancharem no vaso, sem barulho.
 
 O homem que se aproximava era alto, de ombros largos, passando dos cinquenta, e usava um manto cinza-chumbo bordado nas mangas com fio de cobre. A barba curta era grisalha como geada em pedra. Pendia do cinto dele uma tábua estreita de contas coloridas, que estalavam a cada passo, e ele a carregava do jeito que outros carregam um relógio. Os olhos eram escuros e muito calmos.
 

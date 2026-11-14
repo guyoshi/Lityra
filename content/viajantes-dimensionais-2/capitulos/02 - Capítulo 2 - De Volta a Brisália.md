@@ -520,27 +520,27 @@ Ele se virou.
 
 — O quê? Vai reclamar que eu entrei com o sapato molhado?
 
-— A toalha azul de que você gostava continua no armário à esquerda do quarto. E guardei a tua coleção de pedras na segunda gaveta, onde ninguém mexeria.
+— A toalha azul de que você gostava continua no armário à esquerda do quarto. E a sua coleção de pedras, na segunda gaveta, está marcada no registro da casa como "não jogar fora", onde ninguém mexeria.
 
 Bruno ficou parado, olhando para a tela.
 
-— Você guardou?
+— Você marcou?
 
 — Você disse que não queria que ninguém as jogasse fora.
 
 — Eu disse isso faz um ano.
 
-— Eu sei — disse Kali. — Mas você disse com tanta convicção que eu achei prudente guardar, caso mudasse de ideia sobre a segunda gaveta.
+— Eu sei — disse Kali. — Mas você disse com tanta convicção que eu achei prudente manter a marcação, caso mudasse de ideia sobre a segunda gaveta.
 
 Uma pequena linha luminosa se formou na borda da tela, sinal de que Kali esperava resposta. Bruno coçou a nuca e desviou os olhos para os irmãos, que fingiam estar ocupados com as mochilas.
 
 — Valeu, Kali. Eu achei que você ia jogar fora, porque eu nunca arrumei nada, e as pedras eram... enfim, valeu. É sério.
 
-— De nada, Bruno. Se quiser, eu também guardei a sua meia furada do lado esquerdo, que você deixou embaixo da cama.
+— De nada, Bruno. Se quiser, a sua meia furada do lado esquerdo também está no registro, embaixo da cama, na categoria "objetos que ninguém quer ver de perto".
 
 — A toalha azul continua minha, viu? Eu quero deixar registrado, porque o Banjo sempre tenta pegar quando eu não estou olhando.
 
-— Nunca foi de mais ninguém — respondeu Kali. — Eu até apaguei as etiquetas dos outros quartos, para ninguém tentar mudar isso.
+— Nunca foi de mais ninguém — respondeu Kali. — No registro da casa ela está com o seu nome, e eu avisaria o Velho-Sábio se alguém tentasse mudar isso.
 
 Ele subiu antes que Eshley, Shirley ou qualquer outra pessoa pudesse aparecer para testemunhar aquele momento.
 

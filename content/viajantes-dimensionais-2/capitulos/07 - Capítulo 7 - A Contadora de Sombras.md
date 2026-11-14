@@ -1,6 +1,6 @@
 A primeira pétala bateu na janela da cozinha às sete e dez da manhã de quarta-feira, e Beatriz largou a trança no meio.
 
-— Estão começando — disse a tela de Kali, na parede ao lado do fogão. — Eu avisei ao Velho-Sábio que a nuvem ia fechar hoje, e ele me respondeu que nuvem não fecha, abre. Não adianta discutir com quem tem razão de manhã cedo e de estômago cheio. Você parou no meio, Beatriz. Se soltar, desmancha.
+— Estão começando — disse a tela flutuante de Kali, parada no ar ao lado do fogão. — Eu avisei ao Velho-Sábio que a nuvem ia fechar hoje, e ele me respondeu que nuvem não fecha, abre. Não adianta discutir com quem tem razão de manhã cedo e de estômago cheio. Você parou no meio, Beatriz. Se soltar, desmancha.
 
 — Eu sei. Se desmancha, eu começo de novo, e aí o café esfria, e aí o Bruno come a minha torrada.
 
@@ -34,7 +34,7 @@ Lá fora, as pétalas já cobriam o vidro. Eram flores inteiras, do tamanho de u
 
 — Quanto tempo dura isso? — perguntou ela.
 
-— Hoje inteiro, mais ou menos. A chuva de flores é a mais preguiçosa de Tayo, porque as nuvens vêm carregadas e não têm pressa de soltar. — A tela esperou Beatriz dar o último nó. — Pronto. Mexa a cabeça, vê se ficou bom.
+— O dia todo, mais ou menos. A chuva de flores é a mais preguiçosa de Tayo, porque as nuvens vêm carregadas e não têm pressa de soltar. — A tela esperou Beatriz dar o último nó. — Pronto. Mexa a cabeça, vê se ficou bom.
 
 Beatriz mexeu a cabeça para um lado, para o outro, para trás. A trança acompanhou sem puxar.
 
@@ -56,15 +56,13 @@ A casa acordou em ordem de barulho. Primeiro o de Átila, que desceu a escada co
 
 — Acho que não era o gosto dele, tipo, cada um tem o seu. — Banjo sentou e pegou uma torrada. — Ele me olhou no final. Eu fiquei com vontade de dar o meu pão, mas o Farol ficou nervoso.
 
-— Quantas patinhas? Eu preciso saber se as da frente contam como mão ou como pé, porque isso muda tudo.
+— Você chegou perto dele? — Beatriz largou a colher. — A gente não sabe o que esse bicho faz quando alguém se aproxima, Banjo. Pode morder, pode ser peçonhento, pode ter filhote escondido atrás do arbusto.
 
-— Seis. Contei duas vezes, e ele andava de lado, então dava para ver todas de uma vez.
+— Eu não cheguei perto, juro. Fiquei na janela, com o nariz no vidro. Mas ele era mansinho, nem ligou pra mim, só catava pétala e comia. O Farol é que escondeu a cara na minha orelha, de tão nervoso.
 
-— Com a crista, ou sem a crista?
+— Então o Farol teve juízo e você teve sorte. — Ela soltou o ar, mais mole, e puxou a cesta de pão para perto dele. — Uma crista azul, é? Você desenha depois? Eu quero perguntar para o Velho-Sábio como se chama esse bicho, e é mais fácil se ele vir.
 
-— Beatriz, é um bicho!
-
-— É importante saber se a crista conta. Se conta, ele tem sete coisas, e se não conta, tem seis, e eu quero saber quantas coisas tem o bicho que come flor.
+— Desenho, mas a crista vai ficar torta. Eu nunca sei fazer crista.
 
 Do corredor veio o som de uma canção. Cantada em voz alta, sem afinação, com a certeza de um homem que acredita que cada nota é a certa. A porta do banheiro bateu, o chuveiro foi ligado, e a voz subiu uma oitava, errando a letra com convicção. Beatriz conhecia a música. Era uma daquelas que o tio colocava no rádio do carro nos sábados de manhã, e Bruno a cantava desde os sete anos com a letra trocada.
 
