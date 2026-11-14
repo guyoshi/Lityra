@@ -99,9 +99,10 @@ Inveja. Simples assim. Não que eu não amasse os meus pais, mas eles viviam pre
 — E você? Com quem mora? — perguntou Junior.
 
 — Somos eu, meu pai, minha mãe, a Priscila e a Chéri.
-Ele riu.
 
-— É. Tenho ela desde filhote. É a única amiga que tenho no momento.
+— Chéri? — Junior repetiu, curioso.
+
+— Minha cachorra. Tenho ela desde filhote. É a única amiga que tenho no momento.
 
 — Hoje em dia é mais fácil ter amigos animais do que humanos — ele comentou.
 
@@ -117,16 +118,15 @@ Chegamos à pracinha e seguimos até uma parte com escadas.
 
 Junior pareceu assustado, como se eu o acusasse de um crime grave. Ri depressa, para deixá-lo à vontade.
 
-— Deve ser legal ter uma irmã — comentou.
+Seguimos por um caminho de escadas até um chafariz lindo, com um cavaleiro esculpido sobre águas transparentes e flores plantadas por alguém que entendia de beleza.
+
+— Sua irmã é sempre daquele jeito? — perguntou Junior. — Na escola, nem deixou a gente se apresentar.
 
 Pobre coitado. Se ele soubesse.
 
-— É filho único?
-Ele assentiu.
+— A Priscila não costuma dar muita chance pra quem acabou de conhecer — respondi. — E comigo ela é pior.
 
-Seguimos por um caminho de escadas até um chafariz lindo, com um cavaleiro esculpido sobre águas transparentes e flores plantadas por alguém que entendia de beleza.
-
-— Você fala da sua irmã como se ela fosse um demônio — observou Junior. — Deve haver algo em que vocês se entendem.
+— Mas vocês devem se entender em alguma coisa, não?
 
 — Nos entendemos muito bem em brigar uma com a outra. Especialmente quando o assunto é o imbecil do Vini.
 
