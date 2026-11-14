@@ -170,87 +170,75 @@ Korvo desceu os degraus devagar, deixando o facão cravado na mesa, e parou dian
 
 Beatriz não respondeu. Ela se lembrava da sensação como se tivesse acontecido há um minuto: o fogo acordando, o mundo todo ficando pequeno, e o medo, o medo de ter sentido que podia fazer qualquer coisa. Ficou com as mãos geladas.
 
-— Você fala de liberdade, mas usou a minha cara para separar meus irmãos — disse Bruno, dando um passo à frente. A voz estava firme, apesar do tremor no queixo. — E agora quer dizer à Bia quem ela tem que ser. Se liberdade é fazer o que você manda, eu passo.
+— Você não precisou pedir permissão a ninguém para usar aquele fogo — continuou Korvo. — Nem mesmo ao seu mestre. Isso é liberdade, Beatriz.
 
-O sorriso de Korvo desapareceu devagar. Por um instante, o rosto dele ficou duro como pedra. Depois virou-se de costas.
+— Você fala de liberdade, mas tirou a voz do Marcus e jogou ele naquele buraco porque não fez o que você queria — disse Bruno, apontando para o disco de pedra. — E agora quer mandar na Bia também. Que liberdade é essa?
 
-— Matem-nos.
+Korvo olhou para ele. O sorriso desapareceu, mas a voz permaneceu calma.
 
-Os irmãos se agruparam. Farol se escondeu junto ao pescoço de Banjo, mas manteve uma faixa estreita de luz sobre as pedras que ele reunia, tremendo a cada estrondo. Breno passou à frente e virou metal, e o zumbido grave encheu o peito dele. Bruno estendeu as mãos, e o ar começou a tilintar de frio. Banjo, atrás, reuniu as pedras ao redor, e Beatriz, de punhos cerrados, olhava a própria chama nascer entre os dedos sem saber se devia deixá-la.
+— Você está confundindo liberdade com fraqueza, garoto. Vocês quatro têm um poder raro. Seria um desperdício deixá-los voltar para Auream.
+
+— A gente já disse que não quer ir com você — respondeu Bruno.
+
+Korvo fez um sinal aos seguidores.
+
+— Contenham os quatro. Quero todos vivos.
+
+Os irmãos se juntaram enquanto os primeiros seguidores avançavam. Breno passou à frente e virou metal. Bruno estendeu as mãos, e o gelo começou a se formar entre seus dedos. Banjo reuniu as pedras soltas ao redor dos pés. Beatriz sentiu o fogo acender nas palmas, mas hesitou antes de abrir as mãos. Farol se encolheu junto ao pescoço de Banjo.
 
 Então um som agudo e poderoso cortou o ar, e uma luz branca desceu do teto do tribunal e cegou todo mundo. Os seguidores recuaram, cobrindo os olhos. Até Korvo ergueu a mão.
 
-Quando a luz diminuiu, havia um homem no centro do salão, de pele escura e barba em três pontas, com olhos verdes que brilhavam como folhas ao sol. Segurava um cajado de madeira de onde saía uma claridade dourada.
+Quando a luz diminuiu, Velho-Sábio estava entre os irmãos e a primeira fileira de seguidores, com o cajado erguido. O clarão dourado que saía dele empurrava os homens de Korvo para longe dos bancos.
 
-— Korvo — disse Velho-Sábio, e a voz ecoou como trovão. — Eu lhe ensinei a primeira chama. Parece que também lhe ensinei a primeira fraqueza.
+— Korvo — disse o mentor. — Afaste-se das crianças.
 
-— Auream. — Korvo se virou, sorrindo de novo. — Sua mentoria envelheceu. Eu ensino liberdade, e você ensina medo. Deu um anel à sua aprendiz? Com todo o poder que ela tem para explorar?
+— Auream. — Korvo olhou para o cajado, depois para Beatriz. — Veio buscá-las para colocar outro anel no poder delas?
 
-— Você sabe que nem você acredita nisso. O poder o consumiu.
+— Elas já fizeram a escolha delas — respondeu Velho-Sábio.
 
-Das laterais do tribunal, entraram Garmande, Tango, Lioro e Karoli. Atrás deles vinham outros membros da Sociedade de Tayo: Mereditha, com as escamas brilhando, Serafira Dalmora, de capa de seda escura, e Elowen, de postura firme. Ricochet Bombergue apareceu por último, ajeitando as colheres do cinto como quem chega a uma festa. Breno olhou de um rosto a outro, sem conseguir acreditar: tinham vindo juntos. Como tinham conseguido entrar na Central?
+Pela passagem lateral, Garmande chegou com Tango e Serafira. Garmande fez os seguidores mais próximos perderem o equilíbrio sob o próprio peso, Tango ergueu uma barreira de pedra para impedir que outros se aproximassem dos irmãos, e as correntes de luz de Serafira prenderam dois homens que tentavam contorná-la.
 
-Eles discutiam baixinho, e a discussão não parou nem diante de Korvo.
+Lioro e Karoli vieram logo atrás, abrindo espaço entre os bancos. Mereditha viu movimento nas celas e seguiu para libertar os presos, com Elowen cobrindo-lhe o caminho. Ricochet apareceu pela outra passagem e começou a procurar alguma coisa nos bolsos.
 
-— Eu disse que devíamos entrar pelo teto — sibilou Tango.
+Tango passou por Bruno e apontou para a proteção de pedra.
 
-— E eu disse que não — respondeu Garmande, sem olhar para ele. — Erla autorizou a entrada pelos acessos de serviço. Não íamos perder tempo pelo teto.
+— Fica atrás de mim, isca.
 
-— Você diz não para tudo.
+Bruno abriu a boca para protestar, mas outro grupo de seguidores veio na direção deles. Recuou com os irmãos, enquanto Tango bloqueava a passagem.
 
-— Eu digo não para as ideias ruins. Você tem muitas.
+Korvo observou os recém-chegados e voltou-se para Velho-Sábio.
 
-Garmande parou ao lado de Velho-Sábio. A pena que costumava manter em movimento com uma técnica secundária parou atrás da orelha dele, imóvel pela primeira vez desde que os irmãos o conheciam.
+— Trouxe a Sociedade inteira para me tirar quatro crianças?
 
-— Você está atrasado, Auream — murmurou.
+Uma fileira de escudos avançou pelo corredor oposto antes que o mentor respondesse. Erla surgiu à frente dos vigilantes, seguida por homens e mulheres de armadura que começaram a ocupar as entradas do tribunal. Vários seguidores de Korvo recuaram ao ver a árvore da Vigilância gravada nos escudos.
 
-— Cheguei exatamente quando precisava.
+— Todas as saídas, agora! — ordenou Erla. Depois fixou os olhos em Korvo. — A Presália está cercada. Renda-se.
 
-— Se sairmos vivos, você me deve um jantar. Um jantar de verdade, sem cebola.
+Korvo olhou para o disco de pedra no centro do salão.
 
-Mereditha, porém, não ouviu nada disso. Seus olhos âmbar corriam pelas celas ao fundo do tribunal, onde sombras encolhidas se mexiam atrás das grades, e as escamas dela estavam de um cinza apagado que os irmãos nunca tinham visto.
+— Marcus também esperava que você viesse, Erla. Pediu ajuda até o último instante.
 
-— Os presos primeiro — disse, e começou a abrir caminho, em vez de ocupar o lugar que Garmande lhe tinha marcado. — Se a lenda era verdadeira, eles estão aqui há anos. Eu não vou deixar ninguém para trás, Garmande. Nem por ordem sua.
+Erla acompanhou seu olhar e viu o disco fechado, ainda marcado pelas runas do julgamento.
 
-— Mereditha, a formação...
+— O que você fez com ele?
 
-— Que a formação me alcance, então.
+— Eu o julguei. Você chegou tarde demais.
 
-Garmande fechou os olhos por um instante, como quem desiste de vencer uma discussão antiga, e acenou para Elowen acompanhá-la. Tango, ao passar por Bruno, deu um tapinha em sua cabeça.
+A luz começou a crescer entre as mãos de Erla. Velho-Sábio se voltou para ela.
 
-— Fica atrás de mim, isca. Eu sou mais bonito para ser acertado.
+— Erla, não!
 
-— Impressionante — murmurou Korvo, olhando em volta. — Muito corajoso, descer aqui em menor número, diante da minha patrulha e de centenas de seguidores.
+Ela já havia disparado. Uma onda branca atravessou o tribunal, e Korvo respondeu com uma rajada negra. Os dois poderes se chocaram acima do disco, e rachaduras correram pelo chão até os bancos onde os irmãos estavam.
 
-— Menor número? — disse uma voz firme. — Nem tanto.
-
-Erla emergiu da escuridão do lado oposto, de uniforme impecável. Atrás dela, em fileiras organizadas, centenas de vigilantes de armadura, com a árvore da Vigilância gravada nos escudos, marchavam para o tribunal e formavam uma linha cerrada. Erla parou ao lado de Velho-Sábio e olhou para Korvo sem piscar.
-
-— Você pode ter comprado algumas mentes. Mas a Vigilância não se curva a você. Enquanto eu estiver no comando. O seu covil foi descoberto. Entregue-se.
-
-Ela ergueu na mão um pequeno cubo brilhante, um orcídeo. Korvo olhou para ele e riu, uma risada baixa, quase gentil.
-
-— Os seus homens não acreditam em você, Erla. Só a seguem porque são pagos. — Deu um passo na direção dela. — E você sabe que eu estou certo. Esse homem, Marcus, você o mandou sozinho para dentro da minha casa. Esperou pacientemente por um sinal. E eu fui o único que respondeu. Ele caiu por sua causa, Erla.
-
-O grito de Erla cortou o salão. Ela avançou com as mãos tomadas de uma energia branca que fazia o ar crepitar, e Korvo, sem se mexer, estendeu a mão. Fagulhas negras dançaram em volta dos dedos, juntaram-se numa esfera de escuridão pura.
-
-— Erla, NÃO! — gritou Velho-Sábio.
-
-Tarde demais. Erla reuniu o brilho branco entre as mãos, estreitando-o até doer nos olhos de quem estava perto, e lançou uma onda de luz que iluminou o tribunal inteiro. Korvo respondeu com uma rajada negra, que engoliu a luz como um buraco, e o impacto fez o chão rachar em linhas que correram até as paredes.
-
-A batalha estourou de uma vez. O tribunal era imenso: havia espaço para centenas de combatentes, mas não para todos lutarem no mesmo lugar. Perto da mesa do juiz, Erla e Korvo se enfrentavam. Junto às celas, Mereditha tentava retirar os prisioneiros. Nas passagens laterais, a Vigilância segurava os seguidores de Korvo. Os irmãos ficaram na região dos bancos, entre os adultos e as saídas.
+O confronto tomou o tribunal inteiro. O salão era imenso: havia espaço para centenas de combatentes, mas não para todos lutarem no mesmo lugar. Perto da mesa do juiz, Erla e Korvo se enfrentavam. Junto às celas, Mereditha tentava retirar os prisioneiros. Nas passagens laterais, a Vigilância segurava os seguidores de Korvo. Os irmãos ficaram na região dos bancos, entre os adultos e as saídas.
 
 Os seguidores se atiraram contra a Sociedade e a Vigilância. Garmande saltou para a frente, pisou o chão com o calcanhar e aumentou o peso do ar e das pedras diante dos seguidores: a onda de rocha que ele erguera com sua magia gravitacional derrubou os atacantes como bonecos. Era sua afinidade, moldada por muitos anos de treino. Anasin deslizou pelas sombras, rápida demais para ser seguida, e lançou estacas de gelo negro contra Garmande, mas ele fez o ar em volta pesar e as estacas se desmancharam em pó antes de chegar.
 
 Karoli deu um passo à frente, e raios azuis saltaram de suas mãos, estalando de um inimigo a outro, deixando uma fileira de seguidores tombados e fumegando. A eletricidade era sua especialidade. As rajadas de vento que usaria depois exigiam bem mais concentração. Lioro varreu o ar com os braços, e um vento cortante levantou capas, escudos e espadas, arrastando-os pelo teto. Tango ergueu colunas de pedra do chão para bloquear os golpes e arremessou blocos do tamanho de carroças. Mereditha, que já tinha arrancado as grades das celas, abriu os braços. As escamas dos seus braços de mulher aquática ganharam um brilho azulado, e a água brotou do chão em uma parede que dividiu o salão ao meio e protegeu os presos às costas dela. Quando um seguidor tentou atravessá-la, a água formou tentáculos que o prenderam e o jogaram contra a parede.
 
-Naghar saltou sobre os vigilantes que guardavam a passagem entre as celas e a saída, soltando uma poeira esverdeada pela boca. Os que a respiravam desabavam, adormecidos, e uma fileira inteira de escudos caiu no chão. Mereditha tentou conduzir dois prisioneiros por ali, mas viu a passagem tomada pela névoa e teve de recuar com eles para trás da parede de água. Elowen abriu um clarão que empurrou a poeira para longe por instantes, enquanto outros vigilantes se apressavam para substituir os que tinham caído. Naghar recuou, silvando, mas continuou a guardar a saída. Ricochet apareceu ao lado dos irmãos, de bolsos cheios.
+Naghar saltou sobre os vigilantes que guardavam a passagem entre as celas e a saída, soltando uma poeira esverdeada pela boca. Os que a respiravam desabavam, adormecidos, e uma fileira inteira de escudos caiu no chão. Mereditha tentou conduzir dois prisioneiros por ali, mas viu a passagem tomada pela névoa e teve de recuar com eles para trás da parede de água. Elowen abriu um clarão que empurrou a poeira para longe por instantes, enquanto outros vigilantes se apressavam para substituir os que tinham caído. Naghar recuou, silvando, mas continuou a guardar a saída. Ricochet apareceu ao lado dos irmãos, de bolsos cheios. Três seguidores romperam a linha de vigilantes e correram na direção deles. Ricochet atirou alguns biscoitos aos pés dos atacantes e estalou os dedos. As pequenas massas explodiram em faíscas coloridas, lançando os homens para trás numa nuvem de canela.
 
-— Biscoitos! — anunciou Ricochet, atirando alguns para Banjo, Bruno e Breno. Antes que os irmãos perguntassem, três seguidores romperam a linha de vigilantes e correram na direção deles. Ricochet estalou os dedos: os biscoitos que ainda lançava explodiram em faíscas coloridas, empurrando os atacantes para trás numa nuvem de canela. — Não são para comer. Quer dizer, são. Mas não agora!
-
-— Isso é perigoso? — perguntou Banjo, olhando o biscoito.
-
-— É delicioso e perigoso. A melhor combinação.
+— Para trás dos vigilantes! — ordenou Ricochet, apontando a passagem aberta.
 
 Um dos seguidores tornou a avançar. Ricochet abriu o casaco e libertou um enxame de engenhocas de latão, com asas de metal e gemas azuis no peito. Elas agarraram-se às capas dos atacantes e soltaram uma cortina de fumaça, dando aos irmãos tempo para recuar até à proteção dos vigilantes.
 
@@ -290,7 +278,7 @@ Breno assentiu e se firmou à frente, deixando espaço para os irmãos agirem. B
 
 Anasin viu a oportunidade e veio caminhando, serena, com o sorriso de uma cobra que encontrou um ninho. Breno enfiou a mão no bolso, tateou e achou a laranja que restava. A última. Depois dela, só sobrariam a azul e a amarela. Atirou-a aos pés dela. O clarão iluminou a sala e o ogro de pedra surgiu, agarrou Anasin pelo braço e a ergueu, e a arremessou por cima das cabeças de uma dúzia de seguidores. Ela atingiu o chão entre os escombros, mas se levantou quase imediatamente, furiosa, com sombras a se juntarem outra vez aos seus pés. Antes que voltasse a avançar sobre os irmãos, Serafira ergueu um feixe de luz entre eles, obrigando-a a defender-se. Breno percebeu que a pedra lhes havia comprado apenas alguns instantes.
 
-— Uau! — gritou Banjo.
+Banjo recuou com as pedras suspensas ao redor, tentando manter espaço para os irmãos.
 
 O clarão de Serafira também cortou as sombras que prendiam Karoli. Ela conseguiu levantar-se, apoiando uma mão na parede, mas estava longe demais para defender os irmãos naquele instante.
 
