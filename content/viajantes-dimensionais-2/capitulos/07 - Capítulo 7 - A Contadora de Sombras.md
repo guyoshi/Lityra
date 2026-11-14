@@ -206,6 +206,10 @@ Bruno calou a boca, e Beatriz achou graça. Banjo, mais atrás, deixou os sentid
 
 — Eu não chuto. Eu só tenho um nariz muito sensível.
 
+No começo do beco, na parede de uma casa, alguém tinha riscado a giz um círculo com uma barra por cima, grande, do tamanho de uma porta pequena. Banjo achou que fosse brincadeira de criança até ver que a barra estava refeita por cima de outra mais velha, e que o giz de baixo, quase apagado, tinha o mesmo desenho. Velho-Sábio passou a mão pela parede sem parar, e o círculo ficou borrado onde os dedos tocaram.
+
+— Aparece uma vez por semana — murmurou, para ninguém em especial. — Eu vinha apagando.
+
 O beco terminava num muro de pedra coberto de hera preta, e no meio do muro havia uma porta baixa de madeira escura, com uma argola de ferro em forma de mão aberta. Velho-Sábio bateu com os nós dos dedos duas vezes, esperou, e bateu mais uma. A porta se abriu para dentro antes que ele terminasse o gesto, sem mão alguma do outro lado, sobre um corredor estreito iluminado por uma única vela, que tremia de um jeito esquisito, como se alguém soprasse nela sem soprar.
 
 — Olha só quem temos aqui — disse uma voz, do fundo do corredor.

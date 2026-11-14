@@ -308,7 +308,11 @@ Bruno assentiu devagar. Banjo reparou que ele tinha parado de rir e continuava o
 
 Quando voltaram ao refeitório, a luz entrava inclinada pelas janelas, e a mesa tinha ganhado mais gente. Yuri equilibrava uma pilha de pratos na ponta de um dedo, Kevin e Khalil dividiam uma travessa de legumes assados, e Eshley segurava a colher parada no ar sobre a sopa. Shirley ouvia Denis falar, de olhos meio fechados, e parecia ter desistido de interromper.
 
-— Eu só repito o que dizem — dizia Denis. — Que o Kalev se cansou, que brigou com o conselho, que pegou a bagagem e foi embora sem avisar o filho. Eu não acredito, mas é o que se ouve na Largo dos Ponteiros.
+— Eu só repito o que dizem — dizia Denis. — Que o Kalev se cansou, que brigou com o conselho, que pegou a bagagem e foi embora sem avisar o filho. Eu não acredito, mas é o que se ouve na Largo dos Ponteiros. E tem uma coisa pior, que um senhor falou na fila do pão, de cara muito séria. Que desde que os dimensais apareceram em Tayo as coisas somem mais, e que quem mexe com o que não entende acaba sumindo junto.
+
+— Dimensais mexem com o que entendem — disse Khalil, sem levantar os olhos da travessa. — Mais ou menos.
+
+— Foi o que eu disse a ele. — Denis ergueu um dedo. — Ele pagou o pão e saiu, e a gente ficou com cara de quem perdeu a discussão sem ter começado.
 
 — Cachorro — disse Eshley, no tom de quem avisa.
 

@@ -398,6 +398,8 @@ Atrás do estádio, num terreno entre o muro de um bar e uma fileira de barris d
 
 — É gímiga, Amadou — disse Denis, do alto da grade, que não tinha falado até então e falou como quem dá o veredito.
 
+Uma mulher que estendia roupa numa janela do outro lado da rua olhou para a pista de gelo que Bruno tinha começado a fazer, chamou o filho pequeno que espiava pela grade e fechou os dois lá dentro, com a janela e tudo. Ninguém no campo comentou. Banjo reparou, e reparou também que Amadou deu uma risadinha curta, de quem já conhecia aquele gesto e não queria falar sobre ele.
+
 Dividiram em dois contra dois, e Banjo ficou de Zerak dos dois lados, o que era mais justo e muito mais cansativo. O jogo era feio. As regras de gímiga de rua tinham sido inventadas pelos próprios jogadores, e mudavam conforme alguém perdia. Bruno e Breno jogavam juntos, o que significava que Breno corria e Bruno dava ordens, e que Amadou e Denis aproveitavam a briga para roubar a Marqe. Bruno fez gelo no chão, uma pista curta e escorregadia, e Denis atravessou a pista de joelhos, com a cara de quem aceita um destino.
 
 Na outra metade do campo, perto dos barris, outro treino acontecia.

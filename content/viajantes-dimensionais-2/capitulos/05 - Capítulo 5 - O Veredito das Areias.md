@@ -401,6 +401,8 @@ Nayra comeu o doce em duas mordidas, sentada na ponta do banco, com os pés bala
 
 No fim do corredor da sala, a areia voltou a se abrir, e as duplas saíram em fila para a antecâmara, uma a uma, com a cara de gente que tinha atravessado uma coisa e preferia não ter mais conversa. Os cantis estavam vazios. Alguns aprendizes caíram sentados no chão de pedra, e Amadou, o último a sair, anunciou a quem quisesse ouvir que tinha achado a sala fácil.
 
+Um aprendiz nativo, de uniforme azul, passou rente a Amadou com a bandeja do almoço de quem sai do corredor e murmurou, sem virar o rosto, que fácil era para quem já nascia com a ferramenta dentro do braço. Amadou abriu a boca, mas não encontrou resposta a tempo, e o rapaz já tinha dobrado a esquina. Eshley, ao lado, ergueu uma sobrancelha e não disse nada.
+
 Grimaldus esperava sob uma lamparina flutuante, em pé, com a tábua nas mãos e um caderno aberto sobre uma mesa baixa. Chamou as duplas uma a uma, na ordem em que as contas decidiram, e pediu a cada uma só a versão do que aconteceu à caravana, sem enfeite.
 
 A de Beatriz e Eshley foi a primeira. Eshley falou, porque tinha a lista no pulso e a voz de quem confere.
