@@ -60,7 +60,7 @@ Liguei três vezes. Só o telefone chamando, chamando, chamando. Suspirei, largu
 
 Se o Pedro não ia aparecer, eu ia pro meu segundo melhor lugar do mundo: a praça.
 
-A praça fica quase ao lado da minha casa. É o meu refúgio, meu cenário favorito. Lá eu coloco os fones do Discman, um xodó que ganhei do meu tio, encaixo um CD de trilhas sonoras e deixo a criatividade trabalhar. A maior parte das minhas histórias nasce num banco daquela praça.
+A praça fica quase ao lado da minha casa. É o meu refúgio, meu cenário favorito. Lá eu coloco os fones do meu Discman, um xodó de segunda mão que ganhei do meu tio, encaixo um CD de trilhas sonoras e deixo a criatividade trabalhar. A maior parte das minhas histórias nasce num banco daquela praça.
 
 Você pode achar estranho, mas minha paixão musical são trilhas de filmes: Star Wars, O Exterminador do Futuro, Jurassic Park. Cada música é a trilha improvisada de um capítulo que eu ainda não escrevi.
 

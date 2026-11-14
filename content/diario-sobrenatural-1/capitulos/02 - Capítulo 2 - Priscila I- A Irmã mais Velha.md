@@ -1,6 +1,6 @@
 Casa nova. Mudança. A pior coisa que existe: você pega a sua vida, amassa, joga fora e ainda tem que fingir que está tudo ótimo porque “é melhor para a família”. Não é.
 
-Assim que chegamos, não esperei ninguém falar nada. Entrei correndo, fucei a casa inteira e escolhi o meu quarto antes de a Kelly abrir a boca. Óbvio. Sou a mais velha, tenho prioridade, e se ela quiser chorar por isso, que chore. Fiz questão de bufar em cada cômodo, dizer em voz alta que aquilo parecia um mausoléu e que eu ia morrer de tédio naquele fim de mundo. Minha mãe suspirou, meu pai olhou para o teto, e eu quase me orgulhei da atuação. Enquanto ele e o tio Leandro carregavam caixas como dois burros de carga, subi com a única caixa que importava: o meu três em 1, aquele aparelho de som que toca CD, fita e rádio. Ligar o fio na tomada foi a primeira coisa que fiz na casa. Enfiei o CD do Nirvana na bandeja, apertei play e deixei o riff invadir o quarto vazio no último volume, até a parede tremer. Foi só aí, sozinha, com a jaqueta jeans cheia de bótons jogada no chão, que deixei a máscara cair. Peguei o celular, mandei um torpedo para o Vini perguntando se estava livre e sorri para a janela. Ela dava para a rua, e a um quarteirão dali ficava a casa dele. Perto demais para o gosto dos meus pais, perfeito para o meu. Ninguém precisava saber o quanto eu tinha trabalhado para conseguir aquilo.
+Assim que chegamos, não esperei ninguém falar nada. Entrei correndo, fucei a casa inteira e escolhi o meu quarto antes de a Kelly abrir a boca. Óbvio. Sou a mais velha, tenho prioridade, e se ela quiser chorar por isso, que chore. Fiz questão de bufar em cada cômodo, dizer em voz alta que aquilo parecia um mausoléu e que eu ia morrer de tédio naquele fim de mundo. Minha mãe suspirou, meu pai olhou para o teto, e eu quase me orgulhei da atuação. Enquanto ele e o tio Leandro carregavam caixas como dois burros de carga, subi com a única caixa que importava: o meu três em 1, aquele aparelho de som que toca CD, fita e rádio. Ligar o fio na tomada foi a primeira coisa que fiz na casa. Enfiei o CD *Jagged Little Pill*, da Alanis Morissette, na bandeja, pulei direto para “You Oughta Know” e deixei a voz dela invadir o quarto vazio no último volume, até a parede tremer. Foi só aí, sozinha, com a jaqueta jeans cheia de bótons jogada no chão, que deixei a máscara cair. Peguei o celular, mandei um torpedo para o Vini perguntando se estava livre e sorri para a janela. Ela dava para a rua, e a um quarteirão dali ficava a casa dele. Perto demais para o gosto dos meus pais, perfeito para o meu. Ninguém precisava saber o quanto eu tinha trabalhado para conseguir aquilo.
 
 A parte ruim é que saí de uma das melhores escolas de Jundiaí para cair numa escola pública qualquer, a tal Rafael Coelho. Fui fazer a matrícula e, sério, que lixo: corredores escuros, salas apertadas, cara de abandono, como se eu tivesse voltado dez anos no tempo. A explicação oficial da minha mãe foi “precisamos economizar por causa da casa nova”. Por favor. Nós somos ricos, sempre tivemos o melhor, e agora vem esse drama de corte de gastos? Reclamei na frente dos dois, de braços cruzados, com a cara de quem engole o choro, e meu pai ganhou aquela ruga de culpa na testa. A ruga é útil. Eles nunca gostaram do Vini. Acham que é drogado, vagabundo, que vai me engravidar e arruinar a minha vida, como se a vida que planejaram para mim fosse grande coisa. Se eu engravidasse e tivesse que sair de casa mais cedo, talvez fosse até um upgrade. Melhor que continuem achando que me arrastaram para longe dele. Ninguém procura quem acredita ter vencido.
 
@@ -154,17 +154,17 @@ Kelly me encarou com ódio, e eu só sorri mais forte.
 
 No meu quarto, empurrei a cama contra o guarda-roupa e escondi o livro na prateleira mais alta, atrás dos cobertores. Problema resolvido. Desci, passei pela minha mãe sem olhar, abri o congelador e lá estava a lasanha. Pelo menos isso. Esquentei um pedaço, subi com o prato, me tranquei, comi, respondi o torpedo do Vini, liguei o som no último volume, com Legião Urbana, e ignorei o mundo até minha mãe bater na parede e eu dormir de fone, pensando numa coisa só: sair debaixo do controle deles.
 
-O despertador me acordou no dia seguinte. Fui até a penteadeira pegar a escova, ou melhor, tentei: sumiu. Revirei o quarto inteiro e nada. Parei, pensei um pouco, e a resposta pulou na minha cara: Kelly. Empurrei a cama, peguei o livro atrás dos cobertores e fui direto ao quarto dela, que estava se trocando. Não me importei. Entrei e fechei a porta.
+O despertador me acordou no dia seguinte. Fui até a penteadeira pegar a escova, ou melhor, tentei: sumiu. Revirei o quarto inteiro e nada. Parei, pensei um pouco, e a resposta pulou na minha cara: Kelly. Afastei a cama do guarda-roupa, alcancei o livro na prateleira mais alta, atrás dos cobertores, e fui direto ao quarto dela, que estava se trocando. Não me importei. Entrei e fechei a porta.
 
 — Escuta aqui, menina. Quero saber onde você colocou minha escova.
 
 — E eu lá sei? — respondeu, pegando a escova DELA de cima da cama.
 
-— Sei que você pegou pra se vingar, porque eu peguei o seu livrinho.
+— Sei que você pegou pra se vingar. Tá com raiva porque fiquei com seu livro ontem.
 
 — Eu não peguei sua escova. Eu tenho a minha.
 
-Ela queria brincar, então vamos brincar. Tirei o livro das costas e mostrei, e no mesmo segundo ela travou.
+Ela queria brincar, então vamos brincar. Tirei o livro de trás das costas e ergui pela capa. Kelly olhou para ele e parou de se vestir. Não tinha esquecido a ameaça do dia anterior.
 
 — Agora você presta atenção, né? Cadê minha escova? Última chance.
 
