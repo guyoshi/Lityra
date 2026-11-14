@@ -240,7 +240,7 @@ Assenti, quieto.
 
 Demorei para entender, e quando entendi, ri. Ri porque achei que era piada, e para não deixá-lo sem graça.
 
-— Do que você tá rindo, imbecil?
+— Do que você tá rindo, imbecil? — perguntou Junior.
 
 Ele sabia do que eu ria. A não ser que isso não fosse piada. Por um segundo pensei que fosse mais uma ideia de livro, porque às vezes ele testava cenas comigo.
 
