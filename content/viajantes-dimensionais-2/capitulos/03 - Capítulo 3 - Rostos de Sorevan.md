@@ -150,7 +150,6 @@ Bruno ajeitou o cabelo com a mão livre, sem perceber. Amadou levantou uma sobra
 
 — Vai ter tempo de terminar. Vem.
 
-
 O salão dos painéis ficava no fim de um corredor comprido, de paredes de vidro, onde os aprendizes se espremiam diante de placas que flutuavam na altura dos olhos. O painel de Banjo mudava de cor quando ele olhava, e ele precisou de três tentativas para ler: "Breno, Bruno, Banjo e Beatriz Lins. Tutor: Velho-Sábio." Os outros grupos tinham um tutor diferente em cada linha. O deles tinha um só.
 
 Ele ia comentar isso com Bruno quando ouviu a voz de Erick.
@@ -161,13 +160,13 @@ Primeiro foi só um som, vindo de uma bancada perto da janela, onde alguém abri
 
 Na bancada, um rapaz de avental, com manchas de cola dourada até os cotovelos, segurava um pote de pó cinzento e olhava para trás a cada palavra. Diante dele estavam os gêmeos, Erick de braços cruzados, Nicolas com a mão estendida para o pote. Tinham crescido, os dois, mais largos, mais altos, com o mesmo sorriso de antes.
 
-— Bruno — murmurou Banjo, puxando a manga dele.
+— Bruno — murmurou Banjo, puxando a manga dele. — Aquele é o Erick, e o outro é o Nicolas. E aquele pote me lembra uma coisa que eu não quero lembrar.
 
-— Eu vi.
+— Eu vi, eu vi — disse Bruno, sem mexer os lábios. — Eles estão passando alguma coisa pra alguém, e eu duvido que seja receita de bolo.
 
-— Pode ser outra coisa.
+— Pode ser outra coisa, né? — Banjo engoliu. — Eles andavam sempre por oficina, talvez agora vendam tinta, ou cola, sei lá.
 
-— Pode.
+— Pode ser — concedeu Bruno. — E pode ser que eu seja o rei de Tayo. Mas eu quero ver de perto antes de decidir.
 
 Bruno foi na direção deles, e Banjo foi atrás, com o coração batendo rápido. Pensou na regra de Frank, em não usar nada, e na de Garmande, que também dizia para não usar, e sentiu a boca seca mesmo com as duas regras do lado dele.
 
@@ -263,7 +262,6 @@ Foi embora com as contas estalando no cinto, e o corredor voltou ao barulho de a
 
 Banjo riu, e a risada saiu grossa, a de Bruno, que ele nunca tinha ouvido tão de perto.
 
-
 O sino do meio-dia soou como um fio de cobre vibrando pela torre inteira, e Banjo sentiu a voz voltar para a garganta, como uma meia que se veste do lado certo. Experimentou:
 
 — Bruno.
@@ -302,12 +300,11 @@ Banjo olhou na direção do dedo de Denis. Um garoto alto, de cabelo ondulado e 
 
 — Isso é o que eu lembro de cabeça. Eu tenho uma lista em casa.
 
-— Parece mesmo um cara chato — murmurou Bruno, olhando o garoto sumir na curva do corredor.
+— Pô, parece mesmo um cara chato — murmurou Bruno, olhando o garoto sumir na curva do corredor.
 
 — Chato é pouco. — Amadou passou o braço pelos ombros dele. — Fica de olho no Vanterre. Se ele chegar perto de você com aquele sorriso, avisa, que a gente resolve.
 
 Bruno assentiu devagar. Banjo reparou que ele tinha parado de rir e continuava olhando o corredor vazio, com a mandíbula dura, como acontecia quando alguém avançava na defesa dele num jogo de Gímiga.
-
 
 Quando voltaram ao refeitório, a luz entrava inclinada pelas janelas, e a mesa tinha ganhado mais gente. Yuri equilibrava uma pilha de pratos na ponta de um dedo, Kevin e Khalil dividiam uma travessa de legumes assados, e Eshley segurava a colher parada no ar sobre a sopa. Shirley ouvia Denis falar, de olhos meio fechados, e parecia ter desistido de interromper.
 
@@ -325,7 +322,7 @@ Shirley soltou o ar devagar e pousou o garfo.
 
 — Prefiro contar eu a deixar o Denis contar — disse Shirley, mais para si mesma. Olhou para a mesa. Banjo percebeu que a lamparina sobre eles mudava de cor, azul, lilás, de volta ao azul. — Eu nem conhecia o Kalev, só de nome. Tinha ido levar um recado do Lioro para a Casa de Pesquisa, no fim da tarde, e estava no pátio esperando uma tutora me atender. Aí começaram os gritos.
 
-— Gritos de quê? — perguntou Beatriz.
+— Gritos de quê? — perguntou Beatriz. — De susto ou de briga? Porque grito de susto sobe no fim, e o de briga é tudo igual.
 
 — De gente correndo. Uma mulher chamava o nome dele com voz de quem já sabia que não ia adiantar. Disseram que o Kalev tinha entrado na sala do fundo e que a porta fechou atrás dele e não abriu mais. — Ela mexeu na manga do uniforme, devagar. — Os guardas demoraram onze minutos para forçar o corredor. Eu fiquei parada o tempo todo. Não era a minha função, eu só tinha um recado, mas não consegui sair.
 
