@@ -134,7 +134,7 @@ O silêncio durou alguns segundos, até o Junior quebrar:
 
 Olhei para o Junior. Eu conhecia aquele olhar de quem via uma oportunidade de furar meus sonhos românticos.
 
-— Eu sei qual é. Moro perto dela também, ao lado esquerdo.
+— Eu sei qual é. Moro perto dela também, ao lado esquerdo — disse Junior.
 
 — Sério? Então somos vizinhos. Moro duas casas depois da praça. Que coincidência!
 
