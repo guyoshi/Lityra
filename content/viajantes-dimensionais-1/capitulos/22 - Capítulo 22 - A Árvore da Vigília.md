@@ -92,7 +92,7 @@ Lioro olhou para Velho-Sábio.
 
 Banjo assentiu, sem saber o que sentir pelo garoto com quem havia dividido tantas tardes.
 
-Voltaram para casa de dassi. Pelas janelas, viram fitas do festival ainda presas às fachadas e um balão murcho amarrado a um poste. Ninguém passava naquela rua.
+Voltaram para casa de dassi. Pelas janelas, viram fitas do festival ainda presas às fachadas e um balão murcho amarrado a um poste. Ninguém passava naquela rua. No caminho, atropelaram-se contando tudo a Velho-Sábio: o dassi roubado, Ricochet, os trolhos, o covil, o tribunal e a promessa que Banjo fez a Marcus. Ele ouviu sem interromper.
 
 Ao tirarem as roupas da viagem, Bruno encontrou uma marca de queimadura na barra da capa azul, e Breno largou sobre a cadeira o colete cinza, rasgado no pântano. Tinham saído de Tayo vestidos para uma festa. As peças de Peryth agora pareciam ter vivido uma aventura inteira.
 
@@ -174,8 +174,6 @@ Breno passou o polegar pela borda do copo.
 
 Bruno soltou o ar pelo nariz. Não era fácil admitir aquilo, principalmente diante dos outros, mas dessa vez não tentou pôr a culpa nos gêmeos.
 
-— Não conta pro Garmande que eu disse isso — acrescentou, olhando para Velho-Sábio.
-
 O mago sorriu e se virou para a caçula.
 
 — Beatriz.
@@ -203,7 +201,6 @@ O mago pousou a mão no ombro dele.
 — Não. Mas você fez uma promessa a um homem que não tinha mais nada, e foi a única coisa bonita que alguém lhe deu naquele lugar. Isso não se perde.
 
 Banjo piscou forte e foi dormir.
-
 
  
 
@@ -540,7 +537,6 @@ Breno demorou a responder.
 Banjo não disse nada. Procurou a mão do irmão mais velho e a encontrou.
 
 Pelo menos naquela noite estavam juntos, e isso bastava.
-
 
  
 
