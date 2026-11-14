@@ -4,7 +4,7 @@ Segurava o copo com as duas mãos, como quem esquenta os dedos, e olhava para a 
 
 Sob a palma de Bruno, uma casquinha branca crescia da borda do copo para o meio. Ele esperou até ela ficar do tamanho de uma moeda, olhou para os lados, enfiou o copo no micro-ondas e apertou trinta segundos. Depois ficou de costas para a mesa, de braços cruzados, assobiando.
 
-Breno chegou com seus papéis e seu lápis e se sentou na mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal do outro lado da mesa. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
+Breno chegou com seus papéis e seu lápis e se sentou na mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
 
 Banjo usava o moletom grosso de capuz, apesar do abafado da cozinha, e a barriga do moletom tinha um volume que não existia no ano anterior. De vez em quando o volume se mexia, e uma luz fraca escapava pela gola. Banjo empurrava a coisa para dentro com a palma, por cima do tecido, sem tirar os olhos do gibi.
 
@@ -20,9 +20,9 @@ Frank tinha acabado de entrar na cozinha, com o cabelo ainda molhado e as chaves
 
 — Tio, o senhor escreveu com parkinson? A caneta sofreu — disse Bruno.
 
-— Escrevi no sinal vermelho — disse. — Não tinha muito tempo.
+— Escrevi no sinal vermelho — disse Frank. — Não tinha muito tempo.
 
-Frank puxou uma cadeira e se sentou, e isso bastou para os quatro se ajeitarem também. Tinha o rosto de quem dormia pouco havia meses, e as olheiras já não saíam dali. Esfregou as mãos uma na outra, devagar, e não olhou para nenhum deles. 
+Frank puxou uma cadeira e se sentou, e isso bastou para os quatro se ajeitarem também. Tinha o rosto de quem dormia pouco havia meses, e as olheiras já não saíam dali. Esfregou as mãos uma na outra, devagar, e não olhou para nenhum deles.
 
 Bruno lembrava da noite em que o tio tinha contado. Fora no sofá, com a televisão desligada, e Frank falara de lado, olhando o rodapé. Que fora a Belfex uma vez, havia muito tempo, de penetra, sem uma gota de magia no corpo, só porque a irmã tinha pedido. Que os pais deles sabiam de tudo e nunca disseram por um motivo que ele não quis dizer. A cada pergunta, o tio respondera um pouco menos que a anterior, até que Banjo parou de perguntar. Os quatro ficaram com meia história e com a sensação desagradável de terem ouvido a metade que mais doía.
 
@@ -34,11 +34,11 @@ Bruno lembrava da noite em que o tio tinha contado. Fora no sofá, com a televis
 
 — Antes de salvar o cachorro?
 
-— Sim Bruno, antes de salvar o... dá pra parar de graça — Frank quase sorriu, e o sorriso não chegou aonde precisava. — Eu não tô falando isso pra castigá-los, eu sei que é difícil. Eu tô falando de uma cidade pequena, de uma escola com trinta janelas e de gente que fala. Basta um vizinho ver uma coisa, e vocês deixam de ser meus sobrinhos e viram assunto.
+— Sim, Bruno, antes de salvar o... dá pra parar de graça — Frank quase sorriu, e o sorriso não chegou aonde precisava. — Eu não tô falando isso pra castigá-los, eu sei que é difícil. Eu tô falando de uma cidade pequena, de uma escola com trinta janelas e de gente que fala. Basta um vizinho ver uma coisa, e vocês deixam de ser meus sobrinhos e viram assunto.
 
 Breno assentiu, sério, como assentia a tudo que vinha de adulto quando o assunto era perigo. Beatriz ficou um instante quieta e perguntou, num fiapo de voz:
 
-— E se escapar sozinho? Sem eu querer? 
+— E se escapar sozinho? Sem eu querer?
 
 Frank demorou a responder.
 
@@ -46,21 +46,21 @@ Frank demorou a responder.
 
 — Combinado.
 
-— Eu quero só ver a Beatriz tacar fogo numa casa e antes de ligar pros bombeiros, respirar e vir falar com o tio — rio Bruno comendo um pedaço de pão com maionese. 
+— Eu quero só ver a Beatriz tacar fogo numa casa e antes de ligar pros bombeiros, respirar e vir falar com o tio — riu Bruno, comendo um pedaço de pão com maionese.
 
-Tio Frank não o respondeu. Bruno molhou o pão no leite gelado e deu uma mordida. 
+Tio Frank não o respondeu. Bruno molhou o pão no leite gelado e deu uma mordida.
 
 Já Banjo, que olhava para a caixa de cereal, do outro lado da mesa, por acaso pensou em como seria bom tê-la mais perto. A caixa deslizou uns dez centímetros e parou diante dele. Ele ficou vermelho até as orelhas.
 
 — Foi sem querer — disse ele.
 
-— Eu sei — disse Frank, e olhou a caixa, depois o menino. — Mas isso não pode acontecer. Já faz um ano que vocês voltaram. E não houve um dia em que eu não cobrasse de vocês essa responsabilidade. O Breno é parece ser o único que colabora
+— Eu sei — disse Frank, e olhou a caixa, depois o menino. — Mas isso não pode acontecer. Já faz um ano que vocês voltaram. E não houve um dia em que eu não cobrasse de vocês essa responsabilidade. O Breno parece ser o único que colabora.
 
-Banjo escondeu as mãos debaixo das coxas, como se elas tivessem feito aquilo de propósito. 
+Banjo escondeu as mãos debaixo das coxas, como se elas tivessem feito aquilo de propósito.
 
-— Tio, na boa, olha pros poderes chatos dele. Não tem utilidade no dia a dia. Claro que ele não vai usar — debochou Bruno. 
+— Tio, na boa, olha pros poderes chatos dele. Não tem utilidade no dia a dia. Claro que ele não vai usar — debochou Bruno.
 
-— Meus poderes chatos salvaram nossa vida mais de uma vez ano passado— resmungou o irmão mais velho. 
+— Meus poderes chatos salvaram nossa vida mais de uma vez ano passado — resmungou o irmão mais velho.
 
 — E o Farol — disse Frank, e o olhar dele desceu até a barriga do moletom. — Esse não sai de casa. Nunca. Nem no quintal sem eu ver.
 
@@ -74,7 +74,7 @@ Bruno pegou o copo, viu a casquinha branca crescendo outra vez no fundo e engoli
 
 Frank olhou o relógio da parede, resmungou que o ônibus não esperava e foi procurar o guarda-chuva no corredor. A porta do armário rangeu lá no fundo. Bruno ouviu o rangido, contou até três e foi até a garrafa térmica em cima da pia.
 
-— Toma — disse, e pôs uma caneca fumegante ao lado do caderno de Breno. — Achocolatado pra você. 
+— Toma — disse, e pôs uma caneca fumegante ao lado do caderno de Breno. — Achocolatado pra você.
 
 — Eu não pedi achocolatado.
 
@@ -90,7 +90,7 @@ Breno bebeu um gole comprido, com a confiança de quem acredita no próprio irm�
 
 — Eu tava olhando pro desenho!
 
-— Então a culpa é do desenho. Que tal parar de desenhar essas aberrações e procurar ajuda psiquiatrica? 
+— Então a culpa é do desenho. Que tal parar de desenhar essas aberrações e procurar ajuda psiquiátrica?
 
 Banjo mordeu o gibi para não rir alto e rendeu-se no segundo seguinte. Até Beatriz soltou uma risada pelo nariz, a primeira da manhã. Bruno olhou para a própria mão, aberta, ainda branca nas pontas. O gelo viera mais rápido que na semana passada, e ele nem tinha precisado se concentrar. Guardou a mão no bolso antes que alguém percebesse o tamanho do sorriso.
 
@@ -100,7 +100,7 @@ Banjo mordeu o gibi para não rir alto e rendeu-se no segundo seguinte. Até Bea
 
 Frank olhou a caneca no chão. Olhou a pedra de achocolatado ao lado dela, que não tinha um pingo de líquido em volta. Olhou Breno, de boca ainda marrom, com a língua para fora, esfregando-a na manga. Respirou fundo, devagar.
 
-— Eu nem vou perguntar nada— disse. — Vamos, que o ônibus não espera.
+— Eu nem vou perguntar nada — disse. — Vamos, que o ônibus não espera.
 
 Na porta, quando Frank a abriu, o moletom de Banjo deu um tranco. Uma luzinha escapou pela gola, correu pelo piso até a soleira e parou na beira do degrau, fascinada pela chuva. Banjo mergulhou, apanhou-a com as duas mãos e a embrulhou contra a barriga antes que o tio se virasse. Frank se virou mesmo assim, e olhou as mãos juntas, o rosto vermelho, o moletom que pulsava.
 
@@ -117,6 +117,7 @@ Saíram debaixo do guarda-chuva grande do tio, que não cobria ninguém inteiro,
 Voltou correndo pela rua molhada, entrou pela porta dos fundos para não fazer barulho e parou na entrada da cozinha. Frank continuava sentado à mesa, sozinho, com a xícara de café frio ao lado. Tinha o rádio do pai deles nas mãos. Com a unha do polegar, levantara a tampa das pilhas e olhava para o fundo do compartimento, para o símbolo minúsculo de linhas curvas gravado no plástico, como quem olha para uma porta que decidiu não abrir.
 
 Bruno recuou um passo sem fazer ruído. Pegou o discman e os fones do braço do sofá, onde estavam o tempo todo, e saiu de novo, tentando fechar a porta com mais cuidado do que jamais fechara qualquer porta na vida.
+
 
 O ensaio do coral cheirava a cera de chão molhada e a poeira de cortina velha.
 
@@ -150,7 +151,7 @@ O balde de Beatriz escorregou da mão e bateu no chão, e a água suja se espalh
 
 A cortina estava preta de baixo até a altura da cintura. Os programas viraram uma pasta molhada. No ar havia fumaça, e o cheiro ia sair pelo corredor inteiro.
 
-— Que cheiro de pão queimado. 
+— Que cheiro de pão queimado.
 
 Melissa levantou os olhos. Falava rápido, perguntava demais e achava que qualquer silêncio era urgente. Naquele momento, olhou para a cortina preta, para o balde caído e para as mãos da amiga, e não perguntou nada. Não gritou nem recuou. Só fez a conta, depressa, de quem já sabia que um dia ia precisar fazer.
 
@@ -178,59 +179,62 @@ Beatriz mostrou. As palmas continuavam vermelhas, sem bolha.
 
 — Então foi um ventilador — disse Melissa. — Só isso.
 
-— Mel, eu não queria. Eu só tava... — A voz de Beatriz estremeceu. — Ninguém pode saber disso aqui, ta? Nem os meus irmãos. O Breno vai ficar com aquela cara, o Bruno vai fazer piada de um jeito que eu não aguento, e o Banjo vai querer saber tudo e depois ficar com medo de mim.
+— Mel, eu não queria. Eu só tava... — A voz de Beatriz estremeceu. — Ninguém pode saber disso aqui, tá? Nem os meus irmãos. O Breno vai ficar com aquela cara, o Bruno vai fazer piada de um jeito que eu não aguento, e o Banjo vai querer saber tudo e depois ficar com medo de mim.
 
 — Eu nunca contei nada pra eles.
 
 — Eu sei. Eu só tô pedindo de novo.
 
-— Relaxa... nunca trairia minha melhor amiga. 
+— Relaxa... nunca trairia minha melhor amiga.
 
 Beatriz estendeu o dedo mindinho, ainda tremendo.
 
 — Prometo de novo — disse, enganchando o mindinho no da amiga. — Mas admito que adoro quando você faz isso.
 
-— É... eu... ainda bem que o fogo não se espalhou... e que ninguém se machucou, né?  
+— É... eu... ainda bem que o fogo não se espalhou... e que ninguém se machucou, né?
 
-As duas voltaram para o ensaio devagar. Mais tarde, no recreio, Bruno atravessava o pátio de cimento molhado em direção ao bebedouro quando ouviu a voz de Melissa atrás do pilar. Era impossível confundir. Melissa era a única pessoa que ele conhecia capaz de falar de superpoderes em voz baixa e ainda assim ser ouvida do outro lado do pátio.
+As duas voltaram para o ensaio devagar.
 
-— Mas a cor da chama muda quando você tá com medo ou quando tá com raiva? — perguntava. — Eu anotei no caderno que aquilo que você falou de já ter feito fogo azul. 
+
+Mais tarde, no recreio, Bruno atravessava o pátio de cimento molhado em direção ao bebedouro quando ouviu a voz de Melissa atrás do pilar. Era impossível confundir. Melissa era a única pessoa que ele conhecia capaz de falar de superpoderes em voz baixa e ainda assim ser ouvida do outro lado do pátio.
+
+— Mas a cor da chama muda quando você tá com medo ou quando tá com raiva? — perguntava. — Eu anotei no caderno que aquilo que você falou de já ter feito fogo azul.
 
 — Mel, shhh. Fale mais baixo, por favor.
 
-— Ah, desculpe! É que... isso é tão tão tão legal! Minha melhor amiga é tipo uma super-heroína que nunca passa frio... será que... você pode fazer de novo... depois... pra eu ver? Por favorzinho? 
+— Ah, desculpe! É que... isso é tão tão tão legal! Minha melhor amiga é tipo uma super-heroína que nunca passa frio... será que... você pode fazer de novo... depois... pra eu ver? Por favorzinho?
 
-— Não Melissa. Não vou fazer mais na frente de ningém. Se mais alguém ver, vão me chamar de aberração. Vão me colocar num circo. 
+— Não, Melissa. Não vou fazer mais na frente de ninguém. Se mais alguém ver, vão me chamar de aberração. Vão me colocar num circo.
 
-— Eu adoro circos. Vou te visitar. 
+— Eu adoro circos. Vou te visitar.
 
 Bruno deu a volta no pilar com o sorriso mais largo do pátio e encostou-se nele.
 
-— Eu sabia — disse. — Eu sabia que você não tinha segurado a língua, irmãzinha. 
+— Eu sabia — disse. — Eu sabia que você não tinha segurado a língua, irmãzinha.
 
 Beatriz deu um pulo e ficou da cor do cimento. Melissa abriu a boca, fechou, abriu de novo e escondeu o caderno atrás das costas.
 
-— Segurado a língua? Hã? Do que você ta falando? A gente tava falando de... de ventilador. Um ventilador muito interessante, Bruno. Sabia que teve um que deu problema mais cedo em uma das salas? 
+— Segurado a língua? Hã? Do que você tá falando? A gente tava falando de... de ventilador. Um ventilador muito interessante, Bruno. Sabia que teve um que deu problema mais cedo em uma das salas?
 
 — Aquele que queimou logo depois da minha irmã ir buscar algo não? Vi o Seu Osmar comentando isso com a tia da cantina.
 
-— É... — Melissa abriu a boca, sem saber o que falar — não teve nada demais. Eu encontrei ela, e realmente era só um ventilador queimado. 
+— É... — Melissa abriu a boca, sem saber o que falar — não teve nada demais. Eu encontrei ela, e realmente era só um ventilador queimado.
 
 — Tanta gente pra contar, Beatriz. — Bruno cruzou os braços. — E você conta pra pessoa mais barulhenta do continente.
 
 — Ela é minha melhor amiga — disse Beatriz, ofendida, e depois ficou vermelha. — Se fosse contar pra alguém, essa pessoa seria a Mel.
 
-Bruno a olhou, e olhou Melissa, que fingia um sorrisinho enquanto desviava o olhar. 
+Bruno a olhou, e olhou Melissa, que fingia um sorrisinho enquanto desviava o olhar.
 
-Na fila do refeitório, Beatriz segurou a bandeja pelas pontas dos dedos. O cabelo dela cheirava a fogueira. 
+Na fila do refeitório, Beatriz segurou a bandeja pelas pontas dos dedos. O cabelo dela cheirava a fogueira.
 
-— Pode contando — ordenou Bruno — se não contar, eu vou descobrir de qualquer jeito. 
+— Pode contar — ordenou Bruno. — Se não contar, eu vou descobrir de qualquer jeito.
 
-Melissa nada disse, apenas olhou pra amiga, que de cabeça baixa disse: 
+Melissa nada disse, apenas olhou pra amiga, que de cabeça baixa disse:
 
-— Tudo bem Mel 
+— Tudo bem, Mel.
 
-Melissa suspirou. 
+Melissa suspirou.
 
 — Foi na sala de adereços, atrás do palco — disse Melissa. — A Bia perdeu o controle do fogo. Quando cheguei, ele já tinha alcançado os programas e a cortina.
 
@@ -244,37 +248,38 @@ Beatriz não negou. Olhou para o chão e apertou os lábios.
 
 — O seu Osmar acredita em tudo. Se disser que o ventilador é assombrado ele chama um padre pra exorcizar.
 
-Bruno olhou de Beatriz pra Melissa. 
+Bruno olhou de Beatriz pra Melissa.
 
-— Acidentes são acidentes maninha. Mas... — disse Bruno, e a frase saiu mais séria do que ele queria. — A regra é do tio, e ele precisa saber.
+— Acidentes são acidentes, maninha. Mas... — disse Bruno, e a frase saiu mais séria do que ele queria. — A regra é do tio, e ele precisa saber.
 
 — Bruno...
 
-— Não é castigo. Ele mesmo falou, lembra? "Conte tudo pra mim". Se der algum problema maior, ele tem que saber. Não quero o tio enchendo o saco porque não contei que minha irmã espalhou a notícia que somos os guardiões de Belfex? 
+— Não é castigo. Ele mesmo falou, lembra? "Conte tudo pra mim". Se der algum problema maior, ele tem que saber. Não quero o tio enchendo o saco porque não contei que minha irmã espalhou a notícia que somos os guardiões de Belfex?
 
-— Guardiões de Belfex? — perguntou Melissa. 
+— Guardiões de Belfex? — perguntou Melissa.
 
-— Tipo, lá podemos voar, combater o crime, levantar pesos 100 vezes maiores do que os nossos. 
+— Tipo, lá podemos voar, combater o crime, levantar pesos 100 vezes maiores do que os nossos.
 
-— Você não me contou isso — Melissa arregalou os olhos sorrindo. 
+— Você não me contou isso — Melissa arregalou os olhos sorrindo.
 
-— Ele está zoando com você, Mel — disse Beatriz. 
+— Ele está zoando com você, Mel — disse Beatriz.
 
-— Ah! — calou-se a amiga. 
+— Ah! — calou-se a amiga.
 
-Beatriz ficou olhando para ele por um tempo, com os olhos marejados, e depois assentiu uma vez só. 
+Beatriz ficou olhando para ele por um tempo, com os olhos marejados, e depois assentiu uma vez só.
 
-— Tudo bem... 
+— Tudo bem...
 
-Voltou para casa a pé, debaixo da garoa, sem esperar o ônibus. Encontrou Breno no quarto, em cima da cama, com o caderno aberto no desenho inacabado de um rosto sem olhos. Contou tudo, na ordem em que descobrira, e Breno foi ficando quieto, de uma forma que Bruno conhecia muito bem. Os dedos dele, que seguravam o lápis, afundaram um centímetro no cabo de madeira e depois voltaram ao normal.
+
+Bruno voltou para casa a pé, debaixo da garoa, sem esperar o ônibus. Encontrou Breno no quarto, em cima da cama, com o caderno aberto no desenho inacabado de um rosto sem olhos. Contou tudo, na ordem em que descobrira, e Breno foi ficando quieto, de uma forma que Bruno conhecia muito bem. Os dedos dele, que seguravam o lápis, afundaram um centímetro no cabo de madeira e depois voltaram ao normal.
 
 — Bruno, pega leve com ela — disse Breno, por fim. — Ela tem medo do próprio poder.
 
-— Você sabe que se você cair em cima de mim transformado em metal, pode ser letal também não é? 
+— Você sabe que se você cair em cima de mim transformado em metal, pode ser letal também, não é?
 
 — Mas pra ela não é assim. Será que pelo menos uma vez, você pode pensar nos sentimentos dela ao invés de só pensar em você?
 
-— Cara, eu não to pensando em mim. Acredite, dessa vez não. — Bruno se sentou na beirada da cama. — Eu tô dizendo que a gente tem que contar pro tio. Não podemos esconder isso dele. 
+— Cara, eu não tô pensando em mim. Acredite, dessa vez não. — Bruno se sentou na beirada da cama. — Eu tô dizendo que a gente tem que contar pro tio. Não podemos esconder isso dele.
 
 — Sabe que ela vai ficar com raiva de você.
 
@@ -282,7 +287,7 @@ Voltou para casa a pé, debaixo da garoa, sem esperar o ônibus. Encontrou Breno
 
 Breno guardou o caderno.
 
-— Eu não escondo coisas do tio. Só... temos que saber como contar. 
+— Eu não escondo coisas do tio. Só... temos que saber como contar.
 
 Frank chegou do táxi no começo da noite, com os ombros curvados e a camisa molhada nos ombros, e ouviu a história de pé, ao lado da pia, ainda de casaco. Quando Bruno terminou, ele puxou uma cadeira devagar e se sentou. A primeira coisa que perguntou foi:
 
@@ -290,17 +295,18 @@ Frank chegou do táxi no começo da noite, com os ombros curvados e a camisa mol
 
 — Não — disse Breno.
 
-— E na escola? Alguém suspeitou? 
+— E na escola? Alguém suspeitou?
 
 — Acharam que foi um ventilador.
 
-— E a menina? A amiga? Tem certeza que ela não contou pra mais ninguém? 
+— E a menina? A amiga? Tem certeza que ela não contou pra mais ninguém?
 
-— A melissa? — riu Bruno, olhou para Breno pensando em contar sobre a fama da menina, mas pensou melhor — não sei. Acho que não. Senão metade da escola saberia, não? 
+— A Melissa? — riu Bruno, olhou para Breno pensando em contar sobre a fama da menina, mas pensou melhor — não sei. Acho que não. Senão metade da escola saberia, não?
 
 Frank pôs as duas mãos no rosto. Ficou assim tanto tempo que Bruno olhou para o fogão, para a geladeira com a folha furada e para o chão. Lá em cima, no alto da escada, uma tábua do corredor estalou, e ele soube sem olhar que alguém tinha ouvido a conversa inteira.
 
 — Eu vou falar com ela amanhã — disse Frank, entre os dedos. — Hoje, deixa ela descansar.
+
 
 Na quinta, a neblina estava tão branca no pátio de trás que as pessoas apareciam e sumiam como desenhos mal apagados. Banjo e Bruno dividiam o banco debaixo da velha ameixeira, a única árvore que o diretor nunca deixara cortar, e dividiam também um pacote de biscoito de polvilho.
 
@@ -308,13 +314,13 @@ Na quinta, a neblina estava tão branca no pátio de trás que as pessoas aparec
 
 — Isso não é divisão.
 
-— É divisão com juros. Lembra que você comeu o meu pedaço de torta que a tia Marta fez? 
+— É divisão com juros. Lembra que você comeu o meu pedaço de torta que a tia Marta fez?
 
-— Mas... não é justo, você estava num passeio da escola. A torta ia estragar até a noite. 
+— Mas... não é justo, você estava num passeio da escola. A torta ia estragar até a noite.
 
-— Pois é... ainda assim se estragasse, era minha torta. Como você a comeu... eu como mais biscoitos hoje. 
+— Pois é... ainda assim se estragasse, era minha torta. Como você a comeu... eu como mais biscoitos hoje.
 
-Banjo bufou. 
+Banjo bufou.
 
 Foi então que Bruno reparou no brilho. Escapava pela gola do moletom do irmão, fraco, e olhou para os lados antes de falar.
 
@@ -338,11 +344,11 @@ Do outro lado do pátio, Pedro Porrada, Nathan, Leilton e Sérgio chutavam uma b
 
 — Eu percebi como ela tá meio... chateada.
 
-— Claro que ela está. Mas ela vai entender. Eu também odiava quando eu aprontava e o Breno ia falar pro tio. Mas faz parte não é? Se não podemos derrotar nossos inimigos... nos tornamos como eles. 
+— Claro que ela está. Mas ela vai entender. Eu também odiava quando eu aprontava e o Breno ia falar pro tio. Mas faz parte, não é? Se não podemos derrotar nossos inimigos... nos tornamos como eles.
 
 Bruno piscou e se levantou, espanou as migalhas do casaco avisando que ia comprar suco na cantina antes que a fila virasse uma cobra. Banjo ficou no banco com o gibi aberto sem ler. Foi quando Leilton chutou.
 
-A bola subiu torta, bateu num dos galho que tremeu. De cima dele um ninho de sabiás caiu feito uma xícara.
+A bola subiu torta, bateu num dos galhos, que tremeu. De cima dele um ninho de sabiás caiu feito uma xícara.
 
 — Gol! — gritou Pedro.
 
@@ -354,9 +360,9 @@ Banjo foi até lá sem pensar muito. Olhou para o galho, alto demais mesmo na po
 
 Olhou ao redor pra ver se ninguém estava vendo e estendeu a mão aberta. O ninho se levantou da grama sem balançar, com os filhotes dentro, e Banjo sentiu o peso dele nos dedos, uma coisa pequena, quente e vigiada. Subiu até a altura do galho, e foi nessa hora que o galho desceu. Desceu um palmo, devagar, sem vento nenhum, do jeito de alguém que se abaixa para receber o que lhe entregam. O ninho pousou na forquilha, e o galho voltou ao lugar sozinho.
 
-Banjo ficou de mão estendida, com um sorriso nos lábios. A mãe sabiá voou direto para os filhotes. 
+Banjo ficou de mão estendida, com um sorriso nos lábios. A mãe sabiá voou direto para os filhotes.
 
-Então ouviu algo. Não, sentiu. A árvore parecia emanar um sentimento para seu coração. Banjo encostou a palma no tronco, a casca estava morna, como um cavalo depois de uma corrida. Então um galho da árvore pareceu se mover e fortalecer a base do ninho.  Debaixo do moletom, Farol vibrou no mesmo ritmo, e Banjo sentiu que os dois estavam ouvindo a mesma coisa.
+Então ouviu algo. Não, sentiu. A árvore parecia emanar um sentimento para seu coração. Banjo encostou a palma no tronco, a casca estava morna, como um cavalo depois de uma corrida. Então um galho da árvore pareceu se mover e fortalecer a base do ninho.  Debaixo do moletom, Farol vibrou no mesmo ritmo, e Banjo sentiu que os dois estavam ouvindo a mesma coisa.
 
 — Obrigado — disse, baixinho, sorrindo.
 
@@ -368,7 +374,7 @@ Pedro entrava pelo portão com a bola debaixo do braço, e Nathan, Leilton e Sé
 
 — Eu não...
 
-— Cavaquinho é feito de madeira não é? Deve ser por isso que fala com elas. — Pedro riu. — São seus familiares, não é, esquisito?
+— Cavaquinho é feito de madeira, não é? Deve ser por isso que fala com elas. — Pedro riu. — São seus familiares, não é, esquisito?
 
 Alguma coisa vibrou nas mãos de Banjo, quente e inquieta. A bola debaixo do braço de Pedro tremeu, só um pouco, e Banjo sentiu uma vontade enorme de deixá-la subir, de mandá-la na cara dele, de ver o riso sumir. Fechou os punhos e enfiou-os debaixo dos braços, e a vontade ficou pesando nos ombros. Debaixo do moletom, a luz de Farol pulsou, e Banjo a apertou contra a barriga com o braço.
 
@@ -390,9 +396,9 @@ Bruno voltou com o suco numa mão e o biscoito na outra, viu a calça molhada do
 
 — Nada?
 
-Bruno olhou ao redor e viu os garotos ainda se afastando dali. Então fechou a cara e se virou pro irmão. 
+Bruno olhou ao redor e viu os garotos ainda se afastando dali. Então fechou a cara e se virou pro irmão.
 
-— O que eles fizeram? 
+— O que eles fizeram?
 
 Banjo recolocou os óculos, apertando os lábios.
 
@@ -402,7 +408,7 @@ Banjo recolocou os óculos, apertando os lábios.
 
 Ele foi até o pé dos três degraus que levavam ao pátio coberto, onde a turma formava fila depois do sinal, e parou ali como quem espera alguém. A mão pendeu ao lado do corpo. Uma fumacinha pálida subiu pela manga, e uma película fina, branca como vidro, espalhou-se pelo cimento molhado em linhas de geada, tão rala que quase desaparecia contra a neblina.
 
-Pedro, que vinha na frente da turma, de costas, contando para Nathan alguma história exagerada, pisou na película com o pé inteiro. Então escorregou para a frente, esticado, sem tempo de abrir os braços, e atravessou o pátio inteiro de barriga, deslizando como um pinguim, até parar aos pés de um grupo de meninas do sexto ano. A bola quicou sozinha para longe. Ninguém falou. E aí uma menina soltou uma gargalhada, e depois todo mundo.
+Pedro, que vinha na frente da turma, de costas, contando para Nathan alguma história exagerada, pisou na película com o pé inteiro. Então escorregou para a frente, esticado, sem tempo de abrir os braços, e atravessou o pátio inteiro de barriga, deslizando como um pinguim, até parar aos pés de um grupo de meninas do sexto ano. A bola quicou sozinha para longe. Houve um segundo de silêncio. E aí uma menina soltou uma gargalhada, e depois todo mundo.
 
 Nathan se abaixou para ajudar e escorregou também.
 
@@ -410,7 +416,8 @@ Banjo riu atrás da mão. Bruno passou por ele devagar, sem olhar, e murmurou:
 
 — De nada.
 
-Aquela tarde, no quintal de casa, a neblina chegou ao portão. A bola amarela com BBBB quase apagados, já meio murcha, quicou duas vezes no chão molhado antes de bater no tronco da jabuticabeira.
+
+Naquela tarde, no quintal de casa, a neblina chegou ao portão. A bola amarela com BBBB quase apagados, já meio murcha, quicou duas vezes no chão molhado antes de bater no tronco da jabuticabeira.
 
 — Ponto da árvore! — gritou Beatriz.
 
@@ -440,17 +447,17 @@ Banjo pegou a bola e ficou segurando sem saber o que fazer.
 
 — Que música?
 
-— Não sei. Já foi embora.  
+— Não sei. Já foi embora.
 
-Banjo sorriu pra ela e ela o olhou nos olhos. 
+Banjo sorriu pra ela e ela o olhou nos olhos.
 
-— Eu sinto tanta... tanta falta de lá, Banjinho. 
+— Eu sinto tanta... tanta falta de lá, Banjinho.
 
 Banjo sentou no chão.
 
-— Eu também sinto Bia. De Tayo... das láridas... das aventuras que tivemos... e de poder usar nossos poderes... nós somos super-heróis, Beatriz. Salvamos Tayo ano passado. E agora estamos aqui... presos. Não é justo. 
+— Eu também sinto, Bia. De Tayo... das láridas... das aventuras que tivemos... e de poder usar nossos poderes... nós somos super-heróis, Beatriz. Salvamos Tayo ano passado. E agora estamos aqui... presos. Não é justo.
 
-— É, eu sei, Banjinho. Não é justo mesmo — disse a irmã, o olhar caído. 
+— É, eu sei, Banjinho. Não é justo mesmo — disse a irmã, o olhar caído.
 
 Banjo puxou a gola do moletom. Farol espiou para fora, uma luz pequena e quente, e piscou devagar para Beatriz.
 
@@ -458,32 +465,32 @@ Banjo puxou a gola do moletom. Farol espiou para fora, uma luz pequena e quente,
 
 Beatriz encostou o dedo no brilho, e Farol se aqueceu na pele dela. Por um instante, os dois não disseram mais nada.
 
+
 Frank chegou na boca da noite e não tirou o casaco. Ficou parado na porta da cozinha, com as chaves do táxi na mão, olhando para a panela que pingava no chão, depois para a outra goteira, perto da geladeira, e por último para os quatro, espalhados pela mesa com a lição de casa. Esperou um bom tempo antes de falar.
 
-— Venham aqui — disse. — Os quatro. 
+— Venham aqui — disse. — Os quatro.
 
 Os garotos se sentaram. Ele puxou uma cadeira e tinha o rosto cansado e uma decisão já tomada, que se via na forma como apoiava os cotovelos na mesa.
 
-— Um ano — disse Frank. — Foi um ano de conversa, de regra, de folha na geladeira, e eu vi cada um de vocês se esforçar. Mas não sei se vamos precisar manter esse segredo por mais tempo. 
+— Um ano — disse Frank. — Foi um ano de conversa, de regra, de folha na geladeira, e eu vi cada um de vocês se esforçar. Mas não sei se vamos precisar manter esse segredo por mais tempo.
 
-— Por quê? Vai nos entregar pra polícia? — riu Bruno tomando suco num canudinho. 
+— Por quê? Vai nos entregar pra polícia? — riu Bruno tomando suco num canudinho.
 
-— Talvez — ironizou o tio — A questão é... Eu que não como ajudá-los com isso porque... Eu nunca tive isso. — Frank bateu de leve no peito, onde ficava o coração. — Entendo o quanto estão ansiosos pra poder voltar. E eu tenho certeza que não vai demorar pra acontecer.
+— Talvez — ironizou o tio — A questão é... Eu não sei como ajudá-los com isso, porque... Eu nunca tive isso. — Frank bateu de leve no peito, onde ficava o coração. — Entendo o quanto estão ansiosos pra poder voltar. E eu tenho certeza que não vai demorar pra acontecer.
 
 Beatriz olhou para Banjo, Banjo olhou para Breno, e o olhar de Breno foi para Bruno, que tinha parado de sorrir.
 
-— Como é, tio? — perguntou Banjo. Os olhos dele brilhavam atrás das lentes redondas, e ele tentou apagá-los, e não conseguiu. — Acha que a gente vai voltar pra Belfex? 
+— Como é, tio? — perguntou Banjo. Os olhos dele brilhavam atrás das lentes redondas, e ele tentou apagá-los, e não conseguiu. — Acha que a gente vai voltar pra Belfex?
 
 Frank abriu a boca, respirou fundo e demorou a responder.
 
-— Eu não sei o dia — disse, por fim. — Mas eu acredito que vocês voltarão sim. A água de lá encosta na de cá, os dois mundos são próximos. A mãe de vocês me ensinou, uma vez. 
+— Eu não sei o dia — disse, por fim. — Mas eu acredito que vocês voltarão sim. A água de lá encosta na de cá, os dois mundos são próximos. A mãe de vocês me ensinou, uma vez.
 
 Bruno abriu a boca, e a fechou, e depois a abriu outra vez.
 
 — Isso é um tipo de pegadinha? — perguntou. — Sabe algo que a gente não sabe?
 
 — Não sei — disse Frank. E então, finalmente, sorriu. Foi pequeno e torto, mas chegou. — Mas imagino. Seus pais não foram uma única vez para Belfex.
-
 
 
 Na segunda-feira choveu como ninguém tinha previsto, e Frank, que previa tudo, só olhou pela janela e murmurou que o céu estava de mau humor.
@@ -496,9 +503,9 @@ Foram em fila debaixo da chuva. Bruno carregava o guarda-chuva pequeno aberto so
 
 — VAI ATRASAR O ÔNIBUS! — gritou Beatriz.
 
-— O QUÊ? — gritou Banjo. 
+— O QUÊ? — gritou Banjo.
 
-— O ÔNIBUS! — gritou Beatriz.  
+— O ÔNIBUS! — gritou Beatriz.
 
 — EU TAMBÉM TÔ COM FOME! — respondeu Banjo, e Breno bateu a mão na testa.
 
@@ -520,21 +527,21 @@ Bruno girou nos calcanhares com o guarda-chuva pequeno, procurando o som como qu
 
 — ALÔ? — gritou, de encontro ao fone. — ALÔ? NÃO TÔ OUVINDO!
 
-Ficou parado, com o fone grudado na orelha e o dedo tapando a outra. O som estava impossível de ouvir. Um trovão fez Beatriz se agarrar forte em Bruno. 
+Ficou parado, com o fone grudado na orelha e o dedo tapando a outra. O som estava impossível de ouvir. Um trovão fez Beatriz se agarrar forte em Bruno.
 
-Por fim ele ouviu. 
+Por fim ele ouviu.
 
-— Olhe a poça! — disse a voz. 
+— Olhe a poça! — disse a voz.
 
 — O quê?
 
-— A POÇA, NO CHÃO! —gritou. Breno reconhecia aquela voz. 
+— A POÇA, NO CHÃO! — gritou a voz. Breno reconhecia aquela voz.
 
-Então a ligação caiu. 
+Então a ligação caiu.
 
 — QUEM ERA? — gritou Bruno.
 
-— NÃO SEI! — Breno recolocou o fone no gancho com cuidado. — ELE MANDOU OLHAR A POÇA! NO CHÃO. 
+— NÃO SEI! — Breno recolocou o fone no gancho com cuidado. — ELE MANDOU OLHAR A POÇA! NO CHÃO.
 
 — QUE POÇA?
 
@@ -544,7 +551,7 @@ Beatriz já estava olhando para o chão, na beira da calçada, onde a água da e
 
 Os garotos olharam pra onde a menina olhava. Era a mesma poça grande que Beatriz tinha visto, e algo estava estranho nela. O reflexo não era o do céu. Acima deles, o céu era de chumbo. Dentro da poça havia uma cidade de torres altas e curvas, enroladas em espiral, com jardins nos andares e árvores de folhas azuis, e fontes que flutuavam no ar entre elas. Caminhos de luz cruzavam a cidade, e veículos prateados, quase transparentes, deslizavam por eles sob um céu laranja e violeta, com faixas verdes, enormes, que se dobravam devagar como fitas de um vestido. Uma lua muito maior do que qualquer lua da Terra pendia na beirada da água, e entre as torres passava um bando de pássaros que deixavam rastros de luz, como cometas pequenos. Nenhuma daquelas cores estava no céu verdadeiro. Alguma coisa, dentro da poça, estava acesa.
 
-— É Tayo — disse Beatriz, sem gritar, e ninguém ouviu.
+— É Tayo — disse Beatriz, sem gritar, e a chuva levou a frase.
 
 Os quatro se aproximaram, de mochilas e cabelos escorrendo, olhando para uma coisa que os chamava e que também podia ser perigosa. A poça piscou, uma vez, como um olho. Piscou de novo, mais rápido, e a cidade lá dentro tremeu como o fundo de uma xícara.
 
@@ -552,7 +559,7 @@ O zíper da mochila de Banjo se abriu sozinho um palmo, e Farol espiou para fora
 
 — Fica quietinho aí — sussurrou Banjo. Farol não deu a menor bola.
 
-Bruno puxou um sorriso de lado e se abaixou perto da poça. Então, sem avisar, a poça acendeu e água o engoliu de cabeça. Bruno deu um grito que virou gargalhada, e o resto dele sumiu como um fio de linha puxado de uma agulha. Beatriz agarrou a perna dele no último instante e foi levada junto. Breno se atirou para segurar os dois, com o braço estendido, e a poça o engoliu um dos braços.
+Bruno puxou um sorriso de lado e se abaixou perto da poça. Então, sem avisar, a poça acendeu e água o engoliu de cabeça. Bruno deu um grito que virou gargalhada, e o resto dele sumiu como um fio de linha puxado de uma agulha. Beatriz agarrou a perna dele no último instante e foi levada junto. Breno se atirou para segurar os dois, com o braço estendido, e a poça lhe engoliu um dos braços.
 
 — BANJO! — O grito de Breno chegou como um eco muito longe, já dentro d'água. — A MÃO!
 

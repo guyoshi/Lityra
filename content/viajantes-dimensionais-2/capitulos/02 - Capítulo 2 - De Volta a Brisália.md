@@ -4,13 +4,13 @@ Ele mal terminara de abrir os braços quando a menina se chocou contra a barriga
 
 — Eu não estava à espera de uma tempestade tão pequena — disse ele.
 
-— A gente voltou! — Beatriz falou de dentro da toalha, sem soltá-lo. — O senhor sabia que a gente ia voltar?
+— A gente voltou! — Beatriz falou de dentro da toalha, sem soltá-lo. — Vocês sabiam que a gente ia voltar?
 
 — Sabia que a passagem estava próxima de abrir. Não sabia se vocês conseguiriam encontrá-la antes que fechasse.
 
 Banjo já estava ali também, tentando abraçar Lioro sem esmagar Farol contra o próprio peito. Breno chegou logo atrás e apertou a mão do homem, forte demais para um cumprimento. Bruno permaneceu alguns passos afastado, sentado no chão com a mochila entre os joelhos.
 
-— E o telefone? — perguntou Breno. — Era o senhor?
+— E o telefone? — perguntou Breno. — Era você?
 
 Lioro inclinou a cabeça.
 
@@ -310,13 +310,13 @@ O mago voltou a olhar para os quatro.
 
 — Também.
 
-O som de uma porta abrindo fez Velho-Sábio se virar. Dois funcionários o chamavam para assinar os últimos registos. Um deles levou a mão à testa, exausto.
+O som de uma porta abrindo fez Velho-Sábio se virar. Dois funcionários o chamavam para assinar os últimos registros. Um deles levou a mão à testa, exausto.
 
 — Só falta confirmar a residência dos quatro — explicou.
 
 — Na minha casa — respondeu o mago.
 
-— Até ao encerramento do ciclo?
+— Até o encerramento do ciclo?
 
 Velho-Sábio olhou de novo para os irmãos, que ainda estavam encharcados de água da Terra e agitados demais para ficar quietos.
 
@@ -364,7 +364,6 @@ Velho-Sábio recolheu o cajado e começou a caminhar.
 
 — Você também faz escândalo, mas não precisa que eu o anuncie.
 
-***
 
 A viagem para Brisália foi mais tranquila. Bruno se acomodou junto à janela do karto, com o cotovelo apoiado no encosto, e passou boa parte do caminho apontando coisas para os irmãos só para provar que ainda se lembrava dos nomes. Acertou o Largo dos Ponteiros de longe, confundiu uma estação de túbulas com outra e insistiu que um dassi que passou acima deles era o mesmo que tinham pegado um ano antes.
 
@@ -680,7 +679,7 @@ Bruno olhou para Breno, esperando alguma reclamação sobre ficar de fora de um 
 
 — Provavelmente não — respondeu Velho-Sábio.
 
-Ninguém fez mais perguntas. Banjo pediu outra fatia de pão, e Átila aproveitou a distração para enfiar o focinho debaixo da mesa.
+As perguntas acabaram ali. Banjo pediu outra fatia de pão, e Átila aproveitou a distração para enfiar o focinho debaixo da mesa.
 
 Depois do jantar, o velho saiu ao jardim para recolher um pequeno suporte de lanternas antes que a noite caísse de vez. Banjo foi atrás dele, seguido de Beatriz. Bruno tinha prometido a si mesmo que passaria o resto da noite sem sair da cadeira, mas ouviu os dois rirem do lado de fora e se levantou.
 
