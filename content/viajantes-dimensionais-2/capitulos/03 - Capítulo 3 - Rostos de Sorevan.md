@@ -46,7 +46,7 @@ Eshley sentou ao lado de Beatriz e deixou vazia a cadeira do outro lado, com o p
 
 Amadou Diop era alto e magro, de pele escura e cabelo cortado rente, e gesticulava com as duas mãos ao mesmo tempo, o que fazia a manga da camisa voar. Quando se empolgava, o cabelo dele arrepiava nas pontas, e uma faísca azul saltou do dedo para a colher de Breno, que a largou com um susto.
 
-— Desculpa! Isso acontece! Não faço de propósito, mas também não faço contra. — Amadou sentou de uma vez entre Bruno e Breno e se virou para Bruno com os olhos muito abertos. — Você é o do gelo, né? Os quatro que foram buscar a irmã no covil. Eu ouvi três versões. Em uma você congelava o dragão.
+— Desculpa! Isso acontece! Não faço de propósito, mas também não faço contra. — Amadou sentou de uma vez entre Bruno e Breno e se virou para Bruno com os olhos muito abertos. — Você é o do gelo, né? Eu estava na arquibancada no Gímiga do ano passado, lá no fundo, e achei vocês incríveis. Depois os quatro foram buscar a irmã no covil, e eu ouvi três versões. Em uma você congelava o dragão.
 
 — Em qual delas eu fiquei bonito? — perguntou Bruno.
 
@@ -286,7 +286,7 @@ Do outro lado vinha um grupo de rapazes rindo alto. Um deles, de camisa amarela 
 
 — Ah. — Bruno olhou, deu de ombros e foi procurar outra coisa para olhar. Banjo ficou vermelho até a raiz do cabelo. Não sabia por que tinha dito aquilo em voz alta, e não teve tempo de pensar nisso, porque Denis vinha atrás, com o dedo apontado para o fim do corredor.
 
-— Olha ali. O Vanterre. — Denis falava como quem apresenta um monumento. — Dário Vanterre. Chegou depois do ciclo passado e já é o garoto que todo mundo conhece. O pai dele banca metade das lojas da Largo dos Ponteiros. Dizem que pagou o conserto do teto do salão de treino sem ninguém pedir. Tem dinheiro, tem estilo...
+— Olha ali. O Vanterre. — Denis falava como quem apresenta um monumento. — Dário Vanterre. Chegou no meio do ciclo passado, de outra ala, e já é o garoto que todo mundo conhece. O pai dele banca metade das lojas da Largo dos Ponteiros. Dizem que pagou o conserto do teto do salão de treino sem ninguém pedir. Tem dinheiro, tem estilo...
 
 — Tem podres — completou Amadou.
 

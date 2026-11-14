@@ -250,7 +250,7 @@ Erla inclinou o corpo para a frente.
 
 — Auream me avisou que alguém da Vigilância podia estar usando a Central para esconder alguma coisa. Recusei acusar meus oficiais sem provas. Depois do Festival, porém, descobri alterações nas escalas de serviço e nos registros de acesso à prisão.
 
-— E havia outra coisa — continuou Erla. — Um parecer da Vigilância usado para readmitir Emiris nos desafios. O documento dizia que uma falha na proteção da pista tinha provocado a queda do dassi. Foi Garien quem apresentou o parecer. Os registros originais da corrida não indicam defeito nenhum.
+— E havia outra coisa — continuou Erla. — Um parecer da Vigilância usado para readmitir Emiris nos desafios. O documento dizia que a queda do dassi dele, na tempestade da Estrada Cintilante, tinha sido provocada por uma falha na proteção da pista. Foi Garien quem apresentou o parecer. Os registros originais da corrida não indicam defeito nenhum.
 
 Garmande apertou as mãos sobre a mesa.
 
@@ -528,11 +528,17 @@ Ficaram acordados até tarde, trocando lembranças, rindo de algumas, calando em
 
 Banjo, deitado de barriga para cima, falou para o teto:
 
-— Breno. Aquele relógio do pai. Eu nunca consegui consertar.
+— Breno. Na caverna da aranha gigante, o cristal dela me fez ver umas lembranças. Uma era a do relógio do papai.
 
 Breno demorou a responder.
 
-— Eu sei. Voltei depois e vi você tentando. Fiquei na porta. Não entrei. — Respirou fundo no escuro. — Eu não devia ter gritado com você. Não foi culpa sua, Banjo. Nunca foi.
+— Que relógio?
+
+— O de bolso. Eu deixei cair no quintal e ele quebrou. Você ficou bravo comigo, e eu fiquei horas olhando as peças, sem saber nem por onde começar.
+
+Breno ficou um tempo calado.
+
+— Eu tinha esquecido disso. — A voz saiu mais baixa. — Agora eu lembro. Voltei depois e vi você ali, com as peças na mão. Fiquei na porta. Não entrei. — Respirou fundo no escuro. — Eu não devia ter gritado com você. Não foi culpa sua, Banjo. Nunca foi.
 
 Banjo não disse nada. Procurou a mão do irmão mais velho e a encontrou.
 
@@ -626,9 +632,9 @@ Beatriz segurou o pão ainda quente, mas não o guardou.
 
 Velho-Sábio olhou para o portal, depois para ela. Um sorriso pequeno apareceu sob a barba.
 
-— Ainda temos um ano inteiro para descobrir por onde se volta.
+— Não posso garantir que nos veremos de novo, minha pequena. 
 
-Beatriz sorriu também e guardou o pão no bolso.
+Beatriz olhou para o chão e guardou o pão no bolso.
 
 No bolso de Bruno, junto com o pão, havia um bilhete dobrado. Ele só leria no dia seguinte, e fingiria que não tinha chorado: "Acorda. Você também."
 

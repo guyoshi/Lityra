@@ -36,7 +36,7 @@ Bruno lembrava da noite em que o tio tinha contado. Fora no sofá, com a televis
 
 — Sim, Bruno, antes de salvar o... dá pra parar de graça — Frank quase sorriu, e o sorriso não chegou aonde precisava. — Eu não tô falando isso pra castigá-los, eu sei que é difícil. Eu tô falando de uma cidade pequena, de uma escola com trinta janelas e de gente que fala. Basta um vizinho ver uma coisa, e vocês deixam de ser meus sobrinhos e viram assunto.
 
-Breno assentiu, sério, como assentia a tudo que vinha de adulto quando o assunto era perigo. Beatriz ficou um instante quieta e perguntou, num fiapo de voz:
+Breno assentiu, sério, como assentia a tudo que vinha de adulto quando o assunto era perigo. Beatriz ficou um instante quieta, com os dedos fechados no pingente azul-claro que Maria lhe dera, por baixo da gola da camiseta, e perguntou, num fiapo de voz:
 
 — E se escapar sozinho? Sem eu querer?
 
@@ -135,7 +135,7 @@ Beatriz foi, aliviada de sair da fila. A sala de adereços ficava depois de uma 
 
 Foi aí que sentiu o calor.
 
-Começou no meio do peito, como uma panela esquentando em fogo baixo, e subiu para os ombros, para o pescoço e para as mãos. Beatriz apertou o anel com o polegar. Continuava usando, como Velho-Sábio pedira. Na Presália, quando o tirara para salvar Bruno, o fogo derrubara parte do teto da caverna, e Breno precisara carregá-la para fora. Depois, até uma chama pequena crescera sem que ela conseguisse apagá-la de imediato, e outra queimara a manga de Banjo. Beatriz não queria que aquilo acontecesse outra vez. Tentou respirar, mas as palmas formigaram. A caixa de papelão sob os seus dedos escureceu num círculo do tamanho de uma moeda, depois de uma mão aberta, e cheirou a pão esquecido no forno.
+Começou no meio do peito, como uma panela esquentando em fogo baixo, e subiu para os ombros, para o pescoço e para as mãos. Beatriz apertou o anel com o polegar. Continuava usando, como Velho-Sábio pedira. Sob a gola, o pingente de Maria esquentava junto com ela. Na Presália, quando o tirara para salvar Bruno, o fogo derrubara parte do teto da caverna, e Breno precisara carregá-la para fora. Depois, até uma chama pequena crescera sem que ela conseguisse apagá-la de imediato, e outra queimara a manga de Banjo. Beatriz não queria que aquilo acontecesse outra vez. Tentou respirar, mas as palmas formigaram. A caixa de papelão sob os seus dedos escureceu num círculo do tamanho de uma moeda, depois de uma mão aberta, e cheirou a pão esquecido no forno.
 
 — Não — disse Beatriz, baixinho. — Para, para, para.
 
@@ -169,7 +169,7 @@ O zelador apareceu na porta, olhou para a cortina, para o ventilador de pedestal
 
 — Ótimo. Saiam daí, que eu tenho que chamar alguém pra ver a fiação.
 
-Elas saíram para o corredor, onde o cheiro de queimado ficava mais fraco, e foram parando perto da janela, de costas para o auditório. Beatriz respirava curto.
+Elas saíram para o corredor, onde o cheiro de queimado ficava mais fraco, e foram parando perto da janela, de costas para o auditório. Beatriz respirava curto. Procurou o pingente por baixo da gola e o fechou na mão, e o metal estava morno, com a mesma temperatura do primeiro dia. Pensou em Eshley, que saberia o que dizer, e em como Belfex estava longe.
 
 — Mel...
 
@@ -431,7 +431,7 @@ Beatriz ergueu a bola para o último arremesso e parou. Ficou assim, de braço n
 
 — Bia?
 
-A bola caiu da mão dela e rolou para a grama. Beatriz levou a mão ao peito, bem em cima do coração, e franziu a testa, como quem tenta reconhecer uma música que passa longe.
+A bola caiu da mão dela e rolou para a grama. Beatriz levou a mão ao peito, bem em cima do coração e do pingente que guardava sob o moletom, e franziu a testa, como quem tenta reconhecer uma música que passa longe.
 
 — Tá quente — disse. — Aqui dentro.
 
@@ -461,9 +461,9 @@ Banjo sentou no chão.
 
 Banjo puxou a gola do moletom. Farol espiou para fora, uma luz pequena e quente, e piscou devagar para Beatriz.
 
-— Ainda tem ele — disse Banjo. — É a única coisa que sobrou de lá.
+— Ainda tem ele — disse Banjo. — E o seu anel, e o colar da Maria. É tudo o que sobrou de lá.
 
-Beatriz encostou o dedo no brilho, e Farol se aqueceu na pele dela. Por um instante, os dois não disseram mais nada.
+Beatriz encostou o dedo no brilho, e Farol se aqueceu na pele dela. Com a outra mão, ela girou o anel e depois fechou os dedos no pingente por cima do moletom, que estava morno. Por um instante, os dois não disseram mais nada.
 
 
 Frank chegou na boca da noite e não tirou o casaco. Ficou parado na porta da cozinha, com as chaves do táxi na mão, olhando para a panela que pingava no chão, depois para a outra goteira, perto da geladeira, e por último para os quatro, espalhados pela mesa com a lição de casa. Esperou um bom tempo antes de falar.
@@ -571,7 +571,7 @@ Estava sendo puxado para baixo e para cima ao mesmo tempo. O corredor de luz se 
 
 Então ele sentiu o poder voltar.
 
-Foi como segurar um espirro por um ano e deixá-lo sair. Desceu pela espinha e saiu pelas pontas dos dedos, quente e pesado, e a vontade de usá-lo veio sozinha. Os dedos de Bruno desenharam uma espiral branca no ar, e a espiral virou um caracol de cristais coloridos. O braço de Breno brilhou num cinza de metal, do ombro até os dedos, e ele riu pela primeira vez em dias. O calor de Beatriz acendeu bolinhas douradas em volta dela, que ela tentou apanhar com as duas mãos.
+Foi como segurar um espirro por um ano e deixá-lo sair. Desceu pela espinha e saiu pelas pontas dos dedos, quente e pesado, e a vontade de usá-lo veio sozinha. Os dedos de Bruno desenharam uma espiral branca no ar, e a espiral virou um caracol de cristais coloridos. O braço de Breno brilhou num cinza de metal, do ombro até os dedos, e ele riu pela primeira vez em dias. O calor de Beatriz acendeu bolinhas douradas em volta dela, que ela tentou apanhar com as duas mãos. O anel esquentou no dedo dela, e o pingente brilhou um azul fraco por cima da gola, e por um momento ela só olhou para os dois.
 
 Foi quando a mão de Beatriz escorregou da de Banjo.
 

@@ -332,7 +332,7 @@ Banjo lembrava: tinha pendurado o relógio num barbante e brincado de aventura n
 
 — Você nunca pensa! Está sempre no seu mundinho! — Breno bateu as mãos na mesa. — Não dá pra contar com você. Nunca deu.
 
-Cada palavra caía como pedra. Quando Breno saiu, Banjo ficou sozinho, horas, tentando consertar o relógio com as mãos trêmulas.
+Cada palavra caía como pedra. Quando Breno saiu, Banjo ficou sozinho, horas, tentando juntar as peças do relógio com as mãos trêmulas.
 
 Depois, o chão ficou cinza, e a paisagem desapareceu. Um campo sem fim, sem cor. Passos leves. Beatriz, olhando-o com um brilho frio, avaliador, que ele nunca tinha visto nos olhos dela.
 
