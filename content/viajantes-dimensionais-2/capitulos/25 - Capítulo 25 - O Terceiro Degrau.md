@@ -6,7 +6,7 @@ Banjo percebeu quando desceram da túbula na estação de Sorevan. O cheiro vinh
 
 Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia atrás dele, com o capuz da capa de Ivy puxado até as sobrancelhas, e Banjo ia por último, porque era de onde dava para sentir todo mundo.
 
-Sentia a rua inteira. Não era ódio. Banjo tinha medo de ódio e sabia como era, quente e cheio de pontas. Aquilo era frio e miúdo, o medo de bicho pequeno que se junta no canto da toca. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
+Banjo olhava as pessoas e tentava adivinhar o que sentiam. No covil de Korvo, precisara tocar Marcus para alcançar o medo dele. Desde então, às vezes percebia alguma coisa sem encostar, mas com Shirley tinha descoberto como era fácil entender tudo errado. Ali não parecia ódio. Era um medo frio e miúdo, de bicho pequeno que se junta no canto da toca. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
 
 Beatriz viu os dois gestos. Banjo sentiu ela ver. Ela puxou o capuz mais para baixo e apertou o passo, e foi a única vez no caminho inteiro que ele quis pegar na mão dela, e não pegou, porque ela odiava ser levada.
 
