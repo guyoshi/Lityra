@@ -76,7 +76,7 @@ Beatriz parou no meio de um passo.
 
 Ao saírem do salão, Beatriz se virou uma última vez. Os caminhos de luz continuavam cruzando a Central em todas as direções, as aves vermelhas passavam rente à cúpula e os arcos de metal líquido recebiam viajantes de mundos que ela nem sabia nomear. O portal por onde tinham vindo já não mostrava nada da rua da escola. Na sua superfície prateada, as cores do salão corriam sem formar imagem alguma.
 
-Ela apertou a mão sobre o anel. Estava frio, como sempre. Na escola, o metal não impedira que a caixa pegasse fogo. Beatriz afastou o pensamento antes que ele estragasse aquele momento e correu para alcançar os irmãos.
+Ela apertou a mão sobre o anel. Voltara a ficar frio, depois do calor de antes. Na escola, o metal não impedira que a caixa pegasse fogo. Beatriz afastou o pensamento antes que ele estragasse aquele momento e correu para alcançar os irmãos.
 
 A estação das túbulas ficava ligada à Central por um caminho coberto. Os carrinhos prateados passavam dentro de tubos transparentes, enfileirados, e um funcionário orientava os passageiros diante de uma placa luminosa. Os irmãos já os tinham visto no primeiro ano, mas haviam usado dassis tantas vezes que Banjo nunca fizera uma viagem inteira naquele transporte.
 
@@ -738,7 +738,7 @@ Beatriz observou Breno examinar seu braço pela segunda vez.
 
 — O braço está doendo? Mexe o cotovelo pra mim, de verdade.
 
-— Um pouquinho, mas é de leve, é dodói que passa.
+— Um pouquinho, mas é de leve, é arranhão que passa.
 
 — E a mão? Consegue mexer? Fecha, abre, e depois conta até cinco com os dedos.
 
@@ -827,3 +827,22 @@ Aquele dia tinha começado na rua da escola, debaixo de uma chuva que fazia todo
 — Já descobri! — gritou Breno lá de dentro.
 
 Bruno riu e fechou a porta atrás de si.
+
+
+O jogo durou quase uma hora. Beatriz, que enfiara a bola amarela de BBBB no fundo da mochila na noite anterior, "por precaução", tentou de tudo para provar que os dados também valiam ponto de tabela, e Kali, a pedido de quem perdeu, jurou que os dados tinham sido trocados. Foi depois da meia-noite, com os irmãos já enrolados nos lençóis e Átila roncando num canto, que Bruno acordou com a mão formigando de frio. A casquinha branca já tinha subido pelo travesseiro. Ele a esfregou na manta, desceu a escada na ponta dos pés atrás de um copo de água e parou no último degrau.
+
+A luz da cozinha estava acesa. Velho-Sábio estava de pé diante da janela, de costas, com o cajado encostado na mesa e um papel dobrado na mão. Era um papel grosso, de lacre cinzento rachado ao meio, e ele o segurava longe do corpo, do jeito de quem recebeu uma conta que não quer pagar. Em cima da mesa, ao lado do cajado, havia duas xícaras. Uma tinha chá pela metade. A outra estava cheia e intocada, e o vapor dela já tinha parado de subir.
+
+— Você devia estar dormindo, Bruno — disse o mago, sem se virar.
+
+— O senhor também. — Bruno encostou na porta. — A segunda xícara é de quem?
+
+Velho-Sábio demorou a responder. Dobrou o papel mais uma vez, até virar um quadradinho, e o guardou na manga da túnica.
+
+— De uma pessoa que prometeu voltar para o chá — disse. — Estou sendo otimista com a xícara. Ela não tem culpa.
+
+— Quer que eu esquente? Eu sei esfriar, mas esquentar eu aprendo rápido.
+
+— Obrigado, não. Ela esfria bem sem ajuda. — O mago pegou as duas xícaras, a cheia e a pela metade, e levou ambas à pia. — Volte para a cama. Amanhã o treino começa cedo e vai ser duro, e eu prefiro que vocês cheguem ao Arcano com sono de verdade do que com sono de preocupação.
+
+Bruno subiu devagar. No meio da escada, olhou para baixo. Velho-Sábio não tinha ligado a torneira. Estava parado diante da janela outra vez, de mãos vazias, olhando a rua molhada como quem espera alguém atravessar.

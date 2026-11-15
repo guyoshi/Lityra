@@ -2,9 +2,9 @@ Na terça, depois do jantar, Beatriz pediu o pátio emprestado a Lioro, e Lioro 
 
 Breno sentou no banco encostado à parede da casa, com o caderno aberto sobre o joelho. Tinha escrito no alto da página Beatriz, pátio, e embaixo duas colunas, o que ela já controlava e o que não. A primeira tinha cinco linhas. A segunda tinha uma, que ele escrevera e riscara duas vezes, e que dizia fogo grande.
 
-— Você não precisa ficar anotando, Breno. — Beatriz estava no meio das lajotas, de moletom até o queixo, com o anel brilhando no dedo e as duas mãos soltas ao lado do corpo. — Eu só vou fazer uma chama. Eu faço chama há um ano inteiro, e antes de qualquer um de vocês aprender a fazer a sua.
+— Você não precisa ficar anotando, Breno. — Beatriz estava no meio das lajotas, de moletom até o queixo, com o anel brilhando no dedo e as duas mãos soltas ao lado do corpo. — É só uma chama. Eu faço chama há um ano inteiro. Faço desde antes de qualquer um de vocês.
 
-— Eu fico por causa da areia. — Ele não levantou os olhos da página. — Lá tudo era ilusão, e o único fogo de verdade foi o seu, o que você separou da lista porque cheirava a alguma coisa. Eu quero ver como ele se comporta aqui, com pedra molhada e uma árvore por perto, antes de alguém pedir que você use. É uma observação, e não uma vigilância.
+— Eu fico por causa da areia. — Ele não levantou os olhos da página. — Lá tudo era ilusão, e o único fogo de verdade foi o seu. Quero ver como ele se comporta aqui, com pedra molhada e árvore por perto, antes de alguém pedir que você use. É observação. Não é vigilância.
 
 — Parece vigilância.
 
@@ -12,9 +12,9 @@ Breno sentou no banco encostado à parede da casa, com o caderno aberto sobre o 
 
 Beatriz quase sorriu, e o sorriso se desfez antes de chegar. Ela olhou para a porta de ferro do portão, que dava para a rua e estava fechada com a trava no lugar, e Breno percebeu que fazia dois dias que todos olhavam portões do mesmo jeito.
 
-— Desde sábado eu penso nos homens que ficaram na porta da casa do Velho-Sábio — disse ela. — Se eles entrarem aqui, eu quero saber fazer uma chama do tamanho da porta e saber apagar depois. Chama pequena eu já faço, e se eu só fizer o que eu já sei eu vou ficar igual, e igual foi o que eu fui no cerco, parada na escada.
+— Desde sábado eu penso nos homens que ficaram na porta da casa do Velho-Sábio — disse ela. — Se eles entrarem aqui, eu quero fazer uma chama do tamanho da porta e saber apagar depois. Chama pequena eu já faço. Se eu só fizer o que já sei, vou ficar igual. E igual foi o que eu fui no cerco, parada na escada.
 
-— Do tamanho da porta é muito para a primeira vez. — Breno virou a página e começou uma coluna nova. — Faz em etapas. Uma mão, depois um prato, depois uma mesa, e a cada etapa você apaga por inteiro antes de passar para a próxima. Se uma etapa não apagar, você não sobe para a seguinte.
+— Do tamanho da porta é muito pra primeira vez. — Breno virou a página e começou uma coluna nova. — Em etapas. Uma mão, depois um prato, depois uma mesa. Cada etapa você apaga inteira antes da próxima. Se uma não apagar, não sobe.
 
 — Eu sei apagar.
 
@@ -84,7 +84,7 @@ Foi lento. A chama baixou ao tamanho de uma porta, depois de uma mesa, depois de
 
 O pátio ficou escuro e cheirando a ferro e fumaça. Beatriz se encolheu contra os próprios joelhos. Velho-Sábio ficou de pé com um estalo dos próprios ossos e olhou para cima, para a rua, para as janelas das casas vizinhas, uma a uma.
 
-— A barreira segura o que vem de fora, e a luz ela não segura — disse. — Alguém viu um clarão em Camporil, e amanhã vão comentar no mercado. Eu falo com o guarda do canal antes do almoço, e Lioro fala com os vizinhos. É um problema pequeno, de quem se esqueceu de fechar a cortina.
+— A barreira segura o que vem de fora, mas a luz ela não segura — disse. — Alguém viu um clarão em Camporil, e amanhã vão comentar no mercado. Eu falo com o guarda do canal antes do almoço, e o Lioro fala com os vizinhos. É problema pequeno, de quem esqueceu de fechar a cortina.
 
 Havia mais uma coisa que ele não disse e que Breno percebeu mesmo assim, o olhar curto do ancião para a barra do portão que estava mais perto, a que Breno segurara por último, e que tinha ficado com uma marca no ferro, escura, do tamanho de uma mão aberta. Velho-Sábio olhou a marca, olhou Breno, e desviou os olhos para a árvore.
 
@@ -96,11 +96,11 @@ Beatriz tinha parado de tremer. Estava sentada com as costas retas e as mãos fe
 
 — Eu protegi. — Breno ouviu a própria voz e achou que parecia a de Frank. — Era fogo de verdade, Beatriz, a rua inteira estava vendo, e a árvore já estava pegando. Eu fiz o que dava para fazer.
 
-— Você decidiu por mim antes de eu dizer qualquer coisa. Eu falei não, eu gritei não, e você fechou mesmo assim, e aí eu vi o meu fogo preso e fiquei com mais medo, e ele cresceu. Foi você, Breno. — Ela respirou fundo. — Não foi só você, eu também não consegui parar. Mas parte foi a gaiola.
+— Você decidiu por mim antes de eu dizer qualquer coisa. Eu falei não, eu gritei não, e você fechou mesmo assim. Aí eu vi meu fogo preso, fiquei com mais medo, e ele cresceu. Foi você, Breno. — Ela respirou fundo. — Não só. Eu também não consegui parar. Mas parte foi a gaiola.
 
 — Eu estava com medo de você se queimar.
 
-— Eu sei. Eu sei que estava. — Beatriz levantou, devagar, e a voz dela ficou mais firme a cada palavra. — Eu preciso de espaço. Não é que eu não goste que você olhe por mim, é que eu preciso errar perto de alguém que não vá entrar na frente. Se eu aprender com você segurando, eu aprendo a depender de você segurando. E um dia você não vai estar.
+— Eu sei. Eu sei que estava. — Beatriz levantou, devagar, e a voz dela ficou mais firme a cada palavra. — Eu preciso de espaço. Não é que eu não goste que você olhe por mim. É que eu preciso errar perto de alguém que não entre na frente. Se eu só aprendo com você me segurando, o que eu faço no dia em que você não estiver?
 
 Breno abriu a boca para dizer que sempre estaria. Percebeu a tempo que a frase era exatamente o problema.
 
@@ -117,10 +117,9 @@ Beatriz fez que sim, e foi para dentro sem olhar para trás. Breno ficou parado,
 Ele levou uma por uma as oito varas de volta ao portão, sem usar as mãos, só com o ferro, e as dobradiças encaixaram com um som limpo. Por último, a barra marcada. Ela voltou ao lugar com a mão aberta virada para dentro do pátio, e ele esperou que o ferro esfriasse e a marca sumisse. A marca ficou.
 
 
-
 Na quarta à noite o quarto de cima parecia mais cheio do que era, com as três camas encostadas na parede, três mochilas no chão e as paredes de pedra devolvendo qualquer som um pouco maior do que ele tinha saído. Breno dormia numa das camas, de barriga para cima, com as duas mãos enroladas em faixas limpas que a mãe de Lioro tinha trazido sem dizer uma única palavra, só estendendo a mão para ele e entregando um pote de unguento cheirando a casca queimada.
 
-— Fica quieto, véi — sussurrou Bruno, de joelhos no chão, com uma caneca de água diante de si. — Eu vou congelar essa água sem rachar a caneca. Sem rachar. Eu consegui hoje de manhã na cozinha e a Brenda nem estava vendo, e eu quero conseguir de novo para dizer que consegui duas vezes.
+— Fica quieto, véi — sussurrou Bruno, de joelhos no chão, com uma caneca de água diante de si. — Vou congelar essa água sem rachar a caneca. Sem rachar. Consegui hoje de manhã na cozinha e a Brenda nem tava vendo. Quero conseguir de novo pra dizer que foram duas vezes.
 
 — Você falou que era para o Breno ver. — Banjo estava sentado de pernas cruzadas na cama de baixo, com os óculos escorregando e as mãos viradas para cima, concentrado num ramo fino da árvore que balançava do lado de fora da janela, e que, desde o começo da noite, ele tentava fazer bater duas vezes no vidro, devagar, sem forçar. — Ele está dormindo.
 
@@ -132,15 +131,15 @@ A água da caneca fez um estalo fino e virou gelo de cima a baixo, branca e inte
 
 — A gente é meio bom. — Banjo ainda sorria. — O Breno é que é bom, e a Beatriz é boa demais, e isso é o problema, e eu... eu acho que ainda estou entendendo o que eu faço. Desculpa, eu estou ficando sério.
 
-— Ficou. Para com isso. — Bruno pôs a caneca no chão e se sentou de frente para ele. — Fala uma coisa que não seja séria. Você tá estranho desde ontem, desde o bosque, sorrindo sozinho, mexendo no cabelo. Eu falei para o Breno e ele disse que era a emoção de ganhar.
+— Ficou. Para com isso. — Bruno pôs a caneca no chão e se sentou de frente para ele. — Fala uma coisa que não seja séria. Você tá estranho desde segunda, desde o bosque, sorrindo sozinho, mexendo no cabelo. Eu falei para o Breno e ele disse que era a emoção de ganhar.
 
-— Não é a emoção de ganhar. — Banjo olhou para a janela. — Bruno, como é que... eu quero perguntar uma coisa, e eu não sei se é bobagem. Como é que a gente sabe quando uma pessoa quer conversar com a gente de verdade e quando ela só está sendo educada? Porque no bosque a Temi falou comigo, e eu fiquei sem saber o que responder, e depois ela me olhou de novo, e foi aquele olhar... que eu não sei ler.
+— Não é a emoção de ganhar. — Banjo olhou para a janela. — Bruno, eu quero perguntar uma coisa e não sei se é bobagem. Como a gente sabe quando uma pessoa quer conversar de verdade e quando está só sendo educada? No bosque a Temi falou comigo, e eu fiquei sem saber o que responder. Depois ela me olhou de novo, e eu não sei ler aquele olhar.
 
 Bruno abriu a boca, fechou, e a expressão dele passou de surpresa a uma espécie de orgulho solene.
 
 — Banjo. — Pôs uma mão no ombro dele. — Você veio ao homem certo. Eu sou o Bruno, eu entendo de garotas desde a quinta série. Regra um, nunca fala do cabelo logo no começo, que parece que você está olhando demais. Regra dois, elogia uma coisa que ela fez e não uma coisa que ela é. Regra três... eu esqueci a regra três, mas é boa.
 
-— A Temi estava com o Yuri o dia inteiro — disse Banjo, depressa, sem conseguir parar. — Ela falou do Yuri o tempo todo, que ele equilibrava a lanterna na ponta do dedo, que ele tinha a cara de quem nunca perde, que no desafio da neve ele ia chegar na frente só pelo jeito de andar. Eu escutei tudo e fiquei só olhando. E o Yuri olhou para mim também, uma vez, e eu desviei.
+— A Temi estava com o Yuri o dia inteiro — disse Banjo, depressa, sem conseguir parar. — Falou do Yuri o tempo todo. Que ele equilibra a lanterna na ponta do dedo, que tem cara de quem nunca perde, que no desafio da neve ia chegar na frente só pelo jeito de andar. Eu escutei tudo e fiquei olhando. E o Yuri olhou pra mim uma vez, e eu desviei.
 
 — Então ela gosta do Yuri — concluiu Bruno, com a satisfação de quem resolve uma prova. — Esquece, véi. É de uma pessoa só, e a pessoa é ele. Aí você procura outra.
 
@@ -160,7 +159,7 @@ Uma figura de capa escura atravessava as lajotas, com o capuz levantado e a barr
 
 — Bruno, não. — Banjo se levantou, e os óculos escorregaram até a ponta do nariz. — É tarde, e a gente nem sabe onde... e se o Lioro acordar? E o Breno, a gente devia...
 
-— O Breno está desmaiado e vai ficar assim até de manhã, que a mãe do Lioro botou uma coisa no unguento que cheirava a sono, eu senti. — Bruno já estava de botas, e a mochila no ombro, e a expressão de quem tinha esquecido todas as regras do mundo. — Eu só quero ver aonde ela vai, que desde que a gente chegou ela só olha pra gente como se nós fôssemos um problema. A Beatriz fez um fogo imenso ontem e ela ficou olhando da janela, você viu? Não tem medo, não tem nada. E sai de noite sem avisar ninguém. Isso é esquisito, Banjo, e eu não vou fingir que não é.
+— O Breno está desmaiado e vai ficar assim até de manhã. A mãe do Lioro botou uma coisa no unguento que cheirava a sono, eu senti. — Bruno já estava de botas, com a mochila no ombro, e a expressão de quem tinha esquecido todas as regras do mundo. — Eu só quero ver aonde ela vai. Desde que a gente chegou ela olha pra gente como se nós fôssemos um problema. A Beatriz fez um fogo imenso ontem e ela ficou olhando da janela, sem medo. E sai de noite sem avisar ninguém. Isso é esquisito, Banjo. Eu não vou fingir que não é.
 
 Banjo olhou o irmão adormecido, as faixas brancas nas mãos, a respiração lenta. Olhou a janela. A árvore velha, lá fora, estendia o ramo que ele tinha feito bater no vidro, e parecia esperar.
 
@@ -188,9 +187,9 @@ No marco havia um desenho a giz, grosso e branco, que a luz cinzenta do céu tor
 
 Ivy pôs a palma da mão aberta no desenho. Ficou assim por muito tempo, com a cabeça baixa e os lábios se mexendo sem som. Depois se ajoelhou, desfez o embrulho de pano que trazia, e Banjo viu, entre os dedos dela, um objeto pequeno que brilhava, redondo e fosco. Ela o colocou no pé do marco, junto de outros embrulhos iguais, espalhados na base, desbotados e velhos, que ficavam ali, ele percebeu, havia muito tempo.
 
-— Ela faz oferenda para eles — murmurou Bruno, no ouvido dele, com um hálito de raiva e de entusiasmo. — É o símbolo dos antidimensais, véi. O mesmo da Velha Rota, que o Velho-Sábio apaga toda semana. Ela vem aqui, ela leva coisa, ela é amiga dessa gente. Eu falei, eu falei que não era à toa!
+— Ela faz oferenda pra eles — murmurou Bruno, no ouvido dele, com um hálito de raiva e de entusiasmo. — É o símbolo dos antidimensais, véi. O mesmo da Velha Rota, que o Velho-Sábio apaga toda semana. Ela vem aqui, leva coisa, é amiga dessa gente. Eu falei que não era à toa!
 
-— A gente não viu a cara dela. — Banjo olhava para o círculo vazio de relva, e a garganta dele estava apertada. — Ela podia estar... eu não sei, Bruno. Esse lugar é triste. A terra aqui está triste, e não de uma forma que combine com fazer maldade.
+— A gente não viu a cara dela. — Banjo olhava o círculo vazio de relva, com a garganta apertada. — Ela podia estar... sei lá, Bruno. Esse lugar é triste. A terra aqui está triste, e não de um jeito que combine com maldade.
 
 — Terra não fica triste.
 
@@ -220,17 +219,17 @@ O quarto estava como o tinham deixado, com a diferença de que Breno estava sent
 
 — Como você sabe? — Bruno parou com uma perna na janela.
 
-— Porque ela passou pelo pátio antes e eu vi pela fresta, e porque vocês dois estão cheirando a relva molhada. — Breno acendeu a lamparina da cabeceira, bem baixinho, e a luz desenhou os rostos. — Digam o que viram. Primeiro o que viram com os olhos, depois o que acham, e as duas coisas em colunas separadas.
+— Porque ela passou pelo pátio antes e eu vi pela fresta, e porque vocês cheiram a relva molhada. — Breno acendeu a lamparina da cabeceira, bem baixinho, e a luz desenhou os rostos. — Falem. Do começo. Só o que viram.
 
 Bruno contou tudo de uma vez, com as mãos, com a voz subindo e descendo, o marco, o desenho de giz, a oferenda, a bota perto do nariz dele. Banjo ficou sentado no chão, de joelhos juntos, e quando Bruno terminou, disse só o que importava.
 
 — Ela não fez nada de mau. Ela encostou a mão no desenho, e deixou um embrulho, e foi embora. Era isso. E a terra lá era triste.
 
-— O que vocês sabem — disse Breno, devagar, e erguendo um dedo enfaixado — é que a Ivy sai à noite sem avisar, vai à Campina, encosta a mão num símbolo que é o dos antidimensais e deixa um embrulho que já deixou outras vezes. O que vocês supõem é que ela é uma deles. A primeira lista é de fatos. A segunda é uma hipótese, e eu acho que é uma hipótese razoável, e não gosto dela.
+— Fato — disse Breno, devagar, erguendo um dedo enfaixado. — A Ivy sai à noite sem avisar, vai à Campina, encosta a mão num símbolo dos antidimensais e deixa um embrulho. Já deixou outras vezes. O resto é hipótese. Que ela é uma deles. — Baixou a mão. — Razoável. E eu não gosto dela.
 
 — Suposição boa — disse Bruno.
 
-— Suposição que a gente não vai contar ao Lioro. — Breno olhou para Banjo e ficou olhando, esperando uma resposta que ele não tinha. — Ainda não. Se for engano, a gente acusa a família que nos abrigou. Se não for, a gente avisa o Velho-Sábio depois de ter certeza, e não antes. Eu não quero fazer de vocês dois uma notícia.
+— Isso a gente não conta ao Lioro. — Breno olhou para Banjo e ficou esperando uma resposta que ele não tinha. — Ainda não. Se for engano, a gente acusa a família que nos abrigou. Se não for, avisa o Velho-Sábio quando tiver certeza. Eu não quero fazer de vocês uma notícia.
 
 Banjo abriu a boca para dizer que não gostava do chão daquele lugar, e foi nesse instante que ouviram o ramo. Um ramo fino, batendo no vidro duas vezes, devagar.
 

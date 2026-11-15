@@ -107,21 +107,21 @@ Pelan era baixo e redondo, de bigode grosso e avental sempre manchado de farinha
 
 — Notei porque a vermelha estava crocante e a preta não.
 
-— Viu? Já é da família. — Pelan se acomodou na cadeira mais próxima, apesar dos olhares de Kali, e pegou um pedaço do próprio pão. — Eu prometi só perguntar da escola, e vou perguntar, mas depois. Primeiro, o que é que o povo anda falando de vocês? Eu estava lá na padaria hoje e o rapaz do açougue me contou que vocês tinham entrado no esconderijo do lobo e voltado com o lobo debaixo do braço, vivo, de coleira, e que o Velho-Sábio o escondeu no porão para criar como cachorro.
+— Viu? Já é da família. — Pelan se acomodou na cadeira mais próxima, apesar dos olhares de Kali, e pegou um pedaço do próprio pão. — Prometi só perguntar da escola, e vou, mas depois. Primeiro, o que o povo anda falando de vocês? Eu estava na padaria hoje e o rapaz do açougue me contou que vocês entraram no esconderijo do lobo e voltaram com o lobo debaixo do braço, vivo, de coleira, e que o Velho-Sábio escondeu ele no porão pra criar como cachorro.
 
 — Não escondemos lobo nenhum — disse Breno, sem levantar a cabeça do livro.
 
-— Eu sei que não. O rapaz do açougue também sabe, só que ele gosta de contar assim. — Pelan abriu os braços. — A mulher da loja de linhas disse que vocês fizeram um buraco no chão do esconderijo e que o buraco deu em outro mundo, e que de lá saiu um barulho tão grande que as aves de Brisália botaram ovos quadrados durante uma semana.
+— Eu sei que não. O rapaz do açougue também sabe, só gosta de contar assim. — Pelan abriu os braços. — A mulher da loja de linhas disse que vocês fizeram um buraco no chão do esconderijo, que o buraco deu em outro mundo, e que saiu um barulho tão grande que as aves de Brisália botaram ovos quadrados durante uma semana.
 
 — Ovos quadrados! — Banjo largou o livro. — Isso eu queria ver.
 
-— Eu também. Fui perguntar na fazenda, e a dona me mandou embora, porque disse que ave dela bota ovo redondo e pronto. Mas eu acho que o boato tem uma ponta de verdade. Se a história cresceu a esse ponto, é porque alguém lá embaixo, no meio de tanta mentira, viu uma coisa de verdade e não soube contar.
+— Eu também. Fui perguntar na fazenda, e a dona me mandou embora, porque ave dela bota ovo redondo e pronto. Mas acho que o boato tem uma ponta de verdade. Se a história cresceu tanto, é porque alguém lá embaixo viu uma coisa de verdade e não soube contar.
 
 Bruno, que fingia ler um quadrinho de aventura de Belfex de cabeça para baixo, levantou os olhos com um interesse repentino.
 
 — Quem contou isso dos ovos?
 
-— A mulher da loja de linhas, já disse. Mas ela ouviu do marido, que ouviu de um primo, e o primo é gente de Velha Rota, que fala baixo e conta histórias de todo tipo. — Pelan mastigou, pensativo. — Se querem saber, gente de Velha Rota é a que melhor conta. A gente lá embaixo vive de contar, desde que o sol ficou fraco naquele canto.
+— A mulher da loja de linhas, já disse. Mas ela ouviu do marido, que ouviu de um primo, e o primo é gente de Velha Rota. — Pelan mastigou, pensativo. — Gente de Velha Rota é a que melhor conta. Lá embaixo se vive de contar, desde que o sol ficou fraco naquele canto.
 
 Nesse momento, a porta do escritório rangeu, e o cajado bateu três vezes no chão. Velho-Sábio apareceu na sala, descalço, com a perna ruim esticada num passo e a outra encolhida no outro, o cabelo para trás e uma expressão de quem tinha acabado de resolver uma charada e ainda não sabia se gostava da resposta.
 
@@ -139,7 +139,7 @@ Nesse momento, a porta do escritório rangeu, e o cajado bateu três vezes no ch
 
 Foi só então que Beatriz reparou que Shirley estava na porta da cozinha, de capa molhada na mão, ouvindo. Chegara fazia uns minutos, para o treino em dupla com Banjo, e tinha esperado sem falar, no meio do corredor, com a paciência de quem sabe que ouvir vale mais que interromper.
 
-— Eu não quero atrapalhar, senhor — disse ela, e a voz saiu mais doce do que Beatriz esperava. — É que a gente está treinando a dupla, e eu soube que a Madame conta histórias que a gente só escuta uma vez na vida. Todo mundo em Tayo já ouviu falar dela, mas pouca gente passou da porta. Se eu puder ir junto, só para ouvir, eu fico quieta. Juro.
+— Eu não quero atrapalhar, senhor. — Shirley hesitou, e a voz saiu mais doce do que Beatriz esperava. — A gente está treinando a dupla. E eu soube que a Madame conta histórias que só se escuta uma vez. Se eu for junto, fico quieta. Juro.
 
 — Você não fica quieta nem dormindo — disse Banjo.
 
@@ -153,7 +153,7 @@ Velho-Sábio olhou para ela por um tempo, e Beatriz percebeu que ele a olhava se
 
 — Não agradeça cedo, senhorita Shirley. A Madame tem o costume de pedir que quem chega conte o que sabe, antes de contar o que falta. Prepare alguma coisa.
 
-— Eu sempre preparo alguma coisa — respondeu Shirley, e Beatriz achou o tom dela um pouco rápido demais, mas deixou passar, porque Pelan já tinha voltado ao assunto dos ovos quadrados.
+— Eu sempre preparo alguma coisa — respondeu Shirley, e Pelan já tinha voltado ao assunto dos ovos quadrados.
 
 Naquela noite, Beatriz acordou com um barulho no corredor, uma espécie de zumbido baixo que subia e descia. Foi andando descalça até a porta do quarto dos irmãos, que estava entreaberta, e encostou o olho na fresta. Bruno estava sentado na cama, de pernas cruzadas, com um objeto redondo e achatado na mão e dois fios finos saindo dele até as orelhas. Tinha o rosto concentrado de quem conta alguma coisa preciosa.
 
@@ -230,7 +230,7 @@ Banjo sentou, de olhos grandes, com a sensação de ter sido lido de ponta a pon
 
 — Eu não disse a ninguém que sinto cheiro — murmurou.
 
-— Não precisou. Está escrito em você. — Ela o olhou com ternura, e depois com um outro tipo de olhar, mais comprido, antes de se virar para Shirley. — E a ruiva, que veio de capa e deve ter achado que ia ficar escondida. Menina. Seja bem-vinda. Qual é o seu nome?
+— Não precisou. Está escrito em você. — Ela o olhou com ternura antes de se virar para Shirley. — E a ruiva, que veio de capa. Menina. Seja bem-vinda. Qual é o seu nome?
 
 — Shirley, Madame. Eu vim só para ouvir.
 
@@ -274,13 +274,13 @@ Ficaram todos parados. Foi Beatriz quem quebrou o silêncio, com a voz pequena, 
 
 A mulher se sentou devagar na almofada, olhou para Beatriz por um tempo longo e serviu o chá antes de responder.
 
-— É quem chama o que não devia ser chamado, menina. Só isso. Quem chama de propósito, com pedido, com força, com nome. Quem sabe fazer, aprende de alguém, ou descobre sozinha, e leva a vida inteira tentando esquecer. — Passou a xícara para ela, quente e pesada. — Não existe invocadora em Tayo hoje, que eu saiba. Os adultos tratam a história como lenda, e é bom que tratem. Lenda protege melhor do que qualquer lacre.
+— É quem chama o que não devia ser chamado, menina. Só isso. Quem chama de propósito, com pedido, com força, com nome. Quem sabe fazer, aprende de alguém, ou descobre sozinha, e leva a vida inteira tentando esquecer. — Passou a xícara para ela, quente e pesada. — Não existe invocadora em Tayo hoje, que eu saiba. Os adultos tratam a história como lenda, e é bom que tratem. Quanto menos gente acredita, menos gente procura, e o lacre fica por conta dos mais velhos.
 
 — Lacre? — perguntou Bruno, de boca cheia de bolacha.
 
 — Um jeito de falar. — Ela piscou. — Uma coisa que os mais velhos usam para trancar o que não querem ver, e que costuma servir de aviso para quem precisa. Falei sem pensar.
 
-Bruno olhou para Banjo, que olhou para Shirley, que sorria com a xícara na mão.
+Bruno olhou para Banjo, que deu de ombros e provou o chá.
 
 Foi então que a porta dos fundos se abriu e Velho-Sábio entrou na sala, com a testa franzida e um caderno de capa surrada debaixo do braço. Tinha ficado fora tanto tempo que Banjo nem tinha reparado no sumiço dele. Vinha com uma sombra no rosto que não era do papel nem da lamparina.
 
@@ -288,7 +288,7 @@ Foi então que a porta dos fundos se abriu e Velho-Sábio entrou na sala, com a 
 
 — Terminou, e bem — respondeu a mulher. — E o senhor, encontrou o que procurava?
 
-— Encontrei o caderno. Estava onde o Kalev costumava deixar o que não queria no Arcano. Fala de lacres, de calor fino, de matéria que se atravessa, e fala de toque. — Ele passou a mão pela capa, sem abrir. — Diz que há coisas que aceitam ser tocadas e coisas que recusam. Não diz quais, e nem por quê.
+— Encontrei o caderno. Estava no armário de trás da sala de estudos do Arcano, onde o Kalev costumava deixar o que não queria guardar na Casa de Pesquisa. Fala de lacres, de calor fino, de matéria que se atravessa, e fala de toque. — Ele passou a mão pela capa, sem abrir. — Diz que há coisas que aceitam ser tocadas e coisas que recusam. Não diz quais, e nem por quê.
 
 — O que o senhor acha?
 

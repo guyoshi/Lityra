@@ -8,6 +8,36 @@ Não apareceram. Banjo percebeu a falta quando a tela de Kali brilhou no fim da 
 
 — Claro que queria. Mas a sopa também é um jeito de ver como ela está, porque se você passa mal por causa de preocupação, eu tenho dois doentes para acompanhar em vez de um. — O brilho da tela baixou um pouco, o que em Kali era um jeito de falar mais baixo. — Vai lá amanhã de manhã, antes do Arcano abrir. Eu aviso o Velho-Sábio.
 
+No quarto, as estrelas do relógio já tinham subido ao teto e se arrumavam em fila, devagar, como faziam quando a casa ia dormir. Banjo ficou deitado de lado, de olhos abertos, até a cama de cima ranger.
+
+— Para de pensar tão alto — disse Bruno, de cabeça para baixo, pendurado pela borda do colchão. — Dá pra ouvir daqui. Parece panela no fogo.
+
+— Eu não estou pensando.
+
+— Está, sim. A menina do vento. Cara, é febre de deserto. Eu fiquei dois dias com o nariz escorrendo depois da casa do primo e ninguém fez velório.
+
+— Dá pra fazer um desenho pra ela? — perguntou Beatriz, sonolenta, da cama do outro lado. — Eu faço um bem bonito. Com um cavalo.
+
+— Ela lê vento, Bia. Não sei se ela liga pra cavalo.
+
+— Então um cavalo com vento. Dentro.
+
+Banjo riu, e a risada saiu mais fraca do que ele queria. Do canto, Breno virou o travesseiro sem virar o rosto.
+
+— Amanhã você vai ver como ela está — disse. — Antes do Arcano. Leva pão e não leva a gente, que a gente faz barulho.
+
+— Eu ia pedir isso.
+
+— Eu sei. Por isso falei primeiro.
+
+— Se ela piorar, me avisa — completou Bruno, voltando para cima do colchão. — Eu congelo a febre. Nunca testei, mas tenho fé.
+
+— Bruno.
+
+— Boa noite, Banjo.
+
+Banjo esperou a respiração dos três se acomodar e ficou olhando as estrelas, uma por uma, até perder a conta.
+
 Mas Banjo não esperou a manhã. Acordou antes do sol, com Farol enrolado no pescoço e a sensação desagradável de ter esquecido de apagar uma luz, e desceu a ladeira de Sorevan na ponta dos pés, com os sapatos na mão, até o Edifício Arcano. A porta lateral estava aberta. Uma lanterna de chama azul pendia ao lado da escada, e a enfermaria ficava no segundo andar, no fim de um corredor que cheirava a erva seca e a lençol limpo.
 
 
@@ -76,49 +106,49 @@ A porta rangeu, e ele achou que fosse Lioro com o chá. Era Shirley.
 
 Estava com o cabelo ruivo preso num rabo alto, o uniforme do Arcano passado e uma bolsa de pano pendurada no ombro. Fechou a porta com cuidado, de costas, e atravessou a sala de braços cruzados na frente do peito, no ritmo de quem não quer fazer barulho nem parecer que se esforça para isso.
 
-— Eu sabia que você estaria aqui — sussurrou. — A Kali me contou que você saiu cedo, e eu deduzi o resto. Não precisa pular, Banjo.
+— Sabia que você estaria aqui — sussurrou. — A Kali disse que você saiu cedo, aí eu deduzi o resto. Não pula, Banjo.
 
-— Desculpa, eu levei um susto. Ela dormiu agora há pouco, falou um monte de coisa estranha com a febre, e eu... — Banjo olhou para Nayra e baixou a voz. — Eu acho que a gente forçou demais ontem, Shirley. Ela segurou o vento por uns quatro minutos, no deserto, com o braço aberto desse jeito, e depois ainda correu. Eu ainda fiz ela correr.
+— Desculpa, levei um susto. Ela dormiu agora há pouco, e falou um monte de coisa estranha com a febre. — Banjo olhou para Nayra e baixou a voz. — A gente forçou demais ontem, Shirley. Ela segurou o vento uns quatro minutos, de braço aberto, e depois ainda correu. Eu fiz ela correr.
 
-— Você fez ela correr porque a duna ia cair em cima dela, Banjo. — Shirley sentou na ponta da cama vazia ao lado, com a bolsa no colo. — Eu ouvi a história inteira ontem à noite, quatro vezes, duas delas do Bruno. Você segurou uma duna inteira, Banjo, e o mínimo que eu posso fazer é não deixar você se sentir culpado por isso. — Ela olhou para a menina que dormia. — Como é que ela está de verdade? Pode me falar, que eu guardo.
+— A duna ia cair em cima dela. — Shirley sentou na ponta da cama vazia ao lado, com a bolsa no colo. — Eu ouvi a história ontem à noite. Quatro vezes, duas do Bruno. — Ela olhou para a menina que dormia. — Como ela está? Pode falar. Eu guardo.
 
-— Com muita febre. A curandeira diz que é febre do vento, de Marador, e que passa em um ou dois dias. O Lioro está preocupado, porque ela não está falando e bagunçando tudo como da outra vez. — Banjo esfregou o rosto. — Ela perguntou se tinha entrado areia no vento, e eu não sabia o que responder. Fiquei só ouvindo.
+— Com muita febre. A curandeira diz que é febre do vento, de Marador, e passa em um ou dois dias. O Lioro está preocupado, porque ela não está falando nem bagunçando tudo como da outra vez. — Banjo esfregou o rosto. — Ela perguntou se tinha entrado areia no vento. Eu não soube o que responder. Fiquei só ouvindo.
 
-— Às vezes ouvir é o que se pode fazer. — Shirley fez uma pausa, e a voz dela baixou um tom. — Eu preciso confessar uma coisa, Banjo, e você vai achar bobagem.
+— Às vezes é o que dá pra fazer. — Shirley mexeu na alça da bolsa. — Eu preciso confessar uma coisa. Você vai achar bobagem.
 
 — Pode falar.
 
-— Ontem, no ponto de água, quando você chegou com ela, rindo, com o nariz sujo de sangue e tão amigo dela que parecia que se conheciam há anos, eu fiquei com ciúme. Um ciúme grande, do tamanho do relógio do Largo dos Ponteiros. — Ela riu baixinho, passando o dedo pela alça da bolsa. — Pensei: a primeira amiga dele nesta cidade fui eu, e agora ele tem uma menina que lê vento e segura duna. E me deu vontade de pedir o meu lugar de volta.
+— Ontem, no ponto de água. Você chegou com ela, rindo, com o nariz sujo de sangue, parecendo amigo de anos. — Ela riu baixinho. — Eu fiquei com ciúme. Do tamanho do relógio do Largo dos Ponteiros. Pensei... a primeira amiga dele aqui fui eu, né? E me deu vontade de pedir meu lugar de volta.
 
 — Shirley...
 
-— Fica quieto, deixa eu terminar. O ciúme passou ontem à noite, quando eu soube que ela tinha adoecido, e eu me senti horrível por ter sentido. Então vim confessar antes que você descobrisse sozinho com aquele seu jeito de olhar para as pessoas e saber o que elas sentem. — Ela inclinou a cabeça. — Ah, Banjo. Você já sabia, né? Eu estava com a cara mais óbvia do mundo.
+— Deixa eu terminar. Passou ontem à noite, quando soube que ela tinha adoecido, e aí eu me senti horrível. — Ela inclinou a cabeça. — Você já sabia, né? Eu estava com a cara mais óbvia do mundo.
 
 Banjo sabia. Tinha sentido a farpa pequena e quente ainda no ponto de água, e tinha achado graça. Sentiu agora o contrário, um alívio morno que subia do peito, e riu pelo nariz, baixinho, para não acordar a menina.
 
-— Eu sabia. Mas pensei que você ia fingir até o fim do ciclo.
+— Eu sabia. Mas achei que você ia fingir até o fim do ciclo.
 
-— Eu fingi por uns vinte minutos, o que para mim é um recorde. — Shirley juntou as mãos sobre a bolsa. — Juro que eu não ia conseguir guardar isso. Eu sou ruim em guardar coisa.
+— Fingi uns vinte minutos. Pra mim é recorde. — Shirley juntou as mãos sobre a bolsa. — Eu sou ruim em guardar coisa.
 
-— Não sei se eu guardo tão bem assim. Mas obrigado por tentar.
+— Não sei se eu guardo melhor. Mas obrigado por tentar.
 
-— Eu sempre tento. — Shirley ajeitou o rabo de cavalo, e a voz ficou mais baixa. — Tem outra coisa. O senhor Graven passou o recado ao Lioro antes do café, para a Nayra ficar sabendo. O segundo desafio é em dupla de novo, e ele ainda não deu a data. A curandeira diz que a febre dura dois dias, mas a recuperação leva mais, e a Nayra não vai estar de pé tão cedo. Dupla desfeita perde pontos, então o juiz permite uma substituição, desde que o parceiro concorde.
+— Eu sempre tento. — Shirley ajeitou o rabo de cavalo. — Tem outra coisa. O senhor Graven mandou recado ao Lioro antes do café. O segundo desafio é em dupla de novo, sem data ainda. A curandeira diz que a Nayra não levanta tão cedo, e dupla desfeita perde ponto. Então o juiz deixa trocar, se o parceiro concordar.
 
-— Substituição de quem?
+— Trocar quem?
 
-— Da Nayra. — Shirley olhou para ele. — Eu perguntei ao senhor Graven ontem à noite, quando fui devolver o meu cantil, se eu podia entrar no lugar dela, caso ela não pudesse. Ele disse que as contas aceitam, desde que você concorde. E o Denis também concorda, porque ele troca de dupla com qualquer um, o coitado, e inclusive tem uma teoria de que eu o ofusco.
+— A Nayra. — Shirley olhou para ele. — Ontem à noite, quando fui devolver meu cantil, eu perguntei ao senhor Graven se podia entrar no lugar dela. Ele disse que as contas aceitam, se você concordar. O Denis também. Ele troca de dupla com qualquer um, coitado. Tem até teoria de que eu ofusco ele.
 
-— Eu concordo — disse Banjo, e se surpreendeu com a rapidez. — Quer dizer, se a Nayra melhorar eu quero fazer com ela. Mas se ela não puder, claro que eu faço com você.
+— Eu concordo — disse Banjo, e se surpreendeu com a rapidez. — Quer dizer, se a Nayra melhorar eu quero fazer com ela. Mas se não puder, claro que faço com você.
 
-— Se ela melhorar, eu volto para o Denis, e a gente conta isso para o juiz sem drama. — Shirley sorriu, e os olhos dela ficaram quentes. — Eu prometo. Juro pelo Denis, que não vai gostar de ouvir.
+— Se ela melhorar, eu volto pro Denis. A gente conta ao juiz, sem drama. — Shirley sorriu, e os olhos dela ficaram quentes. — Prometo. Juro pelo Denis, que não vai gostar de ouvir.
 
 Banjo riu de novo, e o riso deu um pouco de dor no nariz. Nayra se mexeu no travesseiro, murmurou uma palavra que ele não entendeu, e os dois ficaram quietos até a respiração dela voltar ao ritmo curto e regular.
 
-— Eu devia ir — sussurrou Shirley, levantando. — Se o Lioro me encontra aqui, vai achar que eu vim atrapalhar a menina. Ele já me olhou torto ontem, no corredor.
+— Eu devia ir — sussurrou Shirley, levantando. — Se o Lioro me achar aqui, vai pensar que vim atrapalhar. Ele já me olhou torto ontem.
 
 — Ele olha torto para todo mundo.
 
-— Ele olha torto para quem passa perto da sobrinha. É diferente, e eu entendo. — Shirley pendurou a bolsa no ombro. — Você vem tomar café?
+— Ele olha torto pra quem chega perto da sobrinha. É diferente, e eu entendo. — Shirley pendurou a bolsa no ombro. — Você vem tomar café?
 
 — Daqui a pouco. Vou esperar o Lioro voltar, não quero deixar ela sozinha.
 

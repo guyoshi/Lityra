@@ -218,7 +218,7 @@ Breno estava ao lado dele antes do segundo sino. Voltara ao corpo normal, ofegan
 
 Breno não acreditou, e Bruno viu isso, mas Velho-Sábio chamou todos para beber água, e o assunto foi junto com o copo. Bruno tomou o dele em goles pequenos, com a mão ainda perto do peito, e quando o sino tocou outra vez, para a rodada seguinte, levantou antes dos outros.
 
-Não tentou a parede de novo naquele dia. Fez o resto com uma barreira baixa, do tamanho de uma porta de armário, e ninguém reclamou da mudança, nem Velho-Sábio, que se limitou a anotar alguma coisa no caderno.
+Não tentou a parede de novo naquele dia. Fez o resto com uma barreira baixa, do tamanho de uma porta de armário, e não houve reclamação, nem de Velho-Sábio, que se limitou a anotar alguma coisa no caderno.
 
 Na túbula de volta, entre uma estação e outra, Breno falou baixo, de olho na janela do tubo.
 

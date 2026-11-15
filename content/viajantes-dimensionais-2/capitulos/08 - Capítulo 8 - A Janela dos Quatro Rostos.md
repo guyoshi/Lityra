@@ -57,7 +57,6 @@ Desceu os degraus de dois em dois e atravessou o jardim sem correr. O portão ra
 Breno pensou que, quando tivesse tempo, ia explicar ao irmão por que nem toda mensagem de gratidão precisava de comentário. Não teve tempo.
 
 
-
 O Velho-Sábio saiu às duas da tarde, com o cajado e um casaco impermeável que a chuva ia vencer em meia hora. Tinha recebido um selo da Central pouco depois do almoço, uma convocação do conselho para uma reunião de urgência, e leu o papel de pé, ao lado da escada, com as sobrancelhas levantadas, como quem confere uma conta cujo resultado já imagina.
 
 — Reunião de urgência num sábado de chuva — disse, e dobrou o papel em quatro. — Ou é nomeação, ou é desastre, e nomeação eu não recebo há uns trinta anos. Kali, a casa.
@@ -187,7 +186,6 @@ Saiu para a chuva, com passos medidos, e Bruno, ao lado de Breno, disse a coisa 
 — Eu sei. — Breno olhou a porta quebrada, a lama no assoalho, as marcas de bota nas escadas. — Eu também.
 
 
-
 O Velho-Sábio voltou às seis, com a água escorrendo do casaco e uma expressão que Breno nunca tinha visto, uma calma tão apertada que parecia uma corda esticada. Atravessou o vestíbulo e olhou a porta, depois o chão, depois cada um deles, na ordem em que estavam sentados no sofá. Chegou a Beatriz, encolhida na ponta, com uma xícara de chá que Banjo tinha feito e que ela ainda não tinha bebido, e ficou mais tempo.
 
 — Kali. O registro.
@@ -223,7 +221,6 @@ Um silêncio pesado caiu sobre a sala. Velho-Sábio olhou para a parede, depois 
 — Com a Kali e o Átila eu nunca fico sozinho, nem quando quero. — Velho-Sábio sorriu pela primeira vez no dia, curto. — E eu passo em Camporil de vez em quando, para reclamar do chá do Lioro, como faz todo tio ranzinza. Para o conselho, isso é visita de família. O que a gente fizer quando eu passar, ninguém precisa anotar.
 
 Breno entendeu antes dos outros, porque era o único que estava olhando para o rosto dele e não para as palavras. Guardou o que tinha entendido, sem repetir, e foi arrumar a mochila.
-
 
 
 Bug chegou às nove da manhã de domingo, empurrando um carrinho de bagagem de duas rodas cheio de etiquetas, debaixo de uma capa de chuva que era grande demais para ele e se arrastava no chão. Ficou parado na porta quebrada, olhando para as dobradiças soltas com uma expressão de pesar, e só depois se lembrou de falar.
@@ -319,7 +316,6 @@ Breno achou o casaco debaixo do casco virado, com uma bota de cada lado, molhado
 Beatriz riu, um riso curto, de quem não consegue segurar. Bruno olhou para ela de cara feia, mas o canto da boca dele cedeu, de leve. Do outro lado da água, as três torres continuavam no mesmo lugar, e Breno ficou um tempo olhando para elas, sem saber por quê.
 
 
-
 O quarto que Lioro tinha dado aos três irmãos tinha uma janela voltada para o pátio, três camas de ferro e um tapete que cheirava a fibra seca. Beatriz dormia no quarto ao lado, com a porta aberta uma fresta, e Banjo caiu no sono antes de Bruno tirar os fones do pescoço. Do corredor entrava uma risca de luz amarela por baixo da porta, uma linha fina e firme no assoalho, da lamparina que Lioro deixava acesa na parede. Breno olhou para ela até as pálpebras pesarem. Contou até vinte, e depois perdeu a conta.
 
 O corredor era de pedra úmida, e ele sabia disso antes de abrir os olhos, porque o frio subia pela sola dos pés. Reconhecia o cheiro de cal e de água parada. Dessa vez não perguntou onde estava. Disse a si mesmo, com a voz clara de quem fala sozinho num lugar vazio, que aquilo ficava na Presália, e que ele já tinha estado diante daquela porta de olhos abertos, de dia, com Korvo avisando atrás dele.
@@ -330,7 +326,7 @@ A porta alta estava à frente, entalhada, com a mão de metal que segurava o cr�
 
 Do outro lado, o campo era o mesmo. Árvores mortas, o sol branco sem calor no alto, a terra cinzenta. Os corvos tinham ido embora, e o silêncio no lugar deles zumbia nos ouvidos. As árvores estavam em fileiras agora, retas, a distâncias iguais, como as de um pomar que alguém cuidava. Em cada galho mais baixo estava pendurada uma coisa pequena e comum, uma chaleira amassada, um chapéu de pano, uma bota de criança, uma mochila de escola. Ele andou entre elas sem tocar em nenhuma.
 
-No fim das fileiras, estendia-se uma mesa comprida, coberta por uma toalha branca, posta para muita gente. Havia pratos fundos, copos, colheres, um jarro de suco ao centro, e dos pratos subia um vapor leve, de comida que tinha acabado de ser servida. As cadeiras estavam todas viradas de costas para ele, voltadas para a mesma direção, e nenhuma tinha ninguém.
+No fim das fileiras, estendia-se uma mesa comprida, coberta por uma toalha branca, posta para muita gente. Havia pratos fundos, copos, colheres, um jarro de suco ao centro, e dos pratos subia um vapor leve, de comida que tinha acabado de ser servida. As cadeiras estavam todas viradas de costas para ele, voltadas para a mesma direção, e todas vazias.
 
 A figura estava lá, ao fundo, imensa e sem rosto, parada de costas, como na última vez. Mas desta vez Breno estava mais perto do que se lembrava de ter chegado. Ela o chamou, na voz de sempre, grave e conhecida.
 

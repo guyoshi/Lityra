@@ -140,6 +140,12 @@ Os quatro se entreolharam. Banjo mordeu o lábio, Beatriz escondeu o riso atrás
 
 — Não, senhor — respondeu Breno, com a cara mais séria que conseguiu. — Foi o recado certo.
 
+— Ah, mais uma coisa. — Lioro já tinha dado um passo, e voltou. — A Mereditha deixou aviso na Central de que queria falar com vocês. Foi mandada para fora de Tayo, numa missão, e não soube dizer quando volta. Pediu que eu avisasse que ela procura vocês assim que chegar.
+
+— A Mereditha? — Beatriz levantou o rosto. — A que olhou pros nossos olhos e ficou quieta?
+
+— Essa mesma — disse Lioro, com um sorriso pequeno. — Ela costuma ficar quieta quando quer dizer muita coisa.
+
 Quando Lioro se afastou, a porta do refeitório se abriu de novo. Uma garota de cabelo preso num rabo alto entrou com duas amigas, o queixo um pouco erguido e a bandeja flutuando sem esforço atrás dela. Banjo reconheceu Brenda, a filha do Garmande, antes de ver o rosto, pelo jeito de caminhar. Ela atravessou o salão olhando para a frente, mas passou os olhos pela mesa deles, parou em Bruno por um segundo e seguiu como se nada tivesse acontecido.
 
 Bruno ajeitou o cabelo com a mão livre, sem perceber. Amadou levantou uma sobrancelha e abriu a boca, e Bruno puxou o suco dele para longe.
@@ -334,7 +340,7 @@ Shirley soltou o ar devagar e pousou o garfo.
 
 — Eu contei. A gente faz isso quando não sabe o que mais fazer. — Shirley sorriu pequeno. — E ele não gritou. Todo mundo gritava, menos ele. Depois a tutora me puxou pra dentro e mandaram todo mundo embora.
 
-Banjo ouviu com a colher parada. Teve uma impressão rápida, de uma peça que não encaixava, e demorou a achar qual: ela estava no pátio, e a sala do fundo ficava dentro do prédio. Como tinha escutado que ele não gritou? Mas a mão de Shirley tremia um pouquinho na beira da mesa, e ele pensou que ela devia ter ficado muito tempo parada naquele pátio, ouvindo cada barulho que vinha lá de dentro. Estendeu o prato de pão para ela sem dizer nada, e ela pegou um pedaço.
+Banjo ouviu com a colher parada. A mão de Shirley tremia um pouquinho na beira da mesa, e ele estendeu o prato de pão para ela sem dizer nada, e ela pegou um pedaço.
 
 — Desculpa, Shirley — murmurou Denis. — Eu não devia ter...
 
@@ -368,7 +374,7 @@ Era um pedido e não era. Ele a olhava direto, sem piscar, do jeito que Banjo s�
 
 Ferris pegou o capacete e a bandeja e foi embora sem olhar para trás. A lamparina sobre a mesa mudou de cor duas vezes, lilás, cinza, e acabou escolhendo um cinza sem graça.
 
-Banjo abriu a boca para perguntar alguma coisa e percebeu que não sabia o quê. A pergunta estava ali, como uma palavra que se conhece e não se lembra, e quanto mais ele olhava para Shirley, mais ela escapava.
+Banjo olhou o pão esquecido na mão dela e não achou nada para dizer.
 
 — Come, Banjo — disse Shirley, de repente, virando para ele com o sorriso de sempre. — Antes que o Denis coma o seu.
 

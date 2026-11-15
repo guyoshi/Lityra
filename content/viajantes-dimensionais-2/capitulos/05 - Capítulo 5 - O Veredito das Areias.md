@@ -2,7 +2,7 @@ Os cantis do Arcano tinham cheiro de chuva guardada. Eshley enchia o dela numa b
 
 — Você vai levar peso demais — disse Beatriz.
 
-— Peso é melhor que sede, Bia. Então, assim: o primeiro cantil eu bebo até a metade, o segundo fica de reserva, e ninguém me convence do contrário. — Eshley fechou a tampa com o polegar, e a tampa quicou duas vezes antes de aceitar ficar fechada. — Treze. Eu errei de novo, é de propósito. Quando eu era pequena e tinha medo de dentista, a minha avó me mandava contar os azulejos da sala de espera, e eu sempre errava no sete para ter que voltar ao um. Ficava lá o tempo todo contando, e a moça da recepção nunca chamava o meu nome.
+— Peso é melhor que sede, Bia. O primeiro cantil eu bebo até a metade, o segundo fica de reserva, e ninguém me convence do contrário. — Eshley fechou a tampa com o polegar, e a tampa quicou duas vezes antes de aceitar ficar fechada. — Treze. Eu errei de novo, é de propósito. Quando eu era pequena e tinha medo de dentista, a minha avó me mandava contar os azulejos da sala de espera, e eu sempre errava no sete para ter que voltar ao um. Ficava lá o tempo todo contando, e a moça da recepção nunca chamava o meu nome.
 
 — Você está com medo do juiz?
 
@@ -58,7 +58,7 @@ Perto da bica, Ferris falava com Shirley sem levantar os olhos do cantil que enc
 
 — Ontem você ia me contar de novo, e eu fiquei esperando até o fim do treino. Você dormiu.
 
-— Dormi mesmo, desculpa. Eu ia contar depois do jantar, só que o jantar demorou e a cama era muito perto. — Shirley sorriu e levantou o cantil dele com um dedo, para a água parar de escorrer pela mão. — Prometo para depois da prova. Juro pelo Denis.
+— Dormi mesmo, desculpa. Eu ia contar depois do jantar, só que o jantar demorou e a cama era muito perto. — Shirley sorriu e levantou o cantil dele com um dedo, para a água parar de escorrer pela mão. — Prometo para depois da prova.
 
 — Por mim eu não aceito — gritou Denis, de longe, e Ferris foi embora sem responder.
 
@@ -374,7 +374,7 @@ O segundo ponto de água ficava logo depois da fresta, e Denis já estava lá, s
 
 — Estava olhando para trás, para ver se vinha alguém. Sempre olha.
 
-Banjo ficou parado um momento com o peso da duna ainda nos braços, olhando para ela. Shirley estava calma como sempre, e dela vinha só a luz de sempre, quieta, nada fora do lugar. Ele soltou o ar e achou que devia ser o cansaço.
+Banjo ainda sentia o peso da duna nos braços. Shirley estava calma como sempre, de cabelo arrumado, e ele soltou o ar, aliviado de ver um rosto conhecido.
 
 — Vocês vieram correndo? — perguntou Shirley, com os olhos nos dois, e riu baixo. — Que cara de quem passou por uma tempestade, Banjo. Essa dupla nova funciona bem, hein. Nem faz uma hora, e você já tem cara de quem segura duna por ela.
 
@@ -407,13 +407,13 @@ Grimaldus esperava sob uma lamparina flutuante, em pé, com a tábua nas mãos e
 
 A de Beatriz e Eshley foi a primeira. Eshley falou, porque tinha a lista no pulso e a voz de quem confere.
 
-— Então, assim, senhor. A caravana parou ao meio-dia. Tinha um lampião aceso em pleno dia, a luz estava toda de um lado só, e ninguém gritou. Foram as três coisas que as testemunhas que eu e a Bia vimos disseram igual. Todo o resto era nosso. Eu vi um mar, ela viu fogo, e a gente concluiu que a sala pega o que está na nossa cabeça e põe na boca da testemunha.
+— Senhor. A caravana parou ao meio-dia. Tinha um lampião aceso em pleno dia, a luz estava toda de um lado só, e ninguém gritou. Foram as três coisas que as testemunhas que eu e a Bia vimos disseram igual. Todo o resto era nosso. Eu vi um mar, ela viu fogo, e a gente concluiu que a sala pega o que está na nossa cabeça e põe na boca da testemunha.
 
 — E o fogo, senhorita Lins? — perguntou Grimaldus. — A sua testemunha de fogo estava certa?
 
 — Estava errada. — Beatriz apertou os dedos uns nos outros. — O fogo não cheirava a nada. Era meu, então eu separei da lista. Eu sei como é quando uma coisa queima de verdade, e o menino não sabia.
 
-— Separar o que é seu do que é da sala é a parte mais difícil. Muita gente passa a vida sem conseguir. — Grimaldus anotou algo no caderno e levou uma conta para o outro lado da tábua. — Primeiro lugar, senhoritas Eshley e Beatriz. Com louvor, o que eu raramente digo na frente de testemunhas.
+— Separar o que é seu do que é da sala dá trabalho. Poucos conseguem no primeiro dia. — Grimaldus anotou algo no caderno e levou uma conta para o outro lado da tábua. — Primeiro lugar, senhoritas Eshley e Beatriz. Com louvor, o que eu raramente digo na frente de testemunhas.
 
 Eshley soltou o ar de uma vez, e Beatriz percebeu que as mãos dela tremiam um pouco, e que ela as escondeu atrás das costas. Beatriz passou o dedo pelo anel, que continuava frio.
 
@@ -425,9 +425,7 @@ Banjo e Nayra vieram em segundo. Nayra leu a versão no papel dobrado, e Banjo c
 
 Shirley bateu palmas devagar, sorrindo para o chão. Beatriz reparou que ela não olhava para Banjo, e que Banjo olhava para ela, e que Nayra, ao lado dele, parecia mais cansada do que feliz.
 
-Breno e Ferris ficaram em terceiro com uma versão curta e seca, que falava da luz sem sombra do lampião e do horário em que ela mudou de lado. Brenda e Dário ficaram em quarto, com uma versão certinha e sem enfeite, que Brenda leu e Dário assinou. Shirley e Denis chegaram em quinto, e a versão de Shirley foi tão vaga que o juiz precisou perguntar duas vezes se ela tinha algo a acrescentar. Bruno e Amadou ficaram em sexto, com uma versão que incluía uma duna gigante que engolia caravanas, e Amadou, ao ouvir isso, explicou ao juiz que era assim mesmo que as dunas funcionavam, o que lhe custou meio ponto.
-
-— Nada, senhor — disse Shirley, e sorriu. — Eu só vi o que me mostraram.
+Breno e Ferris ficaram em terceiro com uma versão curta e seca, que falava da luz sem sombra do lampião e do horário em que ela mudou de lado. Brenda e Dário ficaram em quarto, com uma versão certinha e sem enfeite, que Brenda leu e Dário assinou. Shirley e Denis chegaram em quinto, com uma versão curta que Denis enfeitou com a cozinheira do refeitório, e o juiz precisou pedir duas vezes que ele voltasse ao deserto. Bruno e Amadou ficaram em sexto, com uma versão que incluía uma duna gigante que engolia caravanas, e Amadou, ao ouvir isso, explicou ao juiz que era assim mesmo que as dunas funcionavam, o que lhe custou meio ponto.
 
 Erick e Nicolas foram os últimos a ser chamados. Grimaldus os esperava com a mão fechada e a mesa limpa, e abriu a mão no meio do silêncio. Na palma havia uma conta pequena de vidro escuro, do tamanho de uma ervilha.
 
@@ -455,9 +453,9 @@ Quando as duplas se dispersaram e a antecâmara foi esvaziando, Beatriz ficou pa
 
 Beatriz ficou olhando para ele, esperando o resto. Não veio resto nenhum.
 
-— É uma resposta honesta — disse, por fim, e ela mesma se surpreendeu com o que disse.
+— Isso não ajuda muito — disse, por fim, e ela mesma se surpreendeu com a franqueza.
 
-— É a única que eu tenho, senhorita. Se ouvir de novo, me diga em que lugar e a que horas. Prefiro tentar descobrir a decretar que não existe.
+— É a única que eu tenho, senhorita. Se ouvir de novo, me diga o lugar e a hora. Eu anoto.
 
 Ele pegou a tábua, e as contas estalaram, e a conversa terminou ali. Beatriz foi encontrar Eshley, que fingia examinar uma lamparina, e as duas seguiram para o corredor.
 
