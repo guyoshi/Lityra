@@ -264,13 +264,13 @@ No ferro, ainda úmida, havia uma marca de giz branco, um círculo com uma barra
 
 — A senhora viu quem riscou? — perguntou Bruno.
 
-— Eu vi que riscaram. — Ivy não levantou o rosto. — Passei a noite acordada e não vi quem. Vocês também não viram.
+— Eu vi a marca de manhã. — Ivy não levantou o rosto. — Não vi quem fez. Só sei que copiaram um sinal que não devia ser usado assim.
 
 — Eu vi o mesmo desenho na Campina de Talven — disse Banjo. — No marco de pedra. A senhora pôs a mão nele.
 
 A escova parou. Ivy ergueu os olhos, e eles tinham uma coisa de cansaço que não era de uma noite só.
 
-— Eu ponho a mão em muita pedra, garoto — disse. — E apago muito giz. Não é assunto de garoto que acabou de perder os irmãos. — Voltou a esfregar, com mais força. — Termina o treino e come alguma coisa.
+— Aquele marco é um lugar de luto, garoto. E aqui alguém desenhou o mesmo sinal para assustar vocês. — Voltou a esfregar. — Termina o treino e come alguma coisa.
 
 — Dona Ivy — disse Bruno, sem rodeio. — A capa da Bia. Como a senhora sabia o tamanho dela?
 

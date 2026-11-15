@@ -210,11 +210,11 @@ A tela se abriu em dois, e no rosto de Beker, um homem de sorriso enviesado e ol
 
 — Ninguém quase morreu, Bruno — disse Breno. Depois se lembrou do braço do homem de jaqueta e acrescentou, mais baixo: — Quase ninguém.
 
-— O selo da declaração marca quatorze horas e cinquenta e oito minutos — disse Kali, no tom mais neutro que conseguiu. — A primeira pedra bateu no vidro às quinze e vinte e três. Eu não dou opinião. Só fiz a conta.
+— O primeiro informe dos vigilantes sobre gente combinando uma manifestação chegou ao gabinete de Beker às quatorze e quarenta e seis — disse Kali. — A declaração foi preparada às quatorze e cinquenta e oito. A primeira pedra bateu no vidro às quinze e vinte e três. Ele tinha informações antes da agressão; tinha homens nas ruas. Mesmo assim, não enviou ninguém para proteger a casa.
 
 Um silêncio pesado caiu sobre a sala. Velho-Sábio olhou para a parede, depois para o teto, e por fim pegou a xícara de Beatriz, que estava intocada, e bebeu o chá dela de um gole.
 
-— Ele sempre foi rápido para escrever comunicados — disse, e pousou a xícara. — Tem gente que escreve devagar e pensa depressa. Ele é do outro tipo. Escutem, que eu vou falar uma vez. Amanhã vocês vão para a casa do Lioro, em Camporil, e eu não vou discutir isso com o conselho, porque, se eu discutir, o comunicado vira acusação, e a acusação vira pretexto. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso de alguém que me conte como ela está.
+— Os vigilantes avisaram. Beker preferiu preparar a resposta para depois — disse Velho-Sábio, pousando a xícara. — Amanhã vocês vão para a casa do Lioro, em Camporil. Não vou discutir isso com o Conselho; ele transformaria a conversa em mais uma acusação. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso saber o que acontece nela.
 
 — O senhor vai ficar sozinho? — perguntou Banjo, e a voz saiu mais fraca do que ele queria.
 

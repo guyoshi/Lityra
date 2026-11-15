@@ -190,7 +190,7 @@ Shirley, de dedos ainda levantados, deixou as mãos caírem. A costura fechou co
 
 — Tenta outra vez — pediu Breno.
 
-Ela tentou. As faíscas saíram dos dedos dela, fracas, e apagaram antes de chegar ao ar, e os ombros dela se encolheram. Banjo percebeu em Shirley uma coisa apertada e quente, com gosto de culpa. Desde o covil de Korvo, às vezes alcançava sensações assim nas pessoas, mas quase nunca sabia de onde vinham. Achou que fosse a culpa de quem falha na hora errada. Foi o que ele pensou. Quis dizer a ela que não era culpa de ninguém, e abriu a boca, e foi aí que o diapasão de Breno bateu na coxa dele, sozinho.
+Ela tentou. As faíscas saíram dos dedos, fracas, e morreram no ar. Banjo sentiu nela um aperto quente, que tomou por culpa. Ia dizer que não havia sido culpa dela quando o diapasão de Breno bateu sozinho na coxa dele.
 
 Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala do fundo, e agora esquentava, e um zumbido grave e comprido, como de trem muito distante, subiu do pulso de Breno e se espalhou pelo capim. Breno ergueu o instrumento diante do rosto, encostou a ponta na orelha, e fechou os olhos, e contou.
 

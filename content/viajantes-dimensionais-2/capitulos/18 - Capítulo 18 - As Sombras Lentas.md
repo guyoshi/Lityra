@@ -192,7 +192,7 @@ Parou. Engoliu em seco.
 
 — A gente pode tentar — disse Shirley. — E se der errado, a gente bate.
 
-Bruno olhou para ela, e depois para a montanha, e o peito ainda ardia onde a sombra tinha acertado. Pensou em Breno, que ia dizer que primeiro era preciso ter um plano, e depois outro plano por baixo do plano, e pensou em Dário, e na culpa que ele carregava no peito junto com aquele ponto dolorido. E pensou que a coisa que mais queria no mundo agora era um irmão mais velho para decidir por ele.
+Bruno olhou para a montanha. O peito ainda ardia onde a sombra o atingira. Breno teria um plano, talvez dois. Só por uma vez, Bruno queria que o irmão mais velho estivesse ali para decidir.
 
 — Tá — disse. — Tá bom. A gente tenta do seu jeito. Mas se der errado, eu bato tão forte que a gente vai pra uma dimensão nova só pelo susto. E eu quero deixar registrado que acho a ideia uma droga.
 
