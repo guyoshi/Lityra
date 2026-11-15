@@ -38,7 +38,7 @@ Ele tinha aparecido na entrada do bosque sem que o vissem chegar, de casaco escu
 
 Os gêmeos entraram no bosque brigando por quem segurava a lanterna, e o primeiro trecho da floresta engoliu o resto da discussão em poucos passos. Dez minutos depois entraram Bruno e Amadou. Depois Brenda e Dário, que passaram lado a lado, sem se tocar, com uma atenção que fez Banjo desviar os olhos. Depois Breno e Denis, o primeiro com a cara de quem entregava a própria pontuação a um desconhecido, e o segundo ainda perguntando em voz baixa se a coluna da direita era a de supor ou a de saber.
 
-Quando chegou a vez de Banjo, Shirley já estava ao lado dele, de capa aberta e lanterna acesa na mão, com o ar de quem esperava a fila andar.
+Quando chegou a vez de Banjo, Shirley já estava ao lado dele, de capa aberta e com a lanterna da dupla na mão, aquela que Bug entregara a Banjo. Esperava a fila andar.
 
 — Respira — disse ela. — Você está parecendo o Breno.
 
@@ -60,7 +60,7 @@ A lanterna de Banjo estava apagada, e ele lembrou que precisava cantar.
 
 — Ninguém pediu uma música, pediu uma voz. Faz um som. Qualquer um, mas que seja o mesmo.
 
-Banjo soltou um som baixo, com a boca quase fechada, e a lanterna acendeu um fiapo de luz amarela, do tamanho do polegar. Shirley pôs a voz por baixo da dele, numa nota mais grave, e a luz subiu devagar, mais clara, e depois mais clara ainda, como a água quando sobe num poço. As árvores em volta mudaram de tom. Banjo as sentia desde o primeiro passo, do jeito que ele sempre as sentia, um peso de sensação que vinha de baixo e de dentro, de raízes e de seiva, e não era uma coisa que ele pudesse explicar a alguém. Até aquele momento, o que ele sentia era um frio de quarto vazio, de gente que prende o ar. Quando a luz cresceu entre as duas vozes, o frio ficou mais fraco, e uma coisa parecida com estar em casa subiu pelos troncos, devagar.
+Banjo soltou um som baixo, com a boca quase fechada, e a lanterna acendeu um fiapo de luz amarela, do tamanho do polegar. Shirley pôs a voz por baixo da dele, numa nota mais grave, e a luz subiu devagar, mais clara, e depois mais clara ainda, como a água quando sobe num poço. As árvores em volta mudaram de tom. Banjo as sentia desde o primeiro passo, um peso que vinha de baixo, das raízes e da seiva, e que não sabia explicar. Lembrou-se do calor da Árvore da Vigília quando ela entregara sua força para salvar Bruno. Ali era diferente. Até aquele momento, o bosque lhe transmitia um frio de quarto vazio, de gente que prende o ar. Quando a luz cresceu entre as duas vozes, o frio ficou mais fraco, e uma coisa parecida com estar em casa subiu pelos troncos, devagar.
 
 — Elas gostaram — disse ele, sem pensar.
 
@@ -116,7 +116,7 @@ Banjo parou no meio da encruzilhada, ofegante, com a lanterna acesa e Farol nos 
 
 — Fala — disse Breno, e baixou o caderno. — Do começo. Primeiro, o que você viu. Depois, o que você acha.
 
-— Primeiro, as árvores. — Banjo respirou. — Elas sentem a lanterna! Quando alguém canta sozinho elas ficam com medo, tipo gente em quarto vazio, e fecham o caminho. Quando duas vozes combinam, elas abrem. Agora o bosque está encolhido, porque tem sete lanternas aqui e nenhuma combina com a outra.
+— Primeiro, as árvores. — Banjo respirou. — Elas sentem a lanterna! Quando alguém canta sozinho elas ficam com medo, tipo gente em quarto vazio, e fecham o caminho. Quando duas vozes combinam, elas abrem. Agora o bosque está encolhido, porque tem seis duplas aqui e as lanternas não combinam umas com as outras.
 
 — Combinando como? — perguntou Bruno, sem levantar a cabeça.
 
@@ -152,7 +152,7 @@ Bruno olhou para Breno por um instante comprido, e depois para Banjo, que tinha 
 
 Foi a coisa mais desorganizada que Banjo já viu dar certo. Ele andou entre as lanternas como um regente de coral que nunca tinha estudado música, apontando quem entrava e quem esperava, enquanto Breno contava os segundos em voz baixa e corrigia a ordem sempre que Banjo trocava duas pessoas de lugar. Banjo perguntava baixinho a cada um se a nota estava boa de aguentar. Brenda segurou o meio, firme e clara, e Dário, sem abrir a boca, sustentou o fundo com o fio que só ele conseguia fazer, uma espécie de peso na voz dela. Bruno entrou com uma nota baixa, quase um rosnado, que Eshley emendou numa terça acima, contando baixinho. Denis fez uma nota alta, e o bosque devolveu a nota duas vezes, uma mais baixa, outra mais doce, e foi o eco dele que preencheu o espaço que sobrava, como se o coral tivesse quatro vozes a mais. Amadou, sem lanterna, só segurou o ritmo com o pé. Beatriz cantarolou três notas, as mesmas, baixinho, e as árvores em volta se aquietaram tanto, e tão de repente, que Banjo precisou parar um instante para engolir o aperto que subiu na garganta.
 
-As lanternas se acenderam todas juntas, e a luz subiu de amarelo para dourado, e do dourado para um branco quente. Os troncos em volta da encruzilhada pararam de soprar. Entre dois deles, um arco de raízes se abriu para um caminho que não estava lá antes, coberto de folhas prateadas, e do outro lado do bosque, longe, uma sineta tocou uma nota só.
+As cinco lanternas que ainda funcionavam se acenderam juntas, e a luz subiu de amarelo para dourado, e do dourado para um branco quente. Os troncos em volta da encruzilhada pararam de soprar. Entre dois deles, um arco de raízes se abriu para um caminho que não estava lá antes, coberto de folhas prateadas, e do outro lado do bosque, longe, uma sineta tocou uma nota só.
 
 — Eu não acredito — disse Yuri, com a lanterna na altura do rosto. — Funcionou. Eu vou contar para a minha mãe, e ela vai dizer que eu inventei.
 
@@ -166,9 +166,9 @@ Era a segunda vez que Banjo a via sorrir, e dessa vez ele não baixou os olhos.
 
 — Eu também ri. Quer dizer, depois. De mim.
 
-Foi tudo o que conseguiram dizer, porque a encruzilhada começou a andar. Seis lanternas, em fila e em coro, cada uma com sua nota, atravessaram o arco e entraram num corredor de troncos em que o som se multiplicava e voltava ordenado, sem atraso, formando uma espécie de acorde que acompanhava os passos. Os gêmeos vieram atrás, sem cantar, sem lanterna, agarrados às costas do grupo, e quando Nicolas, tropeçando numa raiz, soltou que a gente nem sabe cantar, Erick respondeu que eles estavam guiando todo mundo por trás, que era mais difícil. Banjo viu o menor sorriso de Bruno virar mais largo e não disse nada.
+Foi tudo o que conseguiram dizer, porque a encruzilhada começou a andar. Cinco lanternas acesas, em fila e em coro, cada uma com sua nota, atravessaram o arco e entraram num corredor de troncos em que o som se multiplicava e voltava ordenado, sem atraso, formando uma espécie de acorde que acompanhava os passos. Os gêmeos vieram atrás, sem cantar, sem a lanterna da dupla, agarrados às costas do grupo, e quando Nicolas, tropeçando numa raiz, soltou que a gente nem sabe cantar, Erick respondeu que eles estavam guiando todo mundo por trás, que era mais difícil. Banjo viu o menor sorriso de Bruno virar mais largo e não disse nada.
 
-Foi na entrada do último trecho que Shirley reapareceu, ao lado dele, com a lanterna acesa na mão esquerda, na mesma nota grave do começo. As árvores mais próximas ficaram quietas um instante, e depois a nota deles voltou.
+Foi na entrada do último trecho que Shirley reapareceu, ao lado dele, e pousou a mão esquerda na alça da lanterna que Banjo segurava, voltando à mesma nota grave do começo. As árvores mais próximas ficaram quietas um instante, e depois a nota deles voltou.
 
 — Me perdi — disse ela, e sorriu. — O bosque imitou o Denis tão bem que eu fui atrás até o fim. Voltei pelo seu canto. Foi ele que me achou.
 
@@ -178,9 +178,9 @@ Foi na entrada do último trecho que Shirley reapareceu, ao lado dele, com a lan
 
 As árvores tinham voltado a cantar, e Banjo sorriu de volta, com o coração ainda batendo no pescoço.
 
-A Clareira do Sino era um círculo de relva baixa, com um tronco oco gigante no meio, aberto como uma porta, e dentro dele uma sineta de cobre pendurada por uma corda. O sol, depois de dois dias de nuvem, entrava pelo teto de folhas em lâminas finas, e Grimaldus esperava de pé sob uma delas, com a tábua de contas sobre uma pedra e as mãos às costas. Quando as seis lanternas saíram do bosque, num coro de passos e vozes, com os gêmeos atrás delas, ele não alterou a expressão. Mas as contas, na tábua, estalaram sozinhas, uma por uma, como se estivessem sendo contadas por alguém que prendia o fôlego.
+A Clareira do Sino era um círculo de relva baixa, com um tronco oco gigante no meio, aberto como uma porta, e dentro dele uma sineta de cobre pendurada por uma corda. O sol, depois de dois dias de nuvem, entrava pelo teto de folhas em lâminas finas, e Grimaldus esperava de pé sob uma delas, com a tábua de contas sobre uma pedra e as mãos às costas. Quando as cinco lanternas acesas saíram do bosque, num coro de passos e vozes, com os gêmeos atrás do grupo, ele não alterou a expressão. Mas as contas, na tábua, estalaram sozinhas, uma por uma, como se estivessem sendo contadas por alguém que prendia o fôlego.
 
-— Sete duplas — disse, quando o último aprendiz pisou na relva. — Num tempo que o regulamento não previa. Com cinco lanternas acesas e uma que o bosque acendeu sozinho. — Olhou para os gêmeos, que se aproximavam de cabeça alta, sem lanterna alguma. — Senhor Erick, senhor Nicolas. As lanternas de vocês?
+— Sete duplas — disse, quando o último aprendiz pisou na relva. — Num tempo que o regulamento não previa. Cinco lanternas acesas, uma com o vidro rachado e outra que não vejo. — Olhou para os gêmeos, que se aproximavam de cabeça alta, sem lanterna alguma. — Senhor Erick, senhor Nicolas. A lanterna de vocês?
 
 — Estão guardadas — respondeu Erick, sem vergonha. — Para a gente não gastar à toa.
 
