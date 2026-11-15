@@ -1,6 +1,6 @@
 Breno deu dois passos para a frente antes de decidir que ia dar, e quando decidiu já estava entre Korvo e os irmãos, de pés firmes na pedra, com o diapasão quente no pulso e a garganta tão seca que engolir doía. O sétimo sinal que ele tinha ouvido agora tinha rosto. Era o mesmo zumbido grave do Pântano e do lago verde, o que ele tinha sentido na boca do estômago a última vez que ficou de pé diante daquele homem, e que ainda lhe doía no braço de metal quando o tempo mudava.
 
-— Vocês cresceram — disse Korvo. Ele desceu da estátua devagar, sem pressa, apoiando a mão no toco do pescoço de pedra, e quando os sapatos pretos tocaram o chão não fizeram barulho nenhum. — Da última vez eram quatro crianças numa sala de vidro, com um petrisco que brilhava mais do que o necessário. Eu pedi com educação que ficassem ao meu lado, e vocês recusaram com bastante coragem. Hoje eu não vou pedir.
+— Vocês cresceram — disse Korvo. Ele desceu da estátua devagar, sem pressa, apoiando a mão no toco do pescoço de pedra, e quando os sapatos pretos tocaram o chão não fizeram barulho nenhum. — Da última vez eram quatro crianças no meu covil, com um petrisco que brilhava mais do que o necessário. Eu pedi com educação que ficassem ao meu lado, e vocês recusaram com bastante coragem. Hoje eu não vou pedir.
 
 — O senhor não vai tocar neles — disse Breno, e ouviu a própria voz sair mais fina do que pretendia.
 
@@ -312,7 +312,7 @@ O teto era alto, de pedra clara, com arcos que subiam para a escuridão, e do al
 
 Estavam todos ali.
 
-Velho-Sábio, de chapéu torto e cajado, de pé na frente, com o rosto pálido e velho e aliviado. Garmande, com o caderno nas mãos e a boca em linha. Lioro, com a barba comprida e as mãos abertas, como quem tinha prendido o ar por muito tempo. Mereditha, com os olhos âmbar de pupila vertical e o rosto molhado de lágrimas. Grimaldus, de braços cruzados e sobrancelhas franzidas. Ferris, ajoelhado no chão, de capacete debaixo do braço, e o pai ao lado dele, de barba grisalha e casaco queimado, com a máscara cinza embrulhada no colo, de rachadura clara.
+Velho-Sábio, com um chapéu comum de aba curta, amassado de lado, e o cajado na mão, de pé na frente, com o rosto pálido e velho e aliviado. Garmande, com o caderno nas mãos e a boca em linha. Lioro, com a barba comprida e as mãos abertas, como quem tinha prendido o ar por muito tempo. Mereditha, com os olhos âmbar de pupila vertical e o rosto molhado de lágrimas. Grimaldus, de braços cruzados e sobrancelhas franzidas. Ferris, ajoelhado no chão, de capacete debaixo do braço, e o pai ao lado dele, de barba grisalha e casaco queimado, com a máscara cinza embrulhada no colo, de rachadura clara.
 
 Bruno estava sentado no chão, com o tambor no peito. Banjo, ao lado dele, abraçava Shirley, ainda inerte. Beatriz estava de joelhos, com a palma cortada aberta na frente do rosto e a capa de Ivy suja de sangue, e ninguém, naquele salão inteiro, ainda tinha dito uma palavra.
 

@@ -32,7 +32,7 @@ Ela começou a cantarolar baixo, sem perceber, as três notas que subiam e volta
 
 A chama cresceu. Passou da mesa, passou do peito dela, abriu um círculo largo sobre as lajotas e puxou o ar do pátio para dentro de si com um som grave de fole. Do alto da árvore caiu uma chuva de gotas que chegou ao chão já em vapor. Beatriz apertou os dedos para apagá-la, e a chama não apagou. Apertou de novo, e ela subiu mais, amarela agora, quase branca no meio.
 
-E então Breno sentiu o cheiro. Cheiro de cabelo queimado, de pano, de tinta velha pegando fogo, o cheiro que ela dissera na areia que só o fogo de verdade tinha.
+E então Breno sentiu o cheiro. Cheiro de cabelo queimado, de pano, de tinta velha pegando fogo, o cheiro que ela dissera na areia que só o fogo de verdade tinha. Lembrou-se do covil de Korvo, quando Beatriz tirara o anel para salvar Bruno e as chamas fizeram o teto desabar sobre eles. Desta vez o anel ainda brilhava no dedo dela, mas o fogo também não parava.
 
 — Eu estou pedindo — disse Beatriz, com uma voz fina que ele já tinha ouvido uma vez, no pior dia do ano anterior. — Eu estou pedindo e ele não escuta. Breno. Ele não escuta.
 

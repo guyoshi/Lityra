@@ -4,7 +4,7 @@ Tinha desenhado a Central, e o desenho não prestava. Tinha desenhado a praça c
 
 Na cozinha, a luz já estava acesa.
 
-Velho-Sábio estava de pé perto do fogão, com o chapéu na mão e a água escorrendo do casaco para o chão, e tinha o rosto de quem anda a noite toda. Ao lado dele, de sobretudo abotoado até o pescoço e uma tábua de contas debaixo do braço, estava Grimaldus, e a barba dele pingava em fio, sem que ele desse importância. Lioro estava sentado à mesa, com uma bandagem na cabeça que lhe dava um ar de pirata mal-humorado, e do lado dele a mãe, que já tinha tirado o pano da massa de pão e olhava a vasilha com um carinho calado. Ivy encostava na porta, de braços cruzados. Bruno chegou logo atrás de Breno, com o cabelo amassado de um lado, e Banjo e Beatriz desceram os dois juntos, de pijama de moletom e meia, de mãos dadas por baixo do cobertor.
+Velho-Sábio estava de pé perto do fogão, com o chapéu de aba curta que usava na chuva na mão e a água escorrendo do casaco para o chão, e tinha o rosto de quem anda a noite toda. Ao lado dele, de sobretudo abotoado até o pescoço e uma tábua de contas debaixo do braço, estava Grimaldus, e a barba dele pingava em fio, sem que ele desse importância. Lioro estava sentado à mesa, com uma bandagem na cabeça que lhe dava um ar de pirata mal-humorado, e do lado dele a mãe, que já tinha tirado o pano da massa de pão e olhava a vasilha com um carinho calado. Ivy encostava na porta, de braços cruzados. Bruno chegou logo atrás de Breno, com o cabelo amassado de um lado, e Banjo e Beatriz desceram os dois juntos, de pijama de moletom e meia, de mãos dadas por baixo do cobertor.
 
 — Chá — disse Velho-Sábio, sem se virar. — Alguém ponha a chaleira para ferver. Eu preciso de uma xícara na mão para dizer o que vou dizer, e uma xícara vazia não adianta.
 
@@ -16,7 +16,7 @@ Ivy pôs a chaleira. Ninguém sentou.
 
 A tábua de contas estalou uma vez, seca.
 
-— Sessão preliminar do Conselho, hoje à noite — começou Grimaldus. — Duas horas e quarenta e sete minutos. Moção Sete, proposta pelo Alto Conselheiro Beker, sob o nome de "custódia de proteção". Menores com M.A. de potencial de risco ficam alojados no Edifício Arcano, sob guarda da Vigilância, até uma avaliação cujo prazo não foi definido. Nenhum nome foi citado. O Alto Conselheiro citou "um incêndio na Praça das Lavadeiras", que foi visto por, segundo a minha contagem, dois mil e trezentos moradores.
+— Sessão preliminar do Conselho, hoje à noite — começou Grimaldus. — Duas horas e quarenta e sete minutos. Moção Sete, proposta pelo Alto Conselheiro Beker, sob o nome de "custódia de proteção". Menores com M.A. de potencial de risco ficam alojados no Edifício Arcano, sob guarda da Vigilância, até uma avaliação cujo prazo não foi definido. Nenhum nome foi citado. O Alto Conselheiro citou "um incêndio no Largo da Fonte, em Camporil", que foi visto por, segundo a minha contagem, dois mil e trezentos moradores.
 
 — Aprovada? — perguntou Breno.
 

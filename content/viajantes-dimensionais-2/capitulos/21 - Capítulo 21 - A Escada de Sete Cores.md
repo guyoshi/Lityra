@@ -178,11 +178,11 @@ Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que B
 
 Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, porque alguém tinha de agradecer ao lugar, e Bruno, que ia perguntar por quê, resolveu não perguntar. Pensou no velho da casa torta, que tinha dado o aviso antes de qualquer um pôr o pé na montanha. Era a única razão pela qual Bruno ainda estava inteiro.
 
-Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Dava para sentir o cheiro de água morna do outro lado. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
+Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Do outro lado vinha cheiro de chuva sobre pedra e o rumor distante de gente conversando. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
 
 — O senhor Kalev e o Ferris passam primeiro — disse Breno, e levantou a mão antes que alguém protestasse. — O senhor Kalev precisa de cuidado, e a máscara não pode ficar aqui com a gente, onde qualquer coisa pode acontecer com ela. Nós vamos logo atrás. É questão de segundos.
 
-Ferris olhou para os quatro, depois para Shirley, e abriu a boca para dizer que esperaria, e Kalev apertou o ombro do filho com a mão boa e respondeu primeiro, que do outro lado eles esperavam melhor do que ali. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, um teto alto de pedra clara e gente de costas se virando para olhar.
+Ferris olhou para os quatro, depois para Shirley, e abriu a boca para dizer que esperaria, e Kalev apertou o ombro do filho com a mão boa e respondeu primeiro, que do outro lado eles esperavam melhor do que ali. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, a cúpula alta de vidro e metal da Central e gente de costas se virando para olhar.
 
 Shirley, de dedos ainda levantados, deixou as mãos caírem. A costura fechou com um puxão, de cima para baixo, como o zíper de uma mochila, e as faíscas morreram no ar.
 
@@ -190,7 +190,7 @@ Shirley, de dedos ainda levantados, deixou as mãos caírem. A costura fechou co
 
 — Tenta outra vez — pediu Breno.
 
-Ela tentou. As faíscas saíram dos dedos dela, fracas, e apagaram antes de chegar ao ar, e os ombros dela se encolheram. Banjo, que sentia nos outros o que eles não diziam, sentiu em Shirley uma coisa apertada e quente, com gosto de culpa, e pensou que era a culpa de quem falha na hora errada. Foi o que ele pensou. Quis dizer a ela que não era culpa de ninguém, e abriu a boca, e foi aí que o diapasão de Breno bateu na coxa dele, sozinho.
+Ela tentou. As faíscas saíram dos dedos dela, fracas, e apagaram antes de chegar ao ar, e os ombros dela se encolheram. Banjo percebeu em Shirley uma coisa apertada e quente, com gosto de culpa. Desde o covil de Korvo, às vezes alcançava sensações assim nas pessoas, mas quase nunca sabia de onde vinham. Achou que fosse a culpa de quem falha na hora errada. Foi o que ele pensou. Quis dizer a ela que não era culpa de ninguém, e abriu a boca, e foi aí que o diapasão de Breno bateu na coxa dele, sozinho.
 
 Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala do fundo, e agora esquentava, e um zumbido grave e comprido, como de trem muito distante, subiu do pulso de Breno e se espalhou pelo capim. Breno ergueu o instrumento diante do rosto, encostou a ponta na orelha, e fechou os olhos, e contou.
 

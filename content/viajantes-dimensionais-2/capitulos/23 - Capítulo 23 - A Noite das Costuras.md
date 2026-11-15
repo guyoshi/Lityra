@@ -308,7 +308,7 @@ Bruno sempre achou que, se um dia acontecesse uma coisa realmente terrível, ele
 
 Tayo tinha enlouquecido. Bruno viu isso por cima do ombro do professor, aos pedaços. Sinos tocando em todos os bairros ao mesmo tempo, sem acordo. Gente de camisola e chinelo correndo pelas ruas com crianças no colo. Janelas se abrindo e se fechando. Uma carroça de pão virada no meio da rua com as cestas espalhadas. E no céu, por cima dos telhados, clarões esverdeados que apareciam e sumiam, e cada clarão era uma costura se abrindo em algum lugar da cidade, longe, perto, mais perto.
 
-— Rua das Lavadeiras, quatro esquinas à esquerda — disse Grimaldus. — Casa de Lioro. Tranquem tudo e não abram para ninguém, nem para mim.
+— Sigam pela Rua das Lavadeiras até a estação de túbulas — disse Grimaldus. — A linha de Camporil ainda está funcionando. A casa de Lioro fica perto da Campina de Talven, com muro de pedra e portão de ferro. Tranquem tudo e não abram para ninguém, nem para mim.
 
 — O senhor não vem? — perguntou Banjo.
 
@@ -318,7 +318,7 @@ Tayo tinha enlouquecido. Bruno viu isso por cima do ombro do professor, aos peda
 
 O velho olhou para ela por um tempo a mais do que o resto. Havia um cansaço nele, e dentro do cansaço uma coisa firme, quase gentil.
 
-— Então vocês têm quatro esquinas — disse. — Andem.
+— Então saiam daqui antes que parem as túbulas — disse. — Andem.
 
 Foi a última coisa que Bruno ouviu dele. Grimaldus se virou, ergueu o que restava da tábua, e correu de volta para a boca da Central, uma figura pequena e teimosa contra um prédio que soltava luz verde por todas as janelas.
 
@@ -396,7 +396,7 @@ Breno encostou uma das metades no ouvido. A que estava no cabo. Franziu a testa.
 
 Beatriz riu uma vez, curta, que parecia soluço, e escondeu a boca na manga. Foi o primeiro som que fez desde o salão.
 
-Levantaram devagar, com Breno arrumando Lioro nas costas e guardando as duas metades do diapasão no bolso, e seguiram colados às paredes, sem falar. Na penúltima esquina o barulho voltou de uma vez.
+Levantaram devagar, com Breno arrumando Lioro nas costas e guardando as duas metades do diapasão no bolso, e seguiram colados às paredes em direção à estação. Perto da entrada das túbulas, o barulho voltou de uma vez.
 
 Vinha de uma travessa larga que dava num mercado coberto. Era barulho de luta de verdade, de madeira estalando e de bicho rosnando, e por cima dele uma voz seca e muito clara, que Bruno reconheceu antes de ver o dono porque a tinha ouvido uma vez, no vestíbulo da casa, dizendo "senhores" para uma multidão inteira sem levantar o tom.
 
@@ -432,11 +432,11 @@ Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fec
 
 Voltou para a criatura seguinte, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
 
-As ruas estavam estranhamente vazias dali em diante, de portas fechadas e janelas apagadas, e à medida que se afastavam da Central o barulho foi diminuindo. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser o Ricochet. Mais dois passaram atrás dele, e os três sumiram na direção do clarão verde.
+Encontraram a estação com as portas de emergência abertas e uma funcionária indicando aos passageiros quais linhas ainda corriam. Breno entrou primeiro no karto, com Lioro desmaiado às costas. Bruno não largou a máscara durante a viagem. Pela janela do tubo transparente, viu o céu verde se acender acima de Coração Branco. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser Ricochet. Mais dois passaram atrás dele e sumiram na direção do clarão. O karto prosseguiu, atravessou uma estação quase vazia e mudou para a ligação de Camporil. A cidade adensada ficou para trás. Do outro lado do vidro surgiram os campos escuros da Campina de Talven, as casas afastadas umas das outras e os muros baixos. O transporte parou duas vezes por causa das interrupções, mas voltou a andar. Quando desceram em Camporil, as ruas estavam estranhamente vazias, de portas fechadas e janelas apagadas. O barulho da luta na Central chegava dali muito abafado, embora os clarões verdes ainda fossem visíveis por cima dos telhados.
 
 — Aí, Ricochet — sussurrou Bruno, para o céu. — Quebra tudo.
 
-A Rua das Lavadeiras terminava numa pracinha redonda, de lajes irregulares, com uma fonte seca no meio e quatro bancos de pedra, e do outro lado, entre dois plátanos, a casa de Lioro, com a luz da cozinha acesa e a fumaça saindo da chaminé numa noite qualquer. Os cinco pararam na entrada da praça. O silêncio ali era tão grande que doía.
+Atravessaram duas ruas de casas espaçadas e chegaram ao Largo da Fonte, uma pracinha redonda de lajes irregulares, com uma fonte seca no meio e quatro bancos de pedra. Do outro lado, entre dois plátanos, ficava o muro de pedra clara da casa de Lioro. O portão de ferro dava para o pátio onde haviam treinado, e por cima do muro se viam a luz acesa da cozinha e a fumaça saindo da chaminé numa noite qualquer. Os cinco pararam na entrada do largo. O silêncio ali era tão grande que doía.
 
 — Chegamos — disse Banjo. — A gente chegou.
 
@@ -460,7 +460,7 @@ Banjo demorou a responder. Bruno viu o irmão fechar os olhos e abrir de novo, e
 
 Foi nesse momento que o lampião do outro lado da praça se apagou.
 
-Depois o seguinte. Depois o último, o que ficava junto à porta da casa de Lioro, e com ele a luz quente da cozinha. Bruno se levantou tão rápido que a máscara quase caiu. A praça ficou iluminada só pela claridade fraca da cidade em chamas, de longe, uma luz suja de verde e laranja.
+Depois o seguinte. Depois o último, que ficava junto ao portão de ferro de Lioro, e com ele a janela da cozinha ficou escura. Bruno se levantou tão rápido que a máscara quase caiu. A praça ficou iluminada só pela claridade fraca da cidade em chamas, de longe, uma luz suja de verde e laranja.
 
 Sentada na borda da fonte, onde não estava um segundo antes, de pernas cruzadas e mãos no colo, com o cabelo molhado caído sobre o ombro, havia uma moça de camisa de condutor emprestada. Olhava para eles com a cabeça um pouco inclinada, sorrindo com a gentileza de sempre.
 

@@ -89,11 +89,11 @@ Contaram doze, e mais um, que Beatriz achou embaixo da xícara, de capa gasta e 
 
 — Pronto — disse Beatriz. — A gente pegou todos. Agora podemos voltar, e eu quero ver o Ferris abrir um.
 
-— Falta a de calor fino — disse Shirley.
+— Falta o caderno dos últimos testes — disse Shirley.
 
-Ela disse devagar, olhando as mesas.
+Breno se lembrou do caderno de Kalev que Velho-Sábio havia encontrado no Arcano, na noite da visita à contadora. Aquele falava de calor fino e de toque. Shirley, porém, apontou para o corredor.
 
-— O Ferris falou de um caderno em que o pai escrevia sobre calor e toque. O último. Ficava na sala do fundo, junto da porta, por segurança. — Ela virou o rosto para os degraus e para o corredor, onde o azul das lamparinas parava numa porta de ferro escuro, baixa e quadrada, ao fim de um lance de pedra. — É aquela. A que fechou atrás dele.
+— O Ferris falou de outro, que o pai guardava na sala do fundo, perto da porta lacrada, por segurança. — Ela virou o rosto para os degraus e para o corredor, onde o azul das lamparinas parava numa porta de ferro escuro, baixa e quadrada, ao fim de um lance de pedra. — É aquela. A que fechou atrás dele.
 
 Ninguém falou. A porta era de ferro cinza e reta, de fecho redondo, e tinha uma placa chata de lacre aparafusada em cima da tranca, com o desenho do olho da Vigilância gravado no centro. Estava sem pó e sem marca de mão. Por baixo da porta, onde a pedra terminava, passava uma faixa fina de ar frio.
 

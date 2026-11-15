@@ -101,7 +101,7 @@ Bruno abriu a boca e fechou.
 
 A noite estava fria, com um cheiro de lenha molhada. No fundo do quintal, pela portinha de ripas que dava para a viela, uma silhueta pequena esperava com um carrinho de duas rodas coberto por um pano e uma ave ruiva no ombro. Ao lado dele, mais alto, uma segunda silhueta de capa escura se encostava na parede, e quando Bruno chegou, ela deu um passo e tirou a mão do bolso.
 
-— Atrasados — disse Ferris. — Onze e dez. A brecha abre à meia-noite, e daqui até a Central são quinze minutos se ninguém parar, e a gente vai parar.
+— Atrasados — disse Ferris. — Onze e dez. A brecha abre à meia-noite, e Camporil fica longe da Central. Na túbula de serviço são uns trinta e cinco minutos sem paradas, fora a caminhada e os guardas. Se perdermos essa viagem, perdemos a brecha.
 
 — A gente teve um probleminha — disse Bruno, olhando para trás. — Mas já virou ajuda.
 
@@ -132,6 +132,8 @@ O vigilante olhou a cesta, olhou o pão e cutucou um com o dedo, desconfiado, e 
 — Seu joelho falou.
 
 Na rua, o vigilante soltou o pão, anotou qualquer coisa e mandou Bug seguir. Quando a esquina ficou para trás, Banjo soltou o ar de uma vez, e Bruno percebeu que Shirley, atrás dele, tinha se agarrado à capa dele sem avisar, e ela soltou depressa e deu uma risadinha.
+
+Bug os conduziu até a estação de Camporil, afastada das ruas mais movimentadas. Usou o passe de funcionário para embarcar com o carrinho num karto de serviço, que seguia direto para Coração Branco sem parar em todas as estações. Os quatro se acomodaram entre caixotes de manutenção, com as lanternas escondidas debaixo dos pães. Pelos vidros do tubo, Bruno viu as casas espaçadas de Camporil e a Campina de Talven passarem antes de surgirem as fachadas altas do centro de Tayo. O carrinho corria depressa, mas a Central ainda ficava longe. Quando desembarcaram, Bug já estava olhando para o sino no alto da torre.
 
 A Central, à noite, não era a mesma. Bug os levou por uma porta de serviço, atrás de um depósito de caixas de aves, e eles passaram debaixo de uma cortina de couro para dentro do salão grande, e Bruno quase esqueceu o que estava fazendo. A cúpula de vidro tinha apagado quase toda a fumaça luminosa e deixado só uma neblina azul-escura, com uns fios de luz que giravam devagar, preguiçosos, no alto. Os arcos de metal líquido, dos dois lados, estavam parados como lagos de espelho. As aves vermelhas dormiam em fileiras nas vigas, de cabeça enfiada na asa, uma ao lado da outra, e quando uma delas abriu um olho para eles e o fechou de novo, Shirley se encolheu para não rir.
 
