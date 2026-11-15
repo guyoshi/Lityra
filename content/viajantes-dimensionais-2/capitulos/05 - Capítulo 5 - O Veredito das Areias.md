@@ -36,7 +36,7 @@ Erick pisou no pé do irmão sem mudar a cara. Nicolas passou a olhar a própria
 
 — Banjo, fala alguma coisa pro seu irmão — pediu Erick.
 
-— Eu... é que... — Banjo olhou para o cantil que Beatriz estendia, pegou e agradeceu com os olhos, aliviado por ter o que fazer com as mãos. — Tipo, eu entendo vocês ficarem chateados, eu também ficaria, desculpa. Só que o Bruno exagera em piada e não em coisa séria. Se ele disse que viu, ele viu alguma coisa. Pode ser que tenha sido outra coisa, né? Mas viu.
+— Eu... é que... — Banjo olhou para o cantil que Beatriz estendia, pegou e agradeceu com os olhos, aliviado por ter o que fazer com as mãos. — Eu entendo vocês ficarem chateados, desculpa. Só que o Bruno exagera em piada, não em coisa séria. Se ele disse que viu, ele viu alguma coisa.
 
 — Eu escuto aquela tábua estalando até quando durmo — murmurou Nicolas. — Tec, tec, tec. Fico esperando a próxima conta.
 
@@ -308,7 +308,7 @@ O homem falou sem se virar. Disse que a caravana saíra de noite, pelo caminho d
 
 — Então um mente.
 
-— Ou os dois, ou nenhum, ou eles tão falando da mesma corda em dias diferentes. — Banjo coçou a nuca. — O meu sentia culpa, Nayra, tipo, muita. Pesada. Eu senti mesmo.
+— Ou os dois, ou nenhum, ou é a mesma corda em dias diferentes. — Banjo coçou a nuca. — O meu sentia culpa, Nayra. Muita. Pesada.
 
 — Sentir não é prova. — Ela apertou o cinto do cantil. — Eu preferia que você falasse do vento, ou da areia, que a gente consegue medir. Culpa não cabe no cantil.
 

@@ -182,7 +182,7 @@ Ela hesitou. Estendeu a mão devagar, depois mais devagar, e a chama que saiu do
 
 — Foi o Banjo que subiu o ovo — começou Breno. — Eu mandei ir pelo meio, ele foi por cima, e...
 
-— Fui eu — disse Banjo, olhando o ovo apitado como quem se despede de um amigo. — Eu ouvi o que você falou, Breno, só que a ideia do alto estava tão boa na minha cabeça que eu fui. Pode me dar as tigelas. Eu levo todas, até as que o Bruno quebrou na semana passada.
+— Fui eu — disse Banjo, olhando o ovo apitado como quem se despede de um amigo. — Eu ouvi você, Breno, só que a ideia do alto estava tão boa na minha cabeça! Pode me dar as tigelas. Eu levo todas, até as que o Bruno quebrou na semana passada.
 
 Bruno ia dizer que na próxima eles decidiriam tudo de novo do jeito dele, mas Beatriz sorria para o trilho de gelo, orgulhosa e meio surpresa, e ele guardou a frase para outro dia.
 

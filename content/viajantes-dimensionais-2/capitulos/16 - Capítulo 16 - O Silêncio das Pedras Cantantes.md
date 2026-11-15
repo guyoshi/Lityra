@@ -288,7 +288,7 @@ Shirley olhou para ele, e dessa vez o sorriso dela demorou a vir, e quando veio 
 
 — Eu fico com o terço do Banjo — disse Bruno. — Ele não tem culpa de nada, então a parte dele eu dou pra quem quiser.
 
-— Eu tenho culpa de uma coisa — disse Banjo, e todos se viraram para ele, e ele ficou vermelho. — Eu fui na casa da Nayra. Eu tava lá, rindo de uma piada, enquanto eles... enquanto a Bia ia lá. E eu fico pensando que se eu tivesse ficado em casa, a gente tava todo mundo junto.
+— Eu tenho culpa de uma coisa — disse Banjo, e todos se viraram para ele, e ele ficou vermelho. — Eu fui na casa da Nayra. Eu tava lá, rindo de uma piada, enquanto a Bia ia lá. Se eu tivesse ficado em casa, a gente tava todo mundo junto.
 
 — Isso não é culpa, é Nayra — disse Shirley, e Bruno soltou uma risada.
 

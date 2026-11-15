@@ -116,11 +116,11 @@ Banjo parou no meio da encruzilhada, ofegante, com a lanterna acesa e Farol nos 
 
 — Fala — disse Breno, e baixou o caderno. — Do começo. Primeiro, o que você viu. Depois, o que você acha.
 
-— Primeiro, as árvores. — Banjo respirou. — Elas sentem a lanterna. Quando alguém canta sozinho elas ficam com medo, tipo gente em quarto vazio, e fecham o caminho. Quando duas vozes combinam, elas abrem. Eu senti lá atrás, com a Shirley. Agora o bosque está meio encolhido, porque tem sete lanternas aqui e nenhuma combina com a outra.
+— Primeiro, as árvores. — Banjo respirou. — Elas sentem a lanterna! Quando alguém canta sozinho elas ficam com medo, tipo gente em quarto vazio, e fecham o caminho. Quando duas vozes combinam, elas abrem. Agora o bosque está encolhido, porque tem sete lanternas aqui e nenhuma combina com a outra.
 
 — Combinando como? — perguntou Bruno, sem levantar a cabeça.
 
-— Se todo mundo cantar junto uma nota diferente, mas que fique bonito, tipo acorde, tipo o que o Velho-Sábio faz quando toca... — Banjo parou, perdido na própria frase, e recomeçou. — A gente junta as lanternas. Cada um faz uma nota. A Brenda faz a que já está fazendo, que está firme, e o resto entra por cima ou por baixo. A luz soma, e o bosque abre pra todo mundo. Ele não gosta de quem passa sozinho. Ele só quer que a gente... esteja junto.
+— Se todo mundo cantar junto, cada um uma nota, mas que fique bonito, tipo o que o Velho-Sábio faz quando toca... — Banjo parou, perdido na própria frase, e recomeçou. — A gente junta as lanternas. A Brenda faz a nota que já está fazendo, que está firme, e o resto entra por cima ou por baixo. A luz soma, e o bosque abre pra todo mundo! Ele só quer que a gente... esteja junto.
 
 Houve um silêncio longo. A lanterna de Brenda tremeu.
 

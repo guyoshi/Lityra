@@ -54,9 +54,9 @@ A casa acordou em ordem de barulho. Primeiro o de Átila, que desceu a escada co
 
 — Cuspiu por quê?
 
-— Acho que não era o gosto dele, tipo, cada um tem o seu. — Banjo sentou e pegou uma torrada. — Ele me olhou no final. Eu fiquei com vontade de dar o meu pão, mas o Farol ficou nervoso.
+— Acho que não era o gosto dele. — Banjo sentou e pegou uma torrada. — Mas ele me olhou no final! Eu fiquei com vontade de dar o meu pão, mas o Farol ficou nervoso.
 
-— Você chegou perto dele? — Beatriz largou a colher. — A gente não sabe o que esse bicho faz quando alguém se aproxima, Banjo. Pode morder, pode ser peçonhento, pode ter filhote escondido atrás do arbusto.
+— Você chegou perto dele? — Beatriz largou a colher. — A gente não sabe o que esse bicho faz, Banjo! Pode morder, pode ter veneno, pode ter filhote escondido atrás do arbusto.
 
 — Eu não cheguei perto, juro. Fiquei na janela, com o nariz no vidro. Mas ele era mansinho, nem ligou pra mim, só catava pétala e comia. O Farol é que escondeu a cara na minha orelha, de tão nervoso.
 

@@ -100,7 +100,7 @@ Beatriz tinha parado de tremer. Estava sentada com as costas retas e as mãos fe
 
 — Eu estava com medo de você se queimar.
 
-— Eu sei. Eu sei que estava. — Beatriz levantou, devagar, e a voz dela ficou mais firme a cada palavra. — Eu preciso de espaço. Não é que eu não goste que você olhe por mim. É que eu preciso errar perto de alguém que não entre na frente. Se eu só aprendo com você me segurando, o que eu faço no dia em que você não estiver?
+— Eu sei. Eu sei que estava. — Beatriz levantou, devagar, e a voz dela ficou mais firme a cada palavra. — Eu gosto que você olhe por mim. Mas eu preciso errar perto de alguém que não entre na frente. Se você me segura sempre, o que eu faço no dia em que você não estiver?
 
 Breno abriu a boca para dizer que sempre estaria. Percebeu a tempo que a frase era exatamente o problema.
 

@@ -72,7 +72,7 @@ Era a coisa mais torta que Bruno tinha visto na vida, e ele já tinha visto o qu
 
 — Eu quero ir embora — disse Bruno.
 
-— Eu quero entrar — disse Banjo, ao mesmo tempo, com os olhos arregalados atrás dos óculos. — Parece uma casa de livro de figura. Será que tem gente que mora aí? Será que mora com os cantos todos?
+— Eu quero entrar! — disse Banjo, ao mesmo tempo, com os olhos arregalados atrás dos óculos. — Parece uma casa de livro de figura! Será que tem gente que mora aí? Será que mora com os cantos todos?
 
 A porta azul abriu antes de qualquer um bater. Um homem apareceu no vão, com um lampião aceso, apesar da luz laranja do dia, magro e comprido, de nariz grande, de cabelo branco em tufos ao redor de uma careca brilhante, vestindo uma casaca de remendos de tecido de todas as cores e segurando uma xícara numa mão que não parava de se mexer. Atrás dele, na sombra, uma coisa redonda e baixa se mexeu, e dois olhinhos brilharam.
 
@@ -260,7 +260,7 @@ Bruno ouviu Ferris soltar o ar, bem de leve, como quem acaba de tirar uma pedra 
 
 — Voltou — disse Shirley, baixinho. — Ela voltou para o lugar, sozinha. O Velho-Sábio disse que ela só sabe voltar pelo mesmo caminho.
 
-— Então os dois estão dentro — respondeu Banjo. Ele não tirava os olhos da máscara. Os óculos refletiam o laranja, e o rosto dele parecia mais velho. — O Breno e a Bia. Eu sinto. Ela está cantando baixinho, a coisa toda, e não é igual ao que eu escutava. Parece que alguém está contando uma coisa dentro, para um outro, e só a metade passa para fora.
+— Então os dois estão dentro — respondeu Banjo. Ele não tirava os olhos da máscara. Os óculos refletiam o laranja, e o rosto dele parecia mais velho. — O Breno e a Bia. Eu sinto. Ela está cantando baixinho, e não é igual ao que eu escutava. Parece alguém contando uma coisa lá dentro, para um outro, e só a metade passa para fora.
 
 Bruno enfiou as mãos nos bolsos e olhou a máscara por um bom tempo, e uma voz bem baixa, que não era a de ninguém, disse dentro da cabeça dele que aquela era a parte em que ele mais queria sumir. Ele nunca tinha entendido muito bem o que significava ser o do meio, o que fala, o que não pensa, o que ri. Agora, de frente para uma pedra cinza que cantava baixinho, entendeu que a piada acabava ali.
 

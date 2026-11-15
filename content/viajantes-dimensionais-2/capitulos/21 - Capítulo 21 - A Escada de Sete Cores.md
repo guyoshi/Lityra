@@ -62,7 +62,7 @@ Beatriz ficou parada, com a Partitura no peito e as meias molhadas, e os olhos d
 
 — Era suposição — disse Breno, parado onde estava, branco como a neve. Tinha os braços soltos ao lado do corpo e o diapasão mudo balançando no fio azul do pulso, e olhava para Banjo com a cara que fazia quando uma conta não fechava. — Banjo. Quem está com o seu corpo? Há quanto tempo? Onde fica essa janela por onde você veio?
 
-— O Bruno está com ele, e o Ferris e a Shirley. — Banjo tentou sentar, com Beatriz agarrada no pescoço. — Foi o Bruno quem tentou primeiro, mas ela não quis, e eu acho que ela chamou foi eu, e não sei por que, e eu fui. Tipo, eu falei que ia. Desculpa. Foi rápido.
+— O Bruno está com ele, e o Ferris e a Shirley. — Banjo tentou sentar, com Beatriz agarrada no pescoço. — O Bruno tentou primeiro, mas ela não quis. Ela chamou foi eu, não sei por quê. E eu fui. Desculpa. Foi rápido.
 
 — Você veio sozinho dentro da máscara. — Breno fechou os olhos um segundo. — Isso não estava na lista.
 

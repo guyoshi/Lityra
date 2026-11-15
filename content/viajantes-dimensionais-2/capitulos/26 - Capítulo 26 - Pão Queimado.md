@@ -216,10 +216,6 @@ A tela flutuou até a porta, do tamanho de uma janela pequena, com o rosto lumin
 
 — Eu não dei. Eu registrei que aconteceu.
 
-— Ele não é bagagem — disse Banjo, e Farol, no capuz, confirmou com um chilreio. — Ele come fruto azul, bebe água na tampinha e eu converso com ele todo dia. Conta como pessoa.
-
-— Registrado. — A tela demorou um segundo. — Passageiro reclassificado. Eu continuo achando bagagem de mão, mas anotei a sua opinião.
-
 Bruno estava parado na porta, de mochila nas costas, e olhava a tela. Tinha uma cara que Banjo não via nele havia dias, a de quem se prepara para uma piada e descobre que não tem nenhuma pronta.
 
 — Oi, Kali — disse.
@@ -362,7 +358,7 @@ A prata do arco se desfez em faixas de cor.
 
 Na Terra, a primeira semana foi só de coisa normal, e Breno achou isso quase insuportável.
 
-A segunda-feira começou com aula de matemática. A terça teve prova de geografia, que ele tinha estudado de madrugada porque não conseguia dormir. Na quarta, Bruno foi suspenso do recreio por vender, para três colegas, "ingressos" de uma visita ao laboratório de ciências que não existia. Na quinta, Banjo trouxe da biblioteca um livro sobre aves e passou a tarde inteira no sofá com Farol, que tinha vindo no capuz do casaco, dando a ele fatias de maçã e lendo em voz baixa o nome de cada ave. O bichinho escutava entre as almofadas, de olhos meio fechados, como quem aprova, com a fita azul de Shirley no pescoço, e o tio Frank fingia que não via. Na sexta, Beatriz fez o jantar.
+A segunda-feira começou com aula de matemática. A terça teve prova de geografia, que ele tinha estudado de madrugada porque não conseguia dormir. Na quarta, Bruno foi suspenso do recreio por vender, para três colegas, "ingressos" de uma visita ao laboratório de ciências que não existia. Na quinta, Banjo trouxe da biblioteca um livro sobre aves e passou a tarde inteira olhando para Farol, que tinha vindo no capuz do casaco e dormia entre as almofadas da sala com a fita azul de Shirley no pescoço, e o tio Frank fingia que não via. Na sexta, Beatriz fez o jantar.
 
 Tentou fazer, melhor dizendo. Frank deixou, com a cara de quem sabia o que ia acontecer e preferia que acontecesse na frente dele. Ela misturou a massa com as duas mãos, deixou crescer debaixo de um pano e ficou parada na frente do forno com a respiração fundo, de olhos fechados, contando baixinho. O cheiro de pão queimado veio mesmo assim, uma pitada só, e Frank levantou a sobrancelha. Mas o pão saiu inteiro. Escuro por fora, quente por dentro, torto de um lado.
 

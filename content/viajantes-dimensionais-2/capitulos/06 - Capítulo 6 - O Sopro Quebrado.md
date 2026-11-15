@@ -106,11 +106,11 @@ Estava com o cabelo ruivo preso num rabo alto, o uniforme do Arcano passado e um
 
 — Sabia que você estaria aqui — sussurrou. — A Kali disse que você saiu cedo, aí eu deduzi o resto. Não pula, Banjo.
 
-— Desculpa, levei um susto. Ela dormiu agora há pouco, e falou um monte de coisa estranha com a febre. — Banjo olhou para Nayra e baixou a voz. — A gente forçou demais ontem, Shirley. Ela segurou o vento uns quatro minutos, de braço aberto, e depois ainda correu. Eu fiz ela correr.
+— Desculpa, levei um susto. Ela dormiu agora há pouco. — Banjo olhou para Nayra e baixou a voz. — A gente forçou demais ontem, Shirley. Ela segurou o vento uns quatro minutos, de braço aberto, e depois ainda correu. Eu fiz ela correr.
 
 — A duna ia cair em cima dela. — Shirley sentou na ponta da cama vazia ao lado, com a bolsa no colo. — Eu ouvi a história ontem à noite. Quatro vezes, duas do Bruno. — Ela olhou para a menina que dormia. — Como ela está? Pode falar. Eu guardo.
 
-— Com muita febre. A curandeira diz que é febre do vento, de Marador, e passa em um ou dois dias. O Lioro está preocupado, porque ela não está falando nem bagunçando tudo como da outra vez. — Banjo esfregou o rosto. — Ela perguntou se tinha entrado areia no vento. Eu não soube o que responder. Fiquei só ouvindo.
+— Com muita febre. A curandeira diz que é febre do vento e que passa em um ou dois dias. Mas o Lioro está preocupado. Ela está quieta demais. — Banjo esfregou o rosto. — Ela perguntou se tinha entrado areia no vento. Eu não soube o que responder.
 
 — Às vezes é o que dá pra fazer. — Shirley mexeu na alça da bolsa. — Eu preciso confessar uma coisa. Você vai achar bobagem.
 

@@ -52,7 +52,7 @@ O homem levantou o rosto. Os olhos eram claros, fundos, com uma vermelhidão de 
 
 — A máscara agora faz criança — disse. — Faz com cachorro e tudo. É caprichosa, ela. Quando eu cheguei só sabia fazer neve.
 
-— Eu não fui feita por ela. Eu cheguei por um buraco, e o meu irmão estava junto, e ele também não foi feito. — Beatriz franziu a testa. — Ele está dormindo na casa da Velha e não me escutou chamar, e eu juro que tentei. O senhor tem alguma coisa para comer? Eu fiquei com vontade de uma coisa quente de repente, e a gente só tomou chá ontem.
+— Eu não fui feita por ela. Eu cheguei por um buraco, e o meu irmão também. — Beatriz franziu a testa. — Ele está dormindo na casa da Velha e não me escutou chamar. O senhor tem alguma coisa para comer? A gente só tomou chá ontem.
 
 O homem soltou uma risada que não chegou a ser risada, um som de pedra arrastada. Depois a cara dele mudou, e o corpo todo se dobrou para a frente, e ele apertou as duas mãos na cabeça.
 
@@ -224,7 +224,7 @@ Foi então que Beatriz fez a coisa que menos tinha pensado em fazer, que foi enf
 
 — Beatriz, não...
 
-— Ela está com medo, Breno. — Beatriz limpou a gaita na capa e soprou, e a primeira nota saiu tremida. — Ela não quer machucar a gente. Ela estava dormindo, e a gente chegou e roubou a coisa dela, e ela só está com muito medo. A Velha disse que ela acorda irritada. Eu acho que ela está irritada porque está com medo.
+— Ela está com medo, Breno. — Beatriz limpou a gaita na capa e soprou, e a primeira nota saiu tremida. — Ela estava dormindo, e a gente chegou e roubou a coisa dela. Ela não quer machucar ninguém. Só está com muito medo.
 
 Soprou as três notas, as de sempre, as que subiam, voltavam, subiam de novo e paravam no ar esperando um fim. Só que dessa vez, pela primeira vez na vida, ela não parou onde sempre parava. Continuou, e a quarta nota nasceu sozinha, quente, vinda de debaixo da língua.
 

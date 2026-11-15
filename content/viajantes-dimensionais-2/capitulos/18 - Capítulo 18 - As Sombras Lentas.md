@@ -68,7 +68,7 @@ Nenhuma resposta. Banjo estava de joelhos, com uma mão no chão e a outra apert
 
 Havia ossos. Estavam espalhados por baixo do muro, e entre as pedras, e na beira do buraco, e eram brancos, quebrados e muito grandes. Costelas do tamanho de remos. Um crânio comprido, de bicho, com a boca meio aberta e os dentes ainda no lugar. Outros menores, de forma de gente, que ele olhou rápido e desviou os olhos.
 
-— Não é só um lugar destruído — disse Banjo, baixinho. Ele ainda não tinha levantado. — Eu estou tentando sentir alguma coisa, e não sinto nada. Nenhuma planta, nenhum bicho, nem bicho de ruína, tipo barata ou rato. Parece o fundo de uma gaveta que ninguém abre faz cem anos.
+— Não é só um lugar destruído — disse Banjo, baixinho. Ele ainda não tinha levantado. — Eu não sinto nada aqui. Nenhuma planta, nenhum bicho, nem barata, nem rato. Parece o fundo de uma gaveta que ninguém abre faz cem anos.
 
 — Mas tem uma coisa. — Shirley se agachou ao lado dele. — Eu também sinto. Está longe, e é lenta, e me lembra um sino tocando debaixo d'água.
 
@@ -168,7 +168,7 @@ Durante um tempo não houve som nenhum. Só o vento nas torres, e o zumbido dos 
 
 Bruno olhou para o irmão. Banjo estava com os óculos sujos de cinza, o cabelo grudado de suor, e uma mão cheia de pó preto, o mesmo que tinha pegado da pedra quando acertou o ombro do monstro. Os olhos estavam muito abertos, com aquela luz parada e meio longe que ele fazia quando escutava um bicho.
 
-— Eu toquei nele — disse Banjo. — Com a telecinese, quando joguei a pedra. Eu fiquei com a mão na pedra um tempo a mais, e senti o que ele sente. Bruno, ele não está com raiva. Ele nunca esteve. Ele tem uma coisa que eu nunca senti num bicho. É um medo tão velho que já virou outra coisa, e se parece com fome. Ele não ataca porque quer ferir, ele ataca porque quer que não saia mais ninguém. Ele guarda. Ele pega quem aparece e segura, e leva pro alto, pra perto, porque a última vez que alguém foi embora...
+— Eu toquei nele — disse Banjo. — Com a telecinese, quando joguei a pedra. Eu senti o que ele sente. Bruno, ele não está com raiva! Ele nunca esteve. É um medo tão velho que já virou outra coisa, e se parece com fome. Ele não quer ferir. Ele quer que não saia mais ninguém. Ele guarda. Pega quem aparece e leva pro alto, pra perto, porque a última vez que alguém foi embora...
 
 Parou. Engoliu em seco.
 
@@ -180,7 +180,7 @@ Parou. Engoliu em seco.
 
 — Quando não atacam ele faz o quê? — perguntou Shirley, devagar. — Dorme?
 
-— Eu acho que sim. Eu acho que ele se enrola em volta do que achou e fica quieto. — Banjo levantou o rosto. — Eu acho que a gente pode subir sem fazer barulho, sem luta, sem eletricidade e sem gelo, e tirar o Ferris debaixo dele. Se ele estiver dormindo, a gente consegue.
+— Eu acho que sim. Eu acho que ele se enrola em volta do que achou e fica quieto. — Banjo levantou o rosto. — A gente pode subir sem barulho, sem eletricidade e sem gelo, e tirar o Ferris debaixo dele. Se ele estiver dormindo, a gente consegue!
 
 — Isso é plano de ladrão de pão — disse Bruno.
 
@@ -188,7 +188,7 @@ Parou. Engoliu em seco.
 
 — Funciona nada! Mano, você quer chegar de fininho num monstro de fumaça do tamanho de um prédio, que tem uma mão que sai sozinha, e levar o que ele guarda debaixo do nariz? E se ele acordar? E se tiver outro? E se o monstro percebe e desmancha o Ferris de susto? — Bruno sentiu a voz subir de novo, e parou, e respirou, e ficou olhando o chão. — Eu não gosto, Banjo. Eu não gosto, porque eu não confio em nada que não seja bater primeiro. Foi sempre assim. Quando eu bato, eu sei o que vai acontecer.
 
-— Mas bater não funcionou, Bruno. — Banjo falou baixo, sem raiva. — Você bateu, e levou uma, e o Ferris foi levado. A gente bateu junto e ele levou o Ferris mesmo assim. Eu não sei se meu plano é bom, mas é o único que eu tenho e é o único em que ninguém sai machucado.
+— Mas bater não funcionou, Bruno. — Banjo falou baixo, sem raiva. — Você bateu, e levou uma, e ele levou o Ferris mesmo assim. Eu não sei se o meu plano é bom. Mas é o único em que ninguém sai machucado.
 
 — A gente pode tentar — disse Shirley. — E se der errado, a gente bate.
 

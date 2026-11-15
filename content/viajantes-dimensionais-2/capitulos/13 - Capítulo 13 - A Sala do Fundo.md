@@ -4,7 +4,7 @@ Bruno saiu logo depois, sem dizer para onde, o que era novo e não agradava a Br
 
 Ela o encontrou no pátio e sentou ao lado dele no banco encostado à parede, de capa cinza-esverdeada até os joelhos e a gaita no colo, com as duas mãos em cima, segurando-a firme. Fazia sol, o primeiro sol seco em dias, e as lajotas do pátio tinham perdido o brilho de água. Da árvore velha já não pingava nada.
 
-— Eu não vou tocar hoje — disse Beatriz, antes de ele perguntar. — Só queria ficar com ela um pouco. A Mereditha falou ontem que o nosso pai errava o tempo de propósito e que a mamãe fazia trança em todo mundo. Eu fiquei pensando que a gaita estava esperando a gente esse tempo todo. Igual a uma coisa que a mamãe segurou.
+— Eu não vou tocar hoje — disse Beatriz, antes de ele perguntar. — Só queria ficar com ela um pouco. A Mereditha falou que o papai errava o tempo de propósito e que a mamãe fazia trança em todo mundo. Eu acho que a gaita estava esperando a gente esse tempo todo.
 
 — Ela esperou nas mãos de alguém que demorou a achar os quatro — respondeu Breno, e fechou o caderno. — Eu fiz uma lista de perguntas pra Mereditha ontem à noite e não fiz nenhuma. Pareceu injusto, com alguém chorando daquele jeito.
 
