@@ -200,6 +200,12 @@ Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala 
 
 — Grave. Muito grave. — Breno abriu os olhos. — E não é de nenhum de nós, nem de nenhuma coisa que a gente trouxe. Está perto.
 
+— Odilon? — perguntou Beatriz.
+
+— Ele disse que não sai daquela casa faz anos — lembrou Bruno. — E ficou lá embaixo.
+
+— Então não é ele. — Breno abaixou o diapasão devagar, e o zumbido continuou na mão dele, como um bicho dormindo.
+
 A luz mudou. Foi isso que Banjo sentiu primeiro, antes de ver, porque a luz laranja, que não se mexia desde o dia em que eles chegaram, de repente começou a escorrer para o buraco do horizonte, como água saindo de uma pia. Todas as sombras que estavam deitadas para o mesmo lado giraram juntas, devagar, e apontaram para a estátua. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
 
 Alguém estava sentado no toco do pescoço da estátua sem cabeça.
