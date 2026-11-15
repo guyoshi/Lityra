@@ -1,145 +1,96 @@
-Os cantis do Arcano tinham cheiro de chuva guardada. Eshley enchia o dela numa bica de latão, no corredor das salas, e contava os goles em voz alta, doze, treze, errando de propósito para recomeçar.
+Os cantis do Arcano tinham cheiro de chuva guardada. Eshley enchia o dela numa bica de latão e contava os goles em voz alta. Chegou ao treze, errou e recomeçou.
 
 — Você vai levar peso demais — disse Beatriz.
 
-— Peso é melhor que sede, Bia. O primeiro cantil eu bebo até a metade, o segundo fica de reserva, e ninguém me convence do contrário. — Eshley fechou a tampa com o polegar, e a tampa quicou duas vezes antes de aceitar ficar fechada. — Treze. Eu errei de novo, é de propósito. Quando eu era pequena e tinha medo de dentista, a minha avó me mandava contar os azulejos da sala de espera, e eu sempre errava no sete para ter que voltar ao um. Ficava lá o tempo todo contando, e a moça da recepção nunca chamava o meu nome.
+— Peso é melhor que sede. Minha avó mandava contar azulejos quando eu tinha medo de dentista. Eu errava no sete para demorar mais a acabar. Hoje eu contei até treze. Evolução, caraca!
 
-— Você está com medo do juiz?
+Beatriz levava o próprio cantil e o de Banjo, esquecido ao lado da torrada. Tinham chegado ao Arcano quase em cima da hora, apesar dos avisos de Kali. Diante da sala das areias, um lençol branco caía do batente sem formar monte no chão. Os gêmeos cercavam Bruno junto à porta.
 
-— De areia, não. Do juiz, caraca, um pouco. O Denis falou que ele desconta ponto pelo que a gente ia dizer e não disse, e eu já deixei de dizer tanta coisa nessa vida que imagina o desconto.
+— Dois pontos por causa de um pote! — reclamou Erick. — Agora Grimaldus aparece até na fila do pão.
 
-— O Denis também falou que a Brenda anda com o namorado no bolso.
+— Eu nem gosto de pão — acrescentou Nicolas. — Fui só ver se ele ia aparecer.
 
-— Essa eu acho que é verdade. Pelo menos a parte do bolso, porque ele não tira a mão de lá nem para cumprimentar.
+— Vocês deram motivo — respondeu Bruno.
 
-Beatriz levava dois cantis, o seu e o de Banjo, que ele tinha esquecido na mesa do café junto com metade da torrada. A tela de Kali destrancara a porta de casa às oito e cinquenta e nove, com um aviso sobre atrasos que Bruno repetira pela ladeira inteira, na voz exata dela. O Arcano abrira às nove em ponto. Velho-Sábio proibira a ala desde domingo para que nenhum deles chegasse cedo e treinasse sozinho, de modo que o corredor estava cheio de aprendizes chegando juntos, com a cara de quem queria parecer que não tinha vindo correndo.
+— Alguém nos acusou de magia negra. Mentira! — Erick aproximou o dedo do peito dele. — Você viu sombra e inventou o resto.
 
-No fim do corredor ficava a sala das areias. A porta era um lençol de areia fina que caía do batente até o chão sem formar monte nenhum, e a areia era tão branca que Beatriz olhou duas vezes para ter certeza de que não era sal. Banjo e Bruno esperavam encostados na parede ao lado, e entre eles e a porta, de costas para a areia, estavam os gêmeos.
+— Eu falei o que vi, pô.
 
-Erick falava baixo, com o dedo quase no peito de Bruno. Beatriz foi na direção deles, com o cantil de Banjo balançando na mão e Eshley atrás, ainda contando.
+Nicolas ia retrucar quando as contas estalaram atrás deles. Grimaldus Graven os observava de mãos cruzadas às costas.
 
-— Dois pontos a menos por causa de um pote, Bruno. Um pote. E desde aquele dia o homem aparece em todo lugar onde a gente está. Na oficina, no refeitório, no corredor do banheiro, e hoje de manhã estava na fila do pão olhando a gente escolher.
+— A fila do pão será reorganizada outra vez amanhã, senhor Erick. Espero que essa lhe agrade. Agora entrem.
 
-— Eu nem gosto de pão — disse Nicolas. — Fui só para ver se ele aparecia, e ele apareceu, e ficou olhando eu não pegar nenhum. Foi a pior fila da minha vida.
+Os gêmeos obedeceram. Banjo, que acompanhara a discussão sem conseguir entrar nela, olhou para o irmão.
 
-— Deve ser o cheiro — disse Bruno. — Gente suspeita cheira a pote de oficina, véi. Qualquer tutor sente de longe.
+— Você viu alguma coisa mesmo, né?
 
-— Cheira a gente que o Garmande mandou vigiar. E sabe por quê? — Erick baixou ainda mais a voz. — Porque alguém foi dizer ao chefe governante que viu a gente fazendo magia negra. Uma mentira, Bruno. Das grandes. Das que não cabem numa porta.
+— Vi. E hoje não quero falar desses dois.
 
-— Eu disse o que eu vi, pô.
+Perto da bica, Ferris conversava com Shirley. Mantinha os olhos no cantil.
 
-— Você viu o quê? Uma sombra? Uma luz estranha? A gente nem sabe fazer isso, a gente só sabe soprar pó, e mal.
+— Você ia me contar de novo. Ontem eu esperei e você dormiu.
 
-Erick pisou no pé do irmão sem mudar a cara. Nicolas passou a olhar a própria bota com muita atenção.
+— Eu sei. Desculpa. Depois da prova, prometo — respondeu ela, sorrindo.
 
-— Então a vigilância é fácil — disse Bruno. — Vocês não fazem nada, e ele fica olhando vocês não fazerem. Tem tutor que paga caro por um emprego desses.
+— Por mim eu não aceito! — gritou Denis, que ouvira só a última frase.
 
-— Banjo, fala alguma coisa pro seu irmão — pediu Erick.
+Foi então que Lioro chamou Banjo e Beatriz. Ao lado dele estava uma garota de cabelo escuro na altura do queixo, fita cinza e botas cobertas de poeira. O vento enrolava a poeira em pequenos círculos à volta das mãos dela.
 
-— Eu... é que... — Banjo olhou para o cantil que Beatriz estendia, pegou e agradeceu com os olhos, aliviado por ter o que fazer com as mãos. — Eu entendo vocês ficarem chateados, desculpa. Só que o Bruno exagera em piada, não em coisa séria. Se ele disse que viu, ele viu alguma coisa.
+— Minha sobrinha, Nayra. Chegou de Marador ontem à noite. Inscreveram-na de madrugada, e o juiz aceitou há meia hora.
 
-— Eu escuto aquela tábua estalando até quando durmo — murmurou Nicolas. — Tec, tec, tec. Fico esperando a próxima conta.
+— Nasci em Marador, não sou dimensal e mexo no ar — declarou Nayra. — Meu tio disse para responder logo, porque vocês perguntam muito.
 
-As contas estalaram, e o som veio de trás deles, sem pressa. Beatriz já aprendera a atribuir aquele barulho a um homem só.
+— Também pedi para respirar entre as frases — acrescentou Lioro.
 
-— Escuto o meu nome mesmo quando ninguém o diz — falou Grimaldus Graven, parando ao lado dos gêmeos com as mãos juntas nas costas. — É um defeito do ofício. A fila do pão foi reorganizada hoje de manhã, senhor Erick, justamente porque soube que o incomodava. Se o incômodo continuar, mando reorganizar de novo.
-
-— Estávamos só conversando, senhor.
-
-— Então continuem, mas do lado de dentro da sala. Lá a conversa rende mais, e os senhores têm direito a uma testemunha que não precisa de mim.
-
-Os gêmeos saíram juntos, e Nicolas deu a Bruno um olhar de quem guardava a conta. Bruno devolveu um sorriso inteiro, de dentes, que Beatriz conhecia dos dias em que ele não tinha razão e sabia.
-
-— Foi mentira? — perguntou ela, baixinho, quando Grimaldus se afastou.
-
-— Eu disse o que eu vi, Bia. Se eles querem chamar isso de mentira, o problema é deles. — Bruno enfiou as mãos nos bolsos. — Agora para de me olhar assim, que eu tenho prova hoje.
-
-Perto da bica, Ferris falava com Shirley sem levantar os olhos do cantil que enchia.
-
-— Ontem você ia me contar de novo, e eu fiquei esperando até o fim do treino. Você dormiu.
-
-— Dormi mesmo, desculpa. Eu ia contar depois do jantar, só que o jantar demorou e a cama era muito perto. — Shirley sorriu e levantou o cantil dele com um dedo, para a água parar de escorrer pela mão. — Prometo para depois da prova.
-
-— Por mim eu não aceito — gritou Denis, de longe, e Ferris foi embora sem responder.
-
-— Beatriz! Banjo! — chamou uma voz conhecida, do outro lado da porta de areia. — Vocês dois, um instante.
-
-Lioro estava junto ao batente, com o manto cinza dobrado no braço, e ao lado dele havia uma menina da altura de Banjo, de cabelo escuro cortado na altura do queixo, preso por uma fita cinza, e botas ainda empoeiradas de estrada. As mãos dela não paravam quietas. Desenhavam círculos pequenos no ar, na altura da cintura, e a poeira da bota subia e girava com eles, devagar, sem que ela olhasse.
-
-— Esta é a minha sobrinha, Nayra — disse Lioro. — Chegou ontem à noite de Marador. O Garmande assinou a inscrição dela de madrugada e o juiz aceitou meia hora atrás, o que, aqui, é praticamente um milagre.
-
-— Eu não sou dimensal — disse Nayra, antes que alguém perguntasse. — Nasci em Marador, perto do rio, e mexo no ar, e o meu tio me disse no caminho que eu devia falar isso logo, para economizar perguntas. Então aí está. Economizei.
-
-— Eu também disse que você devia respirar entre uma frase e outra.
-
-— Eu respirei.
+— Respirei.
 
 — Pela metade.
 
-Banjo riu primeiro, e Nayra olhou para ele de testa franzida, avaliando se devia se ofender.
+Banjo riu, e Nayra tirou um papel dobrado do bolso.
 
-— Eu sou o Banjo — disse ele.
+— Esqueci a ordem. Era cumprimentar, dizer o nome e não mencionar a febre do vento. — Guardou a lista. — Podem esquecer a terceira coisa.
 
-— Eu sei. Você é o que atravessou o buraco.
+— O que é febre do vento? — perguntou Eshley, chegando atrás.
 
-— Foi mais uma poça, tipo, uma poça grande. Seu tio contou assim.
+— Uma doença de Marador. Se a gente passa tempo demais no vento errado, fica quente e meio boba. Tive no mês passado. Passa em um ou dois dias, normalmente. — Nayra puxou um fio solto da manga. — Eu leio o vento como a trama de um tear. Aprendi em casa.
 
-— De manhã ele disse poça. Ontem à noite, no jantar, disse buraco, e eu anotei. — Nayra tirou um papel dobrado do bolso e leu sem humor nenhum: — "Cumprimentar. Dizer o nome. Não mencionar a febre do vento." — Guardou o papel depressa. — Esqueçam a última.
+— Acha o refeitório sozinha? — perguntou Lioro.
 
-Lioro passou a mão pela testa, e Beatriz achou que ele escondia um sorriso. Banjo olhava a menina com a cabeça um pouco inclinada, do jeito que olhava para os bichos que ainda não tinham sido apresentados.
+— Pelo cheiro.
 
-— Febre do vento é o quê? — perguntou Eshley, que chegara atrás.
+— Foi assim que o Bruno foi parar na cozinha errada — disse Beatriz.
 
-— Uma coisa de Marador. A gente fica quente e meio boba quando passa tempo demais no vento errado. Passa em um ou dois dias, mas eu fiquei de cama no mês passado e prefiro não comentar, porque a minha mãe achou que eu estava inventando para faltar ao tear. — Nayra deu de ombros. — Eu cresci debaixo de um tear. O vento passa pelos fios, e eu aprendi a ler o jeito que ele passa, igual se lê um fio torto numa trama. É só isso que eu faço. Aqui acharam que era mais.
+O sino tocou. Grimaldus bateu na tábua de contas, e o corredor calou-se diante do lençol de areia.
 
-— A sala aceita quem a atravessa, o juiz me disse — falou Lioro. — Só peço que alguém ensine a ela o caminho do refeitório, porque Tayo é grande e ela fala demais para pedir informação.
+— Primeiro desafio do ciclo. Uma caravana desapareceu nas dunas. A sala conserva testemunhas do que aconteceu, mas mistura os relatos com lembranças de quem entra. Vocês investigarão em duplas, por corredores separados. Véus de calor impedem a passagem entre corredores; atravessar um véu ou conversar com quem estiver do outro lado elimina a dupla.
 
-— Eu sei achar o refeitório — disse Nayra. — Eu sigo o cheiro.
+— E se um véu se mexer e a gente esbarrar sem querer? — perguntou Banjo.
 
-— Foi o que o Bruno disse no primeiro dia — comentou Beatriz.
+— Três pontos de água permitem encontros. Quando ouvirem as contas, terão dois minutos para beber e descansar juntos. Não discutam o que as testemunhas contaram. No fim, cada dupla dará uma única versão. Julgarei o que conseguiram observar, não o que gostariam de ter visto.
 
-— E o Bruno seguiu o cheiro e chegou na cozinha errada — lembrou Banjo.
-
-Os sinos do meio da manhã soaram, e Grimaldus bateu com a palma na tábua de contas. O estalo correu pelo corredor inteiro e fez todos os aprendizes calarem. Ele ficou diante da porta de areia, e, à luz do corredor, a barba parecia geada em cima de pedra.
-
-— Primeiro desafio do ciclo — disse. — Eu sou o juiz, e os senhores me conhecem pela fila do pão. O que vão fazer hoje é um julgamento. Uma caravana desapareceu nestas dunas, a sala lembra do que aconteceu, e é mexeriqueira. Conta o que sabe e completa o resto com o que encontra em quem a atravessa. Os senhores entram em duplas, por corredores separados, e entre um corredor e outro existem véus de calor. Quem atravessar um véu, ou falar com alguém do outro lado, perde a dupla inteira.
-
-— E se a gente se encontrar sem querer? — perguntou Banjo. — Tipo, se um véu mexer e a gente esbarrar? Eu esbarro em tudo, desculpa avisar.
-
-— Pergunta boa, senhor Banjo, e que mostra que o senhor já esbarrou em algum véu na vida. Por isso há três pontos de água. Quando as minhas contas estalarem, as duplas se juntam num deles, todas, e ficam dois minutos sob os meus olhos. Bebem, descansam, falam do que quiserem, exceto das testemunhas. — Os olhos passaram por Amadou, que abria a boca. — Falo sério, senhor Amadou.
-
-— Eu nem ia falar nada — disse Amadou. — Ia só dar umas dicas, que é diferente, e as dicas eu conheço, porque eu já vi essa sala por fora.
-
-— Testemunhas de quê? — perguntou Breno.
-
-— De areia. Cada um verá as suas, cada um as verá de um jeito, e a dupla volta com uma versão só do que aconteceu à caravana. Não vou dizer qual está certa e não vou dizer o que marco. Aviso apenas que a sala também mostra coisas sem resposta, que eu chamo de miragens. Quem passa a manhã tentando resolver miragem perde o desafio, porque ponto de água não espera ninguém.
-
-— E se alguém morrer lá dentro? — perguntou Bruno. — Eu pergunto pelo Banjo, que tem fama de cair nas coisas.
+— E se a gente morrer? — perguntou Bruno.
 
 — A sala devolve.
 
 — Inteiro?
 
-— Em geral. — Grimaldus soltou uma conta da tábua e a prendeu em outra, e o estalo pareceu fechar a pergunta. — As duplas não são escolha minha. As contas decidem.
+— Em geral.
 
-Ele leu os pares um a um, e cada par se mexia no corredor à medida que o nome saía. Beatriz com Eshley. Banjo com Nayra, o que fez Lioro levantar a sobrancelha para o teto, aliviado. Breno com Ferris, e os dois se olharam com a expressão de quem foi sorteado para dividir o volante. Bruno com Amadou. Shirley com Denis. Brenda com Dário Vanterre, que esperava ao fundo do corredor, de jaqueta azul-escura e mãos nos bolsos, e que levantou a cabeça uma única vez ao ouvir o próprio nome. Erick com Nicolas.
+Grimaldus leu as duplas. Beatriz com Eshley. Banjo com Nayra, o que fez Lioro erguer os olhos ao teto, aliviado. Breno com Ferris. Bruno com Amadou. Shirley com Denis. Brenda com Dário. Erick com Nicolas.
 
-— Fica comigo que a gente não erra — disse Amadou, dando um tapa no ombro de Bruno que soltou uma faísca azul e queimou a ponta do cabelo de Denis, dois passos adiante. — Eu conheço o caminho, relaxa. Duna é assim mesmo, ela pede licença antes de soltar.
+— Fica comigo que a gente não erra! — prometeu Amadou, dando um tapa no ombro de Bruno.
 
-— Você conhece uma sala que ninguém abriu até hoje? — perguntou Bruno.
+Uma faísca pulou de seus dedos e queimou a ponta do cabelo de Denis.
 
-— Conheço o jeito dela. Confia.
+— Meu cabelo — protestou Denis. O corredor devolveu: «abelo».
 
-— Meu cabelo — disse Denis, sem levantar a cabeça, e ainda ecoou: — abelo.
+— Está com cheiro de torrada — comentou Shirley, gentil.
 
-— Está com cheiro de torrada — informou Shirley, gentil.
+Eshley tocou o ombro de Beatriz com os dedos macios de borracha.
 
-Bruno olhou para Breno, que deu de ombros, e para Beatriz, que fingiu ajustar o cantil. Ele sabia, no fundo, que um rapaz que anunciava o caminho em voz alta antes de ver a estrada não era boa companhia. Ia acompanhá-lo do mesmo jeito. Fazia isso com quase todo mundo.
+— Se eu sumir, é porque pulei. Caraca, eu estou nervosa.
 
-— Boa sorte, senhorita — disse Eshley, e tocou o ombro de Beatriz com a ponta dos dedos, que ficaram macios por um instante, de borracha morna. — Se eu sumir, é porque pulei.
-
-A areia da porta se abriu diante delas sem barulho.
-
+A porta de areia se abriu para as duas.
 
 O sol dentro da sala era branco e pequeno demais para o céu, e não vinha de lugar nenhum. A luz chegava de todos os lados, menos de cima. Beatriz percebeu isso nos primeiros passos, porque a sombra dela ia para o lado errado, curta e inclinada, apontando para a duna da frente. O chão afundava um dedo a cada pisada, e a areia, branca de farinha, entrava na bota pela costura.
 
@@ -264,7 +215,6 @@ Breno olhou de uma para a outra, e assentiu devagar, com a cara de quem aceita a
 — Eu não vi nada de especial — disse, e voltou a beber, porque a regra valia para ele também.
 
 As contas estalaram, e a fila se desfez. Beatriz foi a última a sair da sombra da lona e a primeira a ouvir, bem baixinho, na direção onde o sol não existia, a mesma cantiga recomeçando.
-
 
 Banjo achou a outra metade da torrada no bolso da calça, achatada e morna, e ofereceu um pedaço a Nayra.
 
@@ -397,7 +347,6 @@ Havia uma coisa miúda e quente por baixo da piada, e Banjo a sentiu, como se se
 — Eu gosto de doce demais.
 
 Nayra comeu o doce em duas mordidas, sentada na ponta do banco, com os pés balançando por cima da areia, e lambeu o dedo. Denis voltou a contar a história da cozinheira do refeitório, desta vez para Banjo, já que Shirley não queria ouvir de novo. As contas estalaram antes de ele chegar ao fim, e Banjo ficou sem saber se a cozinheira ganhava ou perdia.
-
 
 No fim do corredor da sala, a areia voltou a se abrir, e as duplas saíram em fila para a antecâmara, uma a uma, com a cara de gente que tinha atravessado uma coisa e preferia não ter mais conversa. Os cantis estavam vazios. Alguns aprendizes caíram sentados no chão de pedra, e Amadou, o último a sair, anunciou a quem quisesse ouvir que tinha achado a sala fácil.
 
