@@ -144,7 +144,7 @@ Na segunda semana, Velho-Sábio começou a misturar os quatro. Embaralhou os irm
 
 Bruno decidiu em dois segundos. Ia fazer um trilho de gelo, liso, deslizante, que levasse o ovo de um lado ao outro como num escorregador. Esticou a mão e o trilho cresceu pelo corredor, azulado, cheio de curvas elegantes, e Beatriz ficou ao lado, de braços cruzados, mordendo o lábio.
 
-— Bruno — disse Beatriz. — A curva está muito inclinada. Se o ovo pegar velocidade ali, ele não para no pano, passa direto e apita.
+— Bruno! — disse Beatriz. — A curva tá muito inclinada! O ovo vai descer correndo e passar do pano, e aí ele apita!
 
 — Estou concentrado, Bia, não me atrapalha. — Ele nem olhou. — Eu sei fazer um trilho. Fiz um no ano passado que levou o Banjo da cozinha até o jardim, sentado numa bandeja, e ele não reclamou nenhuma vez.
 
@@ -244,7 +244,7 @@ A quarta prova não tinha magia nenhuma. Era numa sala do porão do Arcano, sem 
 
 — Isso é pedir ajuda?
 
-— Não. É uma hipótese.
+— Não. É só uma ideia.
 
 — Então a resposta é que não toquem. — Velho-Sábio fechou a porta atrás de si, e o trinco girou com um estalo seco.
 
@@ -284,9 +284,9 @@ Banjo olhou o chão, o tapete, a poeira nas bordas, e achou riscos de arrasto se
 
 — Nove minutos e vinte segundos — disse Velho-Sábio no fim da escada, olhando a ampulheta. — Sem a alavanca teriam sido seis.
 
-— Mas era uma boa hipótese — disse Bruno, ainda com as bandeirinhas no cabelo. — Eu estava pensando na alavanca desde que vi o pássaro, e todo mundo faz alavanca em sala de truque. Só errei de porta.
+— Mas era uma boa ideia — disse Bruno, ainda com as bandeirinhas no cabelo. — Eu estava pensando na alavanca desde que vi o pássaro, e todo mundo faz alavanca em sala de truque. Só errei de porta.
 
-— Era uma ótima hipótese. Só que hipótese não é pergunta, Bruno, e você passou nove minutos sem fazer nenhuma.
+— Era uma ótima ideia. Só que ideia não é pergunta, Bruno, e você passou nove minutos sem fazer nenhuma.
 
 O jardim de Brisália estava quieto quando Bruno desceu, depois da meia-noite, para beber água. Nem a lamparina do corredor mudava de cor, e Átila dormia no tapete da sala com uma pata sobre o focinho. A porta dos fundos estava encostada, e pela fresta ele viu duas luzes baixas no fim do jardim, perto do muro de flores fechadas. Parou com o copo na mão.
 

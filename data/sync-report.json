@@ -1,10 +1,10 @@
 {
-  "generatedAt": "2026-11-15T03:58:03Z",
+  "generatedAt": "2026-11-15T12:54:41Z",
   "sourceRepository": "guyoshi/dimensoesinfinitas",
-  "sourceCommit": "5dd13a1719decbe63e4a5c5e320065d9e44b2757",
+  "sourceCommit": "5ec8f06acfc431a18e9658864f78e3d5564481a3",
   "status": "warning",
   "summary": {
-    "warnings": 23
+    "warnings": 24
   },
   "issues": [
     {
@@ -144,6 +144,12 @@
       "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
       "bookId": "spacetheft-2",
       "item": "Spacetheft/2 - Livro 2"
+    },
+    {
+      "area": "cover",
+      "message": "Capa aprovada não encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-2",
+      "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto/02 - Assets/Capa/Capa com texto"
     }
   ]
 }

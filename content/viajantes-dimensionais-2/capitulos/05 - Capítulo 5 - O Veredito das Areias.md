@@ -161,7 +161,7 @@ Passaram a primeira hora de caminhada falando de bota, de sombra e de quantos go
 
 — A caravana não quis ir mais longe — disse a mulher, sem olhar para elas. — Os animais pararam de andar ao meio-dia. Eu mandei seguir e ninguém me obedeceu.
 
-— Parou onde? — perguntou Beatriz. — Na areia mole ou na dura? Porque na mole o bicho afunda e para, e na dura ele só para se tiver motivo.
+— Parou onde? — perguntou Beatriz. — Na areia mole ou na dura? O bicho afundou?
 
 — Onde a luz ficou toda do mesmo lado. — A mulher apontou, e o dedo dela se desfez um pouco no caminho. — Tinha um lampião aceso, em pleno dia.
 

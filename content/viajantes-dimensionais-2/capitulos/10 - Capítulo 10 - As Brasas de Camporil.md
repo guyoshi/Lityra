@@ -133,7 +133,7 @@ A água da caneca fez um estalo fino e virou gelo de cima a baixo, branca e inte
 
 — Ficou. Para com isso. — Bruno pôs a caneca no chão e se sentou de frente para ele. — Fala uma coisa que não seja séria. Você tá estranho desde segunda, desde o bosque, sorrindo sozinho, mexendo no cabelo. Eu falei para o Breno e ele disse que era a emoção de ganhar.
 
-— Não é a emoção de ganhar. — Banjo olhou para a janela. — Bruno, eu quero perguntar uma coisa e não sei se é bobagem. Como a gente sabe quando uma pessoa quer conversar de verdade e quando está só sendo educada? No bosque a Temi falou comigo, e eu fiquei sem saber o que responder. Depois ela me olhou de novo, e eu não sei ler aquele olhar.
+— Não é a emoção de ganhar. — Banjo olhou para a janela. — Bruno, eu quero perguntar uma coisa e não sei se é bobagem. Como que a gente sabe quando uma pessoa quer mesmo conversar e quando tá só sendo educada? No bosque a Temi falou comigo, e eu fiquei sem saber o que dizer. Depois ela me olhou de novo e eu não entendi o olhar.
 
 Bruno abriu a boca, fechou, e a expressão dele passou de surpresa a uma espécie de orgulho solene.
 
@@ -227,7 +227,7 @@ Bruno contou tudo de uma vez, com as mãos, com a voz subindo e descendo, o marc
 
 — Fato — disse Breno, devagar, erguendo um dedo enfaixado. — A Ivy sai à noite sem avisar, vai à Campina, encosta a mão num símbolo dos antidimensais e deixa um embrulho. Já deixou outras vezes. O resto é hipótese. Que ela é uma deles. — Baixou a mão. — Razoável. E eu não gosto dela.
 
-— Suposição boa — disse Bruno.
+— Palpite bom — disse Bruno.
 
 — Isso a gente não conta ao Lioro. — Breno olhou para Banjo e ficou esperando uma resposta que ele não tinha. — Ainda não. Se for engano, a gente acusa a família que nos abrigou. Se não for, avisa o Velho-Sábio quando tiver certeza. Eu não quero fazer de vocês uma notícia.
 

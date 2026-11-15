@@ -128,7 +128,7 @@ Houve um silêncio longo. A lanterna de Brenda tremeu.
 
 — Não é bobagem — disse Breno. Estava com o lápis suspenso no ar e o cenho franzido. Escrevera alguma coisa no caderno e riscara. — Mas eu não sinto o que você sente, então não sei se funciona. Se a gente juntar tudo e der errado, o que a gente perde?
 
-— O tempo — respondeu Banjo, depressa. — E os pontos de chegada. Mas a gente perde isso de qualquer jeito, porque ninguém está andando.
+— O tempo — respondeu Banjo, depressa. — E os pontos. Mas a gente tá parado mesmo, né?
 
 — Ele tem razão — disse Brenda, e foi a primeira vez que alguém tomou o lado de Banjo naquela manhã. Pôs a lanterna no chão e se aproximou, com a nota ainda saindo da boca em fio. — Eu seguro a minha desde que a de vocês apagou. Ela ficou mais forte quando o Denis falou, sem querer, na mesma nota. Eu percebi e não soube o que fazer.
 

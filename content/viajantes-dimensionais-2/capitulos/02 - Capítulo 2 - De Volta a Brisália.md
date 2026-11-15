@@ -724,7 +724,7 @@ Ela ergueu a cabeça, surpresa, e soltou uma risada.
 
 — O que aconteceu? — Ele se ajoelhou ao lado dela, segurou seu braço e virou o cotovelo para a luz. Havia um arranhão vermelho, pequeno, sem sangue. — Vocês acabaram de voltar e já estão brincando com fogo? E com gelo no chão?
 
-— A culpa foi minha — disse Bruno.
+— Foi sem querer! — disse Bruno. — O gelo era meu, mas quem escorregou foi a Bia!
 
 — Eu escorreguei sozinha — corrigiu Beatriz.
 

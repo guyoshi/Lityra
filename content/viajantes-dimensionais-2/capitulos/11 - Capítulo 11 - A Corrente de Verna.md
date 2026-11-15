@@ -32,7 +32,7 @@ Ivy ficou parada um instante. Depois ajeitou o capuz de Beatriz com dois dedos, 
 
 — Fato — disse Breno, baixo, perto do ouvido dele. — Ela fez a capa antes.
 
-— E suposição, que ela não é tão ruim quanto o símbolo que ela tocou — murmurou Bruno. — Eu odeio quando você me dá razão em voz baixa.
+— E palpite, que ela não é tão ruim quanto o símbolo que ela tocou — murmurou Bruno. — Eu odeio quando você me dá razão em voz baixa.
 
 — Eu ainda não dei.
 
