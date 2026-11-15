@@ -278,7 +278,7 @@ O som de Shirley chegou até eles, fino, comprido, quase doce, e disse o nome de
 
 — Não olhem — gritou Banjo. — Não olhem para trás!
 
-Subiram. Os joelhos de Breno queimavam, e Lioro pesava, e o metal estalava a cada passada. Chegaram a uma escotilha redonda no topo da parede, e Bruno a empurrou com o ombro, e o ar frio e molhado da noite os atingiu em cheio, com cheiro de ferro e chuva.
+Subiram. Os joelhos de Breno queimavam, Lioro seguia à frente com o cajado erguido, e o metal estalava a cada passada. Chegaram a uma escotilha redonda no topo da parede, e Bruno a empurrou com o ombro, e o ar frio e molhado da noite os atingiu em cheio, com cheiro de ferro e chuva.
 
 Estavam no topo da cúpula da Central.
 

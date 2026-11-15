@@ -152,7 +152,11 @@ Bruno se inclinou sobre a mesa e leu o papel de cabeça para baixo, que era uma 
 
 — São quatro agora. — Lioro continuava encostado na porta, com o envelope vazio na mão. — Desde o meio-dia. Hoje cedo um deles me parou no mercado e perguntou se ensinar magia a menor é errado. Eu disse que errado é deixar menor sem ensino. Ele anotou.
 
-— A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Com a Erla já era difícil, Lioro. Com o Beker, a cidade está a um passo de brigar consigo mesma, rua contra rua.
+Na tela pequena sobre a prateleira, o boletim local interrompeu a música. Lucan apareceu de casaco escuro, diante de três bandeiras de Tayo, pedindo calma e anunciando uma comissão para avaliar “a circulação excepcional de dimensionais” antes de qualquer decisão. Não disse nada sobre as crianças nas casas, os vigilantes nas esquinas ou o prazo da carta de Beker.
+
+— Uma comissão — disse Lioro. — Muito útil. Quando terminarem de avaliar a circulação, talvez descubram que as pessoas já não conseguem andar.
+
+— A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Até com a Erla era difícil, Lioro. Com o Beker, a cidade está a um passo de brigar consigo mesma, rua contra rua.
 
 — Por isso nenhum garoto sai desta casa — completou Garmande.
 

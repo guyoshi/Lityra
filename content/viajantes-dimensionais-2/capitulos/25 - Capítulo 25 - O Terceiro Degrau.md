@@ -300,7 +300,7 @@ Ficaram um tempo sem falar. O som da chuva enchia tudo.
 
 Beatriz não respondeu. Esperou que ela continuasse, com o estômago apertado, e achou que se prendesse bem a respiração a frase ia embora sozinha.
 
-— Eu estava na janela da cozinha — disse Ivy. — Eu fiquei lá por duas horas, desde que o Lioro chegou nos ombros do Breno. Vi a primeira chama, e a terceira, e vi a que saiu de você e não quis voltar. Eu apaguei todas as velas da casa, uma por uma, com medo de que o fogo viesse por elas. — Fez uma pausa. — E eu vi você parar.
+— Eu estava na janela da cozinha — disse Ivy. — Eu fiquei lá por duas horas, desde que o Lioro chegou correndo com vocês e caiu perto do banco. Vi a primeira chama, e a terceira, e vi a que saiu de você e não quis voltar. Eu apaguei todas as velas da casa, uma por uma, com medo de que o fogo viesse por elas. — Fez uma pausa. — E eu vi você parar.
 
 — Eu quase queimei a sua casa.
 

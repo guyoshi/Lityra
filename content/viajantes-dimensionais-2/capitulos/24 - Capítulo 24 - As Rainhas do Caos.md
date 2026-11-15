@@ -1,6 +1,6 @@
 Beatriz soube que ia acontecer antes de acontecer. Soube pelo silêncio, que era do tipo que vem antes de uma panela transbordar, e pelo cheiro, que era de pão queimado, e ela não estava queimando nada.
 
-Os quatro estavam espalhados pela praça como peças soltas. Bruno em pé ao lado da fonte seca, com a máscara apertada nos braços e a boca aberta. Breno ao lado do banco de Lioro, rígido, com a mão metida no bolso onde as metades do diapasão tilintavam. Banjo perto dela, tão perto que ela sentia o ombro dele quente contra o seu braço. E na frente deles, de pernas cruzadas na borda da fonte, com o rosto pálido sob a luz sem lampião e um sorriso de visita, Shirley.
+Os quatro estavam espalhados pela praça como peças soltas. Bruno em pé ao lado da fonte seca, com a máscara apertada nos braços e a boca aberta. Breno perto do banco de Lioro, rígido, com a mão metida no bolso onde as metades do diapasão tilintavam. Lioro tinha ficado de pé junto ao portão, o cajado numa mão e a outra aberta para o ar, sem tirar os olhos de Shirley. Banjo perto dela, tão perto que ela sentia o ombro dele quente contra o seu braço. E na frente deles, de pernas cruzadas na borda da fonte, com o rosto pálido sob a luz sem lampião e um sorriso de visita, Shirley.
 
 — Gente — disse Shirley, num tom de quem repete um recado de mãe. — Eu esperei vocês chegarem. Achei que seria indelicado entrar sem bater.
 
@@ -48,11 +48,17 @@ Mesmo assim ela escorregava. Os pés rangiam dentro do gelo. A corda do peito de
 
 O gelo rachou. Um estalo longo, como o de um lago no inverno, e as botas de cristal explodiram em estilhaços.
 
-Foi nesse momento que a criatura caiu em cima de Breno.
+Foi nesse momento que a criatura caiu sobre a praça.
 
-Veio do alto, de cima das casas, de uma das costuras que se abriam no céu da cidade. Um corpo comprido, de couro negro, com seis patas curtas e uma boca de lampreia, que bateu nas costas dele com um estrondo de martelo. O metal soltou faíscas. Breno gritou, um grito que Beatriz nunca tinha ouvido, de espanto e de dor, e a criatura o agarrou pelo meio do corpo com as seis patas, e levantou, e o atirou.
+Veio do alto, de cima das casas, por uma das costuras que se abriam no céu da cidade. Era um corpo comprido, de couro negro, com seis patas curtas e uma boca de lampreia, e descia direto na direção de Beatriz. Lioro chegou antes. Bateu o cajado na laje e lançou as duas mãos para cima; o ar subiu em redemoinho e desviou a criatura um palmo, o bastante para ela não cair sobre a menina.
 
-Ele voou. Voou por cima da fonte, por cima do banco de Lioro, por cima dos plátanos, uma silhueta escura contra o céu esverdeado, e Beatriz ouviu o barulho do impacto muito longe, uma parede de pedra cedendo, uma chuva de telhas.
+Mas não o bastante para salvá-lo.
+
+A coisa acertou o peito de Lioro com as seis patas. O golpe o levantou do chão e o atirou por cima da fonte, contra o banco de pedra. A cabeça dele bateu na borda com um som seco, e o cajado escapou da mão. Ficou caído de lado, imóvel, com sangue começando a escorrer pela têmpora.
+
+— Lioro! — gritou Breno.
+
+Ele correu para o banco, mas a criatura virou no ar e a cauda grossa o atingiu no meio do corpo. Breno voou por cima dos plátanos, uma silhueta escura contra o céu esverdeado, e Beatriz ouviu o barulho do impacto muito longe, uma parede de pedra cedendo, uma chuva de telhas.
 
 — BRENO! — gritou.
 

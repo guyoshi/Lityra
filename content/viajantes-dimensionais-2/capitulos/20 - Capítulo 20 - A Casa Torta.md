@@ -132,7 +132,7 @@ A sala de estar era redonda, de teto alto. Quando entraram, a gravidade sumiu. B
 
 — Não sei. A avó do avô não disse. — Bigorna soou muito incomodada. — Faz tempo.
 
-Bruno percebeu, flutuando, que tinha parado de se mexer. Banjo tinha a mão parada no ar, a meio caminho de uma bola de chá, e Ferris, lá embaixo, havia levantado a cabeça com atenção grande, que não era para a história. Era para o jeito dela. Shirley estava com a cabeça levemente inclinada, e quando Bruno olhou ela sorriu para ele, de leve, o sorriso de sempre, de quem acha graça de tudo, e lhe jogou uma bola de chá, que ele estourou com a boca sem querer e fez cara feia.
+Bruno percebeu, flutuando, que tinha parado de se mexer. Banjo tinha a mão parada no ar, a meio caminho de uma bola de chá, e Ferris, lá embaixo, tinha levantado a cabeça para ouvir o fim da história. Shirley estava equilibrada no batente como uma bailarina e, quando viu Bruno olhando, sorriu para ele, de leve, o sorriso de sempre, de quem acha graça de tudo, e lhe jogou uma bola de chá, que ele estourou com a boca sem querer e fez cara feia.
 
 — E a máscara, é verdade que ela come? — perguntou Banjo, num fio de voz. — Eu li uma coisa, não sei onde, que ela...
 
