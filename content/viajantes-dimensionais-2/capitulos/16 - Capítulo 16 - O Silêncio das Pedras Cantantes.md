@@ -102,7 +102,7 @@ Os três se viraram juntos. Shirley estava ali, encostada numa pedra do tamanho 
 
 — Então você olhou rápido, Banjo. — Ela inclinou a cabeça e estendeu a flor para ele, sorrindo mais. — É para a Beatriz. Quando a gente achar.
 
-Banjo pegou a flor sem saber direito se queria, e a flor era leve e fria e dava uma nota fininha quando ele a girava. Bruno tinha parado de olhar para ela e já estava de novo nas escadas. Ferris continuava olhando o lugar onde ela estivera, com o rosto fechado, e Banjo não sabia dizer se ele achava esquisito ou só estava calculando alguma coisa. Guardou a flor no bolso e esqueceu dela, e só foi lembrar quando já era tarde para perguntar.
+Banjo pegou a flor sem saber direito se queria, e a flor era leve e fria e dava uma nota fininha quando ele a girava. Bruno tinha parado de olhar para ela e já estava de novo nas escadas. Ferris continuava olhando o lugar onde ela estivera, com o rosto fechado, e Banjo não sabia dizer se ele achava esquisito ou só estava calculando alguma coisa. Guardou a flor no bolso e esqueceu dela.
 
 Ferris achou a marca perto do rio, numa pedra oca do tamanho de uma casinha de cachorro, com a boca virada para uma fileira de pedras cheias de luz, e chamou os outros sem levantar a voz. Estava agachado na entrada, passando o polegar numa borda lisa. Banjo se aproximou e viu os riscos, feitos com a ponta de uma faca, tão fundos que a luz ficava presa dentro deles. Seis traços curtos, de lado, e depois uma volta em laço.
 
@@ -204,13 +204,11 @@ Banjo, de joelhos nos degraus, respirou. A ave continuava no parapeito do outro 
 
 — Eu vi — disse Banjo, e se deixou puxar. — Tinha um senhor.
 
-— Não importa! Ele não viu nada que a gente faça diferença.
+— Não importa! Ele não sabe quem a gente é.
 
 — Ele tá olhando pra cá.
 
 — Cala a boca e anda, Banjo!
-
-Mais tarde, quando já não havia como voltar, Banjo ia lembrar daquele velho e se perguntar se ele ia contar a alguém.
 
 O lugar que Shirley achou ficava a três quarteirões do cais, num beco de fundos onde as luas só chegavam em tiras. Era um barracão de salga, de tijolos escuros e telhado de zinco furado, com tonéis vazios empilhados nas paredes e um cheiro de peixe velho tão forte que até as ratazanas tinham desistido. Ela entrou primeiro, sacudiu o pó dos ombros e disse que ali ninguém ia querer entrar nem para roubar. No fundo, num canto, havia um fogão enorme de tijolo, de boca preta, com a chaminé desabada.
 
@@ -224,7 +222,7 @@ O lugar que Shirley achou ficava a três quarteirões do cais, num beco de fundo
 
 — Eu sei o que você está falando. Vou acender o fogo, e você vai gostar.
 
-Ferris acendeu o fogo com um graveto, tirou da mochila quatro pãezinhos embrulhados num pano de prato, e entregou um a cada um. Shirley sorriu quando Bruno cheirou o dele e perguntou de onde saíra aquilo.
+Ferris acendeu o fogo com um graveto, e Shirley tirou de dentro do casaco quatro pãezinhos embrulhados num pano de prato e entregou um a cada um. Sorriu quando Bruno cheirou o dele e perguntou de onde saíra aquilo.
 
 — As broas da Ivy. — Ela mordeu a dela. — Eu peguei da cozinha enquanto vocês desciam as escadas. Alguém tinha que pensar em comida.
 
@@ -270,7 +268,7 @@ A voz dela veio da sombra, mais baixa do que o normal, sem a graça que usava pa
 
 — Fala — disse Ferris.
 
-— Fui eu quem levou os dois à sala. — Ela olhou para a chama. — Tinha o passe do seu pai, Ferris, que ele me deu quando eu comecei a ajudar na Casa de Pesquisa. E você me pediu os cadernos, e eu fui. E eu abri a porta. Eu achei que não ia acontecer nada, achei que a gente ia só pegar o caderno e voltar antes do jantar, e... — O queixo dela tremeu uma vez, bem pouco. — Eu fiquei parada na porta. Eu vi a Bia tocar. E fiquei parada, igual a uma coisa pintada no chão.
+— Fui eu quem levou os dois à sala. — Ela olhou para a chama. — Eu tinha o passe com a assinatura do seu pai, Ferris. E você me pediu os cadernos, e eu fui. E eu abri a porta. Eu achei que não ia acontecer nada, achei que a gente ia só pegar o caderno e voltar antes do jantar, e... — O queixo dela tremeu uma vez, bem pouco. — Eu fiquei parada na porta. Eu vi a Bia tocar. E fiquei parada, igual a uma coisa pintada no chão.
 
 — Shirley — disse Banjo.
 

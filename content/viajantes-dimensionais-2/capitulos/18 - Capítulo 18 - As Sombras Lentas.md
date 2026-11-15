@@ -14,7 +14,7 @@ Bruno se sentou. A coluna estalou em três lugares. Ferris dormia encolhido junt
 
 Foi o que fez, e arrumou mal, porque as mãos não paravam. Enfiou a lanterna que o Bug tinha dado, a corda, as duas últimas broas embrulhadas no pano de Ivy, e o tambor curto de Jack, que ele tinha pegado da prateleira da sala antes de sair e não contado para ninguém. Ficava meio torto na mochila, com a pele esticada para fora, e ele deixou. Quando se virou, Ferris já estava de pé, de capacete na cabeça, parado diante da viga mais alta do barracão com a lanterna na mão.
 
-Havia riscos ali. Cinco traços curtos, de lado, e depois uma volta em laço, tudo riscado com a ponta de uma faca.
+Eram os riscos da noite anterior. Cinco traços curtos, de lado, e depois uma volta em laço, tudo riscado com a ponta de uma faca.
 
 — Cinco — disse Ferris, e passou o polegar no último traço. — Faltam cinco passagens. Depois o laço.
 
@@ -124,7 +124,7 @@ O gelo saiu limpo, mais forte do que ele pretendia. Uma parede azul subiu do ch�
 
 — Funciona! — gritou. — Funciona, véi! Ei, Shirley, vem...
 
-Não teve tempo de terminar. A parede explodiu para dentro, e uma tira passou por entre os pedaços e acertou o peito dele em cheio. Foi como levar uma porta de cabeça. Ele voou, o corpo leve demais, e bateu de costas numa pedra, e o ar fugiu. A cicatriz do peito, a que tinha ido com ele desde Dário, acendeu como um fósforo, e por um segundo ele não viu nada, só um branco vazio.
+Não teve tempo de terminar. A parede explodiu para dentro, e uma tira passou por entre os pedaços e acertou o peito dele em cheio. Foi como levar uma porta de cabeça. Ele voou, o corpo leve demais, e bateu de costas numa pedra, e o ar fugiu. O ponto do peito onde a lâmina de sombra tinha entrado, um ano antes, acendeu como um fósforo, e por um segundo ele não viu nada, só um branco vazio.
 
 — Bruno! — Era a voz de Banjo, muito longe.
 
@@ -158,7 +158,7 @@ Durante um tempo não houve som nenhum. Só o vento nas torres, e o zumbido dos 
 
 — Bruno... — começou Shirley.
 
-— Eu pedi uma volta a mais ontem, no meio da corda! — Ele gritou, e ouviu o eco subir pelos prédios quebrados, três vezes, cada vez mais fraco. — Fui eu! A gente demorou por minha causa! Se eu não tivesse insistido, a gente não tava aqui, o Ferris tava inteiro, e...
+— Fui eu que bati primeiro! — Ele gritou, e ouviu o eco subir pelos prédios quebrados, três vezes, cada vez mais fraco. — Fui eu que fiz a parede, fui eu que gritei que funcionava! Se eu não tivesse provocado o bicho, o Ferris tava inteiro, e...
 
 — Para. — Banjo segurou o braço dele, e dessa vez não o largou. — Para de falar, por favor. Eu preciso contar uma coisa.
 
@@ -192,7 +192,7 @@ Parou. Engoliu em seco.
 
 — A gente pode tentar — disse Shirley. — E se der errado, a gente bate.
 
-Bruno olhou para ela, e depois para a montanha, e o peito ainda ardia onde a sombra tinha acertado. Pensou em Breno, que ia dizer que primeiro era preciso ter um plano, e depois outro plano por baixo do plano, e pensou em Dário, e na culpa que ele carregava no peito junto com a cicatriz. E pensou que a coisa que mais queria no mundo agora era um irmão mais velho para decidir por ele.
+Bruno olhou para ela, e depois para a montanha, e o peito ainda ardia onde a sombra tinha acertado. Pensou em Breno, que ia dizer que primeiro era preciso ter um plano, e depois outro plano por baixo do plano, e pensou em Dário, e na culpa que ele carregava no peito junto com aquele ponto dolorido. E pensou que a coisa que mais queria no mundo agora era um irmão mais velho para decidir por ele.
 
 — Tá — disse. — Tá bom. A gente tenta do seu jeito. Mas se der errado, eu bato tão forte que a gente vai pra uma dimensão nova só pelo susto. E eu quero deixar registrado que acho a ideia uma droga.
 
@@ -218,7 +218,7 @@ Foi a coisa mais devagar que Bruno viu na vida. Banjo, de joelhos, de testa suad
 
 O monstro não acordou.
 
-Ficaram parados um segundo, os quatro e o Ferris, agachados na beira do cume, sem acreditar. O rosto triste e velho continuava no mesmo lugar, de olhos fechados. Os braços, vazios, tinham se fechado um pouco em volta do nada.
+Ficaram parados um segundo, os três e o Ferris, agachados na beira do cume, sem acreditar. O rosto triste e velho continuava no mesmo lugar, de olhos fechados. Os braços, vazios, tinham se fechado um pouco em volta do nada.
 
 — Deu certo — disse Shirley, num fio de voz.
 
@@ -276,7 +276,7 @@ Bruno continuou batendo, com os braços ardendo.
 
 Correram. Shirley levava Ferris nos braços, Banjo ia na frente, de Farol agarrado, e Bruno vinha atrás, de costas, batendo no tambor e escorregando na pedra, a mochila quase caindo, as mãos doendo. O guardião, de joelhos, estendia os braços compridos, e o rosto dele estava calmo de novo, um rosto de velho, os olhos abertos e cheios de uma água que não era água. Bruno viu e quase parou. Quase.
 
-— Ali! — Shirley apontou, e uma coluna de luz roxa e azul riscava o ar a vinte passos, mais larga que as outras, e no meio dela uma costura clara, parecida com a que tinha se aberto em Jesed, tremia e se abria devagar. — É uma saída! Pula!
+— Ali! — Shirley apontou, e uma coluna de luz roxa e azul riscava o ar a vinte passos, mais larga que as outras, e no meio dela uma costura clara, parecida com a que tinha se aberto no cais das duas luas, tremia e se abria devagar. — É uma saída! Pula!
 
 — A gente vai todo mundo junto! — Banjo agarrou Bruno pela gola da capa, e puxou. — Segura o tambor!
 

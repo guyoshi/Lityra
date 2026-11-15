@@ -2,7 +2,7 @@ Velho-Sábio saiu antes de o sol passar do muro, com Mereditha ao lado, e os doi
 
 Bruno saiu logo depois, sem dizer para onde, o que era novo e não agradava a Breno. Banjo saiu com Farol enrolado no pescoço, para ver Nayra, levando a flauta no bolso do casaco como quem leva uma coisa que pode quebrar. Ficaram a casa, a mãe de Lioro dormindo no andar de cima, Ivy ocupada em algum canto atrás de uma porta fechada, e Beatriz.
 
-Ela o encontrou no pátio, sentada ao lado dele no banco encostado à parede, de capa cinza-esverdeada até os joelhos e a gaita no colo, com as duas mãos em cima, segurando-a firme. Fazia sol, o primeiro sol seco em dias, e as lajotas do pátio tinham perdido o brilho de água. Da árvore velha já não pingava nada.
+Ela o encontrou no pátio e sentou ao lado dele no banco encostado à parede, de capa cinza-esverdeada até os joelhos e a gaita no colo, com as duas mãos em cima, segurando-a firme. Fazia sol, o primeiro sol seco em dias, e as lajotas do pátio tinham perdido o brilho de água. Da árvore velha já não pingava nada.
 
 — Eu não vou tocar hoje — disse Beatriz, antes de ele perguntar. — Só queria ficar com ela um pouco. A Mereditha falou ontem que o nosso pai errava o tempo de propósito e que a mamãe fazia trança em todo mundo. Eu fiquei pensando que a gaita estava esperando a gente esse tempo todo. Igual a uma coisa que a mamãe segurou.
 
@@ -14,7 +14,7 @@ Ela o encontrou no pátio, sentada ao lado dele no banco encostado à parede, de
 
 Beatriz encostou a cabeça no ombro dele, e Breno ficou parado para não estragar o movimento. Fazia quatro dias que ela não fazia isso. Desde a gaiola de oito barras e do fogo, e da frase dela no pátio, você me trancou, que ele tinha repassado mais vezes do que qualquer coluna do caderno. Ela cantarolou as três notas, baixo, e ele deixou. Ele já tinha percebido que quando ela cantarolava as mãos paravam de apertar.
 
-A campainha do portão tocou duas vezes, curtas, e Breno levantou com o diapasão já na mão. Tinha se acostumado a trazê-lo preso ao pulso pelo cabo de fio azul, e a bater de leve na coxa com a ponta de baixo toda vez que alguém se aproximava da casa, mais por hábito de anotação do que por medo. A nota saiu fina e limpa, ele encostou o metal na orelha, e o ar do pátio respondeu com uma presença só, do outro lado do ferro, parada e leve, inclinada para a frente. Uma pessoa, como ele esperava.
+A campainha do portão tocou duas vezes, curtas, e Breno levantou com o diapasão já na mão. Desde a véspera o trazia preso ao pulso pelo cabo de fio azul, e já batia de leve na coxa com a ponta de baixo toda vez que alguém se aproximava da casa, mais por hábito de anotação do que por medo. A nota saiu fina e limpa, ele encostou o metal na orelha, e o ar do pátio respondeu com uma presença só, do outro lado do ferro, parada e leve, inclinada para a frente. Uma pessoa, como ele esperava.
 
 Abriu. Shirley estava no degrau de fora, de cabelo ruivo preso atrás e uma jaqueta cinza do Edifício, com as duas mãos para trás, como alguém que carrega um presente ou um recado. O rosto dela estava corado de caminhada e tinha o sorriso pequeno de sempre.
 

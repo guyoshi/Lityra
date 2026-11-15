@@ -6,7 +6,7 @@ Era um campo de neve. Branco até o horizonte, sem uma árvore, sem uma pedra, c
 
 — Beatriz. — Sacudiu o ombro dela com dois dedos. — Acorda. Primeiro você me diz se alguma coisa dói.
 
-— A cabeça. — Ela virou de barriga para cima, de olhos fechados, com a gaita ainda agarrada contra o peito. — E a barriga, mas é de fome. Você sabe que dia é hoje? Porque eu acho que perdi o almoço, e o jantar de ontem, e o Ivy ia fazer broa.
+— A cabeça. — Ela virou de barriga para cima, de olhos fechados, com a gaita ainda agarrada contra o peito. — E a barriga, mas é de fome. Você sabe que dia é hoje? Porque eu acho que perdi o almoço, e o jantar de ontem, e a Ivy ia fazer broa.
 
 — Eu não sei que dia é hoje. — Ele se sentou e olhou em volta. — Eu não sei onde a gente está. Quero que você levante devagar, fique do meu lado e me conte tudo que enxergar, mesmo que pareça bobagem. Principalmente se parecer bobagem.
 
@@ -28,7 +28,7 @@ Não havia nada para ouvir, a não ser o vento. Mas o vento tinha um desenho. Vi
 
 — Era ela. — Ela falou baixinho. — A máscara. Mas agora ela não está chamando o meu nome. Está só cantando.
 
-— Está cantando uma música errada — disse Breno, e quis acreditar que aquilo era uma observação de músico e não de pessoa com medo. — É isso o que o nome quer dizer. Contracanto é a voz que vai por baixo da principal, e essa vai por cima e fora do lugar. Escolha uma direção. Eu quero sair desse campo antes de descobrir o que ele é, porque neve que não esfria não é neve.
+— Está cantando uma música errada — disse Breno, e quis acreditar que aquilo era uma observação de músico e não de pessoa com medo. — Sobe quando devia descer. Escolha uma direção. Eu quero sair desse campo antes de descobrir o que ele é, porque neve que não esfria não é neve.
 
 — Aquela. — Beatriz apontou para uma colina baixa, com uma árvore preta no alto. — Eu escolhi porque tem árvore. Sempre que tem árvore alguém já passou ali.
 
@@ -134,7 +134,7 @@ Não foi uma brisa. Foi uma parede, que chegou do lado esquerdo, fria como uma p
 
 — Nada aqui é normal! — Ele a puxou para junto do peito e tentou protegê-la com a capa. — Mão, Beatriz! Não solta, não solta, não solta!
 
-Andaram contra o vento, de cabeça baixa, e a neve entrava nos olhos, na boca, nas dobras do pescoço. Breno apertava a mão dela até sentir os ossos pequenos e se perguntava, a cada passo, qual era a regra que ele tinha esquecido. A neve parou de repente, deixou um silêncio ouvindo-se a si mesmo, e voltou, mais forte. A planície virou uma encosta, a encosta virou um desfiladeiro de paredes lisas, e as paredes viraram a uma curva um corredor de árvores sem folha, e os dois seguiam em frente porque não havia outra coisa para fazer. A cada vez a música voltou, comprida, num tom que ele sentiu nos dentes, e Beatriz, sem soltar a mão, cantarolou as três notas dela por baixo, bem baixinho. A música parou no meio, como quem espera uma resposta, e depois seguiu, mais baixa.
+Andaram contra o vento, de cabeça baixa, e a neve entrava nos olhos, na boca, nas dobras do pescoço. Breno apertava a mão dela até sentir os ossos pequenos e se perguntava, a cada passo, qual era a regra que ele tinha esquecido. A neve parou de repente, deixou um silêncio inteiro, e voltou, mais forte. A planície virou uma encosta, a encosta virou um desfiladeiro de paredes lisas, e as paredes viraram, numa curva, um corredor de árvores sem folha, e os dois seguiam em frente porque não havia outra coisa para fazer. A cada troca a música voltava, comprida, num tom que ele sentia nos dentes, e Beatriz, sem soltar a mão, cantarolou as três notas dela por baixo, bem baixinho. A música parou no meio, como quem espera uma resposta, e depois seguiu, mais baixa.
 
 — Ela me escutou — disse Beatriz.
 
@@ -144,9 +144,9 @@ Andaram contra o vento, de cabeça baixa, e a neve entrava nos olhos, na boca, n
 
 — É a mesma coisa.
 
-Foi então que Breno entendeu, com a clareza de quem acha o degrau que faltava, que a música e o lugar andavam juntos. A colina que virou duna, o poste que virou samambaia, o pântano que virou planície e a tempestade que veio depois do mar em pé tinham sido trocados, cada um, no fim de uma frase dela.
+Foi então que Breno entendeu, com a clareza de quem acha o degrau que faltava.
 
-— É a música — disse. — Toda vez que ela passa, o cenário muda. Eu estava errado, não muda quando eu desvio o olhar, muda quando ela canta.
+— É a música — disse. — Toda vez que ela passa, o cenário muda. A colina virou duna, o poste virou samambaia, o pântano virou planície, sempre no fim de uma frase dela. Eu estava errado. Não muda quando eu desvio o olhar, muda quando ela canta.
 
 — Então ela troca o cenário igual a Kali troca as luzes da casa. — Beatriz pensou um pouco, de testa franzida. — E se a gente cantasse junto, será que a gente escolhia o lugar?
 
@@ -222,7 +222,7 @@ Os dois trocaram um olhar, e o sorriso de ambos tremeu um instante, como a chama
 
 — Eu acho que eles vão chorar. — Blizardo coçou uma lasca no queixo. — Mas a pergunta foi feita com educação, e isso aqui é coisa rara. Meus jovens, os senhores estão dentro da Máscara do Contracanto.
 
-Silêncio. Beatriz soltou um som pequeno, entre um soluço e um riso, e olhou para Breno, e Breno olhou para a neve. Era o nome que ele tinha ouvido na sala, no assobio, na voz do diapasão. Era a resposta que ele já sabia desde que acordou no capim, e saber não ajudou nem um pouco.
+Silêncio. Beatriz soltou um som pequeno, entre um soluço e um riso, e olhou para Breno, e Breno olhou para a neve. Nunca tinha ouvido aquele nome, e mesmo assim ele coube no lugar, como o assobio tinha cabido na sala. Era a resposta que ele já sabia desde que acordou na neve, e saber não ajudou nem um pouco.
 
 — Dentro — disse, afinal. — Não "dentro da casa" ou "dentro da cidade". Dentro da máscara de verdade, a mesma que estava na mesa.
 
@@ -284,7 +284,7 @@ Breno pensou em responder. Tinha pelo menos duas respostas, as duas razoáveis, 
 
 Ele quase tropeçou.
 
-A neve engrossou. Eles andaram mais uma hora, ou o que parecia uma hora, e Breno percebeu que as pernas de Beatriz tinham começado a ficar moles, e que a respiração dela vinha em soluços curtos. Ela não se queixava, o que era pior do que se queixasse. O vento puxava a capa, o gelo entrava nos sapatos, e a música do contracanto passava de vez em quando, fina, num lugar que ele não sabia ficar. Pensou em acampar embaixo de uma pedra, pensou no que Bruno faria e no que Banjo faria e se arrependeu de ter pensado. Foi nesse momento que Beatriz parou, de repente, e ficou olhando para a direita, para o escuro.
+A neve engrossou. Eles andaram mais uma hora, ou o que parecia uma hora, e Breno percebeu que as pernas de Beatriz tinham começado a ficar moles, e que a respiração dela vinha em soluços curtos. Ela não se queixava, o que era pior do que se queixasse. O vento puxava a capa, o gelo entrava nos sapatos, e a música passava de vez em quando, fina, vinda de um lugar que ele não sabia apontar. Pensou em acampar embaixo de uma pedra, pensou no que Bruno faria e no que Banjo faria e se arrependeu de ter pensado. Foi nesse momento que Beatriz parou, de repente, e ficou olhando para a direita, para o escuro.
 
 — Breno. — Ela puxou a manga dele de leve. — Não olha de uma vez, olha devagar, para o lado direito, entre as duas árvores sem folha.
 
@@ -328,7 +328,7 @@ Beatriz tirou a capa molhada sem que ninguém mandasse, sentou numa das cadeiras
 
 Beatriz bebeu, e fez uma careta, e bebeu mais. Breno experimentou, e era quente e bom, e ele descobriu que estava com as mãos tremendo só quando a xícara tilintou no pires.
 
-A conversa veio devagar, entre goles, e sempre pelo lado de fora, como a velha gostava. Perguntou se eles tinham comido alguma coisa no campo, e se tinham falado com o urso, e quanto tinham pagado, e riu até tossir ao saber do botão. Perguntou como eram as casas da onde vinham. Ouviu a descrição que Beatriz fez de Brisália, com os três cachorros de Lioro e o quintal e a árvore do pátio, e perguntou duas vezes sobre a gaita. Beatriz a tirou do bolso e a deixou na mesa, e a velha a tocou com a ponta dos dedos, só uma vez, e a empurrou de volta com cuidado, como se queimasse.
+A conversa veio devagar, entre goles, e sempre pelo lado de fora, como a velha gostava. Perguntou se eles tinham comido alguma coisa no campo, e se tinham falado com o urso, e quanto tinham pagado, e riu até tossir ao saber do botão. Perguntou como eram as casas de onde vinham. Ouviu a descrição que Beatriz fez da casa de Lioro, com a cadela velha e o quintal e a árvore do pátio, e perguntou duas vezes sobre a gaita. Beatriz a tirou do bolso e a deixou na mesa, e a velha a tocou com a ponta dos dedos, só uma vez, e a empurrou de volta com cuidado, como se queimasse.
 
 — A máscara os trouxe — disse a velha, por fim, quando o bule já tinha ido e voltado duas vezes. — Eu sei que vocês querem saber por quê. Eu lhes digo o que sei, e o que não sei eu digo que não sei. A máscara tem vontade. Não é uma vontade de gente, é mais velha e mais simples. Ela quer ser ouvida, e quer não ficar sozinha. Chama os que cantam, e quem canta responde, e quem responde entra.
 
@@ -394,11 +394,11 @@ Beatriz riu, num sopro, e depois ficou séria.
 
 — Fez o quê?
 
-— A máscara. Foi eu que toquei. Foi eu que cantei as três notas, a Velha falou, e eu nem sabia. — A voz dela ficou fina. — Você me disse "não dá um passo" e eu dei, e você falou de novo, e eu dei outro. Eu ouvi você, Breno. Eu ouvi, e fui assim mesmo, porque ela estava chamando e parecia tão sozinha. Eu não sei como eu soube. Parecia que era comigo.
+— A máscara. Fui eu que toquei. Fui eu que cantei as três notas, a Velha falou, e eu nem sabia. — A voz dela ficou fina. — Você me disse "não dá um passo" e eu dei, e você falou de novo, e eu dei outro. Eu ouvi você, Breno. Eu ouvi, e fui assim mesmo, porque ela estava chamando e parecia tão sozinha. Eu não sei como eu soube. Parecia que era comigo.
 
 Ele ficou olhando o teto. Tinha uma resposta pronta, a que um irmão mais velho dá, que diz que não, que a culpa não é dela. Só que a resposta pronta era uma mentira, e ele tinha prometido a si mesmo, na clareira, não inventar mais explicações.
 
-— Você deu o passo — disse. — E eu devia ter segurado você mais forte, ou ter deixado você falar com ela primeiro, em vez de gritar. Foi nós dois. A culpa é nossa, e a gente divide, e eu não vou deixar você carregar sozinha, porque eu sei como é pesado.
+— Você deu o passo — disse. — E eu devia ter segurado você mais forte, ou ter deixado você falar com ela primeiro, em vez de gritar. Fomos nós dois. A culpa é nossa, e a gente divide, e eu não vou deixar você carregar sozinha, porque eu sei como é pesado.
 
 — Você carregou a da gaiola, e ficou calado quase uma semana.
 

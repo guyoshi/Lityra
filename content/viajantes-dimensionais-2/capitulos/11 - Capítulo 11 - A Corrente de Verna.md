@@ -6,7 +6,7 @@ Lioro desfez o laço, abriu o papel pardo e puxou de dentro quatro pares de luva
 
 — Verna é a encosta que fica ao norte, não é? — perguntou Breno, já separando o agasalho menor para Beatriz. — A que o Grimaldus mencionou na terça, com os números de altura.
 
-— Quatrocentos e doze passos de subida. Ele fez questão que eu repetisse o número. — Lioro esfregou o rosto com a toalha do ombro. — A carruagem sai em meia hora. O desafio junta todas as alas do ciclo, e ninguém vai poder fazer sozinho o que for pedido.
+— Quinhentos e quarenta passos de subida. Ele fez questão que eu repetisse o número. — Lioro esfregou o rosto com a toalha do ombro. — A carruagem sai em meia hora. O desafio junta todas as alas do ciclo, e ninguém vai poder fazer sozinho o que for pedido.
 
 Beatriz estava de pé na cadeira, enfiando um braço no agasalho, e foi ela quem falou primeiro depois que Lioro terminou, com a voz alta de quem não percebe que o assunto já passou.
 

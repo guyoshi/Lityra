@@ -76,7 +76,7 @@ Contaram. Shirley contou duas vezes, porque o fôlego não deixou na primeira, e
 
 — A sala do fundo da Casa de Pesquisa — disse ele. — Faz cinco semanas que está lacrada.
 
-— Com o lacre de Kalev — completou Velho-Sábio. — E ontem de manhã eu fui lá conferir o selo, a pedido de Mereditha, e ele estava inteiro. — Esfregou os olhos. — Hoje de tarde o selo estava quebrado. Por dentro. A tinta do lacre voltada para a sala, e não para o corredor.
+— Com o lacre de Kalev — completou Velho-Sábio. — Ontem de manhã eu fui lá conferir o selo, e ele estava inteiro. — Esfregou os olhos. — Hoje de tarde o selo estava quebrado. Por dentro. A tinta do lacre voltada para a sala, e não para o corredor.
 
 — Por dentro? — perguntou Banjo, e se arrependeu logo, porque todos olharam. — Como assim, por dentro? Quem tava lá dentro?
 
@@ -96,11 +96,11 @@ Grimaldus bateu a ponta do dedo na linha fina do desenho, e a tábua de contas e
 
 — Laço é lugar sem número — disse Ferris, e foi a primeira vez que abriu a boca. Os olhos continuavam no giz. — Meu pai só desenhava laço pra isso. Ele me ensinou quando eu tinha oito anos.
 
-— Que lista? — perguntou Banjo. Ninguém tinha falado em lista, mas ele sentiu que faltava uma.
+— Número de quê? — perguntou Banjo.
 
 Velho-Sábio esvaziou uma caixa de fósforos em cima da toalha e foi enfileirando os palitos, um por um, até a beira da mesa.
 
-— A das dimensões que a gente conhece e consegue alcançar daqui. Vinte e um palitos. Os portais da Central abrem para esses, e a Vigilância confere cada viagem num livro.
+— Das dimensões que a gente conhece e consegue alcançar daqui. Vinte e um palitos, um para cada uma. Os portais da Central abrem para essas, e a Vigilância confere cada viagem num livro.
 
 — Só vinte e um? — Banjo olhou os palitos, depois a toalha inteira, a cozinha e a janela escura. — Eu achava que dimensão era tipo estrela, que tinha um monte.
 
@@ -112,7 +112,11 @@ Velho-Sábio esvaziou uma caixa de fósforos em cima da toalha e foi enfileirand
 
 — Mas por que ele escreveu isso no chão, seu Velho-Sábio? — perguntou Banjo. — Se ninguém ia ler.
 
-— Alguém ia, Banjo. Ele sabia que eu ia ser chamado. — Velho-Sábio girou a caixa de fósforos entre os dedos, devagar. — A máscara não caiu em Tayo por acaso, como a cidade inteira acredita. O Kalev foi buscá-la. Ouviu em algum canto de Central, e nunca me disse onde, que dava para chegar ao lugar onde ela dormia havia séculos, e saiu de madrugada há sete semanas, sem avisar nem o filho, porque desconfiava de um informante de Korvo por perto e não sabia quem era. Achava que uma coisa daquelas, nas mãos certas, seria uma arma contra o Korvo. Trouxe a máscara de volta por sete passagens, abrindo uma de cada vez. Quando a última se abriu em cima do Coração Branco, ela caiu na praça, e é dessa queda que o povo fala. Ele chegou ferido, se trancou sozinho na sala, selou por dentro com o próprio lacre e me pediu três dias e segredo. Fui mestre dele quando ele era um garoto do tamanho do Banjo, e eu dei, o que foi um erro. Foi o único caminho que a máscara aprendeu, e uma coisa dessas, quando leva alguém, só sabe voltar pelo mesmo caminho por onde veio. O Kalev conhecia o gênio dela e deixou a rota anotada no chão, para o caso de a máscara partir um dia e alguém precisar ir atrás.
+— Alguém ia, Banjo. Ele sabia que eu ia ser chamado. — Velho-Sábio girou a caixa de fósforos entre os dedos, devagar. — A máscara não caiu em Tayo por acaso, como a cidade inteira acredita. O Kalev foi buscá-la. Ouviu em algum canto da Central, e nunca me disse onde, que dava para chegar ao lugar onde ela dormia havia séculos. Saiu de madrugada há sete semanas, sem avisar nem o filho, porque desconfiava de um informante de Korvo por perto e não sabia quem era. Achava que uma coisa daquelas, nas mãos certas, seria uma arma contra o Korvo.
+
+— Sete semanas — disse Bruno, baixo, olhando para Ferris. — E ninguém contou nada pra ele.
+
+— Trouxe a máscara de volta por sete passagens, abrindo uma de cada vez — continuou Velho-Sábio. — Quando a última se abriu em cima do Coração Branco, ela caiu na praça, e é dessa queda que o povo fala. Ele chegou ferido, se trancou sozinho na sala, selou por dentro com o próprio lacre e me pediu três dias e segredo. Fui mestre dele quando ele era um garoto do tamanho do Banjo, e eu dei, o que foi um erro. Uma coisa dessas, quando leva alguém, só sabe voltar pelo caminho por onde veio. O Kalev conhecia o gênio dela e deixou a rota anotada no chão, para o caso de alguém precisar ir atrás.
 
 Ferris não se mexeu. Só o capacete, preso debaixo do braço, rangeu um pouco, apertado demais. Velho-Sábio olhou para ele, e a voz saiu mais baixa do que Banjo já tinha ouvido.
 
@@ -166,7 +170,9 @@ Estava escuro. Farol se enrolara em volta da bola amarela, esquecida no banco, e
 
 — Eu não detesto nada que o senhor faz — disse Bruno, e quase sorriu. — Eu só vou dormir de pé.
 
-— Quatro vigilantes na esquina e a gente aqui, olhando a parede? — Bruno se levantou do degrau. — Eu dava um jeito de passar por eles. Eu passo por qualquer um!
+O quase sorriso não durou. Ele olhou para o portão e se levantou do degrau.
+
+— Quatro vigilantes na esquina e a gente aqui, olhando a parede? Eu dava um jeito de passar por eles. Eu passo por qualquer um!
 
 — E eles escreveriam na caderneta que o garoto Lins saiu de noite desobedecendo a Vigilância — disse Velho-Sábio, sem levantar a voz. — É tudo o que o Beker precisa para fechar esta casa. Senta, Bruno.
 
@@ -212,7 +218,7 @@ Bruno olhou a colher, o pudim no chão, e depois o mago.
 
 — E vai ficar mais perdido ainda se você não lavar a colher — respondeu Velho-Sábio, e ajeitou o chapéu.
 
-Comeram o pudim do chão em quatro colheres, com Farol roubando calda do prato, e repetiram o exercício mais seis vezes. Na segunda, Eshley levantou um globo de água do cantil, grande como uma laranja, e o segurou por quase dez segundos, de olhos apertados e língua entre os dentes, até que o globo estourou e molhou Amadou dos pés à cabeça, que gritou "meu pão!" com tanta convicção que o pátio todo riu, até Ivy, na janela. Na quarta, Denis tentou dizer "bom dia" de propósito para o eco repetir, e nada voltou, e ele ficou olhando a parede, nervoso por não estar nervoso, até que o eco respondeu "bom dia, bom dia, dia", todo errado e atrasado, para ninguém. Na quinta, Amadou soltou uma faísca azul tão pequena que só acendeu a ponta do próprio gorro, e correu para o bebedouro com Eshley atrás gritando que ela contava dezessete.
+Comeram o pudim do chão em quatro colheres, com Farol roubando calda do prato, e repetiram o exercício mais seis vezes. Na segunda, Eshley deixou o ar mole debaixo de um pudim que caía e o segurou ali por quase dez segundos, de olhos apertados e língua entre os dentes, até que o ar cedeu de uma vez e a calda espirrou em Amadou dos pés à cabeça, que gritou "meu pão!" com tanta convicção que o pátio todo riu, até Ivy, na janela. Na quarta, Denis tentou dizer "bom dia" de propósito para o eco repetir, e nada voltou, e ele ficou olhando a parede, nervoso por não estar nervoso, até que o eco respondeu "bom dia, bom dia, dia", todo errado e atrasado, para ninguém. Na quinta, Amadou soltou uma faísca azul tão pequena que só acendeu a ponta do próprio gorro, e correu para o bebedouro com Eshley atrás, contando em voz alta que era a décima sétima do dia.
 
 Banjo sentia os braços tremerem e o nariz esquentar. Na sexta rodada, sem ter combinado com Bruno, soltou o pudim no ar e, em vez de segurar, empurrou devagar, como quem ajeita uma folha na água, e o prato inteiro ficou boiando, imóvel, a um palmo do chão. Bruno, ao lado, pôs a mão embaixo do prato sem encostar, e o gelo correu da palma dele para o ar e fez uma bandeja fina, branca, sustentando o pudim sem tocar a calda. Uma plataforma de gelo que o ar segurava. Ficaram os dois parados, de respiração presa.
 
@@ -230,7 +236,7 @@ Lioro saiu da cozinha nessa hora com duas mochilas de treino nos ombros e uma fa
 
 — Eshley, Shirley, é a vez de vocês — disse ele, engolindo o pão. — O Velho-Sábio ficou com os meninos até as seis, eu fico com vocês até o meio-dia, como toda semana. Pegaram o cantil?
 
-— Hoje? — perguntou Eshley, com o cabelo ainda pingando do globo estourado. — Com tudo isso?
+— Hoje? — perguntou Eshley, ainda com calda no cabelo. — Com tudo isso?
 
 — Justamente com tudo isso. — Lioro olhou para Velho-Sábio, que fez que sim. — Se o treino para, a cabeça só pensa no que não consegue resolver. Vamos para o campo atrás do moinho. Voltamos antes do almoço.
 
@@ -282,7 +288,7 @@ Quando voltaram ao pátio, havia mais uma pessoa na cerca, encostada ao muro, co
 
 — Quando? — perguntou Banjo, e o coração deu um pulo desajeitado no peito.
 
-— Hoje, depois da segunda ronda. — Bug olhou por cima do ombro, para o portão, para a porta da cozinha, para a janela de cima. — Eu não posso dizer mais nada. Se o senhor Velho-Sábio souber, ele não deixa. E se ele não deixar, a brecha fecha, e não abre de novo por mais um mês.
+— Hoje, depois da segunda ronda. — Bug olhou por cima do ombro, para o portão, para a porta da cozinha, para a janela de cima. — Eu não posso dizer mais nada. Se o senhor Velho-Sábio souber, ele não deixa. E a brecha não espera. Depois de hoje, só abre de novo daqui a um mês.
 
 — Um mês — repetiu Bruno, e olhou para Banjo, e dessa vez não precisou de nenhuma palavra.
 

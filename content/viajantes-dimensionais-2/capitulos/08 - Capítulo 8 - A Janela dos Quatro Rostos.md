@@ -30,7 +30,7 @@ A varanda tinha um beiral largo, e Ferris estava debaixo dele, não porque tives
 
 — Que conta?
 
-— Tem versões do meu pai, e nenhuma bate com a outra. Na Largo dos Ponteiros dizem que ele se cansou e foi embora. Na Central ninguém me diz nada, e ficam me olhando com cara de quem sabe. E a Shirley contou que a porta da sala do fundo se fechou atrás dele e não abriu mais. — Ferris olhou a chuva por um momento, em vez de olhar para Breno. — Eu vou ficar na frente do prédio de pesquisa até alguém me dizer qual delas é a verdadeira. Se for preciso, durmo no degrau.
+— Tem versões do meu pai, e nenhuma bate com a outra. No Largo dos Ponteiros dizem que ele se cansou e foi embora. Na Central ninguém me diz nada, e ficam me olhando com cara de quem sabe. E a Shirley contou que a porta da sala do fundo se fechou atrás dele e não abriu mais. — Ferris olhou a chuva por um momento, em vez de olhar para Breno. — Eu vou ficar na frente do prédio de pesquisa até alguém me dizer qual delas é a verdadeira. Se for preciso, durmo no degrau.
 
 — Eles não vão te deixar entrar.
 
@@ -113,13 +113,13 @@ Uma pedra bateu na vidraça da frente, no andar de baixo, com um estalo seco que
 
 — Quarenta e um — disse Kali. — O senhor William McCroys tem chegada prevista para as dezesseis horas. A probabilidade de ele chegar antes é de nove por cento.
 
-— O McCroys? — Bruno quase gritou, e levou a mão à boca. — O McCroys do anel? Aquele que sorri com cara de quem vai te vender uma casa pior que a sua? O Velho-Sábio chamou o McCroys?
+— O McCroys? — Bruno quase gritou, e levou a mão à boca. — O McCroys do anel? O que jurou negar tudo se alguém contasse que ele foi educado? O Velho-Sábio chamou o McCroys?
 
 — O Velho-Sábio disse que o senhor McCroys tem uma dívida e uma reputação e que as duas o fazem pontual. Foram as palavras dele, às treze e quarenta, antes de sair.
 
-— Que ótimo. Estamos salvos por um cara que odeia a gente.
+— Que ótimo. Estamos salvos pelo cara mais mal-humorado de Tayo.
 
-— Ele não odeia a gente — disse Breno, sem saber ao certo se acreditava. — Ele não gosta de ninguém. É diferente.
+— Ele não é mal-humorado com a gente — disse Breno, sem saber ao certo se acreditava. — É com todo mundo. É diferente.
 
 Às três e quarenta e uma, o portão cedeu. Foi um barulho de dobradiça arrancada, e depois o jardim se encheu de vozes mais próximas, de passos na grama, de botas no caminho de pedra. Kali avisou, em tom de cortesia, que o portão nunca tinha feito parte da barreira. Beatriz soltou um som que não chegou a ser palavra e se sentou no último degrau, com as mãos entre os joelhos. Na pele da palma, perto do pulso, subia uma fumaça fina.
 
@@ -181,7 +181,7 @@ O homem foi. McCroys ficou parado na soleira, olhando para a chuva, com as mãos
 
 Saiu para a chuva, com passos medidos, e Bruno, ao lado de Breno, disse a coisa mais honesta do dia.
 
-— Eu odeio dever favor ao McCroys.
+— Agora eu devo um favor ao McCroys.
 
 — Eu sei. — Breno olhou a porta quebrada, a lama no assoalho, as marcas de bota nas escadas. — Eu também.
 

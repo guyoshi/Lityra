@@ -106,7 +106,7 @@ Banjo, do outro lado, mandava um seixo por um corredor estreito entre três vaso
 
 — Eu nunca disse isso. — Bruno esfregava a orelha, que já estava vermelha. — E que terceiro seixo é esse? Você só pegou dois!
 
-— Eu pegei dois, eu juro! Acho que tinha um escondido na terra do vaso desde ontem, e ele se animou quando viu os outros voando.
+— Eu peguei dois, eu juro! Acho que tinha um escondido na terra do vaso desde ontem, e ele se animou quando viu os outros voando.
 
 — Dois alvos pedem mais atenção que um — disse Velho-Sábio, e anotou alguma coisa num caderno pequeno. — Dois seixos pedem duas atenções. Não é uma atenção partida ao meio.
 
@@ -448,7 +448,7 @@ O garoto que entrou era alto, de cabelo ondulado e jaqueta azul-escura, e andava
 
 — Dário — disse ela, e passou o dorso da mão na testa, deixando uma risca de água. — Você disse que vinha de tarde. Eu falei isso pro Ferris, e ele ficou dizendo que você nunca vem na hora.
 
-— Resolvi antes — respondeu Dário, sem pressa. — O que eu tinha para resolver acabou mais cedo, e eu não quis ficar parado esperando o horário.
+— Resolvi antes — respondeu Dário, sem pressa.
 
 — E o que é isso na sua mão?
 

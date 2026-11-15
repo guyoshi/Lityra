@@ -26,15 +26,13 @@ Bruno sentou. O banco estava frio e a pedra devolveu o frio para as costas. Pens
 
 Tango tirou do bolso do casaco uma maçã pequena e a girou entre os dedos, sem morder, e Bruno percebeu que era a primeira vez em dias que alguém lhe falava sem pressa.
 
-— O pai do Dário foi julgado pela Sociedade no ciclo passado — disse. — Reprovado. Mandado pra terceira dimensão, sem direito de voltar. Pra a sua.
+— O pai do Dário foi julgado pela Sociedade no ciclo passado — disse. — Reprovado. Mandado pra terceira dimensão, sem direito de voltar. Pra sua.
 
 Ele disse "a sua" sem olhar, como quem aponta a direção de um lugar.
 
 — Pra Terra? — Bruno sentiu o estômago afundar. — Por quê? O que ele fez?
 
-— O crime não é meu pra contar. — A maçã deu uma volta inteira. — Eu falo duas vezes pra você guardar: não é meu pra contar.
-
-— O Dário jura que o pai não fez — disse Tango. — Eu não tenho prova. Tenho a cara dele quando jura, e não é de garoto que mente por vergonha.
+— O crime não é meu pra contar. — A maçã deu uma volta inteira. — O Dário jura que o pai não fez. Eu não tenho prova. Tenho a cara dele quando jura, e não é de garoto que mente por vergonha.
 
 — E você acredita? — perguntou Bruno.
 
@@ -71,7 +69,11 @@ Dário parou. Os olhos escuros subiram devagar até o rosto de Bruno e ficaram a
 Bruno ficou parado no meio da pedra fria. Em algum ponto da parede, o ar da manhã passou por uma frincha e fez um assobio fino. Banjo apareceu da escada, com Farol enrolado no pescoço e um seixo flutuando atrás da orelha, e parou a dois passos dele sem perguntar nada. Sentou-se no banco de pedra, e depois de um momento Bruno sentou-se também. O seixo ficou girando entre os dois, devagar, e eles ficaram vendo o seixo girar.
 
 
-Sábado, ao entardecer, o pátio de Lioro estava cheio de uma luz alaranjada que fazia o muro baixo parecer feito de brasa. Beatriz tinha terminado a tarefa de apagar a chama três vezes seguidas sem Breno olhar, e comemorava quicando contra o muro a bola amarela de BBBB quase apagados, com regras que mudavam a cada quique. — Ponto do muro! Ponto da árvore! Ponto do Farol! — Banjo lia no chão, de costas para a árvore velha, e já tinha desistido de contestar o placar. Farol, em cima do livro, virava a cabeça a cada quique e seguia a bola com os olhos, de cauda acesa e patas encolhidas, só não pulava porque estava de guarda. Breno escrevia no caderno, no banco do outro lado, e pedia silêncio a cada três quiques. A cada três quiques Beatriz passava a quicar mais devagar, com muita dignidade, para poder dizer que tinha colaborado. E Bruno, que desde a quinta-feira estava de mau humor sem fazer piada nenhuma, o que era bem pior, olhava para a parede de pedra como se esperasse que ela falasse primeiro.
+Sábado, ao entardecer, o pátio de Lioro estava cheio de uma luz alaranjada que fazia o muro baixo parecer feito de brasa. Beatriz tinha terminado a tarefa de apagar a chama três vezes seguidas sem Breno olhar, e comemorava quicando contra o muro a bola amarela de BBBB quase apagados, com regras que mudavam a cada quique.
+
+— Ponto do muro! Ponto da árvore! Ponto do Farol!
+
+Banjo lia no chão, de costas para a árvore velha, e já tinha desistido de contestar o placar. Farol, em cima do livro, virava a cabeça a cada quique e seguia a bola com os olhos, de cauda acesa e patas encolhidas, só não pulava porque estava de guarda. Breno escrevia no caderno, no banco do outro lado, e pedia silêncio a cada três quiques. A cada três quiques Beatriz passava a quicar mais devagar, com muita dignidade, para poder dizer que tinha colaborado. E Bruno, que desde a quinta-feira estava de mau humor sem fazer piada nenhuma, o que era bem pior, olhava para a parede de pedra como se esperasse que ela falasse primeiro.
 
 A campainha do portão tocou uma vez. Era uma campainha de latão que ninguém usava, e o som saiu torto, como se a mão que a puxava não soubesse bem a força.
 
@@ -107,7 +109,7 @@ Ela parou, e Beatriz esperou. Os três garotos estavam imóveis atrás dela, olh
 
 — De quem eram?
 
-— Dois eram dos pais de vocês. — Mereditha levantou os olhos molhados. — A gaita era de Gabrielle. O tambor era de Jack. Os outros dois eram de Kofi e Yumi, que partiram cedo demais. Eu fico em silêncio quando falo deles, e hoje não consegui.
+— Dois eram dos pais de vocês. — Mereditha levantou os olhos molhados. — A gaita era de Gabrielle. O tambor era de Jack. Os outros dois eram de Kofi e Yumi, que partiram cedo demais. Eu costumo ficar quieta quando lembro deles, e hoje não consegui.
 
 Beatriz olhou para a gaita e sentiu uma coisa apertar do lado de dentro do peito, sem avisar, e não soube se era alegria ou tristeza ou as duas juntas. Estendeu a mão e parou a um dedo da madeira.
 
@@ -121,7 +123,7 @@ Não foi preciso escolher. Beatriz pegou a gaita, que era mais leve do que parec
 
 — Não funciona por obrigação. Eles respondem a quem junta toda a magia que tem num ponto só e solta de uma vez. Quanto mais concentrada, mais forte. — Fez uma pausa pequena. — Eu tentei a vida inteira. Nunca responderam pra mim. Eu não consigo juntar nada sem chorar, e a magia vai junto com o choro.
 
-Contou, depois, o que cada um fazia. O diapasão revelava quem estava por perto, até quem se escondia, e bastava bater de leve e escutar. O tambor fazia uma onda que deixava tudo mais devagar, por pouco tempo. A flauta adormecia mentes fracas, de bicho ou de gente que pensava pouco, mas cansava quem a tocava. E a gaita fazia criaturas dançarem, rirem, falarem besteira ou falarem a verdade, às vezes sem querer. Bruno perguntou se tinha limite de vezes, e Mereditha disse que o limite era a pessoa, que cansava, mas que não existia número, e que um dia de manhã quem tocasse um e se concentrasse bem teria ainda força para o seguinte.
+Contou, depois, o que cada um fazia. O diapasão revelava quem estava por perto, até quem se escondia, e bastava bater de leve e escutar. O tambor fazia uma onda que deixava tudo mais devagar, por pouco tempo. A flauta adormecia mentes fracas, de bicho ou de gente que pensava pouco, mas cansava quem a tocava. E a gaita fazia criaturas dançarem, rirem, falarem besteira ou falarem a verdade, às vezes sem querer. Bruno perguntou se tinha limite de vezes, e Mereditha disse que não existia número, que o limite era a pessoa, que cansava, e que quem descansasse bem tinha força para tocar de novo.
 
 — Eu acho injusto — disse Beatriz, de repente, e todos olharam. — Quatro amigos e cinco pessoas. Se você andava junto, também era amiga. Cinco é um número bom.
 
@@ -141,7 +143,7 @@ Beatriz levou a gaita à boca. Soprou, e saiu só ar, um fio fino e feio, como u
 
 — Deixa eu tentar — pediu Banjo. — Se você deixar.
 
-Beatriz entregou a gaita. Banjo largou a flauta no colo de Breno, que a segurou de má vontade, e levou a gaita à boca com o rosto muito sério e as orelhas vermelhas. Soprou. Saiu uma nota estranha e redonda, que ficou boiando no ar do pátio, e por baixo dela Banjo ouviu o sussurro de sempre, o das árvores velhas, parecendo achar graça. e Farol, que dormia em cima do livro de Banjo, acordou de uma vez, ergueu-se nas patas de trás e começou a dançar. Rodou sobre si mesmo com a cauda acesa desenhando espirais douradas no ar, bateu as patinhas na capa do livro no ritmo da nota, as orelhas grandes balançando para os dois lados, e Beatriz soltou uma gargalhada tão alta que a árvore velha balançou.
+Beatriz entregou a gaita. Banjo largou a flauta no colo de Breno, que a segurou de má vontade, e levou a gaita à boca com o rosto muito sério e as orelhas vermelhas. Soprou. Saiu uma nota estranha e redonda, que ficou boiando no ar do pátio, e por baixo dela Banjo ouviu o sussurro de sempre, o das árvores velhas, parecendo achar graça. E Farol, que dormia em cima do livro de Banjo, acordou de uma vez, ergueu-se nas patas de trás e começou a dançar. Rodou sobre si mesmo com a cauda acesa desenhando espirais douradas no ar, bateu as patinhas na capa do livro no ritmo da nota, as orelhas grandes balançando para os dois lados, e Beatriz soltou uma gargalhada tão alta que a árvore velha balançou.
 
 — Para! — disse Bruno, rindo, e se sentou no chão. — Ele vai passar mal, Banjo!
 

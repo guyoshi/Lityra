@@ -1,6 +1,6 @@
 Beatriz soube que ia acontecer antes de acontecer. Soube pelo silêncio, que era do tipo que vem antes de uma panela transbordar, e pelo cheiro, que era de pão queimado, e ela não estava queimando nada.
 
-Os quatro estavam espalhados pela praça como peças soltas. Bruno em pé na borda da fonte seca, com a máscara apertada nos braços e a boca aberta. Breno ao lado do banco de Lioro, rígido, com a mão metida no bolso onde as metades do diapasão tilintavam. Banjo perto dela, tão perto que ela sentia o ombro dele quente contra o seu braço. E na frente deles, de pernas cruzadas na borda do poço, com o rosto pálido sob a luz sem lampião e um sorriso de visita, Shirley.
+Os quatro estavam espalhados pela praça como peças soltas. Bruno em pé ao lado da fonte seca, com a máscara apertada nos braços e a boca aberta. Breno ao lado do banco de Lioro, rígido, com a mão metida no bolso onde as metades do diapasão tilintavam. Banjo perto dela, tão perto que ela sentia o ombro dele quente contra o seu braço. E na frente deles, de pernas cruzadas na borda da fonte, com o rosto pálido sob a luz sem lampião e um sorriso de visita, Shirley.
 
 — Gente — disse Shirley, num tom de quem repete um recado de mãe. — Eu esperei vocês chegarem. Achei que seria indelicado entrar sem bater.
 
@@ -14,7 +14,7 @@ Ela levantou a mão e estalou os dedos.
 
 O ar atrás dela rasgou. Dessa vez sem ruído nem fúria, só uma abertura comprida, como uma boca de cortina se abrindo num teatro, e do outro lado havia o cume, de céu escuro e capim ferrugem, e sobre o capim, com a bengala batendo a pedra num ritmo manso, vinha caminhando a Velha.
 
-Beatriz tinha achado que sabia como ela era. Pequena, de lenço na cabeça, de xale, de passos lentos e mãos cheias de anéis de cobre. Mas a mulher que atravessou o rasgo e pisou nas lajes da pracinha era a mesma só no corpo, e o resto tinha mudado. Os cabelos brancos, curtos e ralos, tinham se soltado do lenço e flutuavam em volta da cabeça em fios compridos. A pele estava mais branca ainda, riscada de veias escuras. Os olhos sem vista, de nuvem leitosa, agora brilhavam por dentro, uma luz fria, vazada. A bengala deixou de bater no chão e passou a ser carregada, de lado, como um cetro.
+Beatriz tinha achado que sabia como ela era. Pequena, de lenço na cabeça, de xale, de passos lentos e mãos magras. Mas a mulher que atravessou o rasgo e pisou nas lajes da pracinha era a mesma só no corpo, e o resto tinha mudado. Os cabelos brancos, curtos e ralos, tinham se soltado do lenço e flutuavam em volta da cabeça em fios compridos. A pele estava mais branca ainda, riscada de veias escuras. Os olhos sem vista, de nuvem leitosa, agora brilhavam por dentro, uma luz fria, vazada. A bengala deixou de bater no chão e passou a ser carregada, de lado, como um cetro.
 
 — Boa noite, meus meninos — disse a Velha, com a voz de sempre. — Que noite bonita. Com chuva e tudo.
 
@@ -36,7 +36,7 @@ O que aconteceu em seguida Beatriz não soube explicar depois, porque o que veio
 
 — Bruno! O chão! — gritou Breno.
 
-Ele chegou antes que alguém pedisse. Beatriz sentiu o metal subir pelo corpo dele de longe, e o ar ao redor esfriou e engrossou, e então Breno estava na frente dela, virado de costas para as invocadoras, de peito aberto e braços estendidos, uma estátua de ferro e de fumaça, e as mãos de pedra dele se apoiaram no ombro dela e empurraram contra a corda. Ela viu o rosto dele a um palmo do dela, a pele cinza, os olhos de sempre, só o suor correndo pelo metal.
+Ele chegou antes que alguém pedisse. Beatriz sentiu o metal subir pelo corpo dele de longe, e o ar ao redor esfriou e engrossou, e então Breno estava na frente dela, virado de costas para as invocadoras, de peito aberto e braços estendidos, uma estátua de ferro e de fumaça, e as mãos de ferro dele se apoiaram no ombro dela e empurraram contra a corda. Ela viu o rosto dele a um palmo do dela, a pele cinza, os olhos de sempre, só o suor correndo pelo metal.
 
 — Eu estou aqui. — A voz dele rangia. — Eu estou aqui, Bia, eu não saio, eu não saio!
 
@@ -68,7 +68,7 @@ Estava tão perto que sentiu o cheiro delas. A Velha cheirava a pão de mel e a 
 
 — Eu não vou com vocês — disse Beatriz.
 
-— Ainda não pedimos — disse Shirley, com uma gentileza enorme. Tinha ficado de pé na borda do poço e olhava para ela com um carinho que não combinava com o rosto, de veias e olhos de leite. — Antes a gente quer que você ouça. Só isso. Eu e a Velha esperamos muito tempo para ter essa conversa.
+— Ainda não pedimos — disse Shirley, com uma gentileza enorme. Tinha ficado de pé na borda da fonte e olhava para ela com um carinho que não combinava com o rosto, de veias e olhos de leite. — Antes a gente quer que você ouça. Só isso. Eu e a Velha esperamos muito tempo para ter essa conversa.
 
 — Ela fala demais — comentou a Velha. — Mas tem razão. Nós somos três, flor. Já éramos antes de você, e antes da sua mãe, e antes da mãe dela. As histórias que contam em Tayo não dizem a metade. Dizem que somos três mulheres que chamaram o que não devia ser chamado, e é verdade, mas nunca explicam por que a coisa veio, quando chamamos. Veio porque nós somos o lugar onde ela cabe.
 
@@ -76,7 +76,7 @@ Estava tão perto que sentiu o cheiro delas. A Velha cheirava a pão de mel e a 
 
 — Caos — repetiu Beatriz. A palavra saiu estranha na boca. — O fogo.
 
-— O seu fogo. — A Velha inclinou a cabeça. — Foi isso que ninguém te contou, não foi? Que o fogo não obedece porque não nasceu para obedecer. Tentaram te ensinar a segurar o que não se segura, te deram anel, te deram regra, te deram uma mulher de chapéu que dizia respira e conta até dez. E você foi ficando com medo da coisa mais bonita que tem. A sua mãe sabia. Ela abriu mão do poder inteiro, minha flor, depois de passar uma vida inteira com medo da própria mão.
+— O seu fogo. — A Velha inclinou a cabeça. — Foi isso que ninguém te contou, não foi? Que o fogo não obedece porque não nasceu para obedecer. Tentaram te ensinar a segurar o que não se segura, te deram anel, te deram regra, te deram um velho de cajado que dizia respira e pede baixinho. E você foi ficando com medo da coisa mais bonita que tem. A sua mãe sabia. Ela abriu mão do poder inteiro, minha flor, depois de passar uma vida inteira com medo da própria mão.
 
 — Não fale da minha mãe — disse Beatriz.
 
@@ -115,7 +115,8 @@ Do outro lado da praça, Banjo apareceu de cabelo em pé, com o nariz sangrando 
 Eram fracos. Beatriz viu isso, e doeu mais do que a própria mão. Eram fracos, e cansados, e continuavam indo.
 
 — Banjo! — gritou Bruno, caído de costas na poça, de braços abertos, com a máscara ainda presa ao peito pelo cobertor. Olhou para ela com uma expressão estranha de quem acaba de ter uma ideia. — Banjo! A máscara!
-Breno acordou de baixo de uma parede.
+
+Breno acordou debaixo de uma parede.
 
 Pelo menos achou que era uma parede. Era uma chuva de tijolos e de telhas que tinha caído por cima dele depois de ele atravessar a fachada de uma sapataria, e ele estava deitado de costas num monte de botas velhas, olhando para uma viga quebrada, com a boca cheia de pó e a cabeça zunindo. O metal da pele tinha trincado em três lugares do peito. Cada respiração doía como se alguém passasse uma lima nas costelas.
 
@@ -129,13 +130,13 @@ Atravessou a rua aos tropeços, e o metal subiu de novo pelo corpo, rangendo nas
 
 E a Velha. De frente para todos, com o cabelo em chamas brancas e a bengala na mão, de costas para ele.
 
-Breno não pensou. Pensou que, se pensasse, ia notar que era uma senhora de cabelo branco e bengala, e ia hesitar. Correu os últimos dez passos de cabeça baixa, e o peso do metal fez as lajes estalarem sob os pés, e agarrou a Velha por trás com os dois braços, apertando os cotovelos dela contra o corpo.
+Breno não pensou. Se pensasse, ia notar que era uma senhora de cabelo branco e bengala, e ia hesitar. Correu os últimos dez passos de cabeça baixa, e o peso do metal fez as lajes estalarem sob os pés, e agarrou a Velha por trás com os dois braços, apertando os cotovelos dela contra o corpo.
 
 — PEGA! — gritou. — Banjo, agora!
 
 A Velha soltou um grito agudo de surpresa e de fúria, e tentou se soltar. Era forte demais para uma pessoa velha, tão forte que Breno sentiu o metal ranger nos braços e teve de plantar os pés e travar os joelhos. Ela se debatia como uma tempestade dentro de um saco, e a bengala girou e bateu duas vezes na cabeça dele, e ele viu estrelas, e não soltou.
 
-— Menino! — A voz dela perdeu toda a docura. — Menino, me largue, me largue agora, ou eu juro...
+— Menino! — A voz dela perdeu toda a doçura. — Menino, me largue, me largue agora, ou eu juro...
 
 Banjo tinha entendido. Estava de olhos arregalados, e Breno viu que ele tremia inteiro, de cansaço, de medo, de tudo. Levantou a mão aberta na direção de Bruno, e a máscara saiu do peito do irmão e subiu no ar, devagar, a um palmo do chão, a dois, a um metro, rodando sobre si mesma, soltando aquele choro baixo que a praça inteira escutou.
 
@@ -161,13 +162,13 @@ A resposta de Beatriz foi uma muralha de fogo.
 
 Ela se levantou do chão com as duas mãos acesas, sem nenhum anel, de cabelo solto e olhos brilhando, e o que saiu delas foi uma parede de chama dourada, tão larga que ocupou a praça de lado a lado, uma onda que passou por cima do banco quebrado, da fonte, das lajes, e bateu na figura de Shirley de frente. O calor passou por Breno como um tapa. Ele fechou os olhos e sentiu a Velha, dentro dos seus braços, sendo sugada.
 
-Ela não gritou mais. Foi puxada por dentro. O rosto, o cabelo, o xale, as mãos de anéis de cobre, tudo se enrolou e escorreu para dentro dos buracos da máscara como água num ralo, uma fita branca que girava e afinava, e a bengala caiu na laje com um som de gravetos. Ele sentiu o corpo da mulher escapar dos braços dele, leve como uma folha, e depois não sentiu mais nada. A máscara despencou. Breno a pegou no ar com as duas mãos, de rosto quase encostado nela, e viu os olhos de pedra fecharem devagar, e a rachadura clara do canto brilhar uma vez, como uma pálpebra piscando.
+Ela não gritou mais. Foi puxada por dentro. O rosto, o cabelo, o xale, as mãos magras, tudo se enrolou e escorreu para dentro dos buracos da máscara como água num ralo, uma fita branca que girava e afinava, e a bengala caiu na laje com um som de gravetos. Ele sentiu o corpo da mulher escapar dos braços dele, leve como uma folha, e depois não sentiu mais nada. A máscara despencou. Breno a pegou no ar com as duas mãos, de rosto quase encostado nela, e viu os olhos de pedra fecharem devagar, e a rachadura clara do canto brilhar uma vez, como uma pálpebra piscando.
 
 — Duzentos anos — disse a voz da Velha, de dentro, muito longe, quase um sussurro. — De novo.
 
 Um estalo, e o silêncio.
 
-Bruno e Banjo gritaram ao mesmo tempo. Breno só percebeu que gritava também quando seus ouvidos doeram. Beatriz estava de pé, de mãos abertas, com as chamas ainda correndo pelos antebraços, e Banjo estendeu os dois braços para ela e Bruno atirou duas lanças de gelo, e juntos, sem combinar, atacaram a coisa que ainda estava de pé na borda da fonte.
+Bruno e Banjo gritaram ao mesmo tempo. Breno só percebeu que gritava também quando seus ouvidos doeram. Beatriz estava de pé, de mãos abertas, com as chamas ainda correndo pelos antebraços, e Banjo ergueu as pedras e Bruno atirou duas lanças de gelo, e juntos, sem combinar, atacaram a coisa que ainda estava de pé na borda da fonte.
 
 Ela tinha mudado. O fogo de Beatriz tinha passado por ela e não queimado a pele, e mesmo assim a coisa que a usava estava com uma ruga no rosto, uma rachadura no sorriso, um gesto de quem leva um soco na barriga. Shirley arqueou as costas. A cabeça foi para trás, os braços abriram em cruz, a boca se escancarou até o limite, e Breno, que se arrependeu de olhar, viu uma coisa sair dela.
 
@@ -183,7 +184,7 @@ Dez costuras se abriram nas paredes das casas, no chão, no meio do ar. Delas sa
 
 Breno agarrou a máscara com um braço e ergueu o outro. Bruno congelou três de uma vez, a um metro de Banjo, e deu um grito de esforço. Banjo levantou duas pedras e quebrou duas cabeças. Beatriz queimou uma fila inteira com um movimento de braço e cambaleou. Eles lutaram. Lutaram como podiam, de mãos tremendo e de joelhos cedendo, e a cada criatura que caía vinha outra. A fumaça pálida pairava acima de tudo, de braços abertos, sem fazer nada, só abrindo mais costuras.
 
-Não sabia quanto tempo passou. Foi uma eternidade e um instante. Em algum momento Breno percebeu que não havia mais criaturas e que também não tinha mais força. Estava de joelhos, com a máscara no colo, o metal da pele descascando, e Bruno sentado ao lado dele, de cabeça entre as mãos. Beatriz estava de pé, com o corpo balançando e as chamas apagadas, com uma mão no peito, ofegando. Todos pararam ao mesmo tempo, sem decidir. Não dava mais.
+Breno não soube quanto tempo passou. Foi uma eternidade e um instante. Em algum momento percebeu que não havia mais criaturas e que também não tinha mais força. Estava de joelhos, com a máscara no colo, o metal da pele descascando, e Bruno sentado ao lado dele, de cabeça entre as mãos. Beatriz estava de pé, com o corpo balançando e as chamas apagadas, com uma mão no peito, ofegando. Todos pararam ao mesmo tempo, sem decidir. Não dava mais.
 
 — Eu não consigo mais — disse Bruno. — Eu não tenho mais nada, Breno. Nem uma gotinha.
 
@@ -194,6 +195,9 @@ Do outro lado, Banjo se virou devagar para a irmã, de olhos vidrados, com o nar
 — BANJO! — O grito de Breno rasgou a praça. Largou a máscara, rastejou, agarrou o irmão pelos ombros e o virou. — Banjo! Banjo, acorda! Olha para mim! Acorda, vamos, não faz isso!
 
 Ele não respondeu. Respirava. Breno encostou a orelha no peito dele e escutou o coração, rápido e fraco, e ficou ali, de cabeça baixa, com a mão apertada na camisa do irmão e as lágrimas descendo pelo metal rachado do rosto.
+
+O capuz de Banjo se mexeu. Farol saiu de dentro, com o pelo todo arrepiado, subiu no peito dele e se deitou ali de bruços, de patinhas abertas, e a cauda acendeu num dourado devagar, um clarão e um descanso, um clarão e um descanso. Breno levou um tempo para entender que era a respiração. O bichinho estava marcando o compasso, e a cada vez que o peito de Banjo hesitava, o clarão esperava por ele.
+
 A voz da coisa de fumaça chegou a Beatriz muito baixa, e muito perto, como um sopro na orelha.
 
 — Você sabe o que acabou de fazer, né? — A figura pálida desceu, devagar, até pairar a poucos passos dela, com os braços compridos abertos e as bordas do corpo desfiando no vento. A voz já não era doce. Era cansada e certa. — Duzentos anos, flor. A máscara me teve por duzentos anos, e eu saí uma vez porque um homem de poder quis. Vocês vão guardar essa coisa num cofre, num porão, num lugar que o velho de bengala acha seguro. E daqui a trinta anos alguém vai bater na porta de novo, um menino que se oferece, um mago que acha que sabe, um homem de terno. Ela vai escolher e vai abrir. Ela sempre abre.
@@ -210,7 +214,7 @@ Estava no chão, ao lado de Breno, caída de lado, com as duas pontas apontadas 
 
 Um homem de barba ruiva e cicatriz no queixo. Uma menina de duas tranças, de olhos grandes, não mais velha do que Beatriz. Uma mulher de lenço azul. Um garoto da idade de Ferris, de boca aberta, como se tivesse parado no meio de uma palavra. Um velho de rugas fundas. Outro. Outra. Eram muitos. Kalev tinha contado trinta e seis vozes, e agora cada voz tinha um rosto, e todos olhavam para ela sem pedir nada. Isso era pior. Se pedissem, ela podia dizer não.
 
-Ela sabia o que acontecia se a máscara queimasse. Velho-Sábio tinha dito no salão, com a bengala batendo, para todo mundo ouvir: o que está dentro não morre se ela quebrar. Fica fechado, sem porta, para sempre, escutando. Tinha olhado para ela quando disse. Ela tinha conversado com Breno sobre isso dentro da própria máscara, no escuro, de joelhos, e tinha dito que nunca ia fazer isso com ninguém. Que ia achar outro jeito.
+Ela sabia o que acontecia se a máscara queimasse. Velho-Sábio tinha dito no salão, com a bengala batendo, para todo mundo ouvir: o que está dentro não morre se ela quebrar. Fica fechado, sem porta, para sempre, escutando. Tinha olhado para ela quando disse. E ela tinha perguntado a Breno, dentro da própria máscara, no escuro, se aquilo era mesmo maldade, e os dois tinham combinado descobrir primeiro e decidir depois.
 
 — Bia. — Breno estava de joelhos ao lado do irmão, de braços em volta de Banjo, o rosto riscado de lágrimas e de pó. A voz saiu pequena. — Você não precisa. A gente pode guardar. A gente consegue fechar num cofre melhor, a gente...
 
@@ -224,7 +228,7 @@ Breno não respondeu. Beatriz viu que ele não tinha resposta, e que tinha pensa
 
 — Você ia fazer isso por quê?
 
-— Porque eu prefiro ser quem escolheu — disse Beatriz, e as palavras doeram de um jeito que ela nunca tinha sentido, uma dor limpa, de quem arranca uma coisa que estava presa. — Do que ser a que deixou acontecer.
+— Porque alguém tem que escolher — disse Beatriz, e as palavras doeram de um jeito que ela nunca tinha sentido, uma dor limpa, de quem arranca uma coisa que estava presa. — E eu não quero ser a que deixou acontecer.
 
 Caminhou até a máscara. As lajes da praça estavam frias e escorregadias nos pés descalços, e os rostos acompanhavam o movimento dela, virando para ela como girassóis, e ela olhou um por um, o mais depressa que pôde e o mais devagar que conseguiu. A menina das tranças piscou. Beatriz guardou isso.
 
@@ -264,7 +268,7 @@ Beatriz arregalou os olhos.
 
 Bruno cantava mal, desafinado, baixinho, com a voz estourada de gritar e de frio. Mas era a música. Era a que ela cantarolava à mesa do café, sem perceber, havia anos, e que ele devia ter ouvido todas as manhãs sem nunca dizer nada. Ele errava a segunda nota e voltava. Batia o tambor atrás do canto, devagar, como o coração de alguém dormindo.
 
-Ao lado dele, de repente, um som grave. Uma nota só, comprida e firme, que subia do meio de uma pilha de pó, e Breno estava de joelhos com o diapasão quebrado erguido contra o ouvido de Banjo, e a metade que restava cantava uma nota baixa e perfeita, e o ouvido dele dizia: aqui, é aqui que você entra.
+Ao lado dele, de repente, um som grave. Uma nota só, comprida e firme. Breno estava de joelhos, com Banjo no colo e o diapasão quebrado erguido na mão, e a metade que restava cantava uma nota baixa e perfeita, que dizia: aqui, é aqui que você entra.
 
 A música se encaixou. Duas vozes, três, a de Bruno, a do tambor, a do ferro. A quarta nota ficou no ar.
 
@@ -292,7 +296,7 @@ Não teve força nem para ficar de joelhos. Deitou de lado na laje fria, com a b
 
 Em cima da fonte, a coisa de fumaça ainda flutuava. Estava menor e pálida, quase transparente, e olhava para Beatriz com uma expressão que Beatriz nunca esperou ver naquele rosto. Havia lágrimas nos olhos de leite. Eram duas, pequenas, e escorriam devagar pelas bochechas de fumaça. Não eram raiva. Não eram só dor. Alguma coisa nelas era a das duas moças que dividiram um pão.
 
-A figura baixou o rosto e olhou feio, e as lágrimas sumiram, e ela se virou e fugiu. Foi diminuindo no ar, fio a fio, correndo por cima dos telhados como névoa na direção do mar, até desaparecer na noite que ardia ao longe.
+A figura endureceu o rosto, e as lágrimas sumiram, e ela se virou e fugiu. Foi diminuindo no ar, fio a fio, correndo por cima dos telhados como névoa na direção do mar, até desaparecer na noite que ardia ao longe.
 
 Beatriz fechou os olhos por um instante.
 
@@ -302,7 +306,7 @@ Quando abriu, Breno estava ajoelhado a seu lado, com o rosto lavado de lágrimas
 
 Foi Bruno quem apontou, com o queixo, para o pé da fonte seca.
 
-Beatriz se arrastou até lá, com os dois irmãos ajudando, e se deixou cair ao lado de Shirley. A amiga dormia de lado, com o rosto mole e o cabelo preso na bochecha, e respirava fundo, num ritmo comprido, sem veias, sem teias, sem nada. Era só a Shirley. Estava sem cor, e queimada de sol nas mãos, e tinha uma sujeira de poeira no nariz. Beatriz encostou a testa na dela e chorou como não chorava havia muito tempo.
+Beatriz se arrastou até lá, com os dois irmãos ajudando, e se deixou cair ao lado de Shirley. A amiga dormia de lado, com o rosto mole e o cabelo preso na bochecha, e respirava fundo, num ritmo comprido, sem veias, sem teias, sem nada. Era só a Shirley. Estava sem cor, com as mãos avermelhadas e uma sujeira de poeira no nariz. Beatriz encostou a testa na dela e chorou como não chorava havia muito tempo.
 
 O barulho de uma bengala batendo nas lajes subiu pela rua.
 
@@ -320,7 +324,7 @@ Eles foram. Bruno primeiro, tropeçando, aos prantos, com o tambor batendo contr
 
 Soltou-os devagar. Foi até Shirley, com a perna ruim arrastando, e ajoelhou-se com um gemido ao lado do corpo adormecido. Pousou a palma aberta na testa dela, e as pontas dos dedos brilharam uma cor muito suave, a cor de leite com mel.
 
-Ficou assim por um longo tempo.
+Ficou assim por um longo tempo. Do capuz de Banjo, Farol tinha descido, atravessado as lajes aos pulos e subido no peito de Shirley, e ali se enrolou, com a cauda acesa num dourado parado e firme que Beatriz nunca tinha visto nele. Banjo olhou o bichinho, e Beatriz viu a cara do irmão mudar antes de o velho dizer qualquer coisa.
 
 — Ela vai ficar bem — disse, por fim, olhando para Banjo, que tinha ficado de pé, nas pernas bambas, com o rosto cheio de uma pergunta que não ousava fazer. — Ela está muito cansada. Vai dormir por um bom tempo. Mas está aqui. É ela mesma.
 

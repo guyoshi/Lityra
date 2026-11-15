@@ -4,7 +4,7 @@ Segurava o copo com as duas mãos, como quem esquenta os dedos, e olhava para a 
 
 Sob a palma de Bruno, uma casquinha branca crescia da borda do copo para o meio. Ele esperou até ela ficar do tamanho de uma moeda, olhou para os lados, enfiou o copo no micro-ondas e apertou trinta segundos. Depois ficou de costas para a mesa, de braços cruzados, assobiando.
 
-Breno chegou com seus papéis e seu lápis e se sentou na mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
+Breno chegou com seus papéis e seu lápis e se sentou à mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
 
 Banjo usava o moletom grosso de capuz, apesar do abafado da cozinha, e a barriga do moletom tinha um volume que não existia no ano anterior. De vez em quando o volume se mexia, e uma luz fraca escapava pela gola. Banjo empurrava a coisa para dentro com a palma, por cima do tecido, sem tirar os olhos do gibi.
 
@@ -168,9 +168,7 @@ Beatriz mostrou. As palmas continuavam vermelhas, sem bolha.
 
 — Mel, eu não queria. Eu só tava... — A voz de Beatriz estremeceu. — Ninguém pode saber disso aqui, tá? Nem os meus irmãos. O Breno vai ficar com aquela cara, o Bruno vai fazer piada de um jeito que eu não aguento, e o Banjo vai querer saber tudo e depois ficar com medo de mim.
 
-— Eu nunca contei nada pra eles — disse Melissa. — Nem pra minha mãe, que me pergunta toda hora, e olha que ela é muito boa em arrancar segredo.
-
-— Relaxa... eu nunca trairia minha melhor amiga. Eu já disse que levo pro túmulo, e eu não esqueço do que eu falo.
+— Eu nunca contei nada pra eles — disse Melissa. — Nem pra minha mãe, que me pergunta toda hora, e olha que ela é muito boa em arrancar segredo. Relaxa. Eu já disse que levo pro túmulo, e eu não esqueço do que eu falo.
 
 As duas voltaram para o ensaio devagar.
 
@@ -214,11 +212,11 @@ Beatriz não negou. Olhou para o chão e apertou os lábios.
 
 — Bruno...
 
-— Não é castigo. Ele mesmo falou, lembra? "Conte tudo pra mim". Se der algum problema maior, ele tem que saber. Não quero o tio enchendo o saco porque não contei que minha irmã espalhou a notícia que somos os guardiões de Belfex?
+— Não é castigo. Ele mesmo falou, lembra? "Conte tudo pra mim". Se der algum problema maior, ele tem que saber. E eu não quero o tio enchendo o saco porque não contei que minha irmã espalhou a notícia de que somos os guardiões de Belfex.
 
 — Guardiões de Belfex? — perguntou Melissa.
 
-— Tipo, lá podemos voar, combater o crime, levantar pesos 100 vezes maiores do que os nossos.
+— Tipo, lá podemos voar, combater o crime, levantar pesos cem vezes maiores do que os nossos.
 
 — Você não me contou isso — Melissa arregalou os olhos sorrindo.
 
@@ -292,7 +290,7 @@ A bola subiu torta, bateu num dos galhos, que tremeu. De cima dele um ninho de s
 
 A bola ricocheteou na ameixeira, passou por cima do muro e sumiu na rua. Os quatro saíram resmungando pelo portão lateral para procurá-la, e a mãe sabiá, que estava na grama, soltou um grito fino e curto, repetido, que doía de ouvir. Os filhotes sem pena, de bico aberto no meio das folhas molhadas, não faziam som.
 
-Banjo foi até lá sem pensar muito. Olhou para o galho, alto demais mesmo na ponta dos pés. O tio tinha dito: nem quando ninguém estiver olhando. Ele sabia disso desde a segunda-feira, e sabia também que a caixa de cereal tinha escorregado sozinha diante do tio.
+Banjo foi até lá sem pensar muito. Olhou para o galho, alto demais mesmo na ponta dos pés. O tio tinha dito: nem quando ninguém estiver olhando. Ele sabia disso desde a véspera, e sabia também que a caixa de cereal tinha escorregado sozinha diante do tio.
 
 — Eu ajudo você — sussurrou, para a mãe sabiá. — Não se preocupe.
 
@@ -300,7 +298,7 @@ Olhou ao redor pra ver se ninguém estava vendo e estendeu a mão aberta. O ninh
 
 Banjo ficou de mão estendida, com um sorriso nos lábios. A mãe sabiá voou direto para os filhotes.
 
-Então ouviu algo. Não, sentiu. A árvore parecia emanar um sentimento para seu coração. Banjo encostou a palma no tronco, a casca estava morna, como um cavalo depois de uma corrida. Então um galho da árvore pareceu se mover e fortalecer a base do ninho.  Debaixo do moletom, Farol vibrou no mesmo ritmo, e Banjo sentiu que os dois estavam ouvindo a mesma coisa.
+Então ouviu algo. Não, sentiu. A árvore parecia emanar um sentimento para seu coração. Banjo encostou a palma no tronco, a casca estava morna, como um cavalo depois de uma corrida. Então um galho da árvore pareceu se mover e fortalecer a base do ninho. Debaixo do moletom, Farol vibrou no mesmo ritmo, e Banjo sentiu que os dois estavam ouvindo a mesma coisa.
 
 — Obrigado — disse, baixinho, sorrindo.
 
@@ -326,7 +324,7 @@ Bruno voltou com o suco numa mão e o biscoito na outra, viu a calça molhada do
 
 — Quem foi? — perguntou Bruno, com a voz baixa demais, que era o pior sinal. — Quem molhou a sua calça? Não me diz que foi o zelador, porque o zelador nem ia olhar.
 
-— Ninguém, foi nada — disse Banjo, apertando a barra da camisa sobre a calça. — Eu derrubei o suco, só isso. Já estava secando.
+— Ninguém, foi nada — disse Banjo, apertando a barra da camisa sobre a calça. — Eu escorreguei, só isso. Já está secando.
 
 Bruno olhou ao redor e viu os garotos ainda se afastando dali. Então fechou a cara e se virou pro irmão.
 
@@ -376,9 +374,7 @@ Banjo pegou a bola e ficou segurando sem saber o que fazer.
 
 — Eu sinto tanta... tanta falta de lá, Banjinho.
 
-Banjo sentou no chão.
-
-Banjo puxou a gola do moletom. Farol espiou para fora, uma luz pequena e quente, e piscou devagar para Beatriz.
+Banjo sentou no chão ao lado dela e puxou a gola do moletom. Farol espiou para fora, uma luz pequena e quente, e piscou devagar para Beatriz.
 
 — Ainda tem ele — disse Banjo. — E o seu anel, e o colar da Maria. É tudo o que sobrou de lá.
 
@@ -392,7 +388,7 @@ Os garotos se sentaram. Ele puxou uma cadeira e tinha o rosto cansado e uma deci
 
 — Um ano — disse Frank. — Foi um ano de conversa, de regra, de folha na geladeira, e eu vi cada um de vocês se esforçar. Mas não sei se vamos precisar manter esse segredo por mais tempo.
 
-— Talvez — ironizou o tio. — Eu não sei como ajudá-los com isso, porque eu nunca tive isso. — Bateu de leve no peito. — Entendo o quanto estão ansiosos pra voltar. E tenho certeza que não vai demorar.
+— Eu não sei como ajudá-los com isso, porque eu nunca tive isso — continuou, e bateu de leve no peito. — Entendo o quanto estão ansiosos pra voltar. E tenho certeza que não vai demorar.
 
 Beatriz olhou para Banjo, Banjo olhou para Breno, e o olhar de Breno foi para Bruno, que tinha parado de sorrir.
 
@@ -424,7 +420,7 @@ Alguma coisa mexeu na gola do moletom de Banjo. Farol apareceu com a cabecinha d
 
 Foi perto da esquina da escola que Banjo ouviu um toque agudo no meio da chuva. Ele achou que era a campainha de uma bicicleta, mas não viu nenhuma passando. O som veio outra vez, seguido de uma pausa. Depois tocou de novo, do mesmo jeito. Banjo parou no meio da calçada para escutar melhor, e os irmãos só perceberam alguns passos adiante que ele tinha ficado para trás.
 
-— Tá tocando alguma coisa — disse Banjo, e os irmãos seguiram andando.
+— Tá tocando alguma coisa — disse Banjo.
 
 Bruno girou nos calcanhares com o guarda-chuva pequeno, procurando o som como quem procura o despertador pelo toque. Beatriz puxou a manga de Banjo e apontou com o queixo para a esquina, onde a cortina de chuva se abria um pouco. Lá estava, debaixo de uma cobertura de plástico amarelado que pingava pelas bordas: o orelhão da esquina, de placa descascada, com o fone tremendo no gancho a cada toque. Breno deu de ombros, fechou o guarda-chuva e foi até lá, com a água escorrendo nas costas.
 
@@ -448,7 +444,7 @@ Então a ligação caiu.
 
 Beatriz já estava olhando para o chão, na beira da calçada, onde a água da enxurrada formava uma poça escura do tamanho de uma mesa de jantar. Puxou a manga de Banjo sem tirar os olhos dela.
 
-Os garotos olharam pra onde a menina olhava. Era a mesma poça grande que Beatriz tinha visto, e algo estava estranho nela. O reflexo não era o do céu. Acima deles, o céu era de chumbo. Dentro da poça havia uma cidade de torres altas e curvas, enroladas em espiral, com jardins nos andares e árvores de folhas azuis, e fontes que flutuavam no ar entre elas. Caminhos de luz cruzavam a cidade, e veículos prateados, quase transparentes, deslizavam por eles sob um céu laranja e violeta, com faixas verdes, enormes, que se dobravam devagar como fitas de um vestido. Uma lua muito maior do que qualquer lua da Terra pendia na beirada da água, e entre as torres passava um bando de pássaros que deixavam rastros de luz, como cometas pequenos. Nenhuma daquelas cores estava no céu verdadeiro. Alguma coisa, dentro da poça, estava acesa.
+Os garotos olharam para onde ela olhava. O reflexo não era o do céu. Acima deles, o céu era de chumbo. Dentro da poça havia uma cidade de torres altas e curvas, enroladas em espiral, com jardins nos andares e árvores de folhas azuis, e fontes que flutuavam no ar entre elas. Caminhos de luz cruzavam a cidade, e veículos prateados, quase transparentes, deslizavam por eles sob um céu laranja e violeta, com faixas verdes, enormes, que se dobravam devagar como fitas de um vestido. Uma lua muito maior do que qualquer lua da Terra pendia na beirada da água, e entre as torres passava um bando de pássaros que deixavam rastros de luz, como cometas pequenos. Nenhuma daquelas cores estava no céu verdadeiro. Alguma coisa, dentro da poça, estava acesa.
 
 — É Tayo — disse Beatriz, sem gritar, e a chuva levou a frase.
 
@@ -458,7 +454,7 @@ O zíper da mochila de Banjo se abriu sozinho um palmo, e Farol espiou para fora
 
 — Fica quietinho aí — sussurrou Banjo. Farol não deu a menor bola.
 
-Bruno puxou um sorriso de lado e se abaixou perto da poça. Então, sem avisar, a poça acendeu e água o engoliu de cabeça. Bruno deu um grito que virou gargalhada, e o resto dele sumiu como um fio de linha puxado de uma agulha. Beatriz agarrou a perna dele no último instante e foi levada junto. Breno se atirou para segurar os dois, com o braço estendido, e a poça lhe engoliu um dos braços.
+Bruno puxou um sorriso de lado e se abaixou perto da poça. Então, sem avisar, a poça acendeu e a água o engoliu de cabeça. Bruno deu um grito que virou gargalhada, e o resto dele sumiu como um fio de linha puxado de uma agulha. Beatriz agarrou a perna dele no último instante e foi levada junto. Breno se atirou para segurar os dois, com o braço estendido, e a poça lhe engoliu um dos braços.
 
 — BANJO! — O grito de Breno chegou como um eco muito longe, já dentro d'água. — A MÃO!
 
@@ -476,19 +472,19 @@ Foi quando a mão de Beatriz escorregou da de Banjo.
 
 Ela gritou. A distância entre os dois estava crescendo, esticando, e ela girava para longe como uma folha na enxurrada, com os cabelos abertos e os olhos arregalados, para um lado onde só havia um corredor de luz sem nenhuma parede. Banjo não pensou. Estendeu a mão aberta e puxou, com tudo o que tinha, sem tocar, e sentiu o corpo da irmã na ponta dos próprios dedos, o puxão firme de uma pipa com o fio inteiro nas mãos. Puxou. Beatriz veio girando e bateu no peito dele com a mochila entre os dois.
 
-— Me solta, me solta, me solta — respondeu Beatriz, rindo e chorando, e agarrou o ombro dele com a mão livre.
+— Não me solta, não me solta — disse Beatriz, rindo e chorando, e agarrou o ombro dele com a mão livre.
 
 O estalo de sino veio de novo, o mesmo da outra vez, só que agora Banjo sabia o que vinha depois. O corredor acabou.
 
 Banjo pisou em alguma coisa firme, quase de joelhos, e o peso voltou aos pés. Sentiu, antes de abrir os olhos, um cheiro de chuva em pedra quente, de canela e de pão, e reconheceu o lugar com o corpo todo. A luz de Farol subiu pela mochila inteira, como se ele reconhecesse também.
 
-Estavam num salão enorme, tão grande que as nuvens se juntavam lá no fundo. Acima deles, uma cúpula de vidro mostrava um céu de nuvens de fumaça luminosa, azuis e vermelhas, que se misturavam devagar. Rastros de luz giravam pelo ar, de lado, de cabeça para baixo, sem se importar com o chão. Máquinas a vapor chiavam ao longo das paredes, e tubos transparentes cruzavam o teto com plasma pulsando lá dentro. Atrás deles, um arco de metal líquido ondulava como um espelho de água em pé, com letras de luz: BELFEX – TAYO – CENTRAL DE TRANSPORTE INTERDIMENSIONAL.
+Estavam num salão enorme, tão grande que as nuvens se juntavam lá no fundo. Acima deles, uma cúpula de vidro mostrava um céu de nuvens de fumaça luminosa, azuis e vermelhas, que se misturavam devagar. Rastros de luz giravam pelo ar, de lado, de cabeça para baixo, sem se importar com o chão. Máquinas a vapor chiavam ao longo das paredes, e tubos transparentes cruzavam o teto com plasma pulsando lá dentro. Atrás deles, um arco de metal líquido ondulava como um espelho de água em pé, com letras de luz: BELFEX — TAYO — CENTRAL DE TRANSPORTE INTERDIMENSIONAL.
 
 Bandos de aves vermelhas atravessavam o salão pertinho da cabeça deles, rasgando a penumbra com rastros de cor, e Beatriz abriu os braços e girou no lugar, com a mochila escorrendo pendurada no ombro.
 
 Da mochila aberta, Farol acompanhava uma delas, que se separara do bando e cruzara o salão para o norte, sozinha, sem rastro de cor. Só Banjo reparou.
 
-— A gente voltou — disse. — A gente voltou pra 4ª Dimensão.
+— A gente voltou — disse. — A gente voltou pra quarta dimensão.
 
 — Voltamos — repetiu Breno, com a voz estranha. Colocou a mão na cabeça, tentando disfarçar o rosto. Bruno, ao lado dele, estava deitado no chão de costas, olhando para a cúpula de vidro, e ria sem parar.
 

@@ -40,7 +40,6 @@ Banjo esperou a respiração dos três se acomodar e ficou olhando as estrelas, 
 
 Mas Banjo não esperou a manhã. Acordou antes do sol, com Farol enrolado no pescoço e a sensação desagradável de ter esquecido de apagar uma luz, e desceu a ladeira de Sorevan na ponta dos pés, com os sapatos na mão, até o Edifício Arcano. A porta lateral estava aberta. Uma lanterna de chama azul pendia ao lado da escada, e a enfermaria ficava no segundo andar, no fim de um corredor que cheirava a erva seca e a lençol limpo.
 
-
 Era uma sala comprida, de teto baixo, com seis camas de ferro encostadas na parede e uma janela grande no fundo. Cinco camas estavam vazias, e na última, perto da janela, Nayra dormia de lado, com a fita cinza solta no travesseiro e o cabelo colado na testa.
 
 Lioro estava sentado numa cadeira ao lado dela, com o manto dobrado no colo e as duas mãos entre os joelhos. Levantou a cabeça quando Banjo entrou, e o rosto dele tinha a cor de quem não dormiu e preferia que ninguém reparasse.
@@ -77,7 +76,7 @@ Ele pulou na cadeira. Nayra tinha aberto os olhos, mas não olhava para ele. Olh
 
 — Febre do vento. Eu sei, o meu tio disse. Na última vez eu falava com as cortinas, e elas me obedeciam, e eu achava graça. Dessa vez nada me obedece. — Ela virou o rosto devagar, e os olhos finalmente acharam os dele. Estavam brilhantes demais, com as pupilas pequenas. — Você acha que foi a duna? Eu fiquei com a boca cheia de areia quando o vento virou por dentro. Pode ser que tenha entrado alguma coisa.
 
-— Pode ser. Foi um dia pesado, a gente passou o tempo inteiro suando e correndo, e ainda teve a tempestade. Eu também estou todo moído, olha o meu nariz. Se eu tivesse que apostar, diria que o deserto cansou você e a febre aproveitou.
+— Pode ser. Foi um dia pesado, e ainda teve a tempestade. Eu também estou todo moído, olha o meu nariz.
 
 — O meu tio também falou isso. — Nayra fechou os olhos de novo e a voz diminuiu. — Os dois estão confiantes demais. Eu leio vento desde pequena, Banjo, e vento quebrado eu nunca tinha lido. Dá para ver o lugar onde quebrou. É liso, como uma corda cortada com faca limpa.
 
@@ -102,7 +101,6 @@ Banjo riu, curto, sem querer, e ela quase sorriu de volta.
 Ela dormiu de novo antes que ele terminasse a frase. Banjo ficou olhando o peito dela subir e descer, e o calor sem dono ao redor da cama, e uma pontada de culpa que nem sabia direito de onde vinha. Pensou que devia ter oferecido a torrada, mesmo dormida, mesmo com poeira, e que a menina tinha razão em reclamar do bolso. Pensou também em perguntar aos irmãos se alguém sabia o que era vento quebrado. Descartou a ideia na hora, com um pouco de vergonha, porque Bruno responderia com uma piada, Breno com uma ordem e Beatriz com quarenta perguntas, e nenhum deles resolveria a dor de cabeça de uma menina que só queria ver a próxima prova.
 
 A porta rangeu, e ele achou que fosse Lioro com o chá. Era Shirley.
-
 
 Estava com o cabelo ruivo preso num rabo alto, o uniforme do Arcano passado e uma bolsa de pano pendurada no ombro. Fechou a porta com cuidado, de costas, e atravessou a sala de braços cruzados na frente do peito, no ritmo de quem não quer fazer barulho nem parecer que se esforça para isso.
 
@@ -179,7 +177,7 @@ Banjo apertou a caneca. Não ia contar do fio. Tinha prometido.
 
 — Pode. Quando a Nayra acordar de verdade, e eu espero que seja ao meio-dia, fale com ela como falou ontem, sem pena. Ela detesta pena. — Lioro deu uma risada curta, cansada. — Foi a primeira vez que ela chegou numa cidade nova e fez um amigo no primeiro dia. Eu não vou esquecer isso tão cedo.
 
-Banjo sentiu o peito esquentar. Era a mesma sensação do ponto de água, quando o calor leve de Nayra tinha ocupado o lugar do metal frio, só que agora vinha do tio, com um orgulho cansado por baixo. Ele bebeu o chá em silêncio e deixou o assunto de lado.
+Banjo sentiu o peito esquentar. Bebeu o chá em silêncio e deixou o assunto de lado.
 
 Ficou até o sol aparecer na janela e o sino do Arcano bater as oito. A curandeira, uma senhora baixinha de avental cinza, passou pelo corredor, tomou a temperatura de Nayra com a palma da mão e disse que estava igual, nem pior nem melhor, e que o garoto devia ir tomar café antes que Kali mandasse a guarda atrás dele. Banjo levantou, apertou a mão de Lioro, e na porta olhou uma vez para trás.
 

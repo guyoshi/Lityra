@@ -8,13 +8,13 @@ Bruno olhou a sombra do poço. Estava a um palmo do sapato, o que dava umas duas
 
 — Só isso. É mais difícil do que parece, e eu aposto um pudim que você não passa de vinte passos.
 
-Bruno quase respondeu que aceitava a aposta, mas a boca já tinha virado a favor da mão, e a mão estendida produziu a linha. Ela saiu clara e fina como um fio de pesca, atravessou o pátio sem tocar o chão e foi se firmar na pedra do poço com um estalinho. Banjo apoiou a pedrinha na ponta, mordendo a língua, e a pedrinha começou a andar. Um passo. Dois. Dez. A linha tremia um pouco, e Bruno tremia junto, porque cada vez que ele pensava em manter a linha fina, pensava também em Bia fazendo cara feia diante de um prato de couve, e o gelo engrossava no meio, e ele tinha que raspar o excesso com a cabeça.
+Bruno quase respondeu que aceitava a aposta, mas a mão foi mais rápida que a boca e produziu a linha. Ela saiu clara e fina como um fio de pesca, atravessou o pátio sem tocar o chão e foi se firmar na pedra do poço com um estalinho. Banjo apoiou a pedrinha na ponta, mordendo a língua, e a pedrinha começou a andar. Um passo. Dois. Dez. A linha tremia um pouco, e Bruno tremia junto, porque cada vez que ele pensava em manter a linha fina, pensava também em Bia fazendo cara feia diante de um prato de couve, e o gelo engrossava no meio, e ele tinha que raspar o excesso com o pensamento.
 
 Quinze passos. Dezessete. A pedrinha parou no meio do caminho, porque Banjo tinha olhado para o muro, para onde antes havia uma bola amarela, e a distração dele foi direto para o gelo. A linha rachou da ponta ao centro com um som de dente quebrando.
 
 — Desculpa — disse Banjo. — Eu só...
 
-— Dezessete — disse Velho-Sábio, e passou a mão pela barba. — Um pudim a menos para mim, e um a mais para o Lioro, que tem apostado contra vocês desde segunda. De novo, Bruno.
+— Dezessete — disse Velho-Sábio, e passou a mão pela barba. — Um pudim a menos para mim, e um a mais para o Lioro, que aposta contra vocês desde hoje cedo. De novo, Bruno.
 
 — De novo o quê? — Bruno olhava os pedaços de gelo derretendo na terra. A voz saiu mais alta do que ele queria e ele não fez nada para baixar. — Os meus irmãos sumiram, seu Velho-Sábio! O Breno e a Bia estão dentro de uma máscara, sei lá onde, e o senhor quer que eu fique aqui segurando fio de gelo pra pedra andar? Eu não vou ficar parado. Eu não vou. Chega!
 
@@ -34,7 +34,7 @@ Sentou ao lado dele e ficou quieto o tempo de contar até dez, que era o tempo q
 
 — Eu vou — disse Banjo, depressa demais, e engoliu.
 
-— Beleza. E se o Velho-Sábio descobrir? E se o Bug mentir? E se a brecha for pegadinha e a gente dar de cara na Torre com o Garmande e o Beker de braço dado?
+— Beleza. E se o Velho-Sábio descobrir? E se o Bug mentir? E se a brecha for pegadinha e a gente der de cara na Torre com o Garmande e o Beker de braço dado?
 
 — Aí a gente fala que foi passear.
 
@@ -59,7 +59,7 @@ Bruno passou a mão pelos olhos, depressa, e se levantou.
 — Vem. A gente tem que ajeitar a mochila antes de ele chamar pra jantar.
 
 
-Jantaram sopa de abóbora, e Ivy encheu o prato de Bruno duas vezes sem perguntar, e ele comeu as duas vezes sem sentir o gosto. Velho-Sábio ficou na cabeceira, falando de uma tia que tinha duas cabras com nome de duquesa, e Mereditha, ao lado dele, riu no lugar certo e depois ficou com a colher parada. Lioro e as duas meninas ainda não tinham voltado do treino. Madame dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
+Jantaram sopa de abóbora, e Ivy encheu o prato de Bruno duas vezes sem perguntar, e ele comeu as duas vezes sem sentir o gosto. Velho-Sábio ficou na cabeceira, falando de uma tia que tinha duas cabras com nome de duquesa, e Mereditha, ao lado dele, riu no lugar certo e depois ficou com a colher parada. Shirley, que ia dormir de novo no sofá da sala, comia calada ao lado de Lioro. Madame, a cadela velha da casa, dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
 
 Perto das nove, a casa se recolheu. Bruno ficou deitado no escuro do sótão, de botas e de casaco, com a mochila pronta no pé da cama e os olhos abertos para as vigas. Banjo, na cama de baixo, respirava como quem não dormia e se virava de lado a cada três minutos. Quando o sino da torre do Arcano deu dez badaladas, os dois ouviram, lá fora, o passo de botas ritmado na rua, a ronda dos vigilantes passando pelo portão, uma, depois a conversa baixa deles, e uma lanterna varrendo a fresta da janela e voltando a escurecer.
 
@@ -91,7 +91,7 @@ Bruno abriu a boca e fechou.
 
 — Isso é chantagem — disse, afinal. — Você tá fazendo chantagem sorrindo!
 
-— Juro que é só uma sugestão — disse Shirley, e a risada dela era tão leve que dava vontade de acreditar. — Eu fico quietinha, não atrapalho, e se acontecer alguma coisa eu corro e peço ajuda. A Beatriz foi minha primeira amiga aqui. Eu ouvi o que o Velho-Sábio disse sobre ficar parada, e acho que a gente não é bom em ficar parado.
+— Juro que é só uma sugestão — disse Shirley, e a risada dela era tão leve que dava vontade de acreditar. — Eu fico quietinha, não atrapalho, e se acontecer alguma coisa eu corro e peço ajuda. A Beatriz é minha amiga. E eu ouvi o que o Velho-Sábio disse sobre ninguém sair, e acho que a gente não é bom em ficar parado.
 
 — Ela tem razão — murmurou Banjo, e Bruno o olhou como quem acabava de ser traído por uma colher.
 
@@ -155,7 +155,7 @@ Bruno olhou o laço, e olhou o arco apagado, e pela primeira vez naquele dia ele
 
 — E o pessoal do registro? — perguntou, para ocupar a boca. — O velho ali roncando não vai acordar?
 
-— Ele ronca até o sino — respondeu Bug. — Só que o sino acorda ele. Por isso a brecha dura pouco. Quando o sino da Central bate meia-noite, a lâmpada do livro pisca, o arco acende por baixo do registro, e o tempo de uma batida a passagem fica solta. Eu apago a lâmpada com o dedo antes que ele abra o olho. É a única hora. Se perderem, só no mês que vem.
+— Ele ronca até o sino — respondeu Bug. — Só que o sino acorda ele. Por isso a brecha dura pouco. Quando o sino da Central bate meia-noite, a lâmpada do livro pisca, o arco acende por baixo do registro, e pelo tempo de uma batida a passagem fica solta. Eu apago a lâmpada com o dedo antes que ele abra o olho. É a única hora. Se perderem, só no mês que vem.
 
 — E a volta? — perguntou Shirley, sem a leveza de sempre.
 
@@ -179,9 +179,7 @@ Ferris foi primeiro, de capa batendo, e o lilás o engoliu sem barulho. Shirley 
 
 Primeiro, a passagem puxou o estômago dele para trás, em direção à Central, e o empurrou para a frente ao mesmo tempo, num aperto tão rápido que não deu para ter medo. Depois sentiu um frio no rosto, um frio limpo, com cheiro de coisa que nunca tinha sido respirada. Os pés bateram em alguma coisa dura, e a dureza foi embora.
 
-A dureza foi embora.
-
-Bruno abriu os olhos, e os pés não tinham chão embaixo. A mochila subiu sozinha e bateu de leve na cabeça dele. As botas, que ele havia calçado direito, flutuavam na altura do joelho dele, e uma pedrinha branca, do tamanho de um ovo, passou sem pressa na frente do nariz dele e foi para cima, girando. Ele ia dizer alguma coisa. Ele sempre tinha uma coisa para dizer, uma bobagem, uma piada, um pô, mano. Abriu a boca, pronto para soltar a primeira da noite.
+Bruno abriu os olhos, e os pés não tinham chão embaixo. A mochila subiu sozinha e bateu de leve na cabeça dele. Os cadarços das botas subiam devagar, como algas, e uma pedrinha branca, do tamanho de um ovo, passou sem pressa na frente do nariz dele e foi para cima, girando. Ele ia dizer alguma coisa. Ele sempre tinha uma coisa para dizer, uma bobagem, uma piada, um pô, mano. Abriu a boca, pronto para soltar a primeira da noite.
 
 À volta dele, até onde os olhos alcançavam, havia milhares de pedras pequenas e grandes, brancas, cor de pérola e de leite, flutuando em silêncio no ar, devagarinho, como neve que tivesse esquecido de cair. Cada uma delas guardava um pontinho de luz dentro de si, e a luz pulsava, lenta, no ritmo de uma respiração. Mais longe, as pedras maiores, do tamanho de casas, giravam preguiçosas com cachos de raízes e de flores penduradas, e no meio delas corria um rio de luz dourada, sem leito, serpenteando no ar. O céu era roxo e rosa e verde-água, tudo ao mesmo tempo, sem sol, e no alto um anel muito largo e muito fino atravessava o horizonte, brilhando como o aro de uma lua. E havia um som, bem baixinho, vindo de todos os lados, uma nota comprida como o dedo de alguém passando na borda de um copo de vidro.
 

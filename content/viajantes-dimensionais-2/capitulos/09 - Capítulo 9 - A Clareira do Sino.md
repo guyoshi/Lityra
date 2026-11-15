@@ -84,7 +84,7 @@ Andaram por um trecho em que o chão virava tábuas de raiz lisa, sob copas tão
 
 — O senhor Graven não conta passos. Conta luz. E a luz fica com você.
 
-Ela pôs a própria lanterna no chão, entregou-lhe uma nota funda, que durou um instante, e sumiu na penumbra de um tronco, sem que Banjo ouvisse um único passo. Ele ficou parado no meio das raízes, segurando a lanterna num círculo de luz do tamanho de uma mesa, e começou a cantar, com a voz mais fina do que pretendia, o som que ela tinha deixado. A luz se estabilizou, mas era só dele. Os troncos mudaram de sensação. O frio voltou, subindo devagar, como um dedo gelado nas costas.
+Ela ajeitou a própria lanterna na mão, entregou-lhe uma nota funda, que durou um instante, e sumiu na penumbra de um tronco, sem que Banjo ouvisse um único passo. Ele ficou parado no meio das raízes, segurando a lanterna num círculo de luz do tamanho de uma mesa, e começou a cantar, com a voz mais fina do que pretendia, o som que ela tinha deixado. A luz se estabilizou, mas era só dele. Os troncos mudaram de sensação. O frio voltou, subindo devagar, como um dedo gelado nas costas.
 
 Farol soltou um brilho dourado fraco da gola do moletom, e Banjo apertou os dedos na armação de cobre.
 
@@ -96,7 +96,7 @@ Banjo foi.
 
 Andou dobrando raízes e escorregando em folhas de borda prateada, com a lanterna balançando e a voz a falhar, até que a nota soou pela terceira vez, mais perto, e ele viu luz à frente, em vários pontos, vermelha, amarela, uma azul tão fraca que parecia estar com sono. Era uma encruzilhada de seis caminhos, com um tronco oco enorme no meio, cheio de rachaduras que soltavam um som de vento, e em volta dele, com cara de quem tinha perdido o jogo e o caminho, estavam cinco duplas.
 
-— O senhor chegou — disse Breno, de pé ao lado de Denis, com a lanterna quase apagada, um fiapo de luz do tamanho de um grão. — Faz dezoito minutos que eu tento fazer um som que o Denis não repita. Não é possível.
+— Você chegou — disse Breno, de pé ao lado de Denis, com a lanterna quase apagada, um fiapo de luz do tamanho de um grão. — Faz dezoito minutos que eu tento fazer um som que o Denis não repita. Não é possível.
 
 — Eu não repito por querer! — Denis tinha a voz cheia de eco, e o eco tinha a voz cheia de raiva. — O Breno canta embaixo, eu em cima, o bosque devolve no meio, e fica... fica... ica... errado!
 
@@ -130,9 +130,7 @@ Houve um silêncio longo. A lanterna de Brenda tremeu.
 
 — O tempo — respondeu Banjo, depressa. — E os pontos. Mas a gente tá parado mesmo, né?
 
-— Ele tem razão — disse Brenda, e foi a primeira vez que alguém tomou o lado de Banjo naquela manhã. Pôs a lanterna no chão e se aproximou, com a nota ainda saindo da boca em fio. — Eu seguro a minha desde que a de vocês apagou. Ela ficou mais forte quando o Denis falou, sem querer, na mesma nota. Eu percebi e não soube o que fazer.
-
-— O Dário pode controlar a respiração das duas lanternas ao mesmo tempo — acrescentou ela, ao lado. — Ele só precisa de um jeito de ajudar.
+— Ele tem razão — disse Brenda, e foi a primeira vez que alguém tomou o lado de Banjo naquela manhã. Pôs a lanterna no chão e se aproximou, com a nota ainda saindo da boca em fio. — Eu seguro a minha desde que a de vocês apagou. Ela ficou mais forte quando o Denis falou, sem querer, na mesma nota. Eu percebi e não soube o que fazer. E o Dário pode ajudar, ele só precisa de um jeito.
 
 — Eu ajudo segurando o tom da Brenda — disse Dário, devagar. — Eu não canto, mas consigo manter uma coisa no mesmo lugar.
 
@@ -194,7 +192,15 @@ Ele ficou calado um instante, olhando a tábua. Banjo percebeu que as mãos de G
 
 — O senhor Banjo percebeu o que o bosque queria. O senhor Breno decidiu arriscar a proposta. A senhorita Brenda segurou o meio, o senhor Dário o fundo, e a senhorita Eshley fez a conta que fechou o resto. Nenhum deles teria saído sozinho, e isso não consta do regulamento. As sete duplas dividem o primeiro lugar, com a pontuação mais alta que já anotei.
 
-Alguém bateu palmas, e logo as palmas se espalharam. Eshley assobiou, de dois dedos. Beatriz gritou "de novo!", sem saber de que, pulando de pé em pé. Yuri bateu no ombro de Banjo com uma força que quase o derrubou, e Bruno, de braços cruzados, deu um aplauso curto, de quem não queria dar, e depois um segundo, de quem queria. — Foi sorte — disse. — Mas foi sorte bem cantada. Breno não bateu palmas. Anotou alguma coisa no caderno, olhou o irmão com os olhos apertados e disse só: — Da próxima vez avisa antes de trocar a ordem. Mas deu certo. — Para Breno, era muito.
+Alguém bateu palmas, e logo as palmas se espalharam. Eshley assobiou, de dois dedos. Beatriz gritou "de novo!", sem saber de quê, pulando de pé em pé. Yuri bateu no ombro de Banjo com uma força que quase o derrubou, e Bruno, de braços cruzados, deu um aplauso curto, de quem não queria dar, e depois um segundo, de quem queria.
+
+— Foi sorte — disse. — Mas foi sorte bem cantada.
+
+Breno não bateu palmas. Anotou alguma coisa no caderno e olhou o irmão.
+
+— Da próxima vez avisa antes de trocar a ordem — disse, com os olhos apertados. — Mas deu certo.
+
+Para Breno, era muito.
 
 Banjo sentiu o rosto esquentar até as orelhas. Olhou para Shirley, para dividir o que não cabia só nele.
 

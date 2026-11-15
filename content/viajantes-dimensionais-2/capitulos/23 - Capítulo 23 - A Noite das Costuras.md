@@ -1,4 +1,4 @@
-Banjo sentiu o medo de Bug antes de entender o que sentia. Veio do fundo do salão, por cima de trezentas cabeças, um gosto de metal morno e de leite azedo que se enrolou nele como a língua de um gato. Era o gosto de alguém que acabou de ser visto.
+Banjo sentiu o medo de Bug antes de entender o que sentia. Veio do fundo do salão, por cima de trezentas cabeças, um gosto de metal morno e de leite azedo que se enrolou nele como a língua de um gato. Era o gosto de alguém que acabou de ser visto. No capuz, Farol apagou a cauda de uma vez e virou o focinho para o fundo do salão, e foi por ele que Banjo soube de que lado vinha.
 
 Mas Velho-Sábio já estava de pé na frente deles, e o salão, que um minuto antes só sabia apontar e gritar, de repente tinha dono.
 
@@ -32,7 +32,7 @@ Todos olharam. Bug estava pálido por baixo do pelo castanho, e o colete de bols
 
 — Ele mandou a Pipa — disse Kalev.
 
-Foi a primeira coisa que Kalev disse desde que tinham chegado, e a voz saiu rouca, de quem não usava por muito tempo. Ele levantou os olhos fundos para o fundo do salão e ficou olhando para Bug com uma calma que dava mais medo do que um grito, e Banjo, que sentia o que os outros sentiam, percebeu que era a calma de uma pessoa que tinha passado muito tempo sozinha dentro de uma casa flutuante, pensando só nisto.
+Foi a primeira coisa que Kalev disse desde que tinham chegado, e a voz saiu rouca, de quem não usava por muito tempo. Ele levantou os olhos fundos para o fundo do salão e ficou olhando para Bug com uma calma que dava mais medo do que um grito, e Banjo, que sentia o que os outros sentiam, percebeu que era a calma de uma pessoa que tinha passado muito tempo sozinha dentro de uma cabana de pedra, pensando só nisto.
 
 — Eu desconfiava de um informante, Velho-Sábio. — Kalev levantou a mão livre, devagar, e abriu os dedos. — Só não sabia que era um menino.
 
@@ -56,7 +56,7 @@ Bug fechou os olhos. As lágrimas desceram pelo pelo molhado do rosto.
 
 — Primeiro o mago, porque a máscara escolhia quem era forte, e ele disse que o mago mais forte de Belfex acordava a que estava presa. Depois a menina, que tinha o toque. A máscara não quis a menina, então tinha que ser outro. — A voz dele quebrou. — O de óculos. Ele disse que ia ser o de óculos, que só precisava de alguém que fosse se oferecer por um irmão, e que isso era a coisa mais fácil do mundo, porque aquele ali se oferecia por qualquer um.
 
-Banjo ouviu isso e sentiu um frio no estômago que não era de chuva. Lembrou do capim ferrugem, da mão de pedra que não apertava, da voz da máscara repetindo que ele era diferente dos outros, e de como tinha achado que aquela escolha tinha sido dele.
+Banjo ouviu isso e sentiu um frio no estômago que não era de chuva. Lembrou do capim ferrugem, da máscara dizendo o nome dele errado no começo, como quem chama um gato que nunca teve, e de como tinha achado que aquela escolha tinha sido dele.
 
 — E depois? — A voz de Velho-Sábio ficou ainda mais baixa. — O que acontecia depois que a Velha saísse da gaveta e o livro voltasse a quem era dele? O que o Korvo disse que viria a seguir?
 
@@ -81,6 +81,7 @@ Velho-Sábio saiu mancando com Garmande e os guardas, levando o traio pendurado 
 Banjo sentiu a mão de Shirley se mexer no joelho dele. Olhou para baixo. Ela tinha aberto os olhos, devagar, e piscava para a luz, e quando viu o rosto dele sorriu um sorriso cansado, tão familiar e tão certo que ele sentiu os ombros desabarem de alívio.
 
 — Banjo — disse ela, bem baixinho. — Eu fiquei muito tempo apagada?
+
 Beatriz nunca tinha sentido tanto frio por dentro e por fora ao mesmo tempo.
 
 Estava sentada num banco de madeira perto da coluna, enrolada no casaco comprido de Velho-Sábio e num cobertor da Vigilância por cima, com os pés descalços no chão de pedra e os cabelos pingando nas costas. As botas tinham ficado em algum lugar do precipício. A palma da mão cortada ardia debaixo de um pano que Lioro tinha amarrado ao redor, e o dedo onde o anel tinha estado parecia mais leve que os outros e mais nu, uma marquinha branca de pele sem sol. Ela ficava olhando para ele sem perceber.
@@ -89,7 +90,7 @@ O salão tinha voltado a falar, mas falava de um jeito que ela conhecia bem. Bai
 
 — Bia. — A voz de Shirley chegou ao lado dela, macia, e uma mão quente e úmida pousou em seu joelho. — Vem comigo um pouquinho?
 
-Shirley estava de pé, com o cobertor jogado nos ombros como uma capa, o cabelo escuro preso num rabo de cavalo torto e os olhos castanhos com olheiras profundas e o mesmo brilho de sempre. Parecia muito mais jovem do que Beatriz lembrava. Tinha o sorriso pequeno de quem acabou de acordar de um sono bom e ainda não sabe o que perdeu.
+Shirley estava de pé, com o cobertor jogado nos ombros como uma capa, o cabelo ruivo preso num rabo de cavalo torto e os olhos castanhos com olheiras profundas e o mesmo brilho de sempre. Parecia muito mais jovem do que Beatriz lembrava. Tinha o sorriso pequeno de quem acabou de acordar de um sono bom e ainda não sabe o que perdeu.
 
 — Pra onde? — perguntou Beatriz.
 
@@ -119,7 +120,7 @@ Shirley notou. Não disse nada. Sentou-se ao lado dela, de pernas cruzadas, com 
 
 — Mas teve uma parte boa. — Shirley virou o rosto, e os olhos dela brilhavam de travessura. — O Bruno enrolado no cobertor feito pão de queijo, com o queixo para fora. Eu quase morri.
 
-Beatriz franziu a testa e depois riu, porque a imagem era mesmo boba, e porque junto dela vieram outras: Bruno gritando que o gelo era para escorregar menos, Shirley absorvendo raio na subida e dizendo que era cosquinha, ela própria batendo o pé na pedra porque o pé estava quente demais, e Banjo sangrando pelo nariz e dando bronca nos três. As lembranças vieram aos pedaços, cada uma mais boba que a outra, e a risada foi crescendo, e a de Shirley veio junto. Riram até Beatriz ter que apertar a barriga com a mão cortada, e a dor da palma só fez a risada piorar. Foi a primeira vez em muito tempo que rir era só rir.
+Beatriz franziu a testa e depois riu, porque a imagem era mesmo boba, e porque junto dela vieram outras: Breno agarrado no bicho de gelo gritando "com as DUAS", a bota que tinha ficado com a criatura, o urso de colete cobrando botão, e um cabritinho chamado Bruno Segundo que ela ainda nem tinha conhecido. As lembranças vieram aos pedaços, cada uma mais boba que a outra, e a risada foi crescendo, e a de Shirley veio junto. Riram até Beatriz ter que apertar a barriga com a mão cortada, e a dor da palma só fez a risada piorar. Foi a primeira vez em muito tempo que rir era só rir.
 
 — Meu Deus. — Beatriz enxugou os olhos. — Eu estava precisando disso.
 
@@ -186,6 +187,7 @@ A porta do corredor se escancarou atrás dela com um estrondo, e Velho-Sábio en
 — Afaste-se dela, Beatriz!
 
 O que saiu de Shirley foi um grito.
+
 Breno estava com a cabeça de Banjo no ombro e com a mão sobre o diapasão, que continuava frio e mudo no pulso, e olhava para uma poça de chá que escorria entre as pedras, quando ouviu a palavra.
 
 *NÃO!*
@@ -299,6 +301,7 @@ Foi como cair em mel. A velocidade caiu de repente, o estômago desceu de volta 
 Grimaldus Graven estava de pé no meio da rua, de braços abertos e barba tremendo, suado e ofegante, com a tábua de contas quebrada pendurada em uma das mãos.
 
 — Eu tenho sessenta e dois anos — disse. — Fiquem sabendo que eu tenho sessenta e dois anos e não faço isso duas vezes no mesmo dia.
+
 Bruno sempre achou que, se um dia acontecesse uma coisa realmente terrível, ele ia pelo menos fazer uma piada. Descobriu, de quatro na rua molhada, com a máscara abraçada no peito e a boca cheia de sabor de ferro, que isso era mentira.
 
 — Em pé, em pé, em pé! — Grimaldus passava de um por um, puxando pelas golas com as mãos enormes, sem cerimônia. A tábua de contas tinha rachado no meio e ele ainda a segurava, quase por teimosia. — Vocês estão inteiros? Estão. Muito bem. Agora escutem, porque eu só vou falar uma vez.
@@ -353,13 +356,13 @@ Foi um pouco de cada vez. O primeiro lampião do fim da rua estremeceu e apagou,
 
 — Para trás — disse Breno, baixinho, e a voz dele soou grossa no ar quieto. — Para dentro de uma porta, rápido.
 
-Escolheram um portal fundo, de pedra, com uma porta fechada e um degrau alto, e se apertaram lá dentro os cinco, com Lioro deitado no degrau e Beatriz agarrada com as duas mãos à própria blusa. Bruno encostou a máscara no peito com o queixo por cima, para abafar o choro dela, e fechou os olhos.
+Escolheram um portal fundo, de pedra, com uma porta fechada e um degrau alto, e se apertaram lá dentro os cinco, com Lioro deitado no degrau e Beatriz agarrada com as duas mãos à própria blusa. Banjo enfiou Farol por dentro da camisa e fechou as mãos por cima, porque a cauda dourada era a única luz que sobrava na rua inteira, e o bichinho entendeu e se apagou sozinho, tremendo contra o peito dele. Bruno encostou a máscara no peito com o queixo por cima, para abafar o choro dela, e fechou os olhos.
 
 O silêncio cresceu.
 
 Ele sentiu que a coisa passava. Não via, de olhos fechados, nem queria ver. Sentia pelo frio: um frio diferente do dele, um frio que não era gelo, que era falta de calor, de luz, de qualquer coisa viva que sobrasse. Passou rente ao degrau. Parou. Bruno ouviu uma espécie de respiração comprida e rasa, que sugava o ar para dentro e não o soltava de volta.
 
-— Ela está procurando — murmurou Banjo, tão baixinho que Bruno mais leu nos lábios do que ouviu. — Ela está com fome de qualquer coisa que se mexa.
+— Ela está procurando — murmurou Banjo, tão baixinho que Bruno mais leu nos lábios do que ouviu. — Ela está com fome de qualquer coisa que se mexa ou que brilhe.
 
 Breno ergueu o pulso devagar. O diapasão de fio azul tinha começado a zumbir de novo, tão baixo que parecia um gato dormindo, e ele o aproximou do ouvido, de olhos fechados. Bruno viu o rosto do irmão se contrair, a testa vincar, os dentes cerrarem. Breno queria ouvir onde ela estava. Queria ouvir exatamente. Apertou o cabo com os dois dedos, e apertou mais, no jeito teimoso dele de quando tentava ouvir uma coisa que não queria ser ouvida.
 
@@ -373,11 +376,11 @@ O diapasão partiu ao meio com um estalo seco, bem curto, e uma ponta do metal e
 
 A escuridão virou a cabeça. Bruno sentiu. A criatura que andava na rua parou de respirar no meio do ar, e um segundo se passou tão comprido que ele contou seis batidas do próprio coração, e não houve mais nada. Nem bicho, nem sombra. Só o sino distante e a chuva.
 
-Depois a coisa foi embora. Um lampião acendeu do outro lado da rua, um outro mais ao longe, e a luz voltou a cair nas poças como se nada tivesse acontecido.
+Depois a coisa foi embora. Um lampião acendeu do outro lado da rua, um outro mais ao longe, e a luz voltou a cair nas poças como se nada tivesse acontecido. Só então a gola da camisa de Banjo se mexeu, e uma cauda do tamanho de um dedo acendeu, tímida, um pontinho dourado entre os botões, esperando permissão.
 
 Bruno soltou o ar.
 
-— Eu quebrei — disse Breno, baixinho, olhando as duas metades. — O Velho-Sábio avisou. Eu apertei demais.
+— Eu quebrei — disse Breno, baixinho, olhando as duas metades. — Eu apertei demais. De novo.
 
 — Ainda toca? — perguntou Banjo.
 
@@ -425,7 +428,7 @@ McCroys ficou olhando. As sobrancelhas subiram outro milímetro.
 
 Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fechou em volta dele uma caixa maior, lisa, brilhando de leve, com o repolho e os dois gêmeos dentro. Erick bateu com a palma na parede da caixa. Nicolas se sentou sobre o próprio sapato.
 
-— Aí vocês ficam até eu abrir — disse McCroys. — Ninguém morre dentro de uma caixa minha, e eu nunca perdi um aluno nem pretendo começar hoje. Vocês quatro, para a casa do Lioro, rápido. E digam a ele, quando acordar, que agora o favor é meu e a conta virou.
+— Aí vocês ficam até eu abrir — disse McCroys. — Ninguém morre dentro de uma caixa minha, e eu nunca perdi um aluno nem pretendo começar hoje. Vocês quatro, para a casa do Lioro, rápido. E digam a ele, quando acordar, que agora quem deve um favor é ele.
 
 Voltou para a criatura seguinte, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
 
@@ -457,7 +460,7 @@ Banjo demorou a responder. Bruno viu o irmão fechar os olhos e abrir de novo, e
 
 Foi nesse momento que o lampião do outro lado da praça se apagou.
 
-Depois o seguinte. Depois o último, o que ficava junto à porta da casa de Lioro, e a luz quente da cozinha, e Bruno se levantou tão rápido que a máscara quase caiu. A praça ficou iluminada só pela claridade fraca da cidade em chamas, de longe, uma luz suja de verde e laranja.
+Depois o seguinte. Depois o último, o que ficava junto à porta da casa de Lioro, e com ele a luz quente da cozinha. Bruno se levantou tão rápido que a máscara quase caiu. A praça ficou iluminada só pela claridade fraca da cidade em chamas, de longe, uma luz suja de verde e laranja.
 
 Sentada na borda da fonte, onde não estava um segundo antes, de pernas cruzadas e mãos no colo, com o cabelo molhado caído sobre o ombro, havia uma moça de camisa de condutor emprestada. Olhava para eles com a cabeça um pouco inclinada, sorrindo com a gentileza de sempre.
 

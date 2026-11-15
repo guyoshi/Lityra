@@ -119,7 +119,7 @@ Ele levou uma por uma as oito varas de volta ao portão, sem usar as mãos, só 
 
 Na quarta à noite o quarto de cima parecia mais cheio do que era, com as três camas encostadas na parede, três mochilas no chão e as paredes de pedra devolvendo qualquer som um pouco maior do que ele tinha saído. Breno dormia numa das camas, de barriga para cima, com as duas mãos enroladas em faixas limpas que a mãe de Lioro tinha trazido sem dizer uma única palavra, só estendendo a mão para ele e entregando um pote de unguento cheirando a casca queimada.
 
-— Fica quieto, véi — sussurrou Bruno, de joelhos no chão, com uma caneca de água diante de si. — Vou congelar essa água sem rachar a caneca. Sem rachar. Consegui hoje de manhã na cozinha e a Brenda nem tava vendo. Quero conseguir de novo pra dizer que foram duas vezes.
+— Fica quieto, véi — sussurrou Bruno, de joelhos no chão, com uma caneca de água diante de si. — Vou congelar essa água sem rachar a caneca. Sem rachar. Consegui hoje de manhã na cozinha e ninguém tava vendo. Quero conseguir de novo pra dizer que foram duas vezes.
 
 — Você falou que era para o Breno ver. — Banjo estava sentado de pernas cruzadas na cama de baixo, com os óculos escorregando e as mãos viradas para cima, concentrado num ramo fino da árvore que balançava do lado de fora da janela, e que, desde o começo da noite, ele tentava fazer bater duas vezes no vidro, devagar, sem forçar. — Ele está dormindo.
 

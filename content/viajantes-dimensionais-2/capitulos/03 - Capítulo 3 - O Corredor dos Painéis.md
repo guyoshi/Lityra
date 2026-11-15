@@ -290,7 +290,7 @@ Do outro lado vinha um grupo de rapazes rindo alto. Um deles, de camisa amarela 
 
 — Ah. — Bruno olhou, deu de ombros e foi procurar outra coisa para olhar. Banjo ficou vermelho até a raiz do cabelo. Não sabia por que tinha dito aquilo em voz alta, e não teve tempo de pensar nisso, porque Denis vinha atrás, com o dedo apontado para o fim do corredor.
 
-— Olha ali. O Vanterre. — Denis falava como quem apresenta um monumento. — Dário Vanterre. Chegou no meio do ciclo passado, de outra ala, e já é o garoto que todo mundo conhece. O pai dele banca metade das lojas da Largo dos Ponteiros. Dizem que pagou o conserto do teto do salão de treino sem ninguém pedir. Tem dinheiro, tem estilo...
+— Olha ali. O Vanterre. — Denis falava como quem apresenta um monumento. — Dário Vanterre. Chegou no meio do ciclo passado, de outra ala, e já é o garoto que todo mundo conhece. O pai dele banca metade das lojas do Largo dos Ponteiros. Dizem que pagou o conserto do teto do salão de treino sem ninguém pedir. Tem dinheiro, tem estilo...
 
 — Tem podres — completou Amadou.
 
@@ -314,7 +314,7 @@ Bruno assentiu devagar. Banjo reparou que ele tinha parado de rir e continuava o
 
 Quando voltaram ao refeitório, a luz entrava inclinada pelas janelas, e a mesa tinha ganhado mais gente. Yuri equilibrava uma pilha de pratos na ponta de um dedo, Kevin e Khalil dividiam uma travessa de legumes assados, e Eshley segurava a colher parada no ar sobre a sopa. Shirley ouvia Denis falar, de olhos meio fechados, e parecia ter desistido de interromper.
 
-— Eu só repito o que dizem — dizia Denis. — Que o Kalev se cansou, que brigou com o conselho, que pegou a bagagem e foi embora sem avisar o filho. Eu não acredito, mas é o que se ouve na Largo dos Ponteiros. E tem uma coisa pior, que um senhor falou na fila do pão, de cara muito séria. Que desde que os dimensais apareceram em Tayo as coisas somem mais, e que quem mexe com o que não entende acaba sumindo junto.
+— Eu só repito o que dizem — dizia Denis. — Que o Kalev se cansou, que brigou com o conselho, que pegou a bagagem e foi embora sem avisar o filho. Eu não acredito, mas é o que se ouve no Largo dos Ponteiros. E tem uma coisa pior, que um senhor falou na fila do pão, de cara muito séria. Que desde que os dimensais apareceram em Tayo as coisas somem mais, e que quem mexe com o que não entende acaba sumindo junto.
 
 — Dimensais mexem com o que entendem — disse Khalil, sem levantar os olhos da travessa. — Mais ou menos.
 
@@ -352,7 +352,7 @@ Ferris Montfort estava de pé, com a bandeja numa das mãos e o capacete debaixo
 
 — Eu estava perto — disse Shirley.
 
-— Perto o bastante para contar onze minutos. — Ferris pousou a bandeja no canto da mesa, sem sentar, e apoiou o capacete ao lado. — O Cachorro tem razão numa coisa. Todo mundo está falando, e a versão da Largo dos Ponteiros é a pior. Então eu vou dizer uma vez só, pra ninguém precisar perguntar.
+— Perto o bastante para contar onze minutos. — Ferris pousou a bandeja no canto da mesa, sem sentar, e apoiou o capacete ao lado. — O Cachorro tem razão numa coisa. Todo mundo está falando, e a versão do Largo dos Ponteiros é a pior. Então eu vou dizer uma vez só, pra ninguém precisar perguntar.
 
 A mesa ficou em silêncio. Até a lamparina parou de mudar de cor.
 

@@ -8,7 +8,7 @@ A passagem de quatro traços abriu num terraço de nuvem, e Bruno resolveu que n
 
 — Foi isso que eu falei para ele. Mas ele disse que essa não parece nuvem de piscar, e eu achei justo.
 
-Ferris riscou o traço de três na pedra de um poste enfiado na nuvem, e Shirley abriu a costura com os dedos, de baixo para cima, devagar, e entraram um atrás do outro numa luz que cheirava a chuva. Bruno foi o último, e antes de passar ainda olhou o terraço mais uma vez. Detestou concluir que tinha gostado.
+Ferris achou os três traços na pedra de um poste enfiado na nuvem, e Shirley abriu a costura com os dedos, de baixo para cima, devagar, e entraram um atrás do outro numa luz que cheirava a chuva. Bruno foi o último, e antes de passar ainda olhou o terraço mais uma vez. Detestou concluir que tinha gostado.
 
 A passagem de dois traços abriu numa aldeia de cabras.
 
@@ -160,7 +160,7 @@ O que Odilon contou depois disso Bruno ouviu com uma orelha só. Falou da cozinh
 
 Era um baú pequeno, de madeira escura, encostado no teto, com a tampa pendurada, que o velho mantinha amarrado por dentro com uma corda. Ferris olhava para ele havia um bom tempo.
 
-— O senhor falou de um homem — disse, cortando o meio da frase do velho, com a voz bem baixa. — Há pouco. O senhor disse que a última visita foi há sessenta anos, mas que antes disso, ou depois, passou um que o senhor não gostou menos. Um de casaco escuro, barba.
+— O senhor falou de visita — disse, cortando o meio da frase do velho, com a voz bem baixa. — Passou um homem por aqui, faz pouco tempo? Sozinho, de casaco escuro, barba.
 
 — Barba? — Odilon coçou a cabeça. — Ah, o barbudo! Esse é recente, faz uma temporada, não sei, um mês de lua. Veio sozinho, com um caderno, perguntou da beirada, eu contei a lenda inteira, e ele ouviu com muita atenção, só que foi embora sem tomar o chá, o que eu acho uma falta de educação.
 
@@ -174,7 +174,7 @@ O velho girou no ar, agarrou o baú com as duas mãos e o abriu, e de dentro tir
 
 Ferris abriu o papel. A letra era miúda, inclinada, de quem escreve depressa e com capricho ao mesmo tempo, e Bruno, que não era de ler, reconheceu na hora a letra do desenho do chão da sala. Ferris começou a ler em voz alta, devagar, e a voz dele saía contida.
 
-— "Ferris. Se alguém encontrou isto, e se esse alguém é você, eu fui tolo duas vezes. A primeira por ter vindo sozinho. A segunda por não ter te dito antes de sair. Ouvi em Central uma coisa que não devia ter sido dita em voz alta, e fui atrás por três razões que eu te explico quando voltar. A primeira é que há em Central alguém que conta a Korvo o que a Sociedade não devia contar, e eu não sei quem é, e por isso não pude confiar em ninguém além do Velho-Sábio, que eu preferi não envolver. A segunda é que..."
+— "Ferris. Se alguém encontrou isto, e se esse alguém é você, eu fui tolo duas vezes. A primeira por ter vindo sozinho. A segunda por não ter te dito antes de sair. Ouvi na Central uma coisa que não devia ter sido dita em voz alta, e fui atrás por três razões que eu te explico quando voltar. A primeira é que há na Central alguém que conta a Korvo o que a Sociedade não devia contar, e eu não sei quem é, e por isso não pude confiar em ninguém além do Velho-Sábio, que eu preferi não envolver. A segunda é que..."
 
 Ele fez uma pausa curta. Banjo, perto dele, estendeu a mão e quase tocou o braço de Ferris, e não tocou.
 
@@ -226,7 +226,7 @@ A subida começou numa encosta de pedra solta. A cada passo a pedra de baixo esc
 
 — É só um pouquinho. — Banjo se agachou, com Farol espiando do capuz. — Eu aguento mais três assim. Quatro, se ninguém me disser que eu estou sangrando.
 
-Ferris subia na frente, rápido, com as mãos e os pés achando as fendas, e pareciam já conhecer o lugar, e a cada trecho firme prendia a corda numa saliência e jogava a ponta para baixo. Foi ele quem avisou do paredão, uma parede lisa de rocha preta, polida pelo vento, sem uma fenda sequer. Bruno olhou para cima, olhou para a corda que balançava solta lá no alto e pôs a palma da mão na rocha. O frio saiu dele sozinho, rápido, e uma geada branca correu pela pedra, engrossou, e dela nasceu um degrau de gelo, depois outro, subindo em curva pela parede. O sino de gelo bateu na cabeça dele no ritmo dos degraus, e ele subiu criando a escada debaixo dos próprios pés, com os outros atrás.
+Ferris subia na frente, rápido, com as mãos e os pés achando as fendas como se já conhecessem o lugar, e a cada trecho firme prendia a corda numa saliência e jogava a ponta para baixo. Foi ele quem avisou do paredão, uma parede lisa de rocha preta, polida pelo vento, sem uma fenda sequer. Bruno olhou para cima, olhou para a corda que balançava solta lá no alto e pôs a palma da mão na rocha. O frio saiu dele sozinho, rápido, e uma geada branca correu pela pedra, engrossou, e dela nasceu um degrau de gelo, depois outro, subindo em curva pela parede. O sino de gelo bateu na cabeça dele no ritmo dos degraus, e ele subiu criando a escada debaixo dos próprios pés, com os outros atrás.
 
 O primeiro raio desceu quando Bruno estava no meio do paredão.
 
@@ -248,7 +248,7 @@ Uma força o agarrou pelo colarinho no meio do ar. Era invisível, firme, um pou
 
 Subiram o resto do paredão assim, os quatro juntos, cada um fazendo o que sabia, Bruno com o gelo, Banjo segurando o que caía, Ferris prendendo a corda e Shirley engolindo os raios um a um. Quando atravessaram a nuvem, o vento parou de uma vez, esquecido do que fazia, e eles chegaram ao cume de roupas fumegando, de bocas abertas, deitados de costas numa pedra lisa e quente, olhando o céu laranja voltar por cima deles e o trovão continuar embaixo, abafado, como uma briga de vizinhos.
 
-Bruno levantou primeiro. O cume era plano, de rocha cinzenta, e acabava de repente. Chegou a dez passos da borda e parou, com o estômago apertado. A terra terminava num corte limpo, e o que vinha depois era só ar, um ar espesso, cor de fumaça, que subia devagar, e lá embaixo, muito longe, brilhava uma coisa que podia ser um rio ou podia ser uma lembrança.
+Bruno levantou primeiro. O cume era plano, coberto do mesmo capim cor de ferrugem, e acabava de repente. Chegou a dez passos da borda e parou, com o estômago apertado. A terra terminava num corte limpo, e o que vinha depois era só ar, um ar espesso, cor de fumaça, que subia devagar, e lá embaixo, muito longe, brilhava uma coisa que podia ser um rio ou podia ser uma lembrança.
 
 Na beirada havia uma estátua.
 
@@ -258,7 +258,7 @@ Cinza fosco de pedra de rio. Testa lisa. Uma rachadura clara descendo do lado es
 
 Bruno ouviu Ferris soltar o ar, bem de leve, como quem acaba de tirar uma pedra do peito e não sabe se aliviou ou se vai cair.
 
-— Voltou — disse Shirley, baixinho. — Ela voltou para o lugar, sozinha. O Odilon disse.
+— Voltou — disse Shirley, baixinho. — Ela voltou para o lugar, sozinha. O Velho-Sábio disse que ela só sabe voltar pelo mesmo caminho.
 
 — Então os dois estão dentro — respondeu Banjo. Ele não tirava os olhos da máscara. Os óculos refletiam o laranja, e o rosto dele parecia mais velho. — O Breno e a Bia. Eu sinto. Ela está cantando baixinho, a coisa toda, e não é igual ao que eu escutava. Parece que alguém está contando uma coisa dentro, para um outro, e só a metade passa para fora.
 

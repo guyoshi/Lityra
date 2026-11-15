@@ -14,7 +14,7 @@ Ele ia responder, e a voz de Odilon chegou antes, de dentro da cabeça, tão ní
 
 — Eu subi a montanha inteira achando que era só uma máscara — disse. — Ele avisou, eu lembro de cada palavra, e mesmo assim eu me sinto como se estivesse na fila de um brinquedo.
 
-— Ele também disse que quem se oferece por outro, de verdade, às vezes ela aceita. — Ferris falou devagar, escolhendo cada palavra. — Foi o Bigorna quem disse. Mas ela escuta a diferença entre o de verdade e o que a pessoa só quer que pareça verdade. Pensa bem no que você vai oferecer.
+— Ele também disse que quem se oferece por outro, de verdade, às vezes ela aceita. — Ferris falou devagar, escolhendo cada palavra. — Foi a Bigorna quem disse. Mas ela escuta a diferença entre o de verdade e o que a pessoa só quer que pareça verdade. Pensa bem no que você vai oferecer.
 
 — Então é fácil, eu me ofereço pelo Breno e pela Bia e pronto. — Bruno pegou a máscara.
 
@@ -120,7 +120,7 @@ O ar engrossou outra vez, e a Velha atravessou a bolha de cores com a bengala na
 
 — Falou, Shirley. — Bruno limpou o rosto na manga. — Para de se gabar e vem aqui.
 
-Shirley, que estava de pé um pouco atrás de Ferris, levou as duas mãos ao peito, e o rosto dela se iluminou numa alegria tão grande, tão larga, que Banjo, sentado no capim com Farol saindo do capuz, quase riu de olhar. A Velha só sorriu, e inclinou a cabeça para onde vinha o barulho dos dois.
+A Velha só sorriu, e inclinou a cabeça para onde vinha o barulho dos dois.
 
 O último a sair foi Kalev. Atravessou a bolha de costas, devagar, encolhido, de mão boa na frente do rosto como quem sai de uma sala escura, e ficou parado no capim, de barba cheia de neve derretida e casaco queimado, piscando contra a luz laranja que não se mexia. Olhou para os lados. Olhou para o céu. Olhou para uma figura de capacete debaixo do braço, a vinte passos dele, ruiva, parada, de olhos fixos, e a boca dele se abriu sem som.
 
@@ -134,7 +134,7 @@ Ferris largou o capacete no chão. Não correu. Andou, passo a passo, e quando c
 
 — Eu preciso de um banho.
 
-Ferris soltou uma risada que nunca tinha saído dele, e virou uma outra coisa no meio, e o pai o puxou para si com o braço bom, e os dois ficaram ali, com a testa colada. Bruno, que estava vendo, entendeu depois do segundo que Ferris tinha dito, na noite do mar raso, que o melhor dos três finais era aquele, e que quase ninguém conseguia o melhor. Apertou a mão de Banjo e não falou nada. Era uma das poucas vezes em que ficar calado resolvia.
+Ferris soltou uma risada que nunca tinha saído dele, e virou uma outra coisa no meio, e o pai o puxou para si com o braço bom, e os dois ficaram ali, com a testa colada. Bruno, que estava vendo, lembrou que Ferris tinha dito, na travessia do mar raso, que o melhor dos três finais era aquele, e pensou que quase ninguém conseguia o melhor. Apertou a mão de Banjo e não falou nada. Era uma das poucas vezes em que ficar calado resolvia.
 
 Banjo viu Kalev contar a história sentado no capim, com a capa de Ferris nos ombros e um pedaço de pão de queijo de folha de louro na mão, que Banjo tinha tirado da cesta e entregado sem uma palavra. Eram só cinco pessoas em volta, mais a Velha de pé, e a luz laranja deixava todos os rostos da mesma cor, de foto antiga. Beatriz estava encostada nele, e Breno, do outro lado, desenhava no capim com um graveto uma coisa que parecia uma lista.
 
@@ -160,7 +160,7 @@ Banjo ouviu o nome e sentiu uma coisa pequena se mexer no peito, como uma tampa 
 
 — Suposição, chefe. — Bruno puxou um fio de capim e o dobrou em quatro. — Mas das feias.
 
-Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que Bug tirou do bolso do colete durante a travessia, olhou o número e guardou sem ler, e do sorriso pequeno que não chegava aos olhos. Lembrou de Pipa subindo sempre que ele falava da brecha. O quarto dedo era o Bug entregando a corda, e ele escondeu a mão no colo, porque não queria dizer em voz alta. Farol se encolheu no capuz, pequeno, quieto, com a luz do rabo mais baixa do que de costume.
+Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que Bug tirou do bolso do colete na Central, olhou e guardou sem dizer o que era, e do sorriso pequeno que não chegava aos olhos. Lembrou de Pipa subindo sempre que ele falava da brecha. O quarto dedo era o Bug entregando a corda, e ele escondeu a mão no colo, porque não queria dizer em voz alta. Farol se encolheu no capuz, pequeno, quieto, com a luz do rabo mais baixa do que de costume.
 
 — A gente pensa nisso em casa — disse Breno, finalmente. Largou o graveto. — Agora a gente precisa de quatro coisas. Chegar ao primeiro traço da volta. Sair daqui antes que o contracanto fique mais estranho do que está. Saber quem carrega a Partitura e quem carrega a máscara. E um banho para o senhor Kalev, porque o Ferris está certo.
 
@@ -168,7 +168,7 @@ Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que B
 
 — Eu cuido! — Beatriz apertou o cilindro de osso contra o peito. — Eu cuido muito bem. Eu até dormi com ela no colo, ontem, quer dizer, hoje, quer dizer, qualquer coisa.
 
-— Dois a zero para a gente de novo — disse Bruno, esticando-se no capim, de braços abertos. — O Banjo pega a máscara, o Breno e a Bia voltam, o pai do Ferris sai inteiro. E ainda tem um cabritinho com o meu nome.
+— Dois a zero para a gente de novo — disse Bruno, esticando-se no capim, de braços abertos. — O Banjo veste a máscara, o Breno e a Bia voltam, o pai do Ferris sai inteiro. E ainda tem um cabritinho com o meu nome.
 
 — Que cabritinho? — Beatriz arregalou os olhos.
 
@@ -176,7 +176,7 @@ Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que B
 
 — EU QUERO CONHECER ELE!
 
-Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, porque alguém tinha de agradecer ao lugar, e Bruno, que ia perguntar por quê, resolveu não perguntar. Pensou que o velho da casa torta ficaria sem assunto até o fim da vida, e que ele devia ter dado o aviso antes de qualquer pé, e tinha dado. Era a única razão pela qual Bruno ainda estava inteiro.
+Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, porque alguém tinha de agradecer ao lugar, e Bruno, que ia perguntar por quê, resolveu não perguntar. Pensou no velho da casa torta, que tinha dado o aviso antes de qualquer um pôr o pé na montanha. Era a única razão pela qual Bruno ainda estava inteiro.
 
 Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Dava para sentir o cheiro de água morna do outro lado. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
 
@@ -206,7 +206,7 @@ Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala 
 
 — Então não é ele. — Breno abaixou o diapasão devagar, e o zumbido continuou na mão dele, como um bicho dormindo.
 
-A luz mudou. Foi isso que Banjo sentiu primeiro, antes de ver, porque a luz laranja, que não se mexia desde o dia em que eles chegaram, de repente começou a escorrer para o buraco do horizonte, como água saindo de uma pia. Todas as sombras que estavam deitadas para o mesmo lado giraram juntas, devagar, e apontaram para a estátua. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
+A luz mudou. Foi isso que Banjo sentiu primeiro, antes de ver, porque a luz laranja, que não se mexia desde que eles tinham chegado, de repente começou a escorrer para o buraco do horizonte, como água saindo de uma pia. Todas as sombras que estavam deitadas para o mesmo lado giraram juntas, devagar, e apontaram para a estátua. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
 
 Alguém estava sentado no toco do pescoço da estátua sem cabeça.
 

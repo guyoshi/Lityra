@@ -46,7 +46,7 @@ A porta cedeu sozinha, e dentro havia um homem sentado no chão, de costas na pa
 
 — Vai embora, Ardêncio — disse o homem, sem levantar a cabeça. A voz saiu cheia de areia. — Eu já falei que não decido quem ganha. Nem o gelo, nem o fogo. Os dois estão errados, e eu não tenho mais espaço na cabeça para os dois.
 
-— Eu não sou o Ardêncio. — Beatriz entrou meio passo, e o chão de pedra estava quente debaixo das botas. — Ele é muito mais vermelho e muito mais alto, e quando anda deixa o chão queimado. Eu sou a Beatriz, e tenho onze anos, e moro em Brisália, onde tem um quintal e três cachorros do Lioro.
+— Eu não sou o Ardêncio. — Beatriz entrou meio passo, e o chão de pedra estava quente debaixo das botas. — Ele é muito mais vermelho e muito mais alto, e quando anda deixa o chão queimado. Eu sou a Beatriz, e tenho onze anos, e moro em Tayo, numa casa que tem um quintal e uma cadela velha.
 
 O homem levantou o rosto. Os olhos eram claros, fundos, com uma vermelhidão de quem não dorme havia muito, e passaram por ela devagar, sem acreditar, até parar na mão dela. Ele olhou o anel por bastante tempo.
 
@@ -78,7 +78,7 @@ Breno abriu a boca e fechou. Respirou, e os ombros dele baixaram um dedo. Ele es
 
 O homem tinha parado de apertar a cabeça e olhava Breno com atenção nova, os olhos indo do rosto dele para o chão e do chão para a parede riscada. Breno olhou também. Olhou os grupos de sete traços, olhou o laço que fechava cada grupo, com a ponta passando por cima da linha em vez de parar antes, e a mão dele foi sozinha até o bolso onde guardava o diapasão. Ficou ali, parada, no pano.
 
-— O desenho do chão da sala — disse Breno, bem devagar. — Sete traços e um laço, riscados com a ponta de uma faca. O Ferris nos mostrou como o pai dele fazia, e o laço fechava assim, com a ponta por cima, igual a esse. — Ele olhou a barba, o casaco queimado, o trapo na mão. — E o senhor falou, quando a gente chegou, de uma coisa que canta por dentro e de um caderno. O senhor é o Kalev?
+— Esse laço — disse Breno, bem devagar. — Eu vi um igual num caderno, na Casa de Pesquisa. Capa gasta, sem risca azul, cheio de espirais, e os laços fechavam assim, com a ponta por cima da linha. — Ele olhou a barba, o casaco queimado, o trapo na mão. — O senhor é o Kalev?
 
 O homem não respondeu logo. Os dedos dele largaram o graveto, que rolou pelo chão de pedra com um barulhinho seco.
 
@@ -104,7 +104,7 @@ Houve um som de bengala batendo de leve na soleira. Beatriz virou o rosto, e a V
 
 — Eu fiquei, por quatro respirações.
 
-— Quatro. — A Velha entrou, tateando o ar com os dedos, e parou onde a luz do fogo batia na barba de Kalev. — O senhor guardou esse homem em segredo da gente, e eu entendo. É um homem com muita coisa dentro. Uma terra como esta tenta engolir gente com tanta coisa dentro.
+— Quatro. — A Velha entrou, tateando o ar com os dedos, e parou onde a luz do fogo batia na barba de Kalev. — A máscara guardou esse homem em segredo de mim, e eu entendo. É um homem com muita coisa dentro. Uma terra como esta tenta engolir gente com tanta coisa dentro.
 
 — A senhora sabia que ele estava aqui — disse Breno.
 
@@ -120,7 +120,7 @@ Kalev ergueu o rosto, devagar. Olhou a Velha por um bom tempo, com uma ruga fund
 
 Kalev não respondeu. Ficou olhando as próprias mãos, a enrolada e a solta, e Beatriz percebeu, pela primeira vez, que ele tinha medo da Velha. Medo pequeno, dos que a pessoa guarda quando não tem certeza ainda se são medo ou só cansaço.
 
-— A gente precisa ir buscar uma coisa — disse Breno, de pé, olhando de um para o outro. — A senhora falou ontem de um objeto que ajuda a sair, e que o senhor, seu Kalev, também precisa sair. Eu estou pensando em levar o seu Kalev junto.
+— A gente precisa ir buscar uma coisa — disse Breno, de pé, olhando de um para o outro. — A senhora falou ontem de um objeto que ajuda a sair. O seu Kalev também precisa sair, então ele vem junto.
 
 — Ele não pode. — A Velha respondeu antes de ele terminar. — Perdão, meu jovem, mas a Partitura mora num lugar que sente a gente chegar, e a gente que a procura precisa chegar de mansinho. Este homem tem uma força do tamanho da máscara dentro dele. Eu a sinto daqui, como sinto o fogo do fogão. A caverna vai acordar inteira.
 
@@ -196,7 +196,7 @@ Chegou ao pedestal. A ponta do cilindro de osso estava pra fora, entre duas pata
 
 O zumbido virou música.
 
-Foi como se o pergaminho tivesse esperado séculos para ser tocado por alguém. Em vez de uma nota só, ela escutou muitas, de longe, vindas de todos os lados, cada uma de um jeito: uma que parecia gelada e firme, de vidro, e que ela reconheceu sem saber por quê como a de Breno. Outra fina e quente, de brasa, que era dela mesma. Uma quarta, longe, longe, torta e baixa, que começava sempre um pouco abaixo do lugar onde devia começar e depois se arrumava sozinha. Beatriz sentiu o coração dar um pulo tão forte que quase tirou a mão.
+Foi como se o pergaminho tivesse esperado séculos para ser tocado por alguém. Em vez de uma nota só, ela escutou muitas, de longe, vindas de todos os lados, cada uma de um jeito: uma que parecia gelada e firme, de vidro, e que ela reconheceu sem saber por quê como a de Breno. Outra fina e quente, de brasa, que era dela mesma. Uma terceira, longe, longe, torta e baixa, que começava sempre um pouco abaixo do lugar onde devia começar e depois se arrumava sozinha. Beatriz sentiu o coração dar um pulo tão forte que quase tirou a mão.
 
 Era o Banjo. Era a flauta dele, tocando no meio de um mundo muito longe, e logo atrás dela, fora do tempo de propósito, batia um tambor que só podia ser do Bruno.
 
@@ -270,7 +270,7 @@ A criatura os levou em volta da montanha, desceu em círculo e pousou, com as qu
 
 Beatriz escorregou do lombo da criatura e caiu sentada na neve, com a Partitura no colo. Breno desceu depois, devagar, pôs os dois pés no chão e ficou quieto, com a mão no peito, respirando. Kalev ficou em cima mais um segundo, passou a mão no pelo branco do pescoço da criatura, que se deitou na neve, de olhos fechados, ronronando feito gato do tamanho de uma casa.
 
-— Eu vi — disse a Velha. — Quer dizer, eu escutei. Os três vivos, e a Partitura intacta, e essa menina com uma gaita que tocou uma quarta nota que não é dela. — Ela sorriu, e agora o sorriso era largo, o mais largo que Beatriz tinha visto nela. — O senhor Kalev tinha razão numa coisa. É uma criatura difícil de acordar. Mas só porque ninguém nunca perguntou o que ela queria.
+— Eu vi — disse a Velha. — Quer dizer, eu escutei. Os três vivos, e a Partitura intacta, e essa menina com uma gaita que tocou uma quarta nota que não é dela. — Ela sorriu, e agora o sorriso era largo, o mais largo que Beatriz tinha visto nela. — Eu tinha razão numa coisa. É uma criatura que acorda irritada. Mas só porque ninguém nunca perguntou o que ela queria.
 
 — A senhora não avisou que ela fechava a saída — disse Breno, de pé, sacudindo a neve da capa. A voz dele ainda tremia.
 
@@ -282,7 +282,7 @@ Beatriz escorregou do lombo da criatura e caiu sentada na neve, com a Partitura 
 
 — Como a senhora sabe? — Breno se aproximou um passo. — A senhora disse que aqui dentro só escuta o que a máscara escuta. A máscara não sabe de quem está lá fora, a senhora mesma disse.
 
-— Eu sinto, meu jovem. É só o que eu posso dizer. É só o que eu posso dizer, e eu sou velha demais para inventar uma explicação que combine com o que eu sinto. — Ela estendeu a mão cega no ar, e encontrou o ombro de Beatriz sem errar, e o apertou de leve. — Sua gaita fez a criatura dançar. A senhorita sabe o que isso quer dizer?
+— Eu sinto, meu jovem. É só o que eu posso dizer, e eu sou velha demais para inventar uma explicação que combine com o que eu sinto. — Ela estendeu a mão cega no ar, e encontrou o ombro de Beatriz sem errar, e o apertou de leve. — Sua gaita fez a criatura dançar. A senhorita sabe o que isso quer dizer?
 
 — Que ela gosta de dançar? — Beatriz levantou os olhos, e a vontade que tinha de perguntar subiu de uma vez, mais forte que o cansaço. — Velha, escuta. Antes de eu cair aqui dentro, tinha uma voz na minha cabeça, que falou "escuta até o fim" e "não repara tanto", de um jeito miudinho, que eu achei que era eu. E ontem à noite, na casa, ela falou "dorme". Era a senhora?
 

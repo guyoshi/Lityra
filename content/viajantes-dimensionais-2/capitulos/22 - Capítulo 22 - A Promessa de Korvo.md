@@ -192,13 +192,13 @@ Breno fechou os olhos por um instante, e quando abriu, o mundo continuava de cab
 
 Sabia pela cor da chama. Verde-escuro passando a verde-claro, nas bordas, de onde subia um estalo fino de vela que se apaga. Via Bruno colado à parede perto dele, com uma bota pendendo para fora de um buraco que a chama já tinha mordido, e via Banjo e Beatriz do outro lado, agarrados a um pedaço de capim que subia do chão como uma bandeira ao contrário, e Shirley no meio, inerte, flutuando de lado, com o cabelo em volta do rosto. Eram quatro, e uma, e o tempo estava acabando.
 
-A primeira coisa que Breno pensou, e tinha vergonha disso, era que ia soltar a mão do outro lado e deixar que todos caíssem. Eles eram quatro. Ele só conseguia segurar um. Fazia as contas e o número nunca dava certo.
+A primeira coisa que Breno pensou, e tinha vergonha disso, era que não ia dar. Eles eram quatro, e mais uma, e ele só conseguia segurar um. Fazia as contas e o número nunca dava certo.
 
 — Banjo! — gritou. — As raízes!
 
 — Que raízes? — A voz de Banjo veio fina e assustada. — Não tem raiz nenhuma, Breno, é capim, e eu estou segurando a Bia com a mão, e a Shirley com a outra, e não consigo...
 
-— Aquelas que o bosque te ensinou! — Breno engoliu. — Você sentiu o frio das árvores todas na clareira. Lembra? Pede. Pede com educação, como você pede para as pedras.
+— Você fala com planta, Banjo! — Breno engoliu. — Você sentiu as árvores todas no bosque. Pede. Pede com educação, do seu jeito.
 
 Houve um silêncio estranho, de segundos, em que só se ouviu a chama estalando. Depois, devagar, um tremor correu pela pedra do cume lá embaixo, e Breno viu, de cabeça para baixo, o capim ferrugem se mexer. Os fios cresceram, engrossaram, viraram cordas, e as cordas subiram em espiral, trançadas, de uma cor castanha que não era a do capim, e chegaram até os pés de Banjo como mãos de gente. Enrolaram nos tornozelos dele, na cintura de Beatriz, no corpo mole de Shirley. Firmaram-se na pedra.
 
@@ -292,9 +292,7 @@ Banjo continuou gritando, sem parar, puxando.
 
 — Larga eles, Korvo! — berrou Beatriz. Agarrou Banjo pela cintura, e Bruno agarrou os dois, e os três puxaram juntos, com o tambor batendo torto no ar. Breno, pendurado na borda, deu uma pancada de metal na pedra, só para fazer alguma coisa, e o cilindro de osso estalou no ar, esticado e brilhando.
 
-Korvo soltou.
-
-Não adiantou. Korvo puxou com o braço inteiro e com as costas, e a Partitura escapou dos dedos de Banjo como um peixe molhado, cruzou o ar numa linha clara e bateu na palma aberta dele com um estalo de couro. Banjo caiu de joelhos na beira do rasgo, com o nariz pingando, e Beatriz ficou com as duas mãos vazias, a palma cortada ainda queimando no lugar onde o cilindro estivera.
+Não adiantou. Korvo deu um último puxão, e a Partitura escapou dos dedos de Banjo como um peixe molhado, cruzou o ar numa linha clara e bateu na palma aberta dele com um estalo de couro. Banjo caiu de joelhos na beira do rasgo, com o nariz pingando, e Beatriz ficou com as duas mãos vazias, a palma cortada ainda queimando no lugar onde o cilindro estivera.
 
 Korvo olhou o osso na mão, e olhou para eles. Não fechou o punho. Não era o gesto de quem ganhou uma luta. Era o de quem já tinha o que tinha ido buscar, e a calma dele fez o estômago de Breno afundar.
 
@@ -332,4 +330,4 @@ Foi aí que ele viu Bug.
 
 Estava lá no fundo, perto de uma coluna, meio escondido atrás de dois guardas, com o colete de bolsos cheios e as etiquetas penduradas, e uma ave vermelha pequena no ombro. Tinha o rosto pálido e os olhos arregalados, e olhava para eles, para os quatro, um por um, parado, sem se mexer. Ele não parecia surpreso. Parecia um garoto que acaba de ouvir passos na escada, de madrugada, e sabe exatamente quem está chegando.
 
-Quando os olhos de Bug encontraram os de Banjo, a ave vermelha abriu as asas e voou para o alto, e o rosto dele ficou do tamanho de uma pergunta.
+Quando os olhos de Bug encontraram os de Banjo, a ave vermelha abriu as asas e voou para o alto, e Bug deu um passo para trás.
