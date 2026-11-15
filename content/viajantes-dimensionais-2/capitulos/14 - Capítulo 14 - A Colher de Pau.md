@@ -156,7 +156,7 @@ Na tela pequena sobre a prateleira, o boletim local interrompeu a música. Lucan
 
 — Uma comissão — disse Lioro. — Muito útil. Quando terminarem de avaliar a circulação, talvez descubram que as pessoas já não conseguem andar.
 
-— A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Até com a Erla era difícil, Lioro. Com o Beker, a cidade está a um passo de brigar consigo mesma, rua contra rua.
+— A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Lucan manda estudar o problema, Beker manda vigiar crianças, e ninguém manda proteger quem precisa. Um demora a decidir; o outro decide errado. A cidade está a um passo de brigar consigo mesma, rua contra rua.
 
 — Por isso nenhum garoto sai desta casa — completou Garmande.
 

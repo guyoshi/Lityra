@@ -240,7 +240,7 @@ Foi uma mão de lama com dedos de gancho, de um verde tão escuro que quase não
 
 — Mantenham a calma! — A voz de Garmande, muito alta, vinda de uma galeria no alto. — Sociedade, formação! Vigilância, para as portas!
 
-Ferris passou por Breno como um raio ruivo, tão rápido que só deixou o vento, e derrubou uma criatura de cabeça de cavalo com os dois pés. Grimaldus, com a barba aberta para trás, jogou a tábua de contas no ar e as contas se soltaram uma a uma, estalando, e se espalharam em volta dele num anel de luz. Mereditha gritava. Alguém gritava ao longe: Ricochet, Ricochet, cadê o Ricochet. Os fios de luz do teto, que tinham prendido Bug, estavam todos arrebentados e se soltavam como cabelos.
+Ferris passou por Breno como um raio ruivo, tão rápido que só deixou o vento, e derrubou uma criatura de cabeça de cavalo com os dois pés. Grimaldus, com a barba aberta para trás, jogou a tábua de contas no ar e as contas se soltaram uma a uma, estalando, e se espalharam em volta dele num anel de luz. Perto das colunas, Serafira cruzou duas correntes de luz diante de uma porta; Elowen puxou por ela dois aprendizes menores, enquanto Karoli indicava a passagem livre e contava quem ainda faltava, sem parar nem quando uma sombra lhe roçou a manga. Mereditha gritava. Alguém gritava ao longe: Ricochet, Ricochet, cadê o Ricochet. Os fios de luz do teto, que tinham prendido Bug, estavam todos arrebentados e se soltavam como cabelos.
 
 Kalev tinha tentado se levantar e não conseguiu. Estava de joelhos junto à coluna do arco com o embrulho cinzento apertado contra o peito, o rosto de cera, e Ferris, que voltou correndo, caiu de joelhos ao lado dele.
 
