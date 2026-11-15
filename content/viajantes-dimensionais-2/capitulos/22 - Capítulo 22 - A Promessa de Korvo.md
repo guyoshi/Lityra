@@ -294,11 +294,15 @@ Banjo continuou gritando, sem parar, puxando.
 
 Korvo soltou.
 
-Não foi um soltar de quem perdeu. Foi o de quem decide largar uma discussão que sabe que vai ganhar mais tarde. A Partitura bateu no peito de Banjo, e Beatriz a agarrou com as duas mãos, e Korvo fechou a mão devagar, como quem aperta uma flor, e as bordas verdes do rasgo começaram a enrugar como papel queimado.
+Não adiantou. Korvo puxou com o braço inteiro e com as costas, e a Partitura escapou dos dedos de Banjo como um peixe molhado, cruzou o ar numa linha clara e bateu na palma aberta dele com um estalo de couro. Banjo caiu de joelhos na beira do rasgo, com o nariz pingando, e Beatriz ficou com as duas mãos vazias, a palma cortada ainda queimando no lugar onde o cilindro estivera.
 
-Banjo foi primeiro, com Shirley amarrada ao corpo, e o buraco o engoliu. Bruno agarrou Beatriz pela cintura e pulou atrás, com a Partitura entre os dois, e o rasgo os levou também.
+Korvo olhou o osso na mão, e olhou para eles. Não fechou o punho. Não era o gesto de quem ganhou uma luta. Era o de quem já tinha o que tinha ido buscar, e a calma dele fez o estômago de Breno afundar.
+
+Banjo foi primeiro, com Shirley amarrada ao corpo, e o rasgo o engoliu. Bruno agarrou Beatriz pela cintura, que ainda olhava as próprias mãos como se o cilindro pudesse voltar, e pulou atrás, e o buraco os levou também.
 
 — Podem ir — disse Korvo, com a voz muito calma na lentidão do ar. — Eu espero.
+
+Fechou a mão devagar, como quem aperta uma flor, e as bordas verdes do rasgo começaram a enrugar como papel queimado.
 
 Breno soltou a borda. Não tinha mais escolha. O corpo dele, de metal e fumaça, subiu para o rasgo, e o último golpe que viu foi o sorriso de Korvo, pequeno, que parecia quase triste, e a Velha, ao lado dele, de rosto virado para cima, escutando.
 

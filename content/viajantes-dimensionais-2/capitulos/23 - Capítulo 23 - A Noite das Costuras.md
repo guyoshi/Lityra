@@ -4,9 +4,11 @@ Mas Velho-Sábio já estava de pé na frente deles, e o salão, que um minuto an
 
 — Para trás, abram espaço! — A voz do velho cortou o murmúrio sem subir muito, e a bengala bateu duas vezes na pedra. — Estão molhados até os ossos, ninguém está vendo? Garmande, as mantas dos condutores. Lioro, a chaleira da sala de descanso. Mereditha, por favor, pare de chorar em cima deles antes que o chá esfrie.
 
-Ele mesmo tirou o casaco comprido e jogou nos ombros de Beatriz, e Banjo viu a irmã se encolher um pouco dentro dele, como quem tem medo de estragar uma coisa boa só de encostar. Reparou no cilindro de osso que ela ainda apertava nas duas mãos, e estendeu a palma.
+Ele mesmo tirou o casaco comprido e jogou nos ombros de Beatriz, e Banjo viu a irmã se encolher um pouco dentro dele, como quem tem medo de estragar uma coisa boa só de encostar. Reparou nas mãos dela, abertas no colo como se ainda segurassem alguma coisa, com a palma cortada e queimada, e o velho se agachou, com um estalo no joelho, para olhar.
 
-— Isso me dá, minha filha. Sem pressa. — Ela entregou, e o velho o envolveu no próprio lenço antes de passar a Garmande. — Ao cofre da Sociedade, com selo duplo, longe da máscara. Só acorda com sangue de Hazel, e quero que continue dormindo até eu entender o que o Korvo pretende fazer com isso. Lioro apareceu em dois segundos com os braços cheios de cobertores cinzentos que tinham VIGILÂNCIA carimbado no canto, e foi largando um em cada um, sem perguntar, com a mesma mão firme com que ajeitava as panelas na cozinha. Quando chegou a Bruno, enrolou o cobertor nele duas voltas e fechou a ponta debaixo do queixo.
+— Isso eu trato, minha filha. Sem pressa. — Passou o próprio lenço pelo corte, devagar. — E o que não está aqui, a gente trata depois. O Korvo ficou com ela, e eu quero entender por que ele deixou vocês levarem tudo menos aquilo.
+
+Beatriz não respondeu. Fechou as mãos sobre o lenço. Lioro apareceu em dois segundos com os braços cheios de cobertores cinzentos que tinham VIGILÂNCIA carimbado no canto, e foi largando um em cada um, sem perguntar, com a mesma mão firme com que ajeitava as panelas na cozinha. Quando chegou a Bruno, enrolou o cobertor nele duas voltas e fechou a ponta debaixo do queixo.
 
 — Pronto. Pareço um pão de queijo no guardanapo — disse Bruno, com a voz arranhada, e foi tão parecido com o Bruno de sempre que Mereditha riu e chorou de novo ao mesmo tempo.
 
@@ -391,7 +393,43 @@ Breno encostou uma das metades no ouvido. A que estava no cabo. Franziu a testa.
 
 Beatriz riu uma vez, curta, que parecia soluço, e escondeu a boca na manga. Foi o primeiro som que fez desde o salão.
 
-Levantaram devagar, com Breno arrumando Lioro nas costas e guardando as duas metades do diapasão no bolso, e seguiram colados às paredes, sem falar, as duas esquinas que faltavam. As ruas estavam estranhamente vazias dali em diante, de portas fechadas e janelas apagadas, e à medida que se afastavam da Central o barulho foi diminuindo. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser o Ricochet. Mais dois passaram atrás dele, e os três sumiram na direção do clarão verde.
+Levantaram devagar, com Breno arrumando Lioro nas costas e guardando as duas metades do diapasão no bolso, e seguiram colados às paredes, sem falar. Na penúltima esquina o barulho voltou de uma vez.
+
+Vinha de uma travessa larga que dava num mercado coberto. Era barulho de luta de verdade, de madeira estalando e de bicho rosnando, e por cima dele uma voz seca e muito clara, que Bruno reconheceu antes de ver o dono porque a tinha ouvido uma vez, no vestíbulo da casa, dizendo "senhores" para uma multidão inteira sem levantar o tom.
+
+— Senhor Erick, eu pedi que ficasse atrás do carrinho, e não que acendesse a mão!
+
+William McCroys estava no meio da travessa, de sobretudo abotoado até o queixo e sem um fio de cabelo fora do lugar. Segurava uma criatura de couro negro pelo pescoço com a mão esquerda, e com a direita escrevia no ar, devagar, como quem assina um papel, linhas finas de luz azul que se fechavam em volta do bicho feito uma caixa. A caixa apertou. A criatura sumiu dentro dela com um estalo de vidro. McCroys alisou a lapela, e outra já descia pelo telhado.
+
+Dez passos atrás dele havia um carrinho de verduras tombado, e por cima da borda, bem devagar, apareceram dois pares de olhos arregalados, um de cada lado de um repolho. Erick, de cabelo em pé e um fiapo de fumaça saindo da manga. Nicolas, pálido, com gelo pendurado nos cílios.
+
+— Eu só queria ajudar — sussurrou Erick.
+
+— Você queria aparecer — sussurrou Nicolas. — Eu vi você acender a mão.
+
+— E você congelou o próprio sapato.
+
+— Silêncio, os dois! — McCroys nem se virou. Recebeu a criatura nova com o dedo erguido, como quem pede a palavra, e a prendeu numa segunda caixa. — Isso não é treino. Isso é rua.
+
+Foi aí que ele viu os quatro. Os olhos pálidos passaram por Bruno, pelo embrulho que ele carregava, por Banjo e Beatriz, e pararam em Lioro, pendurado nas costas de Breno. A cara dele mudou um milímetro, e foi de alívio.
+
+— Lioro! — gritou. — Até que enfim, homem! Pegue esses dois e tire as crianças das ruas! Eu seguro a travessa, mas não seguro a travessa e cuido deles!
+
+Lioro respondeu com um ronco longo, de boca aberta, que correu pela travessa inteira.
+
+McCroys ficou olhando. As sobrancelhas subiram outro milímetro.
+
+— Ele levou uma pancada, senhor — disse Breno, quase pedindo desculpa. — Está apagado.
+
+— Está dormindo. — McCroys fechou os olhos por um segundo, como quem conta até três. — Claro que está. Então eu mesmo faço.
+
+Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fechou em volta dele uma caixa maior, lisa, brilhando de leve, com o repolho e os dois gêmeos dentro. Erick bateu com a palma na parede da caixa. Nicolas se sentou sobre o próprio sapato.
+
+— Aí vocês ficam até eu abrir — disse McCroys. — Ninguém morre dentro de uma caixa minha, e eu nunca perdi um aluno nem pretendo começar hoje. Vocês quatro, para a casa do Lioro, rápido. E digam a ele, quando acordar, que agora o favor é meu e a conta virou.
+
+Voltou para a criatura seguinte, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
+
+As ruas estavam estranhamente vazias dali em diante, de portas fechadas e janelas apagadas, e à medida que se afastavam da Central o barulho foi diminuindo. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser o Ricochet. Mais dois passaram atrás dele, e os três sumiram na direção do clarão verde.
 
 — Aí, Ricochet — sussurrou Bruno, para o céu. — Quebra tudo.
 
