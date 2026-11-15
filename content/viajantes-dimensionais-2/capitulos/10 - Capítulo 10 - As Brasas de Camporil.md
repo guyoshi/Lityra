@@ -78,9 +78,9 @@ Ele se abaixou ao lado de Beatriz. Não pôs a mão nela. Deixou a mão aberta n
 
 Beatriz fechou os olhos. Durante um tempo comprido, Breno só ouviu o rugido do fogo e o ranger das barras esfriando. Depois, tão baixo que ele precisou prender a respiração para ouvir, vieram as três notas, subindo e voltando, sem chegar a lugar nenhum. A chama deu um tranco. Desceu a altura de uma mão, e ficou ali, tremendo, como quem escuta.
 
-— Isso. — Velho-Sábio quase não mexeu a boca. — Agora não peça que ele pare, que é pedir demais a quem está com medo. Peça que ele fique do tamanho de uma coisa que você consegue segurar. Depois de uma menor.
+— Isso. — Velho-Sábio quase não mexeu a boca. — Agora não peça que ele pare, que é pedir demais a quem está com medo. Peça que ele fique do tamanho de uma coisa que você consegue segurar. Diminui um palmo. Agora mais um.
 
-Foi lento. A chama baixou ao tamanho de uma porta, depois de uma mesa, depois de uma cadeira, e cada degrau custava a Beatriz um soluço e uma nota, e a cada nota Velho-Sábio dizia só mais uma, ou então, está bom, de novo. Quando o fogo era do tamanho de uma panela, Beatriz o tinha nas duas mãos como uma coisa que podia morder. Quando era do tamanho de um punho, ela riu sem querer, uma risada rouca e torta. Depois sobrou uma brasa na lajota, e ela soprou, e a brasa se apagou.
+Foi lento. A chama baixou ao tamanho de uma porta, depois de uma mesa, depois de uma cadeira, e cada palmo custava a Beatriz um soluço e uma nota, e a cada nota Velho-Sábio dizia só mais um, ou então, está bom, de novo. Quando o fogo era do tamanho de uma panela, Beatriz o tinha nas duas mãos como uma coisa que podia morder. Quando era do tamanho de um punho, ela riu sem querer, uma risada rouca e torta. Depois sobrou uma brasa na lajota, e ela soprou, e a brasa se apagou.
 
 O pátio ficou escuro e cheirando a ferro e fumaça. Beatriz se encolheu contra os próprios joelhos. Velho-Sábio ficou de pé com um estalo dos próprios ossos e olhou para cima, para a rua, para as janelas das casas vizinhas, uma a uma.
 
