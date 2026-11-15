@@ -12,11 +12,11 @@ A lanterna que Bug entregou a Banjo era mais pesada do que parecia, de armação
 
 Foi a menina quem se virou para Banjo, com a lanterna nas duas mãos. Tinha as tranças longas, presas por contas de madeira nas pontas, e Banjo a reconheceu do corredor dos painéis, do olhar comprido que ele tinha perdido para os próprios sapatos. Ela estava ao lado de Yuri, que equilibrava a lanterna na ponta de um dedo e não parecia ter a menor pressa. A menina disse alguma coisa a Bug, devolveu um sorriso discreto e voltou a olhar Banjo, desta vez só por um instante, e foi Banjo quem desviou primeiro, dessa vez para o bosque.
 
-O Bosque de Sorevan era mais silencioso do que a porta de uma biblioteca. Ficava no fundo do terreno do Edifício Arcano, atrás de um muro baixo coberto de trepadeiras escuras, e de fora só se via uma massa de troncos cinzentos, de copas fechadas, sem um zumbido, um estalo ou uma folha mexendo. Banjo pensou que era o tipo de lugar que parecia estar prendendo o ar. Ele não gostou da sensação, e Farol, enrolado na gola do moletom, apertou o corpinho contra o pescoço dele.
+O Bosque de Sorevan era mais silencioso do que a porta de uma biblioteca. Ficava no fundo do terreno do Edifício Arcano, atrás de um muro baixo coberto de trepadeiras escuras, e de fora só se via uma massa de troncos cinzentos, de copas fechadas. Uma folha comprida, azul por baixo e cinzenta por cima, soltou-se da copa sem que houvesse vento. Caiu entre os aprendizes e, antes de tocar a relva, devolveu o barulho de um sapato que alguém arrastara segundos antes. Banjo olhou em volta. Ninguém mais pareceu reparar. Banjo pensou que era o tipo de lugar que parecia estar prendendo o ar. Ele não gostou da sensação, e Farol, enrolado na gola do moletom, apertou o corpinho contra o pescoço dele.
 
 — O silêncio é a parte que mente — disse Denis, a poucos passos, de lanterna debaixo do braço e com a pressa de quem tinha um boato novo. — Eu soube que o bosque já engoliu um tutor inteiro, ciclo passado. Só devolveu os sapatos. Os sapa... patos... tos. Cheios de folha por dentro. Dizem que ele aparece aos sábados à noite, cantando.
 
-— Denis — disse Breno, ao lado dele, com o caderno aberto na mão esquerda e um lápis na direita. — Eu preciso saber o que o seu poder faz com o som que o bosque devolve. Não o que o bosque fez com um tutor que eu não conheço. Primeiro o que a gente sabe, depois o que supõe. O tutor entra na segunda lista.
+— Denis, esquece o tutor que virou sapato — disse Breno, com o caderno aberto. — Me diz uma coisa: quando o eco volta, você consegue fazer ele parar?
 
 — O meu poder não faz nada, ele só repete, ele acontece quando eu estou nervoso! — Denis levantou as mãos. — E eu estou nervoso, Breno, porque você escreveu a minha parte do plano em duas colunas.
 
@@ -114,7 +114,7 @@ Banjo parou no meio da encruzilhada, ofegante, com a lanterna acesa e Farol nos 
 
 — Eu acho que descobri uma coisa — disse. — Quer dizer, não sei se descobri, é mais um palpite. Desculpa. Posso falar?
 
-— Fala — disse Breno, e baixou o caderno. — Do começo. Primeiro, o que você viu. Depois, o que você acha.
+— Fala, Banjo — disse Breno, baixando o caderno. — Tô ouvindo.
 
 — Primeiro, as árvores. — Banjo respirou. — Elas sentem a lanterna! Quando alguém canta sozinho elas ficam com medo, tipo gente em quarto vazio, e fecham o caminho. Quando duas vozes combinam, elas abrem. Agora o bosque está encolhido, porque tem seis duplas aqui e as lanternas não combinam umas com as outras.
 
@@ -142,7 +142,7 @@ Houve um silêncio longo. A lanterna de Brenda tremeu.
 
 — E se não fechar? — perguntou Bruno.
 
-— Então a gente perde o desafio inteiro, preso aqui — disse Breno, que tinha guardado o lápis. — Bruno. A sua lanterna morreu. A do Amadou queimou. É a única proposta que a gente tem. Eu decido: a gente tenta. Eu marco o tempo, e o Banjo diz quem entra.
+— Bruno, a sua lanterna já era, e a do Amadou também — disse Breno, guardando o lápis. — A ideia do Banjo é o que a gente tem. Vamos tentar. Eu conto o tempo, você chama as vozes, Banjo.
 
 Bruno olhou para Breno por um instante comprido, e depois para Banjo, que tinha as orelhas vermelhas e as mãos agarradas na lanterna.
 

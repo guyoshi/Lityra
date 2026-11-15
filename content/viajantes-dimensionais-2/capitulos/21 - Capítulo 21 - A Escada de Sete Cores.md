@@ -162,7 +162,7 @@ Banjo ouviu o nome e sentiu uma coisa pequena se mexer no peito, como uma tampa 
 
 Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que Bug tirou do bolso do colete na Central, olhou e guardou sem dizer o que era, e do sorriso pequeno que não chegava aos olhos. Lembrou de Pipa subindo sempre que ele falava da brecha. O quarto dedo era o Bug entregando a corda, e ele escondeu a mão no colo, porque não queria dizer em voz alta. Farol se encolheu no capuz, pequeno, quieto, com a luz do rabo mais baixa do que de costume.
 
-— A gente pensa nisso em casa — disse Breno, finalmente. Largou o graveto. — Agora a gente precisa de quatro coisas. Chegar ao primeiro traço da volta. Sair daqui antes que o contracanto fique mais estranho do que está. Saber quem carrega a Partitura e quem carrega a máscara. E um banho para o senhor Kalev, porque o Ferris está certo.
+— Discutimos isso em casa — disse Breno, largando o graveto. — Primeiro, vamos chegar ao traço de volta. Quem tá com a Partitura? E com a máscara? — Olhou para Kalev. — O banho do senhor fica pra depois, desculpa.
 
 — Eu fico com a máscara. — Kalev se levantou, apoiado em Ferris, e pegou o objeto no capim com o pano da capa, sem tocar, e a rachadura clareou de leve e voltou ao cinza. — Foi minha. Eu levo para a Sociedade, e de lá para onde ela puder ser guardada. Vocês cuidam da Partitura.
 
@@ -180,7 +180,7 @@ Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, por
 
 Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Do outro lado vinha cheiro de chuva sobre pedra e o rumor distante de gente conversando. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
 
-— O senhor Kalev e o Ferris passam primeiro — disse Breno, e levantou a mão antes que alguém protestasse. — O senhor Kalev precisa de cuidado, e a máscara não pode ficar aqui com a gente, onde qualquer coisa pode acontecer com ela. Nós vamos logo atrás. É questão de segundos.
+— Ferris, leva seu pai primeiro — disse Breno, levantando a mão. — A gente vai logo atrás. Não larga ele.
 
 Ferris olhou para os quatro, depois para Shirley, e abriu a boca para dizer que esperaria, e Kalev apertou o ombro do filho com a mão boa e respondeu primeiro, que do outro lado eles esperavam melhor do que ali. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, a cúpula alta de vidro e metal da Central e gente de costas se virando para olhar.
 

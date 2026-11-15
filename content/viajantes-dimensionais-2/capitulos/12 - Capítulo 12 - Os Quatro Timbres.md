@@ -151,7 +151,7 @@ Farol deu três voltas, tropeçou na própria cauda e caiu de costas em cima do 
 
 — Eu acho que fiquei sem pernas — disse, e se sentou no chão ao lado de Bruno, de repente.
 
-— Funcionou — disse Breno, em voz baixa, olhando para Farol com a sobrancelha levantada. Depois olhou para o diapasão, e bateu com ele de leve na própria coxa.
+— Funcionou — disse Breno, em voz baixa, olhando para Farol com a sobrancelha levantada. Depois olhou para o diapasão e bateu com ele de leve na própria coxa. No beiral, o pequeno sino de barro que Lioro usava para avisar a cozinha deu uma nota sem ninguém tocar na corda. Banjo ergueu a cabeça, mas a nota da forquilha já estava enchendo o pátio.
 
 A forquilha cantou. Era uma nota limpa, comprida, que se espalhou pelo pátio e ficou ali, tremendo, e o zumbido grave de Breno, aquele de trem distante, subiu junto com ela sem que ele percebesse. Breno fechou os olhos e escutou, e Beatriz viu a testa dele se franzir do jeito que se franzia quando fazia conta de cabeça. Ele abriu os olhos.
 

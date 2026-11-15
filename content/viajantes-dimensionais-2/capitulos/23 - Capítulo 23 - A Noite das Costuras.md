@@ -196,13 +196,13 @@ Foi a voz de Beatriz, vinda da sala de vidro fosco, e antes que o eco chegasse �
 
 A porta de vai e vem da sala dos condutores explodiu para fora.
 
-A explosão era de som, sem uma chama. Um grito veio de lá, comprido, agudo e fundo ao mesmo tempo, o tipo de grito que não é feito por uma garganta, e atravessou o salão como uma onda na água. Os vidros de todos os arcos se estilhaçaram juntos. As lanternas apagaram, uma depois da outra, e acenderam de novo num verde muito frio. As pessoas caíram de joelhos tapando os ouvidos, e Breno sentiu a pedra do chão vibrar nos dentes, e o diapasão no pulso dele disparou num zumbido tão grave e tão alto que ele achou que ia rachar o próprio osso do braço.
+A explosão era de som, sem uma chama. Um grito veio de lá, comprido, agudo e fundo ao mesmo tempo, o tipo de grito que não é feito por uma garganta, e atravessou o salão como uma onda na água. Um funcionário agarrou as duas alavancas do painel de emergência e tentou travar o arco mais próximo. O aro de prata girou meio palmo, rangeu e parou. Os vidros de todos os arcos se estilhaçaram juntos. As lanternas apagaram, uma depois da outra, e acenderam de novo num verde muito frio. As pessoas caíram de joelhos tapando os ouvidos, e Breno sentiu a pedra do chão vibrar nos dentes, e o diapasão no pulso dele disparou num zumbido tão grave e tão alto que ele achou que ia rachar o próprio osso do braço.
 
 Era o sétimo sinal, e tinha deixado de ser sinal para virar um rugido de trem entrando no túnel.
 
 — Lioro! — gritou Bruno.
 
-Lioro, que estava de pé ao lado deles com a chaleira na mão, foi atingido de frente pela onda e caiu para trás sem dobrar os joelhos, como uma árvore cortada, e a chaleira rolou longe. Bateu com a cabeça na pedra e ficou imóvel, de olhos fechados e boca entreaberta. Breno se ajoelhou ao lado dele, sentiu a respiração no dorso da mão e soltou o ar. Estava vivo. Só desacordado, de um jeito tão limpo que dava medo.
+Lioro largou a chaleira e abriu os braços. O ar veio do alto das galerias numa corrente tão forte que arrancou os estilhaços do caminho dos aprendizes e os lançou contra a parede vazia. Duas crianças que caíam perto do arco foram empurradas para trás de uma coluna, junto com um dos guardas. Breno nunca vira Lioro mover tanto ar de uma vez. O professor já se inclinava para proteger Banjo quando a segunda onda de som o atingiu de frente. Caiu para trás sem dobrar os joelhos, como uma árvore cortada. A cabeça bateu na pedra, e ele ficou imóvel, de olhos fechados e boca entreaberta. Breno se ajoelhou ao lado dele, sentiu a respiração no dorso da mão e soltou o ar. Estava vivo, mas não acordava.
 
 Foi então que a viu.
 
@@ -232,7 +232,7 @@ Não foi um rasgo comum de portal. Breno tinha visto rasgos de portal o bastante
 
 Alguma coisa saiu dele.
 
-Foi uma mão de lama com dedos de gancho, que se agarrou na borda do caminho de ar e puxou o resto para fora. Depois uma cabeça de cavalo, sem olhos, com uma fileira de dentes brancos do tamanho de teclas de piano. Depois outra criatura, e mais outra, e mais uma, um fluxo de corpos que escorria pelos caminhos de ar como formigas por uma corda, e cada uma com uma forma que Breno não tinha nome para dar. Uma tinha asas de morcego e rosto de bebê. Outra era só uma boca que andava em seis pernas. Os gritos no salão mudaram de tom, de espanto para pavor.
+Foi uma mão de lama com dedos de gancho, de um verde tão escuro que quase não tinha cor. Agarrou-se à borda do caminho de ar e puxou o resto para fora: uma cabeça de cavalo sem olhos, com uma fileira de dentes brancos do tamanho de teclas de piano. Atrás veio uma criatura de asas de morcego e rosto de bebê, com o corpo violeta quase preto, que deslizava de cabeça para baixo. Outra era uma boca que andava em seis pernas finas, cada pata deixando no vidro uma mancha azul de petróleo. E ainda outra saiu esticada, feita de sombra vermelha tão escura quanto vinho à noite, com os braços no lugar errado. Os gritos no salão mudaram de tom. Um guarda ergueu o escudo, mas a criatura de seis pernas já corria por cima dele.
 
 — Mantenham a calma! — A voz de Garmande, muito alta, vinda de uma galeria no alto. — Sociedade, formação! Vigilância, para as portas!
 
@@ -306,7 +306,7 @@ Bruno sempre achou que, se um dia acontecesse uma coisa realmente terrível, ele
 
 — Em pé, em pé, em pé! — Grimaldus passava de um por um, puxando pelas golas com as mãos enormes, sem cerimônia. A tábua de contas tinha rachado no meio e ele ainda a segurava, quase por teimosia. — Vocês estão inteiros? Estão. Muito bem. Agora escutem, porque eu só vou falar uma vez.
 
-Tayo tinha enlouquecido. Bruno viu isso por cima do ombro do professor, aos pedaços. Sinos tocando em todos os bairros ao mesmo tempo, sem acordo. Gente de camisola e chinelo correndo pelas ruas com crianças no colo. Janelas se abrindo e se fechando. Uma carroça de pão virada no meio da rua com as cestas espalhadas. E no céu, por cima dos telhados, clarões esverdeados que apareciam e sumiam, e cada clarão era uma costura se abrindo em algum lugar da cidade, longe, perto, mais perto.
+Tayo tinha enlouquecido. Por cima da Central, o céu estava verde de ponta a ponta, um verde frio que pintava os telhados e os rostos de quem corria. Contra aquele fundo abriam-se costuras finas de luz violeta e azul-escura, tão compridas que Bruno as via passar atrás das torres. Cada uma alargava, fechava e deixava outra no lugar. Sinos tocavam em bairros diferentes, sem acordo. Gente de camisola e chinelo atravessava as ruas com crianças no colo. Janelas batiam sozinhas com o vento das aberturas. Uma carroça de pão tinha virado diante de uma farmácia, e as cestas rolavam pelo calçamento, com sombras compridas passando sobre elas na direção errada.
 
 — Sigam pela Rua das Lavadeiras até a estação de túbulas — disse Grimaldus. — A linha de Camporil ainda está funcionando. A casa de Lioro fica perto da Campina de Talven, com muro de pedra e portão de ferro. Tranquem tudo e não abram para ninguém, nem para mim.
 
@@ -336,7 +336,7 @@ A rua era de pedra molhada, estreita, com lampiões a gás pendurados em ferros 
 
 Ouviram um grito na primeira esquina, e Bruno parou antes de decidir parar.
 
-Uma mulher gorda, de avental, estava agarrada à porta de uma padaria, e uma coisa comprida, de braços de tronco e dedos finos como arames, tinha enrolado a cintura dela e puxava para o meio da rua. Atrás dela, um menino de uns seis anos gritava por ela com as duas mãos no ar. A criatura não tinha rosto. Tinha uma abertura redonda no peito, como uma boca de chaminé, e a abertura abria e fechava, cheirando.
+Uma mulher de avental estava agarrada à porta de uma padaria, e uma coisa comprida, de braços de tronco negro com veios cor de ameixa e dedos finos como arames, tinha enrolado a cintura dela e puxava para o meio da rua. Atrás dela, um menino de uns seis anos gritava por ela com as duas mãos no ar. A criatura não tinha rosto. Tinha uma abertura redonda no peito, como uma boca de chaminé, que abria e fechava, cheirando, e uma faixa azul-escura escorria pelo corpo dela a cada puxão.
 
 — Bruno, não — disse Banjo.
 
@@ -350,7 +350,7 @@ Bruno ficou parado, com a mão no chão e a respiração em fumaça, olhando o q
 
 — Conseguiu. — Banjo apertou o braço dele. — Agora vamos, porque aquilo vai se soltar.
 
-Correram. Na segunda esquina viram os lampiões se apagarem.
+Correram. Uma coisa saltou de um telhado e atravessou a rua à frente deles, comprida como uma fita de sombra azul-marinho, mas com quatro joelhos que se dobravam para trás. Bruno desviou para não chocar com ela. A criatura veio de lado, sem virar a cabeça, e Banjo arrancou do suporte uma placa de loja com a telecinese. A placa bateu entre eles e o bicho, que se enrolou na madeira e começou a mastigá-la, devagar. Breno passou carregando Lioro e empurrou a grade solta da loja com a mão de metal, fechando a passagem atrás dos irmãos. Não ficaram para ver o que aconteceria quando acabasse a placa. Na segunda esquina viram os lampiões se apagarem.
 
 Foi um pouco de cada vez. O primeiro lampião do fim da rua estremeceu e apagou, soprado por alguém. Depois o segundo, e o terceiro, em fila, cada vez mais perto, e atrás da fila de lampiões apagados veio uma escuridão tão cheia que parecia ter volume, uma parede de nada que avançava devagar pela rua e engolia as janelas, os reflexos, o calor, os sons. As casas ao redor ficaram mudas. Até os sinos, que tocavam longe, abafaram.
 
@@ -432,7 +432,7 @@ Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fec
 
 Voltou para a criatura seguinte, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
 
-Encontraram a estação com as portas de emergência abertas e uma funcionária indicando aos passageiros quais linhas ainda corriam. Breno entrou primeiro no karto, com Lioro desmaiado às costas. Bruno não largou a máscara durante a viagem. Pela janela do tubo transparente, viu o céu verde se acender acima de Coração Branco. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser Ricochet. Mais dois passaram atrás dele e sumiram na direção do clarão. O karto prosseguiu, atravessou uma estação quase vazia e mudou para a ligação de Camporil. A cidade adensada ficou para trás. Do outro lado do vidro surgiram os campos escuros da Campina de Talven, as casas afastadas umas das outras e os muros baixos. O transporte parou duas vezes por causa das interrupções, mas voltou a andar. Quando desceram em Camporil, as ruas estavam estranhamente vazias, de portas fechadas e janelas apagadas. O barulho da luta na Central chegava dali muito abafado, embora os clarões verdes ainda fossem visíveis por cima dos telhados.
+Encontraram a estação com as portas de emergência abertas e uma funcionária indicando aos passageiros quais linhas ainda corriam. Breno entrou primeiro no karto, com Lioro desmaiado às costas. Bruno não largou a máscara durante a viagem. Pela janela do tubo transparente, viu o céu verde se acender acima de Coração Branco. Lá embaixo, numa rua quase vazia, uma sombra cor de ferrugem correu pela parede de uma casa sobre as próprias patas e caiu do outro lado do telhado. Em outra esquina, três vigilantes erguiam escudos contra uma criatura tão escura que só a borda azul das asas revelava onde ela terminava. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser Ricochet. Mais dois passaram atrás dele e sumiram na direção do clarão. O karto prosseguiu, atravessou uma estação quase vazia e mudou para a ligação de Camporil. A cidade adensada ficou para trás. Do outro lado do vidro surgiram os campos escuros da Campina de Talven, as casas afastadas umas das outras e os muros baixos. O transporte parou duas vezes por causa das interrupções, mas voltou a andar. Quando desceram em Camporil, as ruas estavam estranhamente vazias, de portas fechadas e janelas apagadas. O barulho da luta na Central chegava dali muito abafado, embora os clarões verdes ainda fossem visíveis por cima dos telhados.
 
 — Aí, Ricochet — sussurrou Bruno, para o céu. — Quebra tudo.
 

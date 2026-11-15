@@ -1,4 +1,4 @@
-Na terça, depois do jantar, Beatriz pediu o pátio emprestado a Lioro, e Lioro emprestou sem perguntar para quê, o que Breno achou imprudente e não disse. A chuva tinha parado fazia duas horas. As lajotas ainda brilhavam de água, a árvore velha pingava no escuro, e o muro baixo de pedra cercava tudo na altura exata de quem prefere que a rua não veja.
+Na terça, depois do jantar, Beatriz pediu o pátio emprestado a Lioro, e Lioro emprestou sem perguntar para quê, o que Breno achou imprudente e não disse. A chuva tinha parado fazia duas horas. As lajotas ainda brilhavam de água, a árvore velha pingava no escuro, e o muro baixo de pedra cercava tudo na altura exata de quem prefere que a rua não veja. Um fio de água escorria pela canaleta torta do telhado e pingava sempre na mesma lajota. Quando Beatriz se aproximou, o vapor saiu daquela pedra antes mesmo de ela abrir as mãos.
 
 Breno sentou no banco encostado à parede da casa, com o caderno aberto sobre o joelho. Tinha escrito no alto da página Beatriz, pátio, e embaixo duas colunas, o que ela já controlava e o que não. A primeira tinha cinco linhas. A segunda tinha uma, que ele escrevera e riscara duas vezes, e que dizia fogo grande.
 
@@ -14,7 +14,7 @@ Beatriz quase sorriu, e o sorriso se desfez antes de chegar. Ela olhou para a po
 
 — Desde sábado eu penso nos homens que ficaram na porta da casa do Velho-Sábio — disse ela. — Se eles entrarem aqui, eu quero fazer uma chama do tamanho da porta e saber apagar depois. Chama pequena eu já faço. Se eu só fizer o que já sei, vou ficar igual. E igual foi o que eu fui no cerco, parada na escada.
 
-— Do tamanho da porta é muito pra primeira vez. — Breno virou a página e começou uma coluna nova. — Em etapas. Uma mão, depois um prato, depois uma mesa. Cada etapa você apaga inteira antes da próxima. Se uma não apagar, não sobe.
+— Uma porta inteira, Bia? — Breno virou a página. — Faz a de mesa primeiro. Apaga tudo antes de aumentar. Se escapar, eu nem sei onde a gente se esconde.
 
 — Eu sei apagar.
 
@@ -225,11 +225,11 @@ Bruno contou tudo de uma vez, com as mãos, com a voz subindo e descendo, o marc
 
 — Ela não fez nada de mau. Ela encostou a mão no desenho, e deixou um embrulho, e foi embora. Era isso. E a terra lá era triste.
 
-— Fato — disse Breno, devagar, erguendo um dedo enfaixado. — A Ivy sai à noite sem avisar, vai à Campina, encosta a mão num símbolo dos antidimensais e deixa um embrulho. Já deixou outras vezes. O resto é hipótese. Que ela é uma deles. — Baixou a mão. — Razoável. E eu não gosto dela.
+— Fato — disse Breno, erguendo o dedo enfaixado. — A Ivy foi à Campina, tocou aquele símbolo e deixou um embrulho. Agora vocês querem que eu acredite que ela é dos antidimensais. — Baixou o dedo. — Eu não gosto dela, mas não vi isso.
 
 — Palpite bom — disse Bruno.
 
-— Isso a gente não conta ao Lioro. — Breno olhou para Banjo e ficou esperando uma resposta que ele não tinha. — Ainda não. Se for engano, a gente acusa a família que nos abrigou. Se não for, avisa o Velho-Sábio quando tiver certeza. Eu não quero fazer de vocês uma notícia.
+— Nem uma palavra pro Lioro por enquanto. — Breno olhou para Banjo. — A gente tá dormindo na casa dele. Não vou chamar a família de traidora por causa de uma sombra que vocês seguiram de noite. Vou falar com o Velho-Sábio.
 
 Banjo abriu a boca para dizer que não gostava do chão daquele lugar, e foi nesse instante que ouviram o ramo. Um ramo fino, batendo no vidro duas vezes, devagar.
 

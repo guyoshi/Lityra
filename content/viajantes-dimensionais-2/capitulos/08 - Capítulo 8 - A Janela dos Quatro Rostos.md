@@ -24,7 +24,7 @@ A varanda tinha um beiral largo, e Ferris estava debaixo dele, não porque tives
 
 — Vim avisar antes que você descubra pelo Grimaldus. Eu vou desfazer a dupla.
 
-— Dois dias antes da prova. — Breno cruzou os braços. — Você sabe que a dupla desfeita perde pontos. Você sabe que eu perco junto, e que o Denis, que já não tem parceira desde que a Shirley foi para o Banjo, vai ficar sem ninguém e vai reclamar disso até o fim do ciclo. E você vem me contar de pé, na minha varanda, molhado, sem entrar. Entra pelo menos.
+— Dois dias antes da prova, Ferris? — Breno cruzou os braços. — Eu perco seis pontos e você ainda aparece ensopado na minha varanda. Entra logo. O Denis vai ficar feliz, pelo menos.
 
 — Se eu entrar, a Kali me oferece alguma coisa, você me manda sentar e eu não saio mais. — O canto da boca dele se mexeu, uma coisa pequena e quase sem humor. — Eu sei de tudo isso. Pensei nisso a noite inteira, e a conta fecha do mesmo jeito.
 
@@ -103,7 +103,7 @@ Do primeiro andar subiu um barulho de passos, e Bruno apareceu no alto da escada
 
 — Eu sou só gelo, Breno. Eu não vou machucar ninguém.
 
-— Você não sabe disso. Eu também não sei, e quem não sabe não desce. — Breno se virou para ele, e falou com a voz baixa, a que Bruno conhecia. — Se um deles levar uma queimadura de frio, a Central escreve a manchete antes de a gente terminar de explicar. Eles querem exatamente isso, Bruno. Querem a gente lá fora, fazendo qualquer coisa.
+— Bruno, para. — Breno se virou para ele, falando tão baixo que o irmão teve de chegar perto. — É só você fazer uma pontinha de gelo lá fora e amanhã dizem que a gente atacou primeiro. Fica aqui comigo.
 
 Uma pedra bateu na vidraça da frente, no andar de baixo, com um estalo seco que fez Banjo encolher os ombros. O vidro não quebrou. A pedra ficou parada um instante a um palmo da superfície, suspensa, como se o ar tivesse mudado de ideia, e depois caiu na grama. Lá fora, alguém soltou um palavrão, e outra pedra veio atrás.
 
@@ -249,7 +249,7 @@ A despedida foi curta, porque eles não tinham prática em fazer uma mais compri
 
 Ela disse a frase como todas as manhãs, com a mesma cadência, mas a luz do rosto dela demorou um segundo a mais para se apagar.
 
-Camporil ficava do outro lado da cidade, e a viagem durou quase uma hora, de túbula e depois de karto, sob uma chuva que não tinha pressa de acabar. A casa de Lioro era de pedra clara, baixa e comprida, rodeada de muro, com um portão de ferro que se abria para um pátio de lajotas lisas e uma árvore velha de galhos retorcidos. Cheirava a lenha e a sopa, e no cabide da entrada uma capa escura pingava no tapete, com a barra suja de terra vermelha. Lioro os esperava na porta, de barba molhada, com toalhas penduradas no braço e a calma de quem leva visitas para dentro há muitos anos.
+Camporil ficava do outro lado da cidade, e a viagem durou quase uma hora, de túbula e depois de karto, sob uma chuva que não tinha pressa de acabar. O karto os deixou perto do Largo da Fonte, uma pracinha redonda com quatro bancos de pedra. A fonte do meio estava seca, mas um dos plátanos pingava no banco de baixo, e Beatriz pulou três poças para experimentar se as pedras eram escorregadias. A casa de Lioro ficava do outro lado, baixa e comprida, de pedra clara, rodeada de muro, com um portão de ferro que se abria para um pátio de lajotas lisas e uma árvore velha de galhos retorcidos. Cheirava a lenha e a sopa, e no cabide da entrada uma capa escura pingava no tapete, com a barra suja de terra vermelha. Lioro os esperava na porta, de barba molhada, com toalhas penduradas no braço e a calma de quem leva visitas para dentro há muitos anos.
 
 — Meus jovens, entrem antes que a chuva resolva entrar junto. — Distribuiu as toalhas uma a uma, olhando cada um nos olhos. — A casa é de pedra, e pedra é lenta para se aquecer, mas depois não perde o calor. Os quartos são em cima. Vocês dividem como quiserem, e eu só peço que não discutam em voz alta antes do café. A Nayra chegou ontem à noite e dorme no quarto dos fundos, no térreo. Pediu que eu dissesse que está melhor, o que quer dizer que está igual, mas com mais opinião.
 
