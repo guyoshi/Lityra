@@ -194,15 +194,61 @@ Ferris dobrou o papel em quatro de novo, devagar, e o guardou dentro do capacete
 
 — O senhor fez o que podia. — Ferris levantou a cabeça. — Para onde ele foi?
 
-— Para a beirada. Eu mostro, mas não vou além do campo.
+— Para o cume. — O velho largou o baú, flutuou até a janela da cozinha, que ficava no teto, e puxou a cortina de remendos. Muito longe, acima do capim, havia uma montanha preta com a ponta enrolada numa nuvem que piscava de raio por dentro. — Eu não saio desta casa, meu jovem. Não saio faz cinquenta anos, e ela também não gosta que eu saia, é meio apegada. Mas dessa janela eu vejo o cume quando os raios abrem, e o caminho eu sei de cor, de tanto olhar. Tem uma trilha de pedras brancas até o pé da montanha. Dali é subir. A subida é feia, vento que vem de todos os lados, raio que não escolhe, pedra que sai do lugar. Quem sobe de mãos vazias não chega.
+
+— A gente tem magia — disse Banjo.
+
+— Então use, que ali pode. — Odilon soltou a cortina e virou o rosto, e o rosto tinha mudado. A cara de contador de histórias tinha ido embora, e ficou uma cara de velho assustado. — Agora escutem os quatro, que isto eu não conto como história. Conto como aviso. Quem veste a máscara e ela não aceita fica preso nela. Preso quer dizer para sempre. O rosto cola, ninguém de fora consegue puxar, e quem está dentro não consegue sair. Meu tio subiu uma tarde só para ver, só uma vez. Eu o vi daqui, de pé na beirada, onze anos. Uma manhã ele já não estava lá, e a casaca ficou no chão. Foi a última vez que eu saí desta porta, para buscar a casaca.
+
+Ninguém disse nada. Bruno olhou a casaca de remendos que o velho vestia, e ela de repente parecia pesar mais do que quando ele entrou.
+
+— Então, se a gente chegar lá e ela não quiser — disse, devagar —, quem tocar nela não volta.
+
+— Quem tocar com medo, ou por si, não volta. — Odilon ergueu um dedo comprido. — A máscara escuta a diferença. Pensem muito antes de encostar, e se tiverem dúvida, não encostem, e voltem aqui, que eu faço chá e a gente pensa em outra coisa.
+
+— Eu não vou ter dúvida — respondeu Bruno, e a voz saiu mais firme do que ele sentia.
+
+— É isso que me assusta, rapaz.
 
 A pior parte do caminho foi o corredor, porque desceram dele de ponta-cabeça, numa fila de quatro, de mãos dadas, e só chegaram ao capim quando Bigorna os empurrou com o focinho, um por um, para fora da porta azul. O ar de fora era seco e quente, e o céu continuava de um laranja parado, e Bruno se deitou de costas no capim por três respirações, olhando a luz sem sol, e se perguntou se o mundo tinha sempre sido tão cheio de caminho torto ou se só agora ele estava reparando.
 
 — Bora — disse. — Antes que eu mude de ideia, e eu tô perto de mudar.
 
-Atravessaram o campo em silêncio. Odilon os acompanhou até uma pedra no meio do capim, pintada de branco, e ali parou, com o lampião aceso no punho e Bigorna ao lado, e os dois ficaram olhando-os se afastar, o velho muito pequeno, o bicho muito redondo, até virarem uma mancha laranja contra o laranja do chão.
+Atravessaram o campo em silêncio, seguindo a fila de pedras brancas que alguém tinha pintado, uma a cada vinte passos, numa época em que o dono da casa ainda saía dela. Atrás deles, a porta azul ficou aberta um tempo, com o lampião aceso na soleira e dois vultos pequenos olhando, o de um velho e o de um bicho redondo, até virarem uma mancha laranja contra o laranja do chão.
 
-A beirada era uma fenda sem fundo. Bruno chegou a dez passos dela e parou, com o estômago apertado. A terra acabava de repente, em um corte limpo, e o que vinha depois era só ar, um ar espesso, cor de fumaça, que subia devagar, e lá embaixo, muito longe, brilhava uma coisa que podia ser um rio ou podia ser uma lembrança.
+No pé da montanha o céu laranja acabava. Em cima da ponta preta pendia uma nuvem grossa que piscava por dentro de um branco azulado, e o vento descia dela em rajadas tão fortes que o capim deitava inteiro e levantava de novo.
+
+— Ele falou que o vento vinha de todos os lados — gritou Bruno, com a gola do casaco batendo na cara. — Não falou que o vento tinha mau humor!
+
+A subida começou numa encosta de pedra solta. A cada passo a pedra de baixo escorregava, e a de cima descia atrás, rolando em direção às canelas deles, e foi Banjo quem resolveu aquilo, parado no meio do caminho, com a mão aberta e o rosto franzido. As pedras que desciam pararam no ar, penduradas, e ficaram assim até os quatro passarem por baixo, uma a uma, com uma lentidão que fazia o estômago de Bruno apertar. Quando a última passou, Banjo soltou o ar, e a chuva de pedras caiu atrás deles sem nenhum estrago, e ele limpou o nariz na manga e viu que a manga tinha ficado vermelha.
+
+— Está sangrando — disse Shirley.
+
+— É só um pouquinho. — Banjo se agachou, com Farol espiando do capuz. — Eu aguento mais três assim. Quatro, se ninguém me disser que eu estou sangrando.
+
+Ferris subia na frente, rápido, com as mãos e os pés achando as fendas, e pareciam já conhecer o lugar, e a cada trecho firme prendia a corda numa saliência e jogava a ponta para baixo. Foi ele quem avisou do paredão, uma parede lisa de rocha preta, polida pelo vento, sem uma fenda sequer. Bruno olhou para cima, olhou para a corda que balançava solta lá no alto e pôs a palma da mão na rocha. O frio saiu dele sozinho, rápido, e uma geada branca correu pela pedra, engrossou, e dela nasceu um degrau de gelo, depois outro, subindo em curva pela parede. O sino de gelo bateu na cabeça dele no ritmo dos degraus, e ele subiu criando a escada debaixo dos próprios pés, com os outros atrás.
+
+O primeiro raio desceu quando Bruno estava no meio do paredão.
+
+Foi um clarão branco que fez o mundo inteiro sumir, e depois um estalo que Bruno sentiu nos dentes, e depois ele viu que o raio estava na mão de Shirley. Ela tinha se virado de lado, na escada de gelo, com um braço esticado para o céu, e a luz descia pela palma dela, passava pelo corpo, e saía pelos pés para dentro da rocha, que ficou preta e fumegando debaixo da bota. Os cabelos dela se levantaram em todas as direções.
+
+— Cosquinha — disse, e riu, e o riso saiu meio tremido. — Continuem andando. Eu pego os próximos.
+
+— Você está brilhando — disse Banjo, de olhos arregalados.
+
+— Eu sei. Não olhem.
+
+O segundo raio veio da esquerda, e o terceiro de cima. Shirley pegou um e depois o outro, e na quarta vez o raio bateu tão perto de Ferris que a corda dele estalou, e ele soltou um grito que Bruno nunca tinha ouvido na boca dele. Foi aí que o vento mudou de lado. A rajada pegou Bruno de frente, arrancou a mão dele do gelo, e ele sentiu o corpo inteiro ir para trás, os pés escorregando da escada, a boca abrindo sozinha, e o que saiu dela foi um grito tão agudo que quase ninguém ouviu.
+
+Uma força o agarrou pelo colarinho no meio do ar. Era invisível, firme, um pouco trêmula, e o puxou de volta para o degrau, e o pousou com o cuidado de quem põe um copo na mesa. Banjo estava dois degraus abaixo, de braço esticado, com sangue no queixo e um sorriso pequeno.
+
+— Eu não gritei — disse Bruno, ainda de olhos fechados. — Foi o vento que saiu pela minha boca.
+
+— Claro — respondeu Banjo.
+
+Subiram o resto do paredão assim, os quatro juntos, cada um fazendo o que sabia, Bruno com o gelo, Banjo segurando o que caía, Ferris prendendo a corda e Shirley engolindo os raios um a um. Quando atravessaram a nuvem, o vento parou de uma vez, esquecido do que fazia, e eles chegaram ao cume de roupas fumegando, de bocas abertas, deitados de costas numa pedra lisa e quente, olhando o céu laranja voltar por cima deles e o trovão continuar embaixo, abafado, como uma briga de vizinhos.
+
+Bruno levantou primeiro. O cume era plano, de rocha cinzenta, e acabava de repente. Chegou a dez passos da borda e parou, com o estômago apertado. A terra terminava num corte limpo, e o que vinha depois era só ar, um ar espesso, cor de fumaça, que subia devagar, e lá embaixo, muito longe, brilhava uma coisa que podia ser um rio ou podia ser uma lembrança.
 
 Na beirada havia uma estátua.
 
