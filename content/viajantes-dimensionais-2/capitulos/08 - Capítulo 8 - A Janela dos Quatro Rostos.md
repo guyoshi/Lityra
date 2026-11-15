@@ -2,7 +2,7 @@ A chuva tinha começado na noite de sexta e, no sábado de manhã, escorria pela
 
 Breno comia de pé, ao lado da pia, com o caderno aberto sobre a bancada. No alto da página tinha escrito Segunda, desafio 2, e embaixo uma lista de coisas a levar e a perguntar ao juiz. A linha da dupla, Breno e Ferris, ele tinha feito a lápis, por costume, e já a tinha repassado duas vezes sem saber por quê.
 
-— Informo que o senhor Graven enviou o aviso da segunda prova às sete e quarenta — disse a tela de Kali, que flutuava rente ao teto, perto da lâmpada. — Segunda-feira, às nove, no Bosque de Sorevan, que ele descreve como silencioso por fora e barulhento por dentro. As duplas devem levar um cantil, uma lanterna de mão e, cito, ouvidos descansados. Informo também que ninguém aqui dormiu o suficiente para cumprir a última exigência.
+— O senhor Graven mandou o aviso da segunda prova às sete e quarenta — disse a tela de Kali, que flutuava rente ao teto, perto da lâmpada. — Segunda-feira, às nove, no Bosque de Sorevan, que ele descreve como silencioso por fora e barulhento por dentro. As duplas devem levar um cantil, uma lanterna de mão e, cito, ouvidos descansados. Pelas minhas contas, ninguém nesta casa dormiu o bastante para cumprir a última exigência.
 
 — Barulhento por dentro — repetiu Banjo, e largou a torrada. — Eu gosto de lugar barulhento por dentro. Quer dizer, depende de quem faz o barulho. Se for árvore, eu gosto. Se for gente, eu fico meio... deixa.
 
@@ -14,7 +14,7 @@ Breno comia de pé, ao lado da pia, com o caderno aberto sobre a bancada. No alt
 
 Átila levantou a cabeça do tapete, apontou as orelhas para a porta da frente e deu um latido só, curto, de quem avisa e não de quem ataca. Kali girou a tela devagar na direção do corredor.
 
-— O senhor Ferris Montfort está no portão. Está encharcado e não tocou a campainha. Registro quatro minutos parado, de pé, olhando a casa.
+— É o Ferris, no portão. Está encharcado e não tocou a campainha. Faz quatro minutos que está parado, de pé, olhando a casa. Eu abriria, mas acho que ele ainda está decidindo.
 
 Breno fechou o caderno. Banjo fez menção de levantar, e ele estendeu a mão com a palma aberta, sem olhar para trás.
 
@@ -48,7 +48,7 @@ Breno pensou em perguntar quanto tempo ele pretendia ficar, em oferecer o casaco
 
 Desceu os degraus de dois em dois e atravessou o jardim sem correr. O portão rangeu, e a figura dele ficou do outro lado da rua, cinza dentro da chuva cinza, até dobrar a esquina e sumir. Breno ficou mais um minuto na varanda. Quando voltou à cozinha, pegou a borracha, passou-a pela linha da dupla até o papel esfarelar e escreveu embaixo, com mais força do que precisava, o nome de Denis.
 
-— A dupla Montfort e Lins foi retirada do registro por solicitação do primeiro integrante — informou Kali, num tom que tentava ser neutro. — O senhor Graven respondeu em três minutos e dez segundos. Desconta seis pontos de cada lado e declara a dupla do senhor Korran, que ficou sem parceira, restabelecida com o senhor Lins. O senhor Korran já enviou duas mensagens de agradecimento. A segunda tem um desenho de um cachorro.
+— O Ferris pediu para desfazer a dupla, Breno — disse Kali, mais baixo do que de costume. — O senhor Graven respondeu em três minutos e dez segundos. Desconta seis pontos de cada lado e põe você de novo com o Denis, que tinha ficado sem parceira. O Denis já mandou duas mensagens de agradecimento. A segunda tem um desenho de um cachorro.
 
 — O Denis desenhou um cachorro? — perguntou Bruno, da porta, de pijama, com o cabelo em pé.
 
@@ -71,9 +71,9 @@ O Velho-Sábio saiu às duas da tarde, com o cajado e um casaco impermeável que
 
 Saiu pelo portão, e o cajado marcou o passo no molhado até a esquina. O resto da tarde começou do jeito que as tardes de chuva começam, sem pressa. Bruno e Banjo jogaram cartas na sala, com Farol enrolado no pescoço de Banjo, e Bruno trapaceou de um jeito tão escancarado que Banjo achou que era brincadeira e perdeu de propósito. Beatriz sentou-se perto da lareira com uma tira de pano, tentando fazer um nó que a mãe sabia e que ela só lembrava até a metade.
 
-Foi Kali quem avisou, às três e doze, com a voz de quem lê um aviso de horário.
+Foi Kali quem avisou, às três e doze, numa voz baixa que ela quase nunca usava.
 
-— Informo que há doze pessoas na rua, em frente ao portão. Não foram convidadas.
+— Breno. Tem doze pessoas na rua, em frente ao portão. Ninguém as convidou.
 
 Breno largou o livro. Bruno, na sala, virou a carta que tinha na mão.
 
@@ -89,11 +89,11 @@ Era a frase que Denis tinha repetido na mesa de jantar. Dita ali, em coro, debai
 
 — Voltem para a casa de vocês! — gritou um dos rapazes, e outros responderam. — Tayo é nossa!
 
-— Trinta e quatro — disse Kali, na parede ao lado dele. — Informo que a barreira da casa está em cem por cento e que impede qualquer pessoa de tocar em qualquer um dos senhores. Informo também que ela nunca foi testada contra mais de seis pessoas ao mesmo tempo.
+— Trinta e quatro — disse Kali, na parede ao lado dele. — A barreira da casa está em cem por cento. Ninguém lá fora consegue encostar em nenhum de vocês. — O brilho dela baixou. — Ela nunca foi testada contra mais de seis pessoas ao mesmo tempo.
 
-— Por que a senhora está me falando isso?
+— Por que você está me falando isso?
 
-— Porque o senhor perguntaria. E porque o senhor Auream pediu que eu respondesse a verdade quando os senhores perguntassem, o que o senhor já fez, em silêncio, com o rosto.
+— Porque você ia perguntar. E porque o Velho-Sábio me pediu para dizer a verdade quando vocês perguntassem. Você já perguntou, Breno. Com o rosto.
 
 Do primeiro andar subiu um barulho de passos, e Bruno apareceu no alto da escada, com Banjo atrás e Beatriz no fim, de olhos enormes, agarrada na tira de pano. Átila veio junto, rente à perna de Breno, com o corpo duro.
 
@@ -111,7 +111,7 @@ Uma pedra bateu na vidraça da frente, no andar de baixo, com um estalo seco que
 
 — É — respondeu Breno, e esperou que a palavra soasse mais firme do que tinha soado.
 
-— Quarenta e um — disse Kali. — O senhor William McCroys tem chegada prevista para as dezesseis horas. A probabilidade de ele chegar antes é de nove por cento.
+— Quarenta e um — disse Kali. — O senhor McCroys deve chegar às quatro. A chance de ele chegar antes é de nove por cento. Eu refiz a conta três vezes.
 
 — O McCroys? — Bruno quase gritou, e levou a mão à boca. — O McCroys do anel? O que jurou negar tudo se alguém contasse que ele foi educado? O Velho-Sábio chamou o McCroys?
 
@@ -121,7 +121,7 @@ Uma pedra bateu na vidraça da frente, no andar de baixo, com um estalo seco que
 
 — Ele não é mal-humorado com a gente — disse Breno, sem saber ao certo se acreditava. — É com todo mundo. É diferente.
 
-Às três e quarenta e uma, o portão cedeu. Foi um barulho de dobradiça arrancada, e depois o jardim se encheu de vozes mais próximas, de passos na grama, de botas no caminho de pedra. Kali avisou, em tom de cortesia, que o portão nunca tinha feito parte da barreira. Beatriz soltou um som que não chegou a ser palavra e se sentou no último degrau, com as mãos entre os joelhos. Na pele da palma, perto do pulso, subia uma fumaça fina.
+Às três e quarenta e uma, o portão cedeu. Foi um barulho de dobradiça arrancada, e depois o jardim se encheu de vozes mais próximas, de passos na grama, de botas no caminho de pedra. Kali avisou, depressa, que o portão nunca tinha feito parte da barreira e que a casa continuava inteira. Beatriz soltou um som que não chegou a ser palavra e se sentou no último degrau, com as mãos entre os joelhos. Na pele da palma, perto do pulso, subia uma fumaça fina.
 
 — Bia. — Breno se agachou diante dela, e tirou a tira de pano do punho dela com cuidado. — Olha para mim. Não é para você fazer nada. Você ouviu? Nada. A casa faz.
 
@@ -133,7 +133,7 @@ Ela respirou. Depois, sem perceber, começou a cantarolar, baixinho, três notas
 
 Às três e quarenta e oito começaram a bater na porta da frente. Não era soco, era algo mais pesado, um tronco ou um poste, com um ritmo de homens contando juntos. A madeira rangeu a cada pancada, e a cada pancada Átila rosnou no fundo do peito.
 
-— A porta está em setenta por cento de integridade — informou Kali. — Eu apago as luzes da frente, para que de fora não se veja quem está onde.
+— A porta está em setenta por cento — disse Kali. — Vou apagar as luzes da frente, para que de fora ninguém veja onde vocês estão.
 
 As luzes do andar de baixo se apagaram uma a uma. A de cima continuou acesa, e foi aí que Beatriz, com os olhos úmidos, se levantou e foi até a janela do corredor.
 
@@ -190,7 +190,7 @@ O Velho-Sábio voltou às seis, com a água escorrendo do casaco e uma expressã
 
 — Kali. O registro.
 
-— Quinze horas e doze minutos, primeira presença na rua. Cinquenta e sete pessoas no máximo. Três pedras, duas barras, um tronco. A barreira ficou a cem por cento durante toda a ocorrência. Nenhuma pessoa tocou em nenhum dos senhores. Registro zero toques.
+— Quinze horas e doze minutos, primeira presença na rua. Cinquenta e sete pessoas no máximo. Três pedras, duas barras, um tronco. A barreira ficou a cem por cento durante toda a ocorrência. Ninguém encostou em nenhum dos quatro. Zero toques. Eu contei.
 
 — Zero. — Velho-Sábio se sentou na poltrona devagar, estendendo a perna ruim. — Eu desenhei essa casa para que ninguém pudesse encostar em vocês, nem que viesse o conselho inteiro com ordem assinada. O que ela não evita é o susto, e o susto eu devo a vocês, e não vou pagar com desculpa. Pedi ao William que viesse às quatro, porque a reunião devia acabar às três. Ele chegou às quatro menos cinco, pontual como sempre, e o conselho me segurou na sala até as cinco.
 
@@ -200,7 +200,7 @@ O Velho-Sábio voltou às seis, com a água escorrendo do casaco e uma expressã
 
 Na parede, a tela de Kali acendeu sozinha, e a voz dela falou antes que ele terminasse.
 
-— Informo que o canal da Central está transmitindo uma declaração do Alto Conselheiro Cheisen Beker. Devo reproduzir?
+— O canal da Central está transmitindo uma declaração do Alto Conselheiro Cheisen Beker. Quer que eu reproduza?
 
 — Reproduza.
 
@@ -210,7 +210,7 @@ A tela se abriu em dois, e no rosto de Beker, um homem de sorriso enviesado e ol
 
 — Ninguém quase morreu, Bruno — disse Breno. Depois se lembrou do braço do homem de jaqueta e acrescentou, mais baixo: — Quase ninguém.
 
-— O selo da declaração marca quatorze horas e cinquenta e oito minutos — informou Kali, no tom mais neutro que conseguiu. — Informo, sem opinião, que a primeira pedra bateu no vidro às quinze e vinte e três.
+— O selo da declaração marca quatorze horas e cinquenta e oito minutos — disse Kali, no tom mais neutro que conseguiu. — A primeira pedra bateu no vidro às quinze e vinte e três. Eu não dou opinião. Só fiz a conta.
 
 Um silêncio pesado caiu sobre a sala. Velho-Sábio olhou para a parede, depois para o teto, e por fim pegou a xícara de Beatriz, que estava intocada, e bebeu o chá dela de um gole.
 
@@ -235,17 +235,17 @@ Bug chegou às nove da manhã de domingo, empurrando um carrinho de bagagem de d
 
 — Eu durmo de dia, que é quando ninguém precisa de mim. — Bug sorriu, mostrando os dentes pequenos. — Eu gostava de entregar nesta casa. Tinha um cachorro que me cheirava a mão toda vez, e uma voz na parede que me chamava de senhor Bug.
 
-— Eu continuo chamando — disse Kali, da tela, e a voz soou um pouco diferente do habitual. — Informo que o senhor é cordial.
+— Eu continuo chamando — disse Kali, da tela, e a voz soou um pouco diferente do habitual. — O senhor é sempre cordial, senhor Bug.
 
 A despedida foi curta, porque eles não tinham prática em fazer uma mais comprida. Banjo se ajoelhou em frente a Átila, enterrou o rosto no pescoço do cão e ficou ali, sem falar. Beatriz deixou a tira de pano no encosto do sofá, "para a Kali não ficar sem ter o que olhar". Bruno foi o último a sair e parou na porta, com a mochila de um lado, de costas para a sala.
 
 — Kali.
 
-— Estou aqui, senhor Bruno.
+— Estou aqui, Bruno.
 
 — Não deixa o vizinho do lado entrar na cozinha. Ele rouba pão quando ninguém está olhando. — Pigarreou. — E toma conta do velho. Ele ronca, mas não conta.
 
-— Registrado. — A tela ficou parada um instante. — Que a luz encontre vocês.
+— Anotado. As duas coisas. — A tela ficou parada um instante. — Que a luz encontre vocês.
 
 Ela disse a frase como todas as manhãs, com a mesma cadência, mas a luz do rosto dela demorou um segundo a mais para se apagar.
 

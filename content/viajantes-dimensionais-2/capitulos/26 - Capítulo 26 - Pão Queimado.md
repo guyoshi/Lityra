@@ -206,15 +206,19 @@ O portão rangeu no mesmo ponto. O jardim tinha as plantinhas saltitantes em vol
 
 A tela flutuou até a porta, do tamanho de uma janela pequena, com o rosto luminoso de linhas suaves e a mesma expressão de sempre, polida, de quem tem uma observação na ponta da língua.
 
-— Registro de entrada: quatro hóspedes, nenhum ausente. A geladeira está abastecida em noventa e quatro por cento por ordem do senhor Auream. Informo que a sopa de ontem à noite, preparada pelo senhor Auream, não foi aprovada por ninguém, inclusive por Átila.
+— Quatro chegaram, nenhum faltando. Eu contei duas vezes. A geladeira está abastecida em noventa e quatro por cento, por ordem do Velho-Sábio. A sopa de ontem à noite, que ele mesmo fez, não foi aprovada por ninguém, inclusive pelo Átila.
 
 Átila apareceu da cozinha antes de Banjo conseguir responder. Veio correndo com as quatro patas, de orelhas castanhas voando e língua para fora, derrapou no tapete e bateu com o corpo inteiro nas pernas de Banjo, que caiu sentado. A pelagem branca e caramelo cheirava a cachorro e a pão. Banjo ficou deitado de costas no chão, com as duas mãos enfiadas no pelo, enquanto Átila lambia os óculos dele com uma dedicação científica. Do capuz, Farol saiu como um foguete pequeno, pousou na cabeça do cachorro e puxou uma das orelhas castanhas. Átila, que aguentava Bruno, a casa inteira e Kali, aguentou também isso, de olhos fechados, como quem recebe uma promoção.
 
-— Ele sentiu sua falta — informou Kali. — Dormiu em cima do seu travesseiro por três noites. Não fui informada de quem deu permissão. Registro também que o passageiro Farol consta como bagagem de mão. Ele contesta.
+— Ele sentiu sua falta — disse Kali. — Dormiu em cima do seu travesseiro por três noites. Ninguém me contou quem deu permissão. E o Farol consta na minha lista como bagagem de mão. Ele contesta.
 
 — Você deu — disse Velho-Sábio, passando pela sala com a bengala.
 
 — Eu não dei. Eu registrei que aconteceu.
+
+— Ele não é bagagem — disse Banjo, e Farol, no capuz, confirmou com um chilreio. — Ele come fruto azul, bebe água na tampinha e eu converso com ele todo dia. Conta como pessoa.
+
+— Registrado. — A tela demorou um segundo. — Passageiro reclassificado. Eu continuo achando bagagem de mão, mas anotei a sua opinião.
 
 Bruno estava parado na porta, de mochila nas costas, e olhava a tela. Tinha uma cara que Banjo não via nele havia dias, a de quem se prepara para uma piada e descobre que não tem nenhuma pronta.
 
@@ -224,13 +228,13 @@ Bruno estava parado na porta, de mochila nas costas, e olhava a tela. Tinha uma 
 
 — Isso não é uma palavra, Kali. São duas.
 
-— Eu contei como uma. — A tela piscou. — Peço gravação de uma frase para o meu arquivo. Qualquer frase. Eu escolho o que guardar.
+— Eu contei como uma. — A tela piscou. — Me deixa gravar uma frase sua, para o meu arquivo. Qualquer frase. Eu escolho o que guardar.
 
 Bruno abriu a boca. Banjo viu o irmão pensar numa piada, depois noutra, e descartar as duas.
 
 — Vou voltar — disse, simplesmente.
 
-— Registrado. — A tela demorou um segundo a mais do que o normal. — Probabilidade: cem por cento. Eu corrigi sozinha.
+— Guardei. — A tela demorou um segundo a mais do que o normal. — Probabilidade: cem por cento. Eu corrigi sozinha.
 
 Bruno riu, e a risada saiu quebrada, e ele passou o braço pela tela, que não era de abraçar e que não se mexeu. Era o mais perto que dava. Banjo olhou para o teto, para o relógio de estrelas, para qualquer lugar, e achou que a casa inteira estava prendendo a respiração.
 
@@ -358,7 +362,7 @@ A prata do arco se desfez em faixas de cor.
 
 Na Terra, a primeira semana foi só de coisa normal, e Breno achou isso quase insuportável.
 
-A segunda-feira começou com aula de matemática. A terça teve prova de geografia, que ele tinha estudado de madrugada porque não conseguia dormir. Na quarta, Bruno foi suspenso do recreio por vender, para três colegas, "ingressos" de uma visita ao laboratório de ciências que não existia. Na quinta, Banjo trouxe da biblioteca um livro sobre aves e passou a tarde inteira olhando para Farol, que tinha vindo no capuz do casaco e dormia entre as almofadas da sala com a fita azul de Shirley no pescoço, e o tio Frank fingia que não via. Na sexta, Beatriz fez o jantar.
+A segunda-feira começou com aula de matemática. A terça teve prova de geografia, que ele tinha estudado de madrugada porque não conseguia dormir. Na quarta, Bruno foi suspenso do recreio por vender, para três colegas, "ingressos" de uma visita ao laboratório de ciências que não existia. Na quinta, Banjo trouxe da biblioteca um livro sobre aves e passou a tarde inteira no sofá com Farol, que tinha vindo no capuz do casaco, dando a ele fatias de maçã e lendo em voz baixa o nome de cada ave. O bichinho escutava entre as almofadas, de olhos meio fechados, como quem aprova, com a fita azul de Shirley no pescoço, e o tio Frank fingia que não via. Na sexta, Beatriz fez o jantar.
 
 Tentou fazer, melhor dizendo. Frank deixou, com a cara de quem sabia o que ia acontecer e preferia que acontecesse na frente dele. Ela misturou a massa com as duas mãos, deixou crescer debaixo de um pano e ficou parada na frente do forno com a respiração fundo, de olhos fechados, contando baixinho. O cheiro de pão queimado veio mesmo assim, uma pitada só, e Frank levantou a sobrancelha. Mas o pão saiu inteiro. Escuro por fora, quente por dentro, torto de um lado.
 

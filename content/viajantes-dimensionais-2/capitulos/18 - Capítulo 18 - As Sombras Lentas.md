@@ -8,7 +8,7 @@ Bruno acordou com um sino batendo na cabeça, e demorou a entender que o sino er
 
 — Dormi um pouquinho. — Banjo ajeitou os óculos com o dedo. — Eu sonhei que o Breno estava me ensinando a amarrar um nó e que eu errava de propósito para ele repetir. Aí eu acordei, e estava aqui.
 
-Bruno se sentou. A coluna estalou em três lugares. Ferris dormia encolhido junto do fogão de tijolo, com o capacete no peito, e Shirley estava com a cabeça apoiada na parede e os olhos fechados, mas a mão dela abria e fechava devagar sobre o joelho, soltando faíscas pequenas que morriam antes de tocar o chão. Farol roncava em cima da mochila de Banjo, com a cauda apagada.
+Bruno se sentou. A coluna estalou em três lugares. Ferris dormia encolhido junto do fogão de tijolo, com o capacete no peito, e Shirley estava com a cabeça apoiada na parede e os olhos fechados, mas a mão dela abria e fechava devagar sobre o joelho, soltando faíscas pequenas que morriam antes de tocar o chão. Farol roncava em cima da mochila de Banjo, com a cauda apagada, ao lado da tampinha de água que Banjo tinha enchido antes de se sentar, e que baixava, devagarinho, a cada vez que o bichinho acordava para beber.
 
 — Bora arrumar a mochila — disse Bruno. — Se eu ficar parado eu começo a pensar, e pensar é uma porcaria.
 

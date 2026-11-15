@@ -96,7 +96,7 @@ Na porta, quando Frank a abriu, o moletom de Banjo deu um tranco. Uma luzinha es
 
 — Casa — disse Frank, baixinho, apontando para dentro. — Agora.
 
-Banjo subiu correndo, acomodou Farol no fundo da mochila, por baixo de um casaco, e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus. Frank não percebeu que o petrisco continuava com ele.
+Banjo subiu correndo, acomodou Farol no fundo da mochila, por baixo de um casaco, e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus. Antes de fechar o zíper, deixou lá dentro uma casca de maçã que tinha guardado do café e uma tampinha de garrafa cheia de água, bem encaixada entre dois cadernos para não derramar. — Come tudo, hein — cochichou. — Eu sei que você acha ruim. Eu também acho. Frank não percebeu que o petrisco continuava com ele.
 
 Saíram debaixo do guarda-chuva grande do tio, que não cobria nenhum deles inteiro, até o ponto do ônibus escolar. Foi só na esquina que Bruno enfiou a mão no bolso, procurou o discman e achou o bolso vazio.
 

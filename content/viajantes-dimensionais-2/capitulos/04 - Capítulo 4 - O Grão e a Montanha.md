@@ -1,6 +1,6 @@
 Kali começou a acordar a casa às cinco e meia, e na terceira semana Bruno já tinha desistido de discutir o horário.
 
-— Bom dia, Bruno — disse a voz da parede, no tom de quem anuncia uma boa notícia. — Doze graus lá fora, nuvens cor-de-rosa até o meio-dia. O treino começa às seis e quinze. O senhor Auream pediu que eu lembrasse que quem chegar atrasado carrega as tigelas.
+— Bom dia, Bruno — disse a voz da parede, no tom de quem anuncia uma boa notícia. — Doze graus lá fora, nuvens cor-de-rosa até o meio-dia. O treino começa às seis e quinze. O Velho-Sábio pediu que eu lembrasse que quem chegar atrasado carrega as tigelas.
 
 — Eu estou morto, Kali.
 

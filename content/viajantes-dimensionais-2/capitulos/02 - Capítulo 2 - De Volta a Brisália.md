@@ -478,7 +478,7 @@ Alguém latiu antes que Velho-Sábio abrisse o portão.
 
 — Átila! — gritou Banjo.
 
-O cão saiu disparado da porta da casa, branco e caramelo, as orelhas longas voando com a corrida. Pulou sobre Banjo com tanta alegria que o garoto precisou se apoiar na parede para não cair. Farol espiou da mochila, viu o focinho chegando perto e se escondeu de novo.
+O cão saiu disparado da porta da casa, branco e caramelo, as orelhas longas voando com a corrida. Pulou sobre Banjo com tanta alegria que o garoto precisou se apoiar na parede para não cair. Farol espiou da mochila, viu o focinho chegando perto e se escondeu de novo. Banjo abriu o zíper e estendeu na palma o último pedaço de maçã. — Come, vai. Ele é do bem, é só grande. Farol cheirou, desconfiou e aceitou o pedaço sem tirar os olhos do cachorro.
 
 — Você tá grande! — Banjo falou, agarrando o pescoço do cachorro. — Você lembra de mim?
 

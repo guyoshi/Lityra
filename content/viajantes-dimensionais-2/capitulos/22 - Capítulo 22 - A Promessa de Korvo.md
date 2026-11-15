@@ -24,7 +24,7 @@ Foi sem um som, de joelhos primeiro, depois de lado, com a bochecha na pedra mor
 
 — Deixem dormir — disse Korvo, com uma gentileza que fez a nuca de Breno gelar. — Um corpo não aguenta tanto céu de uma vez. Ela vai acordar com sede e com dor de cabeça, e será a única coisa errada que lhe terá acontecido hoje.
 
-Banjo não respondeu. Tinha as mãos nas de Shirley e olhava para ela com a testa franzida, e Breno, que conhecia o irmão o bastante para ler esse rosto, entendeu que ele estava tentando sentir alguma coisa nela e sentindo quase nada. Um silêncio liso, quieto demais, como uma lagoa sem vento. Banjo mordeu o lábio, e Farol, no capuz, soltou um chilreio fino e se encolheu.
+Banjo não respondeu. Tinha as mãos nas de Shirley e olhava para ela com a testa franzida, e Breno, que conhecia o irmão o bastante para ler esse rosto, entendeu que ele estava tentando sentir alguma coisa nela e sentindo quase nada. Um silêncio liso, quieto demais, como uma lagoa sem vento. Banjo mordeu o lábio, e Farol, no capuz, soltou um chilreio fino e se encolheu. — Fica aí dentro, tá? — sussurrou Banjo, sem tirar os olhos de Korvo. — Eu te dou um pão de canela depois, o que você escolher.
 
 — O que o senhor quer? — perguntou Breno.
 
