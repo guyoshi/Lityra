@@ -60,7 +60,7 @@ A lanterna de Banjo estava apagada, e ele lembrou que precisava cantar.
 
 — Ninguém pediu uma música, pediu uma voz. Faz um som. Qualquer um, mas que seja o mesmo.
 
-Banjo soltou um som baixo, com a boca quase fechada, e a lanterna acendeu um fiapo de luz amarela, do tamanho do polegar. Shirley pôs a voz por baixo da dele, numa nota mais grave, e a luz subiu devagar, mais clara, e depois mais clara ainda, como a água quando o fogo pega. As árvores em volta mudaram de tom. Banjo as sentia desde o primeiro passo, do jeito que ele sempre as sentia, um peso de sensação que vinha de baixo e de dentro, de raízes e de seiva, e não era uma coisa que ele pudesse explicar a alguém. Até aquele momento, o que ele sentia era um frio de quarto vazio, de gente que prende o ar. Quando a luz cresceu entre as duas vozes, o frio ficou mais fraco, e uma coisa parecida com estar em casa subiu pelos troncos, devagar.
+Banjo soltou um som baixo, com a boca quase fechada, e a lanterna acendeu um fiapo de luz amarela, do tamanho do polegar. Shirley pôs a voz por baixo da dele, numa nota mais grave, e a luz subiu devagar, mais clara, e depois mais clara ainda, como a água quando sobe num poço. As árvores em volta mudaram de tom. Banjo as sentia desde o primeiro passo, do jeito que ele sempre as sentia, um peso de sensação que vinha de baixo e de dentro, de raízes e de seiva, e não era uma coisa que ele pudesse explicar a alguém. Até aquele momento, o que ele sentia era um frio de quarto vazio, de gente que prende o ar. Quando a luz cresceu entre as duas vozes, o frio ficou mais fraco, e uma coisa parecida com estar em casa subiu pelos troncos, devagar.
 
 — Elas gostaram — disse ele, sem pensar.
 
