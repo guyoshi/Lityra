@@ -202,7 +202,11 @@ Era o sétimo sinal, e tinha deixado de ser sinal para virar um rugido de trem e
 
 — Lioro! — gritou Bruno.
 
-Lioro largou a chaleira e abriu os braços. O ar veio do alto das galerias numa corrente tão forte que arrancou os estilhaços do caminho dos aprendizes e os lançou contra a parede vazia. Duas crianças que caíam perto do arco foram empurradas para trás de uma coluna, junto com um dos guardas. Breno nunca vira Lioro mover tanto ar de uma vez. O professor já se inclinava para proteger Banjo quando a segunda onda de som o atingiu de frente. Caiu para trás sem dobrar os joelhos, como uma árvore cortada. A cabeça bateu na pedra, e ele ficou imóvel, de olhos fechados e boca entreaberta. Breno se ajoelhou ao lado dele, sentiu a respiração no dorso da mão e soltou o ar. Estava vivo, mas não acordava.
+Lioro largou a chaleira e abriu os braços. O ar veio do alto das galerias numa corrente tão forte que arrancou os estilhaços do caminho dos aprendizes e os lançou contra a parede vazia. Duas crianças que caíam perto do arco foram empurradas para trás de uma coluna, junto com um dos guardas. Breno nunca vira Lioro mover tanto ar de uma vez.
+
+A segunda onda de som encontrou a parede de vento e a fez dobrar como pano molhado. Lioro deslizou dois passos pela pedra, travou o cajado no chão e tornou a erguer o braço. O rosto dele tinha perdido a cor, mas os olhos continuavam nos quatro.
+
+— Pela parede norte! — gritou. — Perto de mim, agora!
 
 Foi então que a viu.
 
@@ -260,7 +264,11 @@ Bruno agarrou a máscara no ar com as duas mãos, e Breno viu o rosto do irmão 
 
 — Vão! — A voz do velho nunca tinha soado tão pouco com a dele. — Isto não é o lugar de vocês! Corram, corram!
 
-Breno não pensou. Se pensasse, não ia. Abaixou-se, passou o braço por baixo de Lioro, que pesava uns oitenta quilos de professor e de panela, e o ergueu sobre os ombros enquanto o metal subia pela pele dos braços e das costas, frio e grosso, e o peso sumia, e Lioro parecia feito de travesseiro. Os outros três já estavam correndo. Bruno com a máscara apertada no peito e o cobertor caindo, Banjo puxando Beatriz pela mão, Beatriz olhando por cima do ombro para a porta quebrada onde a figura pálida de Shirley ainda pairava, esperando, como quem não tem nenhuma pressa.
+Breno não pensou. Se pensasse, não ia. Lioro passou por ele primeiro, ainda com uma das mãos estendidas para segurar o ar, e apontou o caminho de luz que subia pela parede norte.
+
+— Por aqui! Não parem no vão!
+
+Os quatro foram atrás dele. Bruno com a máscara apertada no peito e o cobertor caindo, Banjo puxando Beatriz pela mão, Beatriz olhando por cima do ombro para a porta quebrada onde a figura pálida de Shirley ainda pairava, esperando, como quem não tem nenhuma pressa.
 
 Ela os viu correr, e sorriu.
 
@@ -286,7 +294,7 @@ Veio de baixo. Um estrondo grave, comprido, como uma geleira rachando, e o vidro
 
 A criatura abriu a rachadura que lhe servia de boca e berrou, e a cúpula inteira cedeu.
 
-O caminho de ar partiu ao meio com um estalo de vidro. O vidro sumiu debaixo deles. Breno sentiu o chão desaparecer, o estômago subir até a garganta, o vento batendo nos ouvidos, a chuva entrando nos olhos. Lioro escorregou do ombro dele e Breno agarrou a capa do professor com uma mão, a outra estendida para Banjo, que gritava, e para Bruno, que girava no ar com a máscara abraçada, e para Beatriz, que caía de olhos fechados com a boca bem apertada, sem gritar, e Breno viu o chão de Tayo subir, as luzes crescerem, os telhados virarem pontas, e o diapasão no pulso dele gritando como um trem.
+O caminho de ar partiu ao meio com um estalo de vidro. O vidro sumiu debaixo deles. Breno sentiu o chão desaparecer, o estômago subir até a garganta, o vento batendo nos ouvidos, a chuva entrando nos olhos. Lioro agarrou a gola de Breno com uma mão e tentou chamar o ar com a outra, enquanto Breno estendia os braços para Banjo, que gritava, e para Bruno, que girava no ar com a máscara abraçada, e para Beatriz, que caía de olhos fechados com a boca bem apertada, sem gritar, e Breno viu o chão de Tayo subir, as luzes crescerem, os telhados virarem pontas, e o diapasão no pulso dele gritando como um trem.
 
 Pensou, claro e absurdo: é um bom dia para ter virado metal.
 
@@ -296,7 +304,7 @@ Pensou também que de metal ia fazer um buraco enorme na rua.
 
 Então o ar embaixo deles engrossou.
 
-Foi como cair em mel. A velocidade caiu de repente, o estômago desceu de volta ao lugar, e os quatro foram sendo desacelerados no meio de uma coisa dourada e elástica, uma teia de fios e contas que brilhavam e estalavam, cada uma do tamanho de um punho. Breno viu as contas se espalhando pelo ar, vindas de uma mão grande e peluda lá embaixo, e viu os cabelos de Beatriz subirem, e o cobertor de Bruno voar, e então bateu de costas numa rede macia que o devolveu para cima uma vez, duas, e o depositou no chão de pedra molhada com um estalo de metal.
+Foi como cair em mel. A velocidade caiu de repente, o estômago desceu de volta ao lugar, e os cinco foram sendo desacelerados no meio de uma coisa dourada e elástica, uma teia de fios e contas que brilhavam e estalavam, cada uma do tamanho de um punho. Breno viu as contas se espalhando pelo ar, vindas de uma mão grande e peluda lá embaixo, e viu os cabelos de Beatriz subirem, e o cobertor de Bruno voar, e então bateu de costas numa rede macia que o devolveu para cima uma vez, duas, e o depositou no chão de pedra molhada com um estalo de metal.
 
 Grimaldus Graven estava de pé no meio da rua, de braços abertos e barba tremendo, suado e ofegante, com a tábua de contas quebrada pendurada em uma das mãos.
 
@@ -312,7 +320,7 @@ Tayo tinha enlouquecido. Por cima da Central, o céu estava verde de ponta a pon
 
 — O senhor não vem? — perguntou Banjo.
 
-— Tenho que voltar para a Central. Há gente lá que só tem as mãos. — Grimaldus olhou para Lioro, estendido nos ombros de Breno com a cabeça pendendo, e a barba dele tremeu. — Cuidem dele. Ele vai acordar mal-humorado. É bom sinal.
+— Tenho que voltar para a Central. Há gente lá que só tem as mãos. — Grimaldus olhou para Lioro, que ainda respirava curto depois de segurar o ar contra a queda, e a barba dele tremeu. — Sigam o que ele disser. Conhece Camporil melhor do que conhece a própria cozinha, e isso já é dizer muito.
 
 — Prof... Grimaldus. — A voz de Beatriz saiu rouca. Ela estava toda encolhida dentro da blusa de condutor, com o cabelo grudado, os braços cruzados sobre o peito e as mãos escondidas debaixo dos cotovelos. — A Shirley. Ela vai atrás de mim.
 
@@ -350,13 +358,13 @@ Bruno ficou parado, com a mão no chão e a respiração em fumaça, olhando o q
 
 — Conseguiu. — Banjo apertou o braço dele. — Agora vamos, porque aquilo vai se soltar.
 
-Correram. Uma coisa saltou de um telhado e atravessou a rua à frente deles, comprida como uma fita de sombra azul-marinho, mas com quatro joelhos que se dobravam para trás. Bruno desviou para não chocar com ela. A criatura veio de lado, sem virar a cabeça, e Banjo arrancou do suporte uma placa de loja com a telecinese. A placa bateu entre eles e o bicho, que se enrolou na madeira e começou a mastigá-la, devagar. Breno passou carregando Lioro e empurrou a grade solta da loja com a mão de metal, fechando a passagem atrás dos irmãos. Não ficaram para ver o que aconteceria quando acabasse a placa. Na segunda esquina viram os lampiões se apagarem.
+Correram. Uma coisa saltou de um telhado e atravessou a rua à frente deles, comprida como uma fita de sombra azul-marinho, mas com quatro joelhos que se dobravam para trás. Bruno desviou para não chocar com ela. A criatura veio de lado, sem virar a cabeça, e Banjo arrancou do suporte uma placa de loja com a telecinese. A placa bateu entre eles e o bicho, que se enrolou na madeira e começou a mastigá-la, devagar. Lioro passou por eles e abriu os dois braços. Uma rajada rasteira varreu a rua, arrancou a placa dos dentes da criatura e a lançou de volta contra o bicho. Breno empurrou a grade solta da loja com a mão de metal, fechando a passagem atrás do grupo. Não ficaram para ver o que aconteceria quando acabasse a placa. Na segunda esquina viram os lampiões se apagarem.
 
 Foi um pouco de cada vez. O primeiro lampião do fim da rua estremeceu e apagou, soprado por alguém. Depois o segundo, e o terceiro, em fila, cada vez mais perto, e atrás da fila de lampiões apagados veio uma escuridão tão cheia que parecia ter volume, uma parede de nada que avançava devagar pela rua e engolia as janelas, os reflexos, o calor, os sons. As casas ao redor ficaram mudas. Até os sinos, que tocavam longe, abafaram.
 
 — Para trás — disse Breno, baixinho, e a voz dele soou grossa no ar quieto. — Para dentro de uma porta, rápido.
 
-Escolheram um portal fundo, de pedra, com uma porta fechada e um degrau alto, e se apertaram lá dentro os cinco, com Lioro deitado no degrau e Beatriz agarrada com as duas mãos à própria blusa. Banjo enfiou Farol por dentro da camisa e fechou as mãos por cima, porque a cauda dourada era a única luz que sobrava na rua inteira, e o bichinho entendeu e se apagou sozinho, tremendo contra o peito dele. Bruno encostou a máscara no peito com o queixo por cima, para abafar o choro dela, e fechou os olhos.
+Escolheram um portal fundo, de pedra, com uma porta fechada e um degrau alto, e se apertaram lá dentro os cinco, com Lioro no degrau da frente, o cajado atravessado diante deles, e Beatriz agarrada com as duas mãos à própria blusa. Banjo enfiou Farol por dentro da camisa e fechou as mãos por cima, porque a cauda dourada era a única luz que sobrava na rua inteira, e o bichinho entendeu e se apagou sozinho, tremendo contra o peito dele. Bruno encostou a máscara no peito com o queixo por cima, para abafar o choro dela, e fechou os olhos.
 
 O silêncio cresceu.
 
@@ -396,7 +404,7 @@ Breno encostou uma das metades no ouvido. A que estava no cabo. Franziu a testa.
 
 Beatriz riu uma vez, curta, que parecia soluço, e escondeu a boca na manga. Foi o primeiro som que fez desde o salão.
 
-Levantaram devagar, com Breno arrumando Lioro nas costas e guardando as duas metades do diapasão no bolso, e seguiram colados às paredes em direção à estação. Perto da entrada das túbulas, o barulho voltou de uma vez.
+Levantaram devagar. Lioro foi à frente, ouvindo o ar entre uma esquina e outra antes de mandar que corressem, e Breno guardou as duas metades do diapasão no bolso. Seguiram colados às paredes em direção à estação. Perto da entrada das túbulas, o barulho voltou de uma vez.
 
 Vinha de uma travessa larga que dava num mercado coberto. Era barulho de luta de verdade, de madeira estalando e de bicho rosnando, e por cima dele uma voz seca e muito clara, que Bruno reconheceu antes de ver o dono porque a tinha ouvido uma vez, no vestíbulo da casa, dizendo "senhores" para uma multidão inteira sem levantar o tom.
 
@@ -414,33 +422,33 @@ Dez passos atrás dele havia um carrinho de verduras tombado, e por cima da bord
 
 — Silêncio, os dois! — McCroys nem se virou. Recebeu a criatura nova com o dedo erguido, como quem pede a palavra, e a prendeu numa segunda caixa. — Isso não é treino. Isso é rua.
 
-Foi aí que ele viu os quatro. Os olhos pálidos passaram por Bruno, pelo embrulho que ele carregava, por Banjo e Beatriz, e pararam em Lioro, pendurado nas costas de Breno. A cara dele mudou um milímetro, e foi de alívio.
+Foi aí que ele viu os cinco. Os olhos pálidos passaram por Bruno, pelo embrulho que ele carregava, por Banjo e Beatriz, e pararam em Lioro, de cajado na mão e a capa rasgada de chuva.
 
 — Lioro! — gritou. — Até que enfim, homem! Pegue esses dois e tire as crianças das ruas! Eu seguro a travessa, mas não seguro a travessa e cuido deles!
 
-Lioro respondeu com um ronco longo, de boca aberta, que correu pela travessa inteira.
+— Eu levo os quatro para Camporil — respondeu Lioro. A voz dele estava ofegante, mas firme. — Você leva os gêmeos para dentro dessa caixa e não deixa nenhum dos três fazer ideia.
 
-McCroys ficou olhando. As sobrancelhas subiram outro milímetro.
+McCroys fechou os olhos por um segundo, como quem conta até três.
 
-— Ele levou uma pancada, senhor — disse Breno, quase pedindo desculpa. — Está apagado.
+— Finalmente uma frase sensata. — Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fechou em volta dele uma caixa maior, lisa, brilhando de leve, com o repolho e os dois gêmeos dentro. Erick bateu com a palma na parede da caixa. Nicolas se sentou sobre o próprio sapato. — Aí vocês ficam até eu abrir. Ninguém morre dentro de uma caixa minha, e eu nunca perdi um aluno nem pretendo começar hoje.
 
-— Está dormindo. — McCroys fechou os olhos por um segundo, como quem conta até três. — Claro que está. Então eu mesmo faço.
+Lioro chamou os quatro com dois dedos e apontou para a estação.
 
-Girou o pulso. A luz azul correu pelo chão, subiu pelas rodas do carrinho e fechou em volta dele uma caixa maior, lisa, brilhando de leve, com o repolho e os dois gêmeos dentro. Erick bateu com a palma na parede da caixa. Nicolas se sentou sobre o próprio sapato.
+— Agora. Pelo lado das tendas. Não olhem para as janelas.
 
-— Aí vocês ficam até eu abrir — disse McCroys. — Ninguém morre dentro de uma caixa minha, e eu nunca perdi um aluno nem pretendo começar hoje. Vocês quatro, para a casa do Lioro, rápido. E digam a ele, quando acordar, que agora quem deve um favor é ele.
+Voltou-se uma última vez e lançou uma corrente de ar contra a criatura que descia pelo telhado. McCroys recebeu a outra com o dedo erguido, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
 
-Voltou para a criatura seguinte, e Bruno ouviu, já correndo, o estalo seco de mais uma caixa fechando.
-
-Encontraram a estação com as portas de emergência abertas e uma funcionária indicando aos passageiros quais linhas ainda corriam. Breno entrou primeiro no karto, com Lioro desmaiado às costas. Bruno não largou a máscara durante a viagem. Pela janela do tubo transparente, viu o céu verde se acender acima de Coração Branco. Lá embaixo, numa rua quase vazia, uma sombra cor de ferrugem correu pela parede de uma casa sobre as próprias patas e caiu do outro lado do telhado. Em outra esquina, três vigilantes erguiam escudos contra uma criatura tão escura que só a borda azul das asas revelava onde ela terminava. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser Ricochet. Mais dois passaram atrás dele e sumiram na direção do clarão. O karto prosseguiu, atravessou uma estação quase vazia e mudou para a ligação de Camporil. A cidade adensada ficou para trás. Do outro lado do vidro surgiram os campos escuros da Campina de Talven, as casas afastadas umas das outras e os muros baixos. O transporte parou duas vezes por causa das interrupções, mas voltou a andar. Quando desceram em Camporil, as ruas estavam estranhamente vazias, de portas fechadas e janelas apagadas. O barulho da luta na Central chegava dali muito abafado, embora os clarões verdes ainda fossem visíveis por cima dos telhados.
+Encontraram a estação com as portas de emergência abertas e uma funcionária indicando aos passageiros quais linhas ainda corriam. Lioro entrou primeiro no karto, contou os quatro antes de se sentar junto à barra e só então soltou o ar. Bruno não largou a máscara durante a viagem. Pela janela do tubo transparente, viu o céu verde se acender acima de Coração Branco. Lá embaixo, numa rua quase vazia, uma sombra cor de ferrugem correu pela parede de uma casa sobre as próprias patas e caiu do outro lado do telhado. Em outra esquina, três vigilantes erguiam escudos contra uma criatura tão escura que só a borda azul das asas revelava onde ela terminava. Um cavalo com asas passou muito alto, cortando o céu com um grito de homem, UUUHUU, e Bruno quase sorriu, porque só podia ser Ricochet. Mais dois passaram atrás dele e sumiram na direção do clarão. O karto prosseguiu, atravessou uma estação quase vazia e mudou para a ligação de Camporil. A cidade adensada ficou para trás. Do outro lado do vidro surgiram os campos escuros da Campina de Talven, as casas afastadas umas das outras e os muros baixos. O transporte parou duas vezes por causa das interrupções, mas voltou a andar. Quando desceram em Camporil, as ruas estavam estranhamente vazias, de portas fechadas e janelas apagadas. O barulho da luta na Central chegava dali muito abafado, embora os clarões verdes ainda fossem visíveis por cima dos telhados.
 
 — Aí, Ricochet — sussurrou Bruno, para o céu. — Quebra tudo.
 
-Atravessaram duas ruas de casas espaçadas e chegaram ao Largo da Fonte, uma pracinha redonda de lajes irregulares, com uma fonte seca no meio e quatro bancos de pedra. Do outro lado, entre dois plátanos, ficava o muro de pedra clara da casa de Lioro. O portão de ferro dava para o pátio onde haviam treinado, e por cima do muro se viam a luz acesa da cozinha e a fumaça saindo da chaminé numa noite qualquer. Os cinco pararam na entrada do largo. O silêncio ali era tão grande que doía.
+Atravessaram duas ruas de casas espaçadas e chegaram ao Largo da Fonte, uma pracinha redonda de lajes irregulares, com uma fonte seca no meio e quatro bancos de pedra. Do outro lado, entre dois plátanos, ficava o muro de pedra clara da casa de Lioro. O portão de ferro dava para o pátio onde haviam treinado, e por cima do muro se viam a luz acesa da cozinha e a fumaça saindo da chaminé numa noite qualquer. Os cinco pararam na entrada do largo. Lioro chegou por último, com o cajado riscando as lajes e a respiração finalmente desacelerando. O silêncio ali era tão grande que doía.
 
 — Chegamos — disse Banjo. — A gente chegou.
 
-— Chegamos. — Breno deitou Lioro com cuidado num dos bancos, e o professor, que dormia de boca aberta, soltou um ronco comprido e satisfeito. — E ele está roncando. Eu nunca fiquei tão feliz de ouvir um ronco.
+— Chegamos. — Lioro apoiou uma mão no banco de pedra e olhou cada um deles, como se ainda precisasse conferir que estavam inteiros. — Entrem assim que der. Eu fico no portão.
+
+Breno soltou o ar que estava prendendo. — Tá. Mas sem bancar o herói sozinho.
 
 Bruno se sentou na borda da fonte seca com a máscara no colo, e sentiu as pernas virarem água. Respirou fundo. O ar tinha cheiro de terra molhada e de lenha. Quase, quase dava para acreditar que tinha acabado.
 
