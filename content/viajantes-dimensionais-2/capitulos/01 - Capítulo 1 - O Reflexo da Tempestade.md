@@ -1,110 +1,74 @@
-O leite de Bruno estava congelando por dentro, e ele fingia que não.
+O leite de Bruno estava congelando por dentro, e ele fingia que não. Sob a palma do copo, uma casquinha branca cresceu até o tamanho de uma moeda. Ele olhou para a janela, onde a neblina engolia o quintal havia três dias, e pôs o copo no micro-ondas antes que alguém reparasse.
 
-Segurava o copo com as duas mãos, como quem esquenta os dedos, e olhava para a janela. A neblina tinha engolido o fim do quintal e começava a subir pelo varal, a garoa riscava o vidro sem pressa, e fazia três dias que o sol não aparecia em lugar nenhum. A lâmpada da cozinha zumbia.
+Breno chegou à mesa com o caderno de desenhos. Banjo, de óculos tortos, fingia ler um gibi enquanto tentava alcançar a caixa de cereal sem se levantar. Por baixo do moletom grosso que usava naquele abafado, uma luz dourada se mexia. Beatriz mastigava uma torrada, de olhos no fogão apagado, cantarolando as três notas que a mãe usava quando fazia suas tranças. Calou-se assim que percebeu.
 
-Sob a palma de Bruno, uma casquinha branca crescia da borda do copo para o meio. Ele esperou até ela ficar do tamanho de uma moeda, olhou para os lados, enfiou o copo no micro-ondas e apertou trinta segundos. Depois ficou de costas para a mesa, de braços cruzados, assobiando.
+— Fica quieto — sussurrou Banjo para o volume escondido na barriga.
 
-Breno chegou com seus papéis e seu lápis e se sentou à mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
+Bruno tirou o leite do micro-ondas, bebeu com cristais ainda estalando no fundo e anunciou que estava delicioso. Foi quando viu uma folha presa à geladeira com um ímã de abacaxi. A letra de Frank furara o papel em dois pontos.
 
-Banjo usava o moletom grosso de capuz, apesar do abafado da cozinha, e a barriga do moletom tinha um volume que não existia no ano anterior. De vez em quando o volume se mexia, e uma luz fraca escapava pela gola. Banjo empurrava a coisa para dentro com a palma, por cima do tecido, sem tirar os olhos do gibi.
+— Regra um: ninguém usa nada. Regra dois: nem quando ninguém está olhando. Regra três: nem pra pegar o sal. — Bruno inclinou a cabeça. — Isso aqui é um bilhete ou um testamento?
 
-— Fica quieto — sussurrou. — Já falei.
+Frank entrou com as chaves do táxi na mão e o cabelo molhado.
 
-Bruno tirou o copo do micro-ondas. O leite tinha derretido e deixado um fundo de cristais que estalavam contra o vidro. Ele bebeu mesmo assim, com cuidado, e fez questão de dizer "delícia".
+— Escrevi no sinal vermelho.
 
-Foi então que reparou no papel na porta da geladeira. Era uma folha do bloco que o tio usava no táxi, presa com um ímã de abacaxi, e as letras maiúsculas tinham sido pressionadas com tanta força que furaram o papel em dois pontos.
+Sentou-se, e os quatro se ajeitaram na hora. Tinha dormido pouco durante todo aquele ano. Os meninos ainda se lembravam da noite em que ele contara que acompanhara Gabrielle a Belfex, mesmo sem ter magia, e deixara metade da história por dizer.
 
-— "Regra um" — leu Bruno, em voz alta. — "Ninguém usa nada." "Regra dois. Nem quando ninguém estiver olhando." "Regra três." — Ele inclinou a cabeça. — "Nem pra pegar o sal." — Ergueu a folha contra a luz, conferindo os dois furos. — Isso não é bilhete de geladeira, é testamento.
+— Aqui vocês não usam poder nenhum — falou Frank. — Principalmente dentro de casa, onde é fácil esquecer o perigo.
 
-Frank tinha acabado de entrar na cozinha, com o cabelo ainda molhado e as chaves do táxi pendendo de um dedo. Parou no meio do caminho e olhou para a geladeira, surpreso com a própria folha.
+— Nem pra salvar um cachorro pendurado numa ponte? — perguntou Bruno.
 
-— Tio, o senhor escreveu com parkinson? A caneta sofreu — disse Bruno.
+— Nesse caso você chama ajuda. Estou falando sério. Basta um vizinho ver alguma coisa e vocês deixam de ser meus sobrinhos para virar assunto na rua inteira.
 
-— Escrevi no sinal vermelho — disse Frank. — Não tinha muito tempo.
+Beatriz apertou o pingente azul que Maria lhe dera.
 
-Frank puxou uma cadeira e se sentou, e isso bastou para os quatro se ajeitarem também. Tinha o rosto de quem dormia pouco havia meses, e as olheiras já não saíam dali. Esfregou as mãos uma na outra, devagar, e não olhou para nenhum deles.
+— E se escapar sozinho, tio?
 
-Bruno lembrava da noite em que o tio tinha contado, no sofá, com a televisão desligada, olhando o rodapé. Que fora a Belfex uma vez, de penetra, sem uma gota de magia no corpo, só porque a irmã tinha pedido. A cada pergunta, o tio respondera um pouco menos, até que Banjo parou de perguntar. Os quatro ficaram com meia história e com a sensação de terem ouvido a metade que mais doía.
+— Você respira e vem me contar. A gente resolve junto.
 
-— Aqui — disse Frank, e bateu o dedo na mesa — vocês não usam poder nenhum. Nem quando só tiver a gente em casa. Principalmente quando só tiver a gente em casa, porque é aí que a pessoa se acostuma.
+Banjo olhou para o cereal, desejando que a caixa estivesse mais perto. Ela deslizou dez centímetros. O menino ficou vermelho e escondeu as mãos debaixo das coxas.
 
-— E se for pra salvar um cachorro, tio? — perguntou Bruno. — Tipo, o bicho tá pendurado numa ponte e eu lá: peraí, cachorro, segura aí que eu vou pedir licença pro tio?
+— Foi sem querer.
 
-— Aí você vem me contar antes.
+— Eu sei. Mas vocês precisam tomar cuidado. — Frank apontou para o moletom dele. — E o Farol fica em casa.
 
-— Antes de salvar o cachorro?
+— Ele não faz nada.
 
-— Sim, Bruno, antes de salvar o... dá pra parar de graça — Frank quase sorriu, e o sorriso não chegou aonde precisava. — Eu tô falando de uma cidade pequena, de uma escola com trinta janelas e de gente que fala. Basta um vizinho ver uma coisa, e vocês deixam de ser meus sobrinhos e viram assunto.
+— Ele brilha, Banjo. Um vizinho não esquece um bicho que brilha.
 
-Breno assentiu, sério, como assentia a tudo que vinha de adulto quando o assunto era perigo. Beatriz ficou um instante quieta, com os dedos fechados no pingente azul-claro que Maria lhe dera, por baixo da gola da camiseta, e perguntou, num fiapo de voz:
+Banjo apertou o tecido contra a barriga. A luz se encolheu. Bruno, de fininho, engoliu o resto do leite antes que congelasse de novo.
 
-— E se escapar sozinho? Sem eu querer?
+Frank consultou o relógio e foi procurar o guarda-chuva. Assim que ouviu a porta do armário, Bruno pôs uma caneca de achocolatado fumegante ao lado do caderno de Breno.
 
-Frank demorou a responder.
+— Toma. O tio deixou pra você.
 
-— Aí você respira, vem até mim e a gente resolve — disse. — Sem esconder. Combinado?
+— Eu nem pedi.
 
-— Combinado.
+— Eu só cuido da logística.
 
-Já Banjo, que olhava para a caixa de cereal, do outro lado da mesa, por acaso pensou em como seria bom tê-la mais perto. A caixa deslizou uns dez centímetros e parou diante dele. Ele ficou vermelho até as orelhas.
+Breno pegou a caneca. Bruno encostou um dedo no fundo. O primeiro gole chegou à língua do irmão em pedaços gelados; ele cuspiu na pia, errou, e a caneca caiu. O achocolatado saiu inteiro, uma pedra marrom com a forma exata do recipiente.
 
-— Foi sem querer — disse ele.
+— Bruno! Faz cinco minutos que o tio falou!
 
-— Eu sei — disse Frank, e olhou a caixa, depois o menino. — Mas isso não pode acontecer. Já faz um ano que vocês voltaram, e o Breno parece ser o único que colabora.
+— Falou pra não usar quando ninguém tivesse olhando. Você estava olhando pra caneca!
 
-Banjo escondeu as mãos debaixo das coxas, como se elas tivessem feito aquilo de propósito.
+Banjo mordeu o gibi para não rir. Beatriz acabou rindo também. Bruno escondeu no bolso a mão ainda branca nas pontas.
 
-— E o Farol — disse Frank, e o olhar dele desceu até a barriga do moletom. — Esse não sai de casa. Nunca. Nem no quintal sem eu ver.
+Frank voltou com o guarda-chuva e encontrou os quatro tentando parecer inocentes diante da pedra de achocolatado.
 
-— Ele não faz nada, tio.
+— Nem vou perguntar. Vamos.
 
-— Ele brilha, Banjo. Um bicho que brilha é o que um vizinho lembra pelo resto da vida.
+Na soleira, uma luz dourada escapou do moletom de Banjo e correu para ver a chuva. O menino mergulhou atrás de Farol antes que o tio se virasse.
 
-Banjo apertou o moletom com os dois braços. Lá dentro, a luz se encolheu.
+— Ele só queria olhar — explicou, com o petrisco entre as mãos.
 
-Bruno pegou o copo, viu a casquinha branca crescendo outra vez no fundo e engoliu o resto de uma vez, para o gelo não ter tempo de aparecer.
+— Casa. Agora.
 
-Frank olhou o relógio da parede, resmungou que o ônibus não esperava e foi procurar o guarda-chuva no corredor. A porta do armário rangeu lá no fundo. Bruno ouviu o rangido, contou até três e foi até a garrafa térmica em cima da pia.
+Banjo subiu, guardou Farol na mochila sob um casaco e desceu com o moletom vazio, levando também uma casca de maçã e uma tampinha com água para o bichinho. Frank acreditou que o deixara no quarto.
 
-— Toma — disse, e pôs uma caneca fumegante ao lado do caderno de Breno. — Achocolatado pra você.
+Saíram para o ponto de ônibus. Na esquina, Bruno procurou o discman no bolso e voltou correndo para buscá-lo. Encontrou Frank sozinho na cozinha, com o rádio do pai deles nas mãos. O tio erguera a tampa das pilhas e examinava o símbolo minúsculo de linhas curvas gravado no plástico.
 
-— Eu não pedi achocolatado.
-
-— Foi o tio que deixou, ainda tá quente. Eu só fiz a logística.
-
-Breno suspirou, com a paciência de quem já perdeu essa discussão em outros dias, e estendeu a mão sem erguer os olhos do desenho. Bruno encostou o dedo no fundo da caneca no instante em que ela mudou de dono. O vapor ainda subia, e Beatriz viu o vapor parar no meio do caminho.
-
-Breno bebeu um gole comprido, com a confiança de quem acredita no próprio irmão pela última vez. O achocolatado chegou à língua em pedaços. Ele ficou com a boca cheia de uma lama marrom e dura, gelada até os dentes, e fez um som que nenhum dos quatro tinha ouvido dele antes. Cuspiu na pia, errou, e a caneca bateu no chão e rolou até o pé da mesa. O achocolatado saiu dela inteiro, numa só peça, e ficou lá, uma pedra marrom com a forma exata do fundo da caneca.
-
-— Bruno! — Breno falou num sussurro furioso, de olho na porta do corredor. — Cinco minutos! Faz cinco minutos que ele falou!
-
-— Falou "quando ninguém estiver olhando" — disse Bruno, já rindo tanto que precisou apoiar a mão na pia. — Você tava olhando pra caneca, véi. Eu não ia desperdiçar uma chance dessas.
-
-Banjo mordeu o gibi para não rir alto e rendeu-se no segundo seguinte. Até Beatriz soltou uma risada pelo nariz, a primeira da manhã. Bruno olhou para a própria mão, aberta, ainda branca nas pontas. O gelo viera mais rápido que na semana passada, e ele nem tinha precisado se concentrar. Guardou a mão no bolso antes que alguém percebesse o tamanho do sorriso.
-
-— Que barulho foi esse? — perguntou Frank, de volta à porta, com o guarda-chuva debaixo do braço.
-
-— A caneca escorregou — disseram os quatro ao mesmo tempo.
-
-Frank olhou a caneca no chão. Olhou a pedra de achocolatado ao lado dela, que não tinha um pingo de líquido em volta. Olhou Breno, de boca ainda marrom, com a língua para fora, esfregando-a na manga. Respirou fundo, devagar.
-
-— Eu nem vou perguntar nada — disse. — Vamos, que o ônibus não espera.
-
-Na porta, quando Frank a abriu, o moletom de Banjo deu um tranco. Uma luzinha escapou pela gola, correu pelo piso até a soleira e parou na beira do degrau, fascinada pela chuva. Banjo mergulhou, apanhou-a com as duas mãos e a embrulhou contra a barriga antes que o tio se virasse. Frank se virou mesmo assim, e olhou as mãos juntas, o rosto vermelho, o moletom que pulsava.
-
-— Ele só queria ver a chuva — disse Banjo.
-
-— Casa — disse Frank, baixinho, apontando para dentro. — Agora.
-
-Banjo subiu correndo, acomodou Farol no fundo da mochila, por baixo de um casaco, e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus. Antes de fechar o zíper, deixou lá dentro uma casca de maçã que tinha guardado do café e uma tampinha de garrafa cheia de água, bem encaixada entre dois cadernos para não derramar. — Come tudo, hein — cochichou. — Eu sei que você acha ruim. Eu também acho. Frank não percebeu que o petrisco continuava com ele.
-
-Saíram debaixo do guarda-chuva grande do tio, que não cobria nenhum deles inteiro, até o ponto do ônibus escolar. Foi só na esquina que Bruno enfiou a mão no bolso, procurou o discman e achou o bolso vazio.
-
-— Esqueci — resmungou. — Vão indo.
-
-Voltou correndo pela rua molhada, entrou pela porta dos fundos para não fazer barulho e parou na entrada da cozinha. Frank continuava sentado à mesa, sozinho, com a xícara de café frio ao lado. Tinha o rádio do pai deles nas mãos. Com a unha do polegar, levantara a tampa das pilhas e olhava para o fundo do compartimento, para o símbolo minúsculo de linhas curvas gravado no plástico, como quem olha para uma porta que decidiu não abrir.
-
-Bruno recuou um passo sem fazer ruído. Pegou o discman e os fones do braço do sofá, onde estavam o tempo todo, e saiu de novo, tentando fechar a porta com mais cuidado do que jamais fechara qualquer porta na vida.
+Bruno pegou o discman no sofá e saiu sem ser visto. Dessa vez fechou a porta com cuidado.
 
 O ensaio do coral cheirava a cera de chão molhada e a poeira de cortina velha.
 

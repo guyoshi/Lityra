@@ -356,121 +356,49 @@ Velho-Sábio recolheu o cajado e começou a caminhar.
 
 — Você também faz escândalo, mas não precisa que eu o anuncie.
 
-A viagem para Brisália foi mais tranquila. Bruno se acomodou junto à janela do karto, com o cotovelo apoiado no encosto, e passou boa parte do caminho apontando coisas para os irmãos só para provar que ainda se lembrava dos nomes. Acertou o Largo dos Ponteiros de longe, confundiu uma estação de túbulas com outra e insistiu que um dassi que passou acima deles era o mesmo que tinham pegado um ano antes.
+A viagem para Brisália foi mais tranquila. Bruno passou boa parte do trajeto apontando lugares conhecidos pela janela do karto. Acertou o Largo dos Ponteiros, confundiu duas estações de túbula e jurou reconhecer um dassi pelo jeito convencido com que fazia as curvas.
 
-— Não tem como você saber — disse Breno. — Faz um ano.
+— Todos os dassis voam desse jeito — disse Breno.
 
-— Eu sei pelo jeito que ele voa — insistiu Bruno, apontando pelo vidro. — Olha como inclina na curva, meio de lado, meio com preguiça.
+— Aquele sabe que é bonito. Os outros só estão tentando.
 
-— Todos os dassis voam assim, Bruno.
+Beatriz riu. Lá fora, os edifícios altos de Sorevan cediam lugar às fachadas baixas, às árvores inclinadas sobre as calçadas e às lojas de portas abertas. Bruno reconheceu a florista que reclamava quando ele congelava a água dos vasos. Ela também o reconheceu e gritou «Voltaram!» da porta da loja. Banjo acenou até a mochila quase cair.
 
-— Aquele voa convencido. Dá pra ver que ele sabe que é bonito, o outro lá atrás é que é meio tímido.
+Perto do relógio da praça, o cheiro de pão quente fez Beatriz parar.
 
-Beatriz riu, e Bruno sentiu-se recompensado.
+— É a padaria do Pelan! Eu quero pão com canela!
 
-Do lado de fora, as ruas mudavam aos poucos. Os edifícios altos de Sorevan deram lugar a fachadas menores, árvores que se debruçavam sobre as calçadas e lojas com portas abertas para a tarde. Brisália ainda tinha os ladrilhos rústicos de que Bruno lembrava, as jardineiras nas janelas e o cheiro de pão quente perto do largo. O garoto reconheceu até uma mulher que vendia flores na esquina e costumava reclamar quando ele congelava a água dos vasos para fazer graça.
+— Primeiro a casa — disse Breno.
 
-Ela reconheceu os irmãos também.
+— A despensa está vazia — interveio Velho-Sábio, olhando a vitrine. — E eu não me oponho a uma compra sensata.
 
-— Voltaram! — gritou, de dentro da loja.
-
-Banjo acenou tanto que quase deixou a mochila cair. A mulher respondeu com um ramo de flores na mão. Depois uma criança passou correndo, seguida por um cachorro que parecia não saber se perseguia a criança ou as próprias patas.
-
-Bruno respirou fundo. A casa do tio Frank tinha coisas boas. Tinha o rádio do pai, a comida que Frank fazia nas noites em que não trabalhava e o sofá onde os quatro acabavam dormindo sem querer. Mas ele tinha sentido falta daquela rua. Ali as coisas podiam dar errado de maneiras muito mais interessantes.
-
-Desceram perto do Largo dos Ponteiros. O grande relógio da praça marcava as horas com figuras luminosas que passavam uma atrás da outra pela borda. Duas crianças tentavam fazê-lo tocar antes da hora, pulando em frente ao mostrador. Um homem carregava um cesto de frutas e discutia com uma senhora a respeito do preço, exatamente como os adultos faziam em qualquer lugar do mundo.
-
-— Padaria! — anunciou Beatriz, apontando. — É a do Pelan, ainda tem o toldo listrado que parece bala! Eu quero o pão com canela.
-
-— Nós acabamos de chegar — disse Breno. — Primeiro a casa, depois a padaria.
-
-— Mas é logo ali, e o cheiro vem direto pra cá! Se a gente for pra casa agora, eu vou passar a noite sonhando com pão.
-
-Velho-Sábio olhou para a vitrine a poucos passos deles.
-
-— Podemos comprar alguma coisa para o jantar, Breno. A despensa lá de casa está mais vazia do que eu gostaria de admitir.
-
-Beatriz ergueu os braços em comemoração.
-
-Pelan estava retirando uma fornada quando entraram. O padeiro tinha farinha no avental e segurava uma longa pá de madeira. Ao ver os quatro, parou tão depressa que um dos pãezinhos escorregou pela pá e caiu no balcão.
+Pelan tirava uma fornada quando os viu. Parou com a pá no ar, deixando um pão escorregar para o balcão.
 
 — Não acredito!
 
-— Se esse pão for meu, eu acredito — disse Beatriz.
+— Se esse for meu, pode acreditar — respondeu Beatriz.
 
-Pelan riu alto.
+Ele pôs doze pães num saco e acrescentou um décimo terceiro diante dos olhos dela. Beatriz contou todos, muito séria. Bruno roubou um ainda quente para «testar a qualidade», e Breno quis saber quem pagaria por aquilo. Velho-Sábio deixou as moedas no balcão antes que a discussão crescesse.
 
-— Ainda tem a mesma fome!
+— Contaram que vocês enfrentaram Korvo num lago com um dragão — disse Pelan, baixando a voz. — É verdade?
 
-— Maior — acrescentou Banjo.
+— O dragão é uma parte excelente da história — respondeu Bruno.
 
-O padeiro colocou uma dúzia de pães quentes num saco, contou-os e acrescentou mais um sem que Beatriz precisasse pedir. Ela fez questão de contar diante dele.
+— Uma parte inventada — corrigiu Breno.
 
-— Treze!
+— Inventada por quem? Isso ainda não foi investigado.
 
-— Eu sei contar, menina.
+Pelan ia perguntar mais quando Velho-Sábio pousou a mão no ombro dele.
 
-— Eu também. Só estava conferindo se o senhor não tinha esquecido do meu.
+— Os meninos acabaram de chegar. Deixe as aventuras para outra hora, amigo.
 
-Bruno pegou um pão do saco e mordeu antes de Breno perceber.
+O padeiro olhou a freguesa junto à janela, que havia parado de escolher bolos para ouvir, e assentiu. Entregou a Beatriz mais um pão embrulhado à parte e prometeu que da próxima vez perguntaria apenas pela escola. Na rua, Bruno já contava como teria montado no dragão, com Breno segurando a cauda e Beatriz incendiando-lhe as asas.
 
-— Você pagou? — perguntou Breno. — Eu vi o pão sumir.
+— Essa versão nem aconteceu — protestou Breno.
 
-— Estou testando a qualidade, é um serviço que eu presto à comunidade. Se o pão estiver ruim, eu aviso, e todo mundo me agradece.
+— Então ainda dá para melhorar — respondeu Bruno.
 
-— E quem vai pagar o pão que você testou?
-
-— O cliente que vier depois de mim, ué. É assim que funciona o comércio, Breno. Eu aprendi na escola, com a professora de matemática.
-
-Velho-Sábio deixou algumas moedas sobre o balcão, e Pelan recolheu-as rindo. Só depois de atender uma cliente que pedira dois bolinhos de casca dourada voltou a aproximar-se.
-
-— Vocês nem imaginam o que andam falando por aí. É verdade que encontraram a casa de Korvo dentro de um lago que tinha um dragão?
-
-Bruno ergueu uma sobrancelha.
-
-— Quase.
-
-— Eu ouvi que havia um dragão — insistiu Pelan. — E que o mais velho de vocês montou nele para atravessar um desfiladeiro.
-
-Breno engasgou com o pão.
-
-— Eu?
-
-— Não foi você? — Pelan virou-se para Bruno. — Então foi este?
-
-— Eu montaria — respondeu Bruno. — Se ele não tentasse me comer antes.
-
-— E o do meio? — perguntou Pelan, apontando para Banjo. — Disseram que mandou uma floresta inteira marchar sobre a Patrulha de Korvo.
-
-Banjo ficou animado.
-
-— Não foi a floresta inteira. Tinha uma árvore que...
-
-Velho-Sábio pousou a mão de leve no ombro dele.
-
-— Pelan, foi um período difícil para todos nós. Os garotos acabaram de voltar. Prefiro que não tenham que falar disso em público.
-
-Pelan olhou para o mentor e pareceu lembrar que havia outras pessoas na padaria. Uma mulher junto à janela tinha parado de escolher bolos para ouvir a conversa.
-
-— Claro, claro. Perdão. — Baixou a voz. — Mas é verdade que Korvo sumiu por um buraco no teto?
-
-— O senhor acabou de dizer que não ia perguntar — observou Beatriz.
-
-— Eu sei. É que essa parte da história não faz sentido nenhum.
-
-— Nem para nós — respondeu Breno.
-
-Pelan aceitou a resposta, mesmo parecendo decepcionado. Deu a Beatriz mais um pão pequeno, embrulhado à parte, e prometeu que na próxima visita só perguntaria sobre a escola. Quando saíram, Bruno esperou até estarem longe da porta.
-
-— Eu ia contar a versão do dragão — disse Bruno. — Aquela em que eu monto nele, o Breno segura a cauda e a Bia queima as asas.
-
-— Essa versão não aconteceu — disse Breno.
-
-— Melhor ainda, porque eu posso inventar os detalhes. É história, Breno, não tem quem confira.
-
-— As pessoas conferem, sim.
-
-O velho vinha atrás, apoiado no cajado, com o saco dos pães pendurado no braço. Bruno voltou a contar a história do dragão, inventando as partes que Pelan não tinha perguntado. Velho-Sábio ouviu até o menino dizer que havia montado na criatura e pediu, com toda a seriedade, que o deixasse terminar a história antes de inventar outra. Breno concordou imediatamente, o que só fez Bruno rir mais.
+Velho-Sábio caminhou atrás, ouvindo, com o saco de pães no braço.
 
 A casa de Velho-Sábio apareceu depois da curva, com as janelas acesas e os arbustos do jardim tão cheios que dois ramos tinham avançado sobre o caminho de entrada. Bruno reconheceu uma pedra achatada perto da porta, onde deixara certa vez um sapato encharcado durante a chuva de flores. A pedra ainda estava lá. O sapato, felizmente, não.
 
@@ -819,7 +747,6 @@ No quarto, os irmãos brigavam por uma cama, Átila procurava um lugar para dorm
 — Já descobri! — gritou Breno lá de dentro.
 
 Bruno riu e fechou a porta atrás de si.
-
 
 O jogo durou quase uma hora. Beatriz, que enfiara a bola amarela de BBBB no fundo da mochila na noite anterior, "por precaução", tentou de tudo para provar que os dados também valiam ponto de tabela, e Kali, a pedido de quem perdeu, jurou que os dados tinham sido trocados. Foi depois da meia-noite, com os irmãos já enrolados nos lençóis e Átila roncando num canto, que Bruno acordou com a mão formigando de frio. A casquinha branca já tinha subido pelo travesseiro. Ele a esfregou na manta, desceu a escada na ponta dos pés atrás de um copo de água e parou no último degrau.
 

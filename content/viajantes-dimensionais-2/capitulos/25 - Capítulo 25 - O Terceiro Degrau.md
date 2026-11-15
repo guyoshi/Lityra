@@ -6,9 +6,9 @@ Banjo percebeu quando desceram da túbula na estação de Sorevan. O cheiro vinh
 
 Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia atrás dele, com o capuz da capa de Ivy puxado até as sobrancelhas, e Banjo ia por último, porque era de onde dava para sentir todo mundo.
 
-Banjo olhava as pessoas e tentava adivinhar o que sentiam. No covil de Korvo, precisara tocar Marcus para alcançar o medo dele. Desde então, às vezes percebia alguma coisa sem encostar, mas com Shirley tinha descoberto como era fácil entender tudo errado. Ali não parecia ódio. Era um medo frio e miúdo, de bicho pequeno que se junta no canto da toca. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
+Banjo sentiu um medo miúdo entre as pessoas na calçada, mas, depois do que acontecera com Shirley, não se atrevia a dizer de quem era. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
 
-Beatriz viu os dois gestos. Banjo percebeu pelo modo como ela ficou imóvel. Ela puxou o capuz mais para baixo e apertou o passo, e foi a única vez no caminho inteiro que ele quis pegar na mão dela, e não pegou, porque ela odiava ser levada.
+Beatriz puxou o capuz mais para baixo e apressou o passo. Banjo chegou perto, mas deixou que ela andasse sozinha.
 
 O Hospital Lumiar de Tayo ficava no fim da avenida, colado ao muro dos jardins do Edifício Arcano. Era um prédio alto e fino como uma vela, de pedra branca, com cinco andares de janelas redondas que acendiam e apagavam cada uma num ritmo diferente, como se o prédio respirasse por vários pulmões. O nome estava escrito sobre a porta em letras de luz. A porta abriu sozinha quando eles chegaram a três passos, e uma voz de água disse, de lugar nenhum:
 
@@ -148,7 +148,7 @@ Bruno limpou a garganta.
 
 Os quatro olharam para ele ao mesmo tempo.
 
-— Korvo sabia que a máscara só se abre para quem se oferece por outro — disse Kalev. — E sabia que vocês são o tipo de irmãos que vão. Ele não empurrou ninguém. Só deixou a porta onde vocês fossem passar.
+— Korvo conhecia a regra da máscara. Sabia que vocês entrariam para salvar um irmão e deixou o caminho aberto — disse Kalev.
 
 — A gente foi usado — disse Breno.
 
