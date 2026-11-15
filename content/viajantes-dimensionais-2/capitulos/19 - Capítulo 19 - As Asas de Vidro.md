@@ -1,6 +1,6 @@
 Beatriz acordou com um grito. Não foi grito de sonho, desses que somem no segundo em que a pessoa abre os olhos. Foi grito de homem, comprido e rouco, que veio de fora, entrou pela chaminé e desceu pela casa inteira, e ficou na pele dela feito formiga.
 
-Ela ficou parada debaixo da coberta, contando as vigas do teto, que continuavam no lugar. O fogão estava aceso no outro cômodo, com um estalo de lenha de vez em quando, e Breno dormia na cama ao lado, de botas, de boca aberta, com os óculos tortos em cima do peito que subia e descia. Beatriz achou aquilo estranho. Breno acordava até com o barulho de Banjo virando a página de um livro, e agora um homem inteiro gritava no meio da neve e ele só franzia a testa, sem acordar.
+Ela ficou parada debaixo da coberta, contando as vigas do teto, que continuavam no lugar. O fogão estava aceso no outro cômodo, com um estalo de lenha de vez em quando, e Breno dormia na cama ao lado, de botas, de boca aberta, com uma das mãos caída em cima do peito que subia e descia. Beatriz achou aquilo estranho. Breno acordava até com o barulho de Banjo virando a página de um livro, e agora um homem inteiro gritava no meio da neve e ele só franzia a testa, sem acordar.
 
 O grito veio de novo, mais curto, e dessa vez tinha uma palavra dentro, ou quase uma. Parecia "para". Parecia "para, para, para".
 
@@ -62,13 +62,13 @@ O homem soltou uma risada que não chegou a ser risada, um som de pedra arrastad
 
 — Beatriz!
 
-A porta bateu na parede. Breno estava lá, de peito subindo e descendo, de cabelo em pé de um lado, com os óculos tortos e as botas desamarradas, e no rosto dele havia uma coisa que Beatriz só tinha visto uma vez, na clareira. Ele entrou de uma vez e a puxou pelos ombros para trás de si, de um jeito que não tinha nada de delicado.
+A porta bateu na parede. Breno estava lá, de peito subindo e descendo, de cabelo em pé de um lado, com a camisa do avesso e as botas desamarradas, e no rosto dele havia uma coisa que Beatriz só tinha visto uma vez, na clareira. Ele entrou de uma vez e a puxou pelos ombros para trás de si, de um jeito que não tinha nada de delicado.
 
 — Você prometeu. Ontem à noite, na cama, você prometeu que a gente decidia junto.
 
 — Eu tentei decidir com você. — Beatriz botou a cabeça de lado, por baixo do braço dele. — Você disse que primeiro as botas e que depois segundo as botas, e eu não sei o que isso quer dizer, então eu decidi com a minha metade.
 
-Breno abriu a boca e fechou. Respirou, e os ombros dele baixaram um dedo. Ele tirou os óculos, limpou na camisa e recolocou, e nesse tempo todo não tirou os olhos do homem do chão.
+Breno abriu a boca e fechou. Respirou, e os ombros dele baixaram um dedo. Ele esfregou o rosto com a manga, e nesse tempo todo não tirou os olhos do homem do chão.
 
 — Depois a gente conversa sobre isso — disse, baixo. — Eu fiquei muito, muito assustado, Beatriz. Eu acordei e a sua cama estava vazia e as botas tinham sumido.
 

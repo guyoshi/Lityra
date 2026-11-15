@@ -151,7 +151,7 @@ Havia riscos ali. Sete traços curtos, de lado, e depois uma volta em laço, tud
 
 — É a primeira — disse Ferris, e se levantou com a mão fechada em cima dos riscos, como quem os guardava no bolso. — Ele passou por aqui. Faz sete semanas.
 
-Bruno olhou o laço, e olhou o arco apagado, e pela primeira vez naquele dia ele não pensou em quanta coisa podia dar errado. Pensou em Breno, de óculos tortos, dizendo a palavra primeiro, depois, e em Bia correndo de braços abertos para tudo que era novo, e a garganta apertou.
+Bruno olhou o laço, e olhou o arco apagado, e pela primeira vez naquele dia ele não pensou em quanta coisa podia dar errado. Pensou em Breno, de cabelo em pé, dizendo a palavra primeiro, depois, e em Bia correndo de braços abertos para tudo que era novo, e a garganta apertou.
 
 — E o pessoal do registro? — perguntou, para ocupar a boca. — O velho ali roncando não vai acordar?
 

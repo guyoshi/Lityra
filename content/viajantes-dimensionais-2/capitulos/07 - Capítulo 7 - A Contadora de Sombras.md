@@ -276,7 +276,7 @@ Ficaram todos parados. Foi Beatriz quem quebrou o silêncio, com a voz pequena, 
 
 A mulher se sentou devagar na almofada, olhou para Beatriz por um tempo longo e serviu o chá antes de responder.
 
-— É quem chama o que não devia ser chamado, menina. Só isso. Quem chama de propósito, com pedido, com força, com nome. Quem sabe fazer, aprende de alguém, ou descobre sozinha, e leva a vida inteira tentando esquecer. — Passou a xícara para ela, quente e pesada. — Não existe invocadora em Tayo hoje, que eu saiba. Os adultos tratam a história como lenda, e é bom que tratem. Quanto menos gente acredita, menos gente procura, e o lacre fica por conta dos mais velhos.
+— É quem chama o que não devia ser chamado, menina. Só isso. Quem chama de propósito, com pedido, com força, com nome. Quem sabe fazer, aprende de alguém, ou descobre sozinha, e leva a vida inteira tentando esquecer. Os livros antigos de Tayo chamam as três de rainhas do caos, porque onde elas passavam as coisas deixavam de ficar no lugar. É nome de livro, e livro exagera. — Passou a xícara para ela, quente e pesada. — Não existe invocadora em Tayo hoje, que eu saiba. Os adultos tratam a história como lenda, e é bom que tratem. Quanto menos gente acredita, menos gente procura, e o lacre fica por conta dos mais velhos.
 
 — Lacre? — perguntou Bruno, de boca cheia de bolacha.
 
