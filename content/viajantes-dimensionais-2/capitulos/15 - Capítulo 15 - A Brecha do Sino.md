@@ -59,7 +59,7 @@ Bruno passou a mão pelos olhos, depressa, e se levantou.
 — Vem. A gente tem que ajeitar a mochila antes de ele chamar pra jantar.
 
 
-Jantaram sopa de abóbora, e Ivy encheu o prato de Bruno duas vezes sem perguntar, e ele comeu as duas vezes sem sentir o gosto. Velho-Sábio ficou na cabeceira, falando de uma tia que tinha duas cabras com nome de duquesa, e Mereditha, ao lado dele, riu no lugar certo e depois ficou com a colher parada. Shirley, que ia dormir de novo no sofá da sala, comia calada ao lado de Lioro. Madame, a cadela velha da casa, dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
+Jantaram sopa de abóbora, e Ivy encheu o prato de Bruno duas vezes sem perguntar, e ele comeu as duas vezes sem sentir o gosto. Velho-Sábio ficou na cabeceira, falando de uma tia que tinha duas cabras com nome de duquesa, e Mereditha, ao lado dele, riu no lugar certo e depois ficou com a colher parada. Shirley, que ia dormir de novo no sofá da sala, comia calada ao lado de Lioro. Bolota, a cadela velha da casa, dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
 
 Perto das nove, a casa se recolheu. Bruno ficou deitado no escuro do sótão, de botas e de casaco, com a mochila pronta no pé da cama e os olhos abertos para as vigas. Banjo, na cama de baixo, respirava como quem não dormia e se virava de lado a cada três minutos. Quando o sino da torre do Arcano deu dez badaladas, os dois ouviram, lá fora, o passo de botas ritmado na rua, a ronda dos vigilantes passando pelo portão, uma, depois a conversa baixa deles, e uma lanterna varrendo a fresta da janela e voltando a escurecer.
 
@@ -71,7 +71,7 @@ Esperaram. O sino deu a meia hora, depois dez e quarenta. Ouviram de novo as bot
 
 — Segunda — disse. — Bora!
 
-Farol já estava dentro da mochila de Banjo, enrolado, com a ponta da cauda acesa em dourado fraco, e olhava os dois com a atenção de quem entendia tudo e não ia dizer nada. Desceram a escada de meia, com as botas na mão e a respiração presa. O terceiro degrau rangeu. Bruno parou. O quarto também, e foi pior. Madame levantou a cabeça no pé da escada, olhou os dois, bocejou e voltou a deitar, e Bruno quase abraçou aquele cachorro.
+Farol já estava dentro da mochila de Banjo, enrolado, com a ponta da cauda acesa em dourado fraco, e olhava os dois com a atenção de quem entendia tudo e não ia dizer nada. Desceram a escada de meia, com as botas na mão e a respiração presa. O terceiro degrau rangeu. Bruno parou. O quarto também, e foi pior. Bolota levantou a cabeça no pé da escada, olhou os dois, bocejou e voltou a deitar, e Bruno quase abraçou aquele cachorro.
 
 Na cozinha, uma xícara esperava em cima da mesa, e junto da xícara, de camisola e com o cobertor dos pés enrolado nos ombros, estava Shirley.
 

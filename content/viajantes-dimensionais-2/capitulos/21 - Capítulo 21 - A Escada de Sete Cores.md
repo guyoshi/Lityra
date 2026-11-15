@@ -212,6 +212,6 @@ Alguém estava sentado no toco do pescoço da estátua sem cabeça.
 
 Ninguém tinha olhado para cima. Estava ali, de pernas cruzadas, em cima da pedra cinzenta, com um terno escuro tão impecável que parecia fora de lugar mesmo naquele fim de mundo, o cabelo penteado para trás sem um fio solto, e passava devagar um pano úmido pelos dedos, como quem limpa uma coisa que só ele enxerga. Uma das mangas estava chamuscada. Os olhos eram de um amarelo fundo, rodeados de sombras que pareciam nunca ter saído dali.
 
-— Boa tarde — disse Korvo, com uma voz tão mansa que Banjo teve vontade de responder por educação. — Eu já estava ficando preocupado. Vocês demoraram.
+— Boa tarde — disse Korvo, com uma voz tão mansa que Banjo teve vontade de responder por educação.
 
 Ele sorriu, um sorriso pequeno, e olhou para a mão de Beatriz, onde a Partitura zumbia.

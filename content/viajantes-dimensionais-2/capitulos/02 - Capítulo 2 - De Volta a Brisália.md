@@ -174,17 +174,17 @@ Shirley abriu caminho quase correndo. Banjo mal teve tempo de tirar a mochila do
 
 — Um ano — disse Banjo, rindo. — Eu acho que foi bastante.
 
-— Não vai me dizer que está maior do que eu agora — disse Beatriz, com as mãos na cintura. — Eu medi na porta de casa antes de sair, e eu estava mais alta que você por dois dedos.
+— Não vai me dizer que está maior do que eu agora — disse Shirley, ficando ao lado dele. — Deixa eu ver.
 
-Ela ficou na ponta dos pés para conferir. Banjo endireitou as costas.
+Shirley endireitou as costas para comparar a altura dos dois. Banjo ergueu discretamente os calcanhares.
 
 — Talvez — disse Banjo, esticando o pescoço. — Eu cresci um pouquinho.
 
-— Não está, e eu sei que você está na ponta do pé escondido.
+— Não está, e eu vi você levantar o calcanhar.
 
-— Deixa eu acreditar por cinco minutos, Bia.
+— Deixa eu acreditar por cinco minutos, Shirley.
 
-Beatriz estava prestes a responder quando alguém a agarrou pelos ombros.
+Beatriz riu da discussão, mas alguém a agarrou pelos ombros antes que ela pudesse entrar na brincadeira.
 
 — Bia!
 
