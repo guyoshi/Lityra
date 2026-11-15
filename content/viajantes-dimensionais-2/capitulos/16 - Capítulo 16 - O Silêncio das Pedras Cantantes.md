@@ -276,7 +276,7 @@ A voz dela veio da sombra, mais baixa do que o normal, sem a graça que usava pa
 
 Foi Bruno quem respondeu, e Banjo esperava uma coisa dura, e veio outra. Bruno se virou de lado, apoiou a cabeça no cotovelo, e falou olhando as chamas, sem a pressa de sempre.
 
-— Eu fiquei bravo com todo mundo hoje de manhã. Com o Velho-Sábio, com o Garmande, com o Bug, até com a Madame, que dormia. — Esfregou o nariz. — Mas com você não deu. Eu tentei. Você foi buscar um caderno pra um amigo. Se tivesse me chamado, eu tinha ido, e eu teria encostado na máscara primeiro, que eu encosto em tudo, e o Breno ia me puxar, e a coisa ia ser outra. Só que eu tava no Arcano esperando um cara que nem apareceu, e o Breno é que foi. Então não é de ninguém essa culpa, Shirley. É de quem pôs a máscara lá. E a gente vai achar quem foi.
+— Eu fiquei bravo com todo mundo hoje de manhã. Com o Velho-Sábio, com o Garmande, com o Bug, até com a Bolota, que dormia. — Esfregou o nariz. — Mas com você não deu. Eu tentei. Você foi buscar um caderno pra um amigo. Se tivesse me chamado, eu tinha ido, e eu teria encostado na máscara primeiro, que eu encosto em tudo, e o Breno ia me puxar, e a coisa ia ser outra. Só que eu tava no Arcano esperando um cara que nem apareceu, e o Breno é que foi. Então não é de ninguém essa culpa, Shirley. É de quem pôs a máscara lá. E a gente vai achar quem foi.
 
 Shirley olhou para ele, e dessa vez o sorriso dela demorou a vir, e quando veio era diferente dos outros.
 
