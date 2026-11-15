@@ -6,6 +6,8 @@ A lanterna que Bug entregou a Banjo era mais pesada do que parecia, de armação
 
 — Dormi no carrinho, de manhã, enquanto esperavam o sol. — Bug sorriu, mostrando os dentes pequenos, e olhou para o alto, para a cúpula de nuvens baixas que cobria Sorevan depois dos dois dias de chuva. — A minha ave não voltou ainda. A Pipa foi para o norte faz uma semana. Eu fico olhando o céu, é mania. Já perdi três etiquetas por causa dela.
 
+Enquanto falava, tirou do bolso uma etiqueta pequena, com um desenho torto de passarinho cinzento e uma ponta branca na cauda. Passou o polegar pela figura e guardou a etiqueta antes de voltar ao carrinho. Banjo já estava olhando para o bosque.
+
 — Ela vai voltar — disse Banjo, e sentiu que era uma coisa boa de dizer, mesmo sem saber.
 
 — Se for como o telhado da Central, vai. Lá em cima as aves só atravessam o vão em bando, porque sozinha qualquer uma se perde no vento. — Bug entregou a lanterna seguinte a uma menina de trança comprida e continuou, mais baixo, com a atenção já em outro lugar. — Pelo que eu ouço, o bosque é parecido. Não gosta de quem passa sozinho. Mas é só o que eu ouço. Nunca entrei lá.
