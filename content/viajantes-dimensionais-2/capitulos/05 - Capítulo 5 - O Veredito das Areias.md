@@ -280,7 +280,7 @@ Ele comeu. Tinha gosto de pão com poeira de bolso, e Nayra esperou de verdade, 
 
 — É o vento. — Nayra enrolou um fio solto da manga no dedo, como quem confere uma trama. — Ele passa mais fino perto de coisa parada. Uma testemunha é uma coisa parada, então o vento dá uma volta em torno dela, igual a um fio que desvia de um nó. Eu só sigo o nó. Não é magia complicada, é paciência. Meu tio acha que é mais, mas meu tio acha que tudo que eu faço é mais, porque ele me viu nascer e ainda não perdoou.
 
-Banjo riu. Desde o Covil, ele sentia o que os outros sentiam, aos pedaços, como se escuta uma conversa no quarto ao lado. Ainda não sabia escolher quando. Em Nayra havia um nervosismo com gosto de metal frio na boca, e por baixo dele uma coisa menor, quente e teimosa, que se esticava na direção de Lioro. Ela queria que o tio olhasse e achasse que tinha valido a pena trazê-la. Banjo guardou isso para ele e passou a prestar atenção nos pés.
+Banjo riu. No covil de Korvo, Banjo precisara encostar a mente na de Marcus para alcançar o medo dele. Desde então, às vezes alguma sensação lhe chegava sem precisar tocar, mas ainda não sabia dizer quando era magia e quando estava só a imaginar. Em Nayra pareceu perceber um nervosismo com gosto de metal frio na boca e, por baixo, alguma coisa teimosa que se voltava para Lioro. Talvez quisesse que o tio se orgulhasse dela. Banjo guardou o palpite e passou a prestar atenção nos pés.
 
 — Ali — disse Nayra.
 
