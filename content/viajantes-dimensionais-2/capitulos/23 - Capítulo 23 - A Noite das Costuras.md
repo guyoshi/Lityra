@@ -32,7 +32,7 @@ Todos olharam. Bug estava pálido por baixo do pelo castanho, e o colete de bols
 
 — Ele mandou a Pipa — disse Kalev.
 
-Foi a primeira coisa que Kalev disse desde que tinham chegado, e a voz saiu rouca, de quem não usava por muito tempo. Ele levantou os olhos fundos para o fundo do salão e ficou olhando para Bug com uma calma que dava mais medo do que um grito, e Banjo, que sentia o que os outros sentiam, percebeu que era a calma de uma pessoa que tinha passado muito tempo sozinha dentro de uma cabana de pedra, pensando só nisto.
+Foi a primeira coisa que Kalev disse desde que tinham chegado, e a voz saiu rouca, de quem não usava por muito tempo. Ele levantou os olhos fundos para o fundo do salão e ficou olhando para Bug com uma calma que dava mais medo do que um grito, e Banjo tentou reconhecer aquele sentimento. Parecia a calma de alguém que passou muito tempo sozinho, tendo uma única coisa em que pensar.
 
 — Eu desconfiava de um informante, Velho-Sábio. — Kalev levantou a mão livre, devagar, e abriu os dedos. — Só não sabia que era um menino.
 
