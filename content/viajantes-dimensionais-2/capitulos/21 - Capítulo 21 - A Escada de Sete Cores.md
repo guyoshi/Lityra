@@ -180,19 +180,25 @@ Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, por
 
 Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Dava para sentir o cheiro de água morna do outro lado. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
 
-O diapasão de Breno bateu na coxa dele, sozinho.
+— O senhor Kalev e o Ferris passam primeiro — disse Breno, e levantou a mão antes que alguém protestasse. — O senhor Kalev precisa de cuidado, e a máscara não pode ficar aqui com a gente, onde qualquer coisa pode acontecer com ela. Nós vamos logo atrás. É questão de segundos.
 
-Era um toque curto e seco, que fez Banjo olhar para ele. Fazia dias que o diapasão estava mudo, desde a sala do fundo, e agora esquentava, e um zumbido grave e comprido, como de trem muito distante, subiu do pulso de Breno e se espalhou pelo capim. Breno ergueu o instrumento diante do rosto, encostou a ponta na orelha, e fechou os olhos, e contou.
+Ferris olhou para os quatro, depois para Shirley, e abriu a boca para dizer que esperaria, e Kalev apertou o ombro do filho com a mão boa e respondeu primeiro, que do outro lado eles esperavam melhor do que ali. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, um teto alto de pedra clara e gente de costas se virando para olhar.
 
-— Eu, Beatriz, Bruno, Banjo. — A voz dele saiu baixa e lenta. — Shirley, Ferris, o senhor Kalev e a senhora. São oito. — Parou. — Tem um nono sinal.
+Shirley, de dedos ainda levantados, deixou as mãos caírem. A costura fechou com um puxão, de cima para baixo, como o zíper de uma mochila, e as faíscas morreram no ar.
 
-— Onde? — perguntou Ferris.
+— Fechou — disse. Os olhos dela foram da abertura que sumia para o rosto dos irmãos, grandes e preocupados. — Ela fechou sozinha, juro. Eu tentei segurar e não aguentou, e agora eu não consigo abrir de novo.
+
+— Tenta outra vez — pediu Breno.
+
+Ela tentou. As faíscas saíram dos dedos dela, fracas, e apagaram antes de chegar ao ar, e os ombros dela se encolheram. Banjo, que sentia nos outros o que eles não diziam, sentiu em Shirley uma coisa apertada e quente, com gosto de culpa, e pensou que era a culpa de quem falha na hora errada. Foi o que ele pensou. Quis dizer a ela que não era culpa de ninguém, e abriu a boca, e foi aí que o diapasão de Breno bateu na coxa dele, sozinho.
+
+Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala do fundo, e agora esquentava, e um zumbido grave e comprido, como de trem muito distante, subiu do pulso de Breno e se espalhou pelo capim. Breno ergueu o instrumento diante do rosto, encostou a ponta na orelha, e fechou os olhos, e contou.
+
+— Eu, Beatriz, Bruno, Banjo. — A voz dele saiu baixa e lenta. — Shirley e a senhora. São seis. — Parou. — Tem um sétimo sinal.
+
+— Onde? — perguntou Bruno.
 
 — Grave. Muito grave. — Breno abriu os olhos. — E não é de nenhum de nós, nem de nenhuma coisa que a gente trouxe. Está perto.
-
-A costura que Shirley tinha aberto fechou com um puxão, de cima para baixo, como o zíper de uma mochila, e as faíscas morreram no ar.
-
-— Não fui eu. — Shirley baixou as mãos devagar, e o sorriso dela hesitou, pequeno. — Juro que não fui eu.
 
 A luz mudou. Foi isso que Banjo sentiu primeiro, antes de ver, porque a luz laranja, que não se mexia desde o dia em que eles chegaram, de repente começou a escorrer para o buraco do horizonte, como água saindo de uma pia. Todas as sombras que estavam deitadas para o mesmo lado giraram juntas, devagar, e apontaram para a estátua. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
 
