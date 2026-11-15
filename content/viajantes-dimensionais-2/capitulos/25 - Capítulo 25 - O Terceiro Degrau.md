@@ -8,7 +8,7 @@ Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia a
 
 Banjo olhava as pessoas e tentava adivinhar o que sentiam. No covil de Korvo, precisara tocar Marcus para alcançar o medo dele. Desde então, às vezes percebia alguma coisa sem encostar, mas com Shirley tinha descoberto como era fácil entender tudo errado. Ali não parecia ódio. Era um medo frio e miúdo, de bicho pequeno que se junta no canto da toca. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
 
-Beatriz viu os dois gestos. Banjo sentiu ela ver. Ela puxou o capuz mais para baixo e apertou o passo, e foi a única vez no caminho inteiro que ele quis pegar na mão dela, e não pegou, porque ela odiava ser levada.
+Beatriz viu os dois gestos. Banjo percebeu pelo modo como ela ficou imóvel. Ela puxou o capuz mais para baixo e apertou o passo, e foi a única vez no caminho inteiro que ele quis pegar na mão dela, e não pegou, porque ela odiava ser levada.
 
 O Hospital Lumiar de Tayo ficava no fim da avenida, colado ao muro dos jardins do Edifício Arcano. Era um prédio alto e fino como uma vela, de pedra branca, com cinco andares de janelas redondas que acendiam e apagavam cada uma num ritmo diferente, como se o prédio respirasse por vários pulmões. O nome estava escrito sobre a porta em letras de luz. A porta abriu sozinha quando eles chegaram a três passos, e uma voz de água disse, de lugar nenhum:
 
