@@ -85,7 +85,7 @@ A sala de catalogação ficava no alto dos degraus. Era grande, de teto baixo, c
 
 — Os azuis são os dele — disse Shirley. — Os de capa de couro com uma risca azul na lombada. O Ferris disse que são doze.
 
-Contaram doze, e mais um, que Beatriz achou embaixo da xícara, de capa gasta e sem risca nenhuma, e que Breno folheou em pé e fechou. Estava cheio de desenhos de espirais e de uma letra apertada, e numa das páginas do meio, em tinta mais escura, uma frase que ele leu duas vezes: o que aceita ser tocado não é sempre o que se deixa levar. Guardou o caderno junto com os outros na mochila que tinha trazido por prudência. Pesava mais do que ele esperava.
+Contaram doze, e mais um, que Beatriz achou embaixo da xícara, de capa gasta e sem risca nenhuma, e que Breno folheou em pé e fechou. Estava cheio de desenhos de espirais e de uma letra apertada. Numa das páginas, Breno viu sete traços curtos terminando num laço, com a ponta cruzada por cima da linha. Não conseguiu descobrir se era um mapa ou só uma anotação de Kalev. Mais adiante, em tinta escura, havia uma frase que ele leu duas vezes: o que aceita ser tocado não é sempre o que se deixa levar. Guardou o caderno junto com os outros na mochila que tinha trazido por prudência. Pesava mais do que ele esperava.
 
 — Pronto — disse Beatriz. — A gente pegou todos. Agora podemos voltar, e eu quero ver o Ferris abrir um.
 
