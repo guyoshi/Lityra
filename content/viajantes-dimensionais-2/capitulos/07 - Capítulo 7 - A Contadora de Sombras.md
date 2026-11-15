@@ -155,6 +155,8 @@ Velho-Sábio olhou para ela por um tempo, e Beatriz percebeu que ele a olhava se
 
 — Eu sempre preparo alguma coisa — respondeu Shirley, e Pelan já tinha voltado ao assunto dos ovos quadrados.
 
+Beatriz achou ter ouvido, bem de leve, dentro da própria cabeça, uma voz que dizia: Escuta até o fim. Olhou para Banjo, que olhava o teto, e para Breno, que lia, e concluiu que tinha sido o próprio pensamento, só que num tom que não era o dela.
+
 Naquela noite, Beatriz acordou com um barulho no corredor, uma espécie de zumbido baixo que subia e descia. Foi andando descalça até a porta do quarto dos irmãos, que estava entreaberta, e encostou o olho na fresta. Bruno estava sentado na cama, de pernas cruzadas, com um objeto redondo e achatado na mão e dois fios finos saindo dele até as orelhas. Tinha o rosto concentrado de quem conta alguma coisa preciosa.
 
 — Duas pilhas — murmurou ele, e ela o ouviu porque a casa inteira dormia. — Só duas. Faz três dias que eu uso e ainda estão fortes, mas não dá para abusar. Um disco por noite, e olhe lá.

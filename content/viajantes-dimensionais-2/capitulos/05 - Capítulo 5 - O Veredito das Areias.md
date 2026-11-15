@@ -425,6 +425,8 @@ Banjo e Nayra vieram em segundo. Nayra leu a versão no papel dobrado, e Banjo c
 
 Shirley bateu palmas devagar, sorrindo para o chão. Beatriz reparou que ela não olhava para Banjo, e que Banjo olhava para ela, e que Nayra, ao lado dele, parecia mais cansada do que feliz.
 
+Uma voz miúda disse dentro da cabeça dela: Não repara tanto. Beatriz piscou. A sala continuava igual, com Grimaldus ajeitando os papéis na mesa, e ela decidiu que era o próprio juízo mandando parar de olhar a vida dos outros.
+
 Breno e Ferris ficaram em terceiro com uma versão curta e seca, que falava da luz sem sombra do lampião e do horário em que ela mudou de lado. Brenda e Dário ficaram em quarto, com uma versão certinha e sem enfeite, que Brenda leu e Dário assinou. Shirley e Denis chegaram em quinto, com uma versão curta que Denis enfeitou com a cozinheira do refeitório, e o juiz precisou pedir duas vezes que ele voltasse ao deserto. Bruno e Amadou ficaram em sexto, com uma versão que incluía uma duna gigante que engolia caravanas, e Amadou, ao ouvir isso, explicou ao juiz que era assim mesmo que as dunas funcionavam, o que lhe custou meio ponto.
 
 Erick e Nicolas foram os últimos a ser chamados. Grimaldus os esperava com a mão fechada e a mesa limpa, e abriu a mão no meio do silêncio. Na palma havia uma conta pequena de vidro escuro, do tamanho de uma ervilha.

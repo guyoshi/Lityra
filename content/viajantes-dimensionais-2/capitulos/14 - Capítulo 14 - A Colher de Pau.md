@@ -74,7 +74,7 @@ Velho-Sábio chegou quando a lamparina do portão já tremia, com a perna ruim p
 
 Contaram. Shirley contou duas vezes, porque o fôlego não deixou na primeira, e Grimaldus anotou em silêncio, com as contas estalando baixinho. O bilhete foi passando de mão em mão, e foi Garmande quem o leu por último, devolvendo-o a Velho-Sábio com uma dobra a mais no queixo.
 
-— A sala do fundo da Casa de Pesquisa — disse ele. — Faz sete semanas que está lacrada.
+— A sala do fundo da Casa de Pesquisa — disse ele. — Faz cinco semanas que está lacrada.
 
 — Com o lacre de Kalev — completou Velho-Sábio. — E ontem de manhã eu fui lá conferir o selo, a pedido de Mereditha, e ele estava inteiro. — Esfregou os olhos. — Hoje de tarde o selo estava quebrado. Por dentro. A tinta do lacre voltada para a sala, e não para o corredor.
 
@@ -110,6 +110,16 @@ Velho-Sábio esvaziou uma caixa de fósforos em cima da toalha e foi enfileirand
 
 — Sem o aprendiz. — Velho-Sábio não sorriu. — Por isso ninguém sai atrás de ninguém sem saber para onde vai. O Kalev escreveu um laço, então o lugar fica fora dos vinte e um palitos, e a Central não tem rota nenhuma para ele.
 
+— Mas por que ele escreveu isso no chão, seu Velho-Sábio? — perguntou Banjo. — Se ninguém ia ler.
+
+— Alguém ia, Banjo. Ele sabia que eu ia ser chamado. — Velho-Sábio girou a caixa de fósforos entre os dedos, devagar. — A máscara não caiu em Tayo por acaso, como a cidade inteira acredita. O Kalev foi buscá-la. Ouviu em algum canto de Central, e nunca me disse onde, que dava para chegar ao lugar onde ela dormia havia séculos, e saiu de madrugada há sete semanas, sem avisar nem o filho, porque desconfiava de um informante de Korvo por perto e não sabia quem era. Achava que uma coisa daquelas, nas mãos certas, seria uma arma contra o Korvo. Trouxe a máscara de volta por sete passagens, abrindo uma de cada vez. Quando a última se abriu em cima do Coração Branco, ela caiu na praça, e é dessa queda que o povo fala. Ele chegou ferido, se trancou sozinho na sala, selou por dentro com o próprio lacre e me pediu três dias e segredo. Fui mestre dele quando ele era um garoto do tamanho do Banjo, e eu dei, o que foi um erro. Foi o único caminho que a máscara aprendeu, e uma coisa dessas, quando leva alguém, só sabe voltar pelo mesmo caminho por onde veio. O Kalev conhecia o gênio dela e deixou a rota anotada no chão, para o caso de a máscara partir um dia e alguém precisar ir atrás.
+
+Ferris não se mexeu. Só o capacete, preso debaixo do braço, rangeu um pouco, apertado demais. Velho-Sábio olhou para ele, e a voz saiu mais baixa do que Banjo já tinha ouvido.
+
+— Eu devo isso a você, Ferris, e vou pagar o que devo, com a explicação inteira. Hoje não. Hoje a conta é a de Beatriz e Breno, e eu preciso que você me ajude a fazê-la.
+
+— Hoje, tudo bem — respondeu Ferris, sem tirar os olhos do giz, e foi tudo o que disse.
+
 Mereditha tinha ficado de pé junto da pia, com as duas mãos sobre a boca, as escamas tão brancas que quase não se viam. Foi ela quem falou, com a voz fina:
 
 — Eu vi o estojo ontem na mão dela. Eu entreguei a gaita. Foi por isso que...
@@ -122,7 +132,7 @@ Mereditha tinha ficado de pé junto da pia, com as duas mãos sobre a boca, as e
 
 Houve um silêncio curto, e nele alguém bateu no portão com três pancadas secas.
 
-Era um rapaz de capa cinza, ofegante, com uma bolsa de couro cruzada no peito. Entregou a Lioro um envelope grosso, fechado por um selo de cera cinza, e saiu sem esperar resposta. Lioro o trouxe até a mesa como quem carrega um prato quente. Velho-Sábio quebrou o selo e leu, sem pressa, uma vez, e depois passou o papel a Garmande, que leu e fez uma careta.
+Era um rapaz de capa cinza, ofegante, com uma bolsa de couro cruzada no peito. Entregou a Lioro um envelope grosso, fechado por um selo de cera cinza, e saiu sem esperar resposta. Lioro o trouxe até a mesa como quem carrega um prato quente. Velho-Sábio quebrou o selo e leu, sem pressa, uma vez, e depois passou o papel a Garmande.
 
 — Em duas horas — disse Garmande, com uma careta. — Ele escreveu, carimbou e mandou entregar em duas horas.
 
@@ -136,7 +146,7 @@ Bruno se inclinou sobre a mesa e leu o papel de cabeça para baixo, que era uma 
 
 — Dois vigilantes na esquina — disse Banjo, baixinho. — Eu vi quando cheguei. Eles pararam de conversar quando eu passei.
 
-— São quatro agora. — Lioro tinha descido sem barulho e estava encostado na porta, com a toalha ainda no ombro. — Desde o meio-dia. Hoje cedo um deles me parou no mercado e perguntou se ensinar magia a menor é errado. Eu disse que errado é deixar menor sem ensino. Ele anotou.
+— São quatro agora. — Lioro continuava encostado na porta, com o envelope vazio na mão. — Desde o meio-dia. Hoje cedo um deles me parou no mercado e perguntou se ensinar magia a menor é errado. Eu disse que errado é deixar menor sem ensino. Ele anotou.
 
 — A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Com a Erla já era difícil, Lioro. Com o Beker, a cidade está a um passo de brigar consigo mesma, rua contra rua.
 

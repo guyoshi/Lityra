@@ -145,6 +145,14 @@ Olhou para a placa de lacre outra vez, e para os seis parafusos, e depois para o
 
 — Eu também — respondeu Beatriz.
 
+Ela virou o rosto para o lado, para Shirley, que continuava calada e de olhos baixos.
+
+— Eu já sei — murmurou, sem que ninguém tivesse falado. — Eu já disse que fico.
+
+Breno olhou para ela. Beatriz deu de ombros, de testa franzida.
+
+— Nada. Achei que alguém tinha mandado eu ficar atrás.
+
 Ele fez o ferro ceder. Não quebrou nada. Pediu às seis cabeças dos parafusos que girassem para trás, uma a uma, e elas giraram com um chiado de rosca velha, e a placa de lacre desceu na mão dele, inteira, como um prato frio. A tranca deu um estalo. A porta, que devia ter pesado, abriu para dentro sem fazer barulho nenhum.
 
 Uma sala pequena. Sem janela, de pedra nua, teto baixo e piso liso, escuro como um poço visto de cima. A luz azul das lamparinas do corredor entrou por trás dos três e foi só até a metade, e Breno viu uma mesa de madeira escura no meio, uma cadeira derrubada ao lado, e no chão, em volta dos pés da cadeira, um círculo pálido de uns três passos de largura onde a pedra parecia queimada de frio, branca e lisa, igual a uma marca de geada que não derretia.
