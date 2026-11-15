@@ -249,7 +249,7 @@ Amadou fechou a boca com tanta força que os dentes bateram. Bruno olhou para o 
 
 Breno e Ferris chegaram por último, cada um de um lado do véu, e sentaram um de cada ponta do banco. Ferris tinha o cabelo ruivo grudado na testa e bebia devagar, de olho nas dunas, e Breno olhou para Beatriz com o cenho franzido de sempre.
 
-— Você está pálida — disse Breno. — Está tomando água direito? Dois goles de cada vez, não um só grande, que o calor aqui é de dentro. O anel está esquentando?
+— Bia, você tá pálida — disse Breno. Enfiou o cantil nas mãos dela. — Bebe um pouco. O anel tá esquentando?
 
 — Está tudo bem, Breno.
 
