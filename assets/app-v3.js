@@ -406,7 +406,7 @@ async function checkAudioAvailability(){
 }
 
 // ---------------- Leitura ----------------
-async function openChapter(idx){
+async function openChapter(idx,{autoplay=false}={}){
   const book = state.currentBook;
   if(!book||!canOpenBook(book.id)){
     window.LityraTTS?.stop?.();
@@ -553,6 +553,7 @@ async function openChapter(idx){
       try{player.pause();}catch(_){}
       player.onerror=null;
       activateTTS(book,ch);
+      if(autoplay && ttsMode)window.LityraTTS?.play?.();
     };
     setMediaSession(book, ch);
   }else{
@@ -560,6 +561,15 @@ async function openChapter(idx){
     player.removeAttribute("src");
     try{ player.load(); }catch(e){}
     activateTTS(book,ch);
+  }
+  // Ao mudar de capítulo pelo fone, continuar ouvindo sem precisar tocar na tela.
+  // A reprodução automática só acontece se a narração anterior já estava a tocar.
+  if(autoplay && narrationAvailable){
+    if(ttsMode){
+      window.LityraTTS?.play?.();
+    }else{
+      try{player.play()?.catch?.(()=>{});}catch(_){/* O navegador pode exigir Play manual. */}
+    }
   }
 }
 
@@ -756,6 +766,7 @@ function activateTTS(book,ch){
       navigator.mediaSession.setActionHandler("seekbackward",()=>window.LityraTTS?.back());
       navigator.mediaSession.setActionHandler("seekforward",()=>window.LityraTTS?.next());
     }catch(_){/* Alguns navegadores não oferecem comandos externos para voz. */}
+    setChapterMediaTrackActions();
   }
 }
 
@@ -793,28 +804,42 @@ function updateTimes(){
   const seek = $("#seek");
   if(a.duration) seek.value = String(Math.round((a.currentTime/a.duration)*1000));
 }
+function setChapterMediaTrackActions(){
+  if(!("mediaSession" in navigator))return;
+  // Fones Bluetooth, controlos da tela bloqueada e teclas multimédia.
+  for(const [action,dir] of [["previoustrack",-1],["nexttrack",1]]){
+    try{
+      navigator.mediaSession.setActionHandler(action,()=>changeChapter(dir,{resumePlayback:true}));
+    }catch(_){/* Nem todos os navegadores suportam estas ações. */}
+  }
+}
 function setMediaSession(book, ch){
   if(!("mediaSession" in navigator)) return;
-  navigator.mediaSession.metadata = new MediaMetadata({
-    title: `Cap. ${ch.n} — ${ch.title}`,
-    artist: book.title,
-    album: book.subtitle || book.title,
-  });
-  navigator.mediaSession.setActionHandler("play", ()=> audioEl().play());
-  navigator.mediaSession.setActionHandler("pause", ()=> audioEl().pause());
-  navigator.mediaSession.setActionHandler("seekbackward", ()=> skip(-15));
-  navigator.mediaSession.setActionHandler("seekforward", ()=> skip(15));
-  navigator.mediaSession.setActionHandler("previoustrack", ()=> changeChapter(-1));
-  navigator.mediaSession.setActionHandler("nexttrack", ()=> changeChapter(1));
+  try{
+    navigator.mediaSession.metadata = new MediaMetadata({
+      title: `Cap. ${ch.n} — ${ch.title}`,
+      artist: book.title,
+      album: book.subtitle || book.title,
+    });
+    navigator.mediaSession.setActionHandler("play", ()=> audioEl().play());
+    navigator.mediaSession.setActionHandler("pause", ()=> audioEl().pause());
+    navigator.mediaSession.setActionHandler("seekbackward", ()=> skip(-15));
+    navigator.mediaSession.setActionHandler("seekforward", ()=> skip(15));
+  }catch(_){/* Alguns navegadores não expõem todos os controlos. */}
+  setChapterMediaTrackActions();
 }
 function skip(sec){
   const a = audioEl();
   a.currentTime = Math.max(0, Math.min((a.duration||0), a.currentTime + sec));
 }
-function changeChapter(dir){
+function changeChapter(dir,{resumePlayback=false}={}){
   const next = state.currentChapterIdx + dir;
   const book = state.currentBook;
-  if(book && book.chapters[next]) openChapter(next);
+  if(!book?.chapters[next])return;
+  const wasPlaying=resumePlayback && (ttsMode
+    ? !!window.LityraTTS?.status?.().playing
+    : !audioEl().paused);
+  return openChapter(next,{autoplay:wasPlaying});
 }
 
 const AMBIENT_NORMAL_VOLUME = 0.22;
