@@ -406,6 +406,9 @@ async function checkAudioAvailability(){
 }
 
 // ---------------- Leitura ----------------
+// Guardar pedidos do botão Play enquanto um capítulo sem MP3 prepara a voz do aparelho.
+let chapterLoadSerial=0;
+let chapterPlaybackRequested=false;
 async function openChapter(idx,{autoplay=false}={}){
   const book = state.currentBook;
   if(!book||!canOpenBook(book.id)){
@@ -419,7 +422,10 @@ async function openChapter(idx,{autoplay=false}={}){
   }
   let ch = book.chapters[idx];
   if(!ch) return;
-  audioEl().pause();
+  const loadSerial=++chapterLoadSerial;
+  chapterPlaybackRequested=!!autoplay;
+  const player=audioEl();
+  player.pause();
   window.LityraTTS?.stop?.();
   ttsMode=false;
   window.BetaAnalytics?.closeChapter?.();
@@ -467,6 +473,48 @@ async function openChapter(idx,{autoplay=false}={}){
   updateAmbientForChapter(ch);
   document.dispatchEvent(new CustomEvent("beta:chapter-open",{detail:{book,chapter:ch,index:idx,isLast:idx===book.chapters.length-1}}));
 
+  // Preparar o MP3 antes do download do manuscrito: o comando do fone deve
+  // conseguir iniciar o capítulo imediatamente, mesmo com o texto a carregar.
+  const bar=$("#playerBar");
+  bar.hidden=false;
+  bar.classList.remove("player-missing");
+  player.onerror=null;
+  if(ch.audio){
+    const opts=$("#ttsOptions");if(opts)opts.hidden=true;
+    const back=$("#btnBack15");if(back){back.title="Voltar 15s";back.setAttribute("aria-label",back.title);}
+    const next=$("#btnNextPara");if(next)next.hidden=true;
+    setNarrationAvailability(true);
+    views.reader.classList.add("has-narration");
+    const saved=readPos(book.id,ch.n);
+    player.addEventListener("loadedmetadata",()=>{
+      if(loadSerial!==chapterLoadSerial || state.currentBook?.id!==book.id)return;
+      if(saved?.t && Number.isFinite(player.duration) && saved.t<player.duration-5)player.currentTime=saved.t;
+      updateTimes();
+    },{once:true});
+    player.onerror=()=>{
+      if(loadSerial!==chapterLoadSerial || state.currentBook?.id!==book.id)return;
+      player.onerror=null;
+      player.pause();
+      player.removeAttribute("src");
+      player.load();
+      if(state.currentChapterRaw){
+        activateTTS(book,ch);
+        if(chapterPlaybackRequested && ttsMode)playChapterNarration();
+      }else{
+        // Aguarda o texto para preparar TTS; Play do fone fica na fila.
+        setNarrationAvailability(false);
+      }
+    };
+    player.src=resolve(ch.audio);
+  }else{
+    player.removeAttribute("src");
+    player.load();
+    setNarrationAvailability(false);
+  }
+  // Comandos multimédia disponíveis desde a mudança de capítulo, antes do fetch.
+  setMediaSession(book,ch);
+  if(ch.audio && chapterPlaybackRequested)playChapterNarration();
+
   // texto
   try{
     const fetchChapterText=async(chapter)=>{
@@ -494,6 +542,7 @@ async function openChapter(idx,{autoplay=false}={}){
       const freshManifest=await manifestRes.json();
       const freshCh=(freshManifest.chapters||[]).find(x=>Number(x.n)===Number(ch.n));
       if(!freshCh) throw firstError;
+      if(loadSerial!==chapterLoadSerial)return;
       state.currentBook.chapters=freshManifest.chapters||[];
       activeChapter=freshCh;
       ch=freshCh;
@@ -501,6 +550,7 @@ async function openChapter(idx,{autoplay=false}={}){
       raw=await fetchChapterText(activeChapter);
     }
 
+    if(loadSerial!==chapterLoadSerial)return;
     state.currentChapterRaw = raw;
     renderChapterText(activeChapter, raw);
     // Capítulo incompleto retoma o ponto salvo da leitura textual.
@@ -520,56 +570,15 @@ async function openChapter(idx,{autoplay=false}={}){
     }
     Comments.attachChapter(book.id, activeChapter.n, $("#chapterText"), $("#chapterNotes"));
   }catch(e){
+    if(loadSerial!==chapterLoadSerial)return;
     $("#chapterText").innerHTML = `<p class="empty-hint">Não consegui carregar o texto deste capítulo.</p>`;
   }
 
-  if(state.currentChapterIdx!==idx)return; // Ignora carregamentos atrasados.
-  // player inferior: permanece visível em todo capítulo.
-  // Recursos ausentes ficam cinzentos e não reproduzíveis, em vez de sumirem.
-  const player = $("#audioEl");
-  const bar = $("#playerBar");
-  bar.hidden = false;
-  bar.classList.remove("player-missing");
-  player.onerror=null; // Evita erro de MP3 antigo afetar outro capítulo.
-  if(ch.audio){
-    ttsMode=false;
-    const opts=$("#ttsOptions");if(opts)opts.hidden=true;
-    const back=$("#btnBack15");if(back){back.title="Voltar 15s";back.setAttribute("aria-label",back.title);}
-    const next=$("#btnNextPara");if(next)next.hidden=true;
-    setNarrationAvailability(true);
-    views.reader.classList.add("has-narration");
-    player.src = resolve(ch.audio);
-    const saved = readPos(book.id, ch.n);
-    player.addEventListener("loadedmetadata", function once(){
-      if(state.currentChapterIdx===idx && state.currentBook?.id===book.id){
-        if(saved && saved.t && saved.t < player.duration - 5)player.currentTime=saved.t;
-        updateTimes();
-      }
-      player.removeEventListener("loadedmetadata", once);
-    });
-    player.onerror=()=>{
-      if(state.currentChapterIdx!==idx || state.currentBook?.id!==book.id)return;
-      // Áudio indicado no manifesto, mas arquivo ausente: oferece voz do aparelho.
-      try{player.pause();}catch(_){}
-      player.onerror=null;
-      activateTTS(book,ch);
-      if(autoplay && ttsMode)window.LityraTTS?.play?.();
-    };
-    setMediaSession(book, ch);
-  }else{
-    try{ player.pause(); }catch(e){}
-    player.removeAttribute("src");
-    try{ player.load(); }catch(e){}
+  if(loadSerial!==chapterLoadSerial)return; // Ignora carregamentos atrasados.
+  // Se não há MP3 (ou falhou), preparar TTS com o texto recém-carregado.
+  if(!player.getAttribute("src")){
     activateTTS(book,ch);
-  }
-  // Ao mudar de capítulo pelo fone, continuar ouvindo sem precisar tocar na tela.
-  // A reprodução automática só acontece se a narração anterior já estava a tocar.
-  if(autoplay && narrationAvailable){
-    if(ttsMode){
-      window.LityraTTS?.play?.();
-    }else{
-      try{player.play()?.catch?.(()=>{});}catch(_){/* O navegador pode exigir Play manual. */}
-    }
+    if(chapterPlaybackRequested && ttsMode)playChapterNarration();
   }
 }
 
@@ -758,16 +767,7 @@ function activateTTS(book,ch){
   setNarrationAvailability(usable);
   if(!usable)return;
   renderTTSStatus(window.LityraTTS.status());
-  if("mediaSession" in navigator){
-    try{
-      navigator.mediaSession.metadata=new MediaMetadata({title:"Cap. "+ch.n+" — "+ch.title,artist:book.title,album:book.subtitle||book.title});
-      navigator.mediaSession.setActionHandler("play",()=>window.LityraTTS?.play());
-      navigator.mediaSession.setActionHandler("pause",()=>window.LityraTTS?.pause());
-      navigator.mediaSession.setActionHandler("seekbackward",()=>window.LityraTTS?.back());
-      navigator.mediaSession.setActionHandler("seekforward",()=>window.LityraTTS?.next());
-    }catch(_){/* Alguns navegadores não oferecem comandos externos para voz. */}
-    setChapterMediaTrackActions();
-  }
+  setMediaSession(book,ch);
 }
 
 function setNarrationAvailability(available){
@@ -804,6 +804,33 @@ function updateTimes(){
   const seek = $("#seek");
   if(a.duration) seek.value = String(Math.round((a.currentTime/a.duration)*1000));
 }
+function syncMediaSessionPlayback(playing){
+  if(!("mediaSession" in navigator))return;
+  try{navigator.mediaSession.playbackState=playing?"playing":"paused";}catch(_){}
+}
+function playChapterNarration(){
+  chapterPlaybackRequested=true;
+  if(ttsMode){
+    window.LityraTTS?.play?.();
+    return;
+  }
+  const player=audioEl();
+  // Para capítulos com voz do aparelho, o Play fica pendente até carregar o texto.
+  if(!narrationAvailable || !player.getAttribute("src"))return;
+  try{
+    const attempt=player.play();
+    attempt?.catch?.(error=>{
+      // Não ocultar erros de autoplay: o Play do fone permite tentar de novo.
+      if(error?.name==="NotAllowedError")syncMediaSessionPlayback(false);
+    });
+  }catch(_){syncMediaSessionPlayback(false);}
+}
+function pauseChapterNarration(){
+  chapterPlaybackRequested=false;
+  if(ttsMode)window.LityraTTS?.pause?.();
+  else audioEl().pause();
+  syncMediaSessionPlayback(false);
+}
 function setChapterMediaTrackActions(){
   if(!("mediaSession" in navigator))return;
   // Fones Bluetooth, controlos da tela bloqueada e teclas multimédia.
@@ -821,12 +848,17 @@ function setMediaSession(book, ch){
       artist: book.title,
       album: book.subtitle || book.title,
     });
-    navigator.mediaSession.setActionHandler("play", ()=> audioEl().play());
-    navigator.mediaSession.setActionHandler("pause", ()=> audioEl().pause());
-    navigator.mediaSession.setActionHandler("seekbackward", ()=> skip(-15));
-    navigator.mediaSession.setActionHandler("seekforward", ()=> skip(15));
-  }catch(_){/* Alguns navegadores não expõem todos os controlos. */}
+  }catch(_){/* O navegador pode não disponibilizar metadados. */}
+  for(const [action,handler] of [
+    ["play",()=>playChapterNarration()],
+    ["pause",()=>pauseChapterNarration()],
+    ["seekbackward",()=>ttsMode?window.LityraTTS?.back?.():skip(-15)],
+    ["seekforward",()=>ttsMode?window.LityraTTS?.next?.():skip(15)]
+  ]){
+    try{navigator.mediaSession.setActionHandler(action,handler);}catch(_){}
+  }
   setChapterMediaTrackActions();
+  syncMediaSessionPlayback(ttsMode?!!window.LityraTTS?.status?.().playing:!audioEl().paused);
 }
 function skip(sec){
   const a = audioEl();
@@ -836,10 +868,9 @@ function changeChapter(dir,{resumePlayback=false}={}){
   const next = state.currentChapterIdx + dir;
   const book = state.currentBook;
   if(!book?.chapters[next])return;
-  const wasPlaying=resumePlayback && (ttsMode
-    ? !!window.LityraTTS?.status?.().playing
-    : !audioEl().paused);
-  return openChapter(next,{autoplay:wasPlaying});
+  // O dispositivo pode pausar o áudio antes de disparar nexttrack/previous.
+  // Por isso estes comandos pedem reprodução, independentemente de paused.
+  return openChapter(next,{autoplay:resumePlayback});
 }
 
 const AMBIENT_NORMAL_VOLUME = 0.22;
@@ -1034,14 +1065,15 @@ function initPlayerControls(){
     if(ttsMode){
       showHintOnce("lityra:hintTTS","Leitura em voz alta","Esta voz é gerada pelo aparelho. A narração pode parar com a tela bloqueada, mas a posição fica salva neste dispositivo.");
       const tts=window.LityraTTS;
-      tts.status().playing?tts.pause():tts.play();
+      tts.status().playing?pauseChapterNarration():playChapterNarration();
       return;
     }
     showHintOnce("jesed:hintPlay", "Narração do capítulo", "Toque aqui pra ouvir o capítulo narrado. Dá pra pausar e continuar de onde parou a qualquer momento, inclusive em outro aparelho.");
-    a.paused ? a.play() : a.pause();
+    a.paused ? playChapterNarration() : pauseChapterNarration();
   });
   a.addEventListener("play", ()=>{
     if(ttsMode)return;
+    syncMediaSessionPlayback(true);
     setNarrationButtonState(true);
     window.BetaAnalytics?.narration?.(true);
     window.BetaPresence?.narration?.(true);
@@ -1049,6 +1081,7 @@ function initPlayerControls(){
   });
   a.addEventListener("pause", ()=>{
     if(ttsMode)return;
+    syncMediaSessionPlayback(false);
     setNarrationButtonState(false);
     window.BetaAnalytics?.narration?.(false);
     window.BetaPresence?.narration?.(false);
@@ -1068,6 +1101,8 @@ function initPlayerControls(){
   });
   a.addEventListener("ended", ()=>{
     if(ttsMode)return;
+    chapterPlaybackRequested=false;
+    syncMediaSessionPlayback(false);
     setNarrationButtonState(false);
     window.BetaAnalytics?.narration?.(false);
     window.BetaPresence?.narration?.(false);
@@ -1092,6 +1127,7 @@ function initPlayerControls(){
     const info=event.detail;
     if(!ttsMode)return;
     renderTTSStatus(info);
+    syncMediaSessionPlayback(info.playing);
     setNarrationButtonState(info.playing);
     if(info.playing!==lastTTSPlaying){
       window.BetaAnalytics?.narration?.(info.playing);
