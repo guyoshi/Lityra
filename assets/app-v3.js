@@ -409,6 +409,7 @@ async function checkAudioAvailability(){
 // Guardar pedidos do botão Play enquanto um capítulo sem MP3 prepara a voz do aparelho.
 let chapterLoadSerial=0;
 let chapterPlaybackRequested=false;
+let chapterAudioHandoff=false;
 async function openChapter(idx,{autoplay=false}={}){
   const book = state.currentBook;
   if(!book||!canOpenBook(book.id)){
@@ -425,7 +426,11 @@ async function openChapter(idx,{autoplay=false}={}){
   const loadSerial=++chapterLoadSerial;
   chapterPlaybackRequested=!!autoplay;
   const player=audioEl();
-  player.pause();
+  // Não cortar uma sessão de áudio ativa ao receber "próxima faixa" no fone:
+  // no Android, pausar aqui pode retirar os controlos multimédia da tela bloqueada.
+  const keepAudioSession=!!autoplay && !!ch.audio && !ttsMode && !player.paused;
+  chapterAudioHandoff=!!autoplay && !!ch.audio;
+  if(!keepAudioSession)player.pause();
   window.LityraTTS?.stop?.();
   ttsMode=false;
   window.BetaAnalytics?.closeChapter?.();
@@ -494,6 +499,8 @@ async function openChapter(idx,{autoplay=false}={}){
     player.onerror=()=>{
       if(loadSerial!==chapterLoadSerial || state.currentBook?.id!==book.id)return;
       player.onerror=null;
+      chapterAudioHandoff=false;
+      player.autoplay=false;
       player.pause();
       player.removeAttribute("src");
       player.load();
@@ -505,8 +512,18 @@ async function openChapter(idx,{autoplay=false}={}){
         setNarrationAvailability(false);
       }
     };
+    // O atributo autoplay mantém a intenção de reprodução durante a troca
+    // de ficheiro, caso o navegador demore a carregar os primeiros bytes.
+    player.autoplay=chapterAudioHandoff;
+    player.preload=chapterAudioHandoff?"auto":"metadata";
+    player.addEventListener("canplay",()=>{
+      if(loadSerial!==chapterLoadSerial || state.currentBook?.id!==book.id)return;
+      if(chapterPlaybackRequested && player.paused)playChapterNarration();
+    },{once:true});
     player.src=resolve(ch.audio);
   }else{
+    chapterAudioHandoff=false;
+    player.autoplay=false;
     player.removeAttribute("src");
     player.load();
     setNarrationAvailability(false);
@@ -817,16 +834,27 @@ function playChapterNarration(){
   const player=audioEl();
   // Para capítulos com voz do aparelho, o Play fica pendente até carregar o texto.
   if(!narrationAvailable || !player.getAttribute("src"))return;
+  chapterAudioHandoff=true;
+  player.autoplay=true;
+  player.preload="auto";
+  syncMediaSessionPlayback(true);
+  const onDenied=error=>{
+    if(error?.name==="NotAllowedError"){
+      // A política de reprodução exige um toque no site em certos dispositivos.
+      chapterAudioHandoff=false;
+      player.autoplay=false;
+      syncMediaSessionPlayback(false);
+    }
+  };
   try{
     const attempt=player.play();
-    attempt?.catch?.(error=>{
-      // Não ocultar erros de autoplay: o Play do fone permite tentar de novo.
-      if(error?.name==="NotAllowedError")syncMediaSessionPlayback(false);
-    });
-  }catch(_){syncMediaSessionPlayback(false);}
+    attempt?.catch?.(onDenied);
+  }catch(error){onDenied(error);}
 }
 function pauseChapterNarration(){
   chapterPlaybackRequested=false;
+  chapterAudioHandoff=false;
+  audioEl().autoplay=false;
   if(ttsMode)window.LityraTTS?.pause?.();
   else audioEl().pause();
   syncMediaSessionPlayback(false);
@@ -858,7 +886,8 @@ function setMediaSession(book, ch){
     try{navigator.mediaSession.setActionHandler(action,handler);}catch(_){}
   }
   setChapterMediaTrackActions();
-  syncMediaSessionPlayback(ttsMode?!!window.LityraTTS?.status?.().playing:!audioEl().paused);
+  syncMediaSessionPlayback(chapterAudioHandoff || (ttsMode
+    ?!!window.LityraTTS?.status?.().playing:!audioEl().paused));
 }
 function skip(sec){
   const a = audioEl();
@@ -1079,8 +1108,14 @@ function initPlayerControls(){
     window.BetaPresence?.narration?.(true);
     setAmbientDuck(AMBIENT_DUCK_FACTOR);
   });
-  a.addEventListener("pause", ()=>{
+  a.addEventListener("playing", ()=>{
     if(ttsMode)return;
+    chapterAudioHandoff=false;
+    a.autoplay=false;
+    syncMediaSessionPlayback(true);
+  });
+  a.addEventListener("pause", ()=>{
+    if(ttsMode||chapterAudioHandoff)return;
     syncMediaSessionPlayback(false);
     setNarrationButtonState(false);
     window.BetaAnalytics?.narration?.(false);
@@ -1102,6 +1137,8 @@ function initPlayerControls(){
   a.addEventListener("ended", ()=>{
     if(ttsMode)return;
     chapterPlaybackRequested=false;
+    chapterAudioHandoff=false;
+    a.autoplay=false;
     syncMediaSessionPlayback(false);
     setNarrationButtonState(false);
     window.BetaAnalytics?.narration?.(false);
