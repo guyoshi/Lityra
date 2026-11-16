@@ -56,7 +56,6 @@ Desceu os degraus de dois em dois e atravessou o jardim sem correr. O portão ra
 
 Breno pensou que, quando tivesse tempo, ia explicar ao irmão por que nem toda mensagem de gratidão precisava de comentário. Não teve tempo.
 
-
 O Velho-Sábio saiu às duas da tarde, com o cajado e um casaco impermeável que a chuva ia vencer em meia hora. Tinha recebido um selo da Central pouco depois do almoço, uma convocação do conselho para uma reunião de urgência, e leu o papel de pé, ao lado da escada, com as sobrancelhas levantadas, como quem confere uma conta cujo resultado já imagina.
 
 — Reunião de urgência num sábado de chuva — disse, e dobrou o papel em quatro. — Ou é nomeação, ou é desastre, e nomeação eu não recebo há uns trinta anos. Kali, a casa.
@@ -185,7 +184,6 @@ Saiu para a chuva, com passos medidos, e Bruno, ao lado de Breno, disse a coisa 
 
 — Eu sei. — Breno olhou a porta quebrada, a lama no assoalho, as marcas de bota nas escadas. — Eu também.
 
-
 O Velho-Sábio voltou às seis, com a água escorrendo do casaco e uma expressão que Breno nunca tinha visto, uma calma tão apertada que parecia uma corda esticada. Atravessou o vestíbulo e olhou a porta, depois o chão, depois cada um deles, na ordem em que estavam sentados no sofá. Chegou a Beatriz, encolhida na ponta, com uma xícara de chá que Banjo tinha feito e que ela ainda não tinha bebido, e ficou mais tempo.
 
 — Kali. O registro.
@@ -210,18 +208,17 @@ A tela se abriu em dois, e no rosto de Beker, um homem de sorriso enviesado e ol
 
 — Ninguém quase morreu, Bruno — disse Breno. Depois se lembrou do braço do homem de jaqueta e acrescentou, mais baixo: — Quase ninguém.
 
-— O selo da declaração marca quatorze horas e cinquenta e oito minutos — disse Kali, no tom mais neutro que conseguiu. — A primeira pedra bateu no vidro às quinze e vinte e três. Eu não dou opinião. Só fiz a conta.
+— O primeiro informe dos vigilantes sobre gente combinando uma manifestação chegou ao gabinete de Beker às quatorze e quarenta e seis — disse Kali. — A declaração foi preparada às quatorze e cinquenta e oito. A primeira pedra bateu no vidro às quinze e vinte e três. Ele tinha informações antes da agressão; tinha homens nas ruas. Mesmo assim, não enviou ninguém para proteger a casa.
 
 Um silêncio pesado caiu sobre a sala. Velho-Sábio olhou para a parede, depois para o teto, e por fim pegou a xícara de Beatriz, que estava intocada, e bebeu o chá dela de um gole.
 
-— Ele sempre foi rápido para escrever comunicados — disse, e pousou a xícara. — Tem gente que escreve devagar e pensa depressa. Ele é do outro tipo. Escutem, que eu vou falar uma vez. Amanhã vocês vão para a casa do Lioro, em Camporil, e eu não vou discutir isso com o conselho, porque, se eu discutir, o comunicado vira acusação, e a acusação vira pretexto. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso de alguém que me conte como ela está.
+— Os vigilantes avisaram. Beker preferiu preparar a resposta para depois — disse Velho-Sábio, pousando a xícara. — Amanhã vocês vão para a casa do Lioro, em Camporil. Não vou discutir isso com o Conselho; ele transformaria a conversa em mais uma acusação. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso saber o que acontece nela.
 
 — O senhor vai ficar sozinho? — perguntou Banjo, e a voz saiu mais fraca do que ele queria.
 
 — Com a Kali e o Átila eu nunca fico sozinho, nem quando quero. — Velho-Sábio sorriu pela primeira vez no dia, curto. — E eu passo em Camporil de vez em quando, para reclamar do chá do Lioro, como faz todo tio ranzinza. Para o conselho, isso é visita de família. O que a gente fizer quando eu passar, ninguém precisa anotar.
 
 Breno entendeu antes dos outros, porque era o único que estava olhando para o rosto dele e não para as palavras. Guardou o que tinha entendido, sem repetir, e foi arrumar a mochila.
-
 
 Bug chegou às nove da manhã de domingo, empurrando um carrinho de bagagem de duas rodas cheio de etiquetas, debaixo de uma capa de chuva que era grande demais para ele e se arrastava no chão. Ficou parado na porta quebrada, olhando para as dobradiças soltas com uma expressão de pesar, e só depois se lembrou de falar.
 
@@ -259,62 +256,47 @@ Foi quando Breno, olhando para o alto da escada, viu uma moça de cabelo escuro 
 
 Banjo, que ainda carregava Farol no pescoço, olhou o corredor vazio com a boca meio aberta.
 
-À tarde, Lioro os levou ao lago. Disse que era um jeito de a casa nova parar de ser nova, mas Breno percebeu que era um jeito de afastar o rosto de Bruno da parede, porque o irmão tinha passado a manhã inteira com a mandíbula dura e os fones no pescoço, sem ligar o aparelho. A chuva tinha diminuído até virar uma garoa fina, e o Lago Miralume apareceu depois de uma descida de pedra, grande e cinza, com o píer de madeira escura entrando na água. Do outro lado, no meio da neblina, três torres subiam do fundo da névoa, e a do meio era mais alta que as outras duas.
+À tarde, Lioro os levou ao Lago Miralume. Disse que era para a casa nova deixar de parecer estranha, mas Breno desconfiou que o passeio tinha mais a ver com a cara fechada de Bruno. O caminho descia até um píer de madeira escura, diante de um lago cinzento de neblina. Do outro lado erguiam-se três torres, e a do meio desaparecia dentro das nuvens.
 
-— As Torres de Velur — disse Lioro, ao lado dele. — Eu já tentei contar quantos degraus têm, e perdi a conta duas vezes. Vou falar com o guarda do canal, que é meu conhecido, e já volto. Fiquem no píer, onde eu enxergo vocês.
+— As Torres de Velur — disse Lioro. — Um dia ainda conto os degraus da torre mais alta. Vou falar com o guarda do canal. Fiquem onde posso vê-los.
 
-Bruno largou o casaco e as botas num banco, na cabeceira do píer, para sentir a garoa na pele, e encostou-se no corrimão. Beatriz e Banjo foram até o fim da prancha. Breno ficou no meio, com a vista de todos, conferindo o tamanho da água. Foi nesse instante que ouviu, atrás de si, uma risada que conhecia bem.
+Bruno largou o casaco e as botas num banco para sentir a garoa nos braços. Beatriz e Banjo foram até o fim do píer. Breno ficou a meio caminho, de onde podia ver os três, quando ouviu uma voz conhecida.
 
-— Olha só quem veio ao lago — disse Erick, saindo de trás de um barracão de remos, com Nicolas ao lado, ambos secos, de capa nova e sorriso torto. — O nosso dimensal preferido, o que não consegue dar um passo sem virar notícia.
+— Olha quem veio ao lago! — disse Erick.
 
-— A gente soube da casa — completou Nicolas. — Dimensal em casa de barreira, que lindo. Quase tão lindo quanto ser expulso dela no dia seguinte.
+Ele e Nicolas surgiram de trás do barracão de remos. Vieram com piadas sobre a transferência de Brisália e sobre a casa protegida de Lioro. Bruno respondeu sem sair do corrimão, até Nicolas dar a volta pelo banco e empurrá-lo com as duas mãos.
 
-— Eu não fui expulso — respondeu Bruno, sem se virar. — Fui mudado.
+Bruno caiu de costas na água. Quando emergiu, cuspindo e prometendo congelar o lago inteiro, os gêmeos já corriam com seu casaco e as botas.
 
-— É a mesma coisa, só que mais educada. — Erick deu um passo. — A gente só queria dizer que...
+— Vem — disse Breno, de joelhos na borda do píer. — Se congelar alguma coisa aqui, quem vai explicar sou eu.
 
-Nicolas, que tinha dado a volta pelo outro lado do banco enquanto o irmão falava, empurrou Bruno com as duas mãos. Ele caiu de costas no Miralume, com um estrondo e um grito indignado, e a água fechou sobre a cabeça dele. Beatriz gritou. Banjo soltou um riso curto, assustado, que tentou engolir. Quando Bruno emergiu, cuspindo e agitando os braços, Erick já tinha recolhido o casaco e as botas do banco e corria para o barracão de remos, com Nicolas atrás, os dois rindo tanto que tropeçavam.
+Puxou-o de volta. Beatriz cobriu os ombros do irmão com a própria capa; Banjo virou o rosto para esconder o riso de susto e falhou.
 
-— Eu mato vocês! — berrou Bruno, nadando para o píer. — Eu congelo esse lago inteiro com os dois dentro!
+Do barracão, os gêmeos discutiam em voz alta.
 
-— Não congela — disse Breno, já ajoelhado na ponta da prancha, com a mão estendida. — O guarda do canal está ali, e eu não vou explicar a ele por que o lago virou pista. Vem, segura.
+— Falei para jogar as botas no lago! — gritou Erick.
 
-Puxou o irmão para cima. Bruno ficou de pé, ensopado, de camiseta e calça grudadas, o cabelo escorrendo nos olhos. Do outro lado do barracão chegou uma discussão em voz alta, cada vez mais clara.
+— E eu falei que esconder era melhor! Você só sabe mandar! — respondeu Nicolas.
 
-— Eu falei para jogar as botas no lago, e você escondeu tudo no barco! — disse a voz de Erick. — Agora o Breno vai achar em dois minutos, e a gente não ganhou nada com isso.
+— Quem empurrou fui eu!
 
-— Esconder foi ideia minha, e foi a melhor da tarde! — respondeu Nicolas, mais alto. — Você só queria jogar, que é o que você faz com tudo, e depois passa uma hora explicando por que não deu certo. E quem empurrou fui eu, por mais que você conte o contrário para o espelho.
+— Foi você que segurou o casaco, seu mentiroso!
 
-— Eu empurrei primeiro! Na semana passada eu já tinha combinado de empurrar o Bruno no lago, e você só entrou na ideia hoje, de carona, como sempre! — A voz de Erick tremia de indignação. — E ainda empurrou com a mão errada, que ele caiu de lado!
+Breno foi até o barracão. Encontrou as botas caídas junto ao casco de um barco virado e o casaco enfiado por baixo dele. Erick e Nicolas pararam de discutir assim que o viram.
 
-— Que mão errada, Erick? Eu empurrei com as duas, eu estava lá, e você estava segurando o casaco!
+— A gente não queria machucar ninguém — disse Nicolas, antes de sair correndo atrás do irmão.
 
-Breno atravessou o píer e chegou ao barracão a tempo de ver Nicolas puxar a capa do irmão, Erick sacudir o braço, e as botas de Bruno caírem do bolso de um e rolarem pelo chão. Os dois pararam ao vê-lo. Breno, parado na porta de cenho franzido, bastou.
+Breno voltou com as roupas. Bruno vestiu o casaco encharcado, tremendo, enquanto Banjo tentava explicar que o som que fizera fora «metade riso, metade susto».
 
-— O casaco está debaixo do barco virado — disse Nicolas, depressa, apontando. — Eu juro, a gente só... a gente nem sabe fazer essa coisa direito, quer dizer, o empurrão.
+— Vou me vingar — anunciou Bruno. — Sem sobrancelhas. Os dois.
 
-— Cala a boca, Nicolas — disse Erick, e os dois saíram por trás do barracão, brigando, sem olhar para trás.
+— Hoje vai tomar sopa e dormir — respondeu Breno. — Amanhã me conta seu plano.
 
-Breno achou o casaco debaixo do casco virado, com uma bota de cada lado, molhado de garoa e inteiro. Voltou ao píer e encontrou Bruno enrolado na capa de Beatriz, que ela tinha tirado dos ombros sem dizer nada, tremendo com a boca azulada. Banjo olhava para o chão, vermelho até as orelhas, com Farol escondido na gola.
+— E você diz quais partes são boas?
 
-— Não ri — disse Bruno, sem olhar para ninguém.
+— Não prometi nenhuma.
 
-— Eu não ri, eu fiz um barulho — respondeu Banjo. — Foi um barulho de susto.
-
-— Foi um barulho de riso.
-
-— Foi... um pouco dos dois. Desculpa.
-
-— Eu vou me vingar. — Bruno vestiu o casaco, que gotejava. — Vou deixar aqueles dois sem sobrancelha. Sem sobrancelha e sem roupa. Eles vão ter saudade desse empurrão.
-
-— Você não vai fazer nada hoje — disse Breno, ajudando-o com a manga. — Hoje você vai tomar a sopa do Lioro, quente, e dormir cedo. Amanhã, quando tiver cabeça fria, você me conta o seu plano, e eu digo quais partes são ruins.
-
-— Quais partes são boas?
-
-— Eu nunca disse que ia ter.
-
-Beatriz riu, um riso curto, de quem não consegue segurar. Bruno olhou para ela de cara feia, mas o canto da boca dele cedeu, de leve. Do outro lado da água, as três torres continuavam no mesmo lugar, e Breno ficou um tempo olhando para elas, sem saber por quê.
-
+Beatriz riu, e Bruno acabou rindo também, embora fingisse estar com frio demais para admitir.
 
 O quarto que Lioro tinha dado aos três irmãos tinha uma janela voltada para o pátio, três camas de ferro e um tapete que cheirava a fibra seca. Beatriz dormia no quarto ao lado, com a porta aberta uma fresta, e Banjo caiu no sono antes de Bruno tirar os fones do pescoço. Do corredor entrava uma risca de luz amarela por baixo da porta, uma linha fina e firme no assoalho, da lamparina que Lioro deixava acesa na parede. Breno olhou para ela até as pálpebras pesarem. Contou até vinte, e depois perdeu a conta.
 

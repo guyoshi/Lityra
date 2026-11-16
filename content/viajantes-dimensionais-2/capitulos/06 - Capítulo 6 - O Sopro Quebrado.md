@@ -134,7 +134,7 @@ Banjo sabia. Tinha sentido a farpa pequena e quente ainda no ponto de água, e t
 
 — Trocar quem?
 
-— A Nayra. — Shirley olhou para ele. — Ontem à noite, quando fui devolver meu cantil, eu perguntei ao senhor Graven se podia entrar no lugar dela. Ele disse que as contas aceitam, se você concordar. O Denis também. Ele troca de dupla com qualquer um, coitado. Tem até teoria de que eu ofusco ele.
+— A Nayra. — Shirley olhou para ele. — Hoje cedo, depois que soube do recado do senhor Graven, perguntei se podia entrar no lugar dela, só se fosse necessário. Ele disse que as contas aceitam, se você concordar. O Denis também. Ele troca de dupla com qualquer um, coitado. Tem até teoria de que eu ofusco ele.
 
 — Eu concordo — disse Banjo, e se surpreendeu com a rapidez. — Quer dizer, se a Nayra melhorar eu quero fazer com ela. Mas se não puder, claro que faço com você.
 

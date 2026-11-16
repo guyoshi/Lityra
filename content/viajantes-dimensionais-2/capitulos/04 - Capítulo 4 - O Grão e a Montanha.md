@@ -1,234 +1,120 @@
-Kali começou a acordar a casa às cinco e meia, e na terceira semana Bruno já tinha desistido de discutir o horário.
+Kali começou a acordar a casa às cinco e meia. Na terceira semana, Bruno já tinha desistido de discutir o horário.
 
-— Bom dia, Bruno — disse a voz da parede, no tom de quem anuncia uma boa notícia. — Doze graus lá fora, nuvens cor-de-rosa até o meio-dia. O treino começa às seis e quinze. O Velho-Sábio pediu que eu lembrasse que quem chegar atrasado carrega as tigelas.
+— Bom dia, Bruno. Doze graus lá fora, nuvens cor-de-rosa até o meio-dia. Quem chegar atrasado carrega as tigelas.
 
-— Eu estou morto, Kali.
+— Estou morto, Kali.
 
 — Pelo seu batimento, não.
 
-Bruno enfiou a cara no travesseiro e ficou ali o tempo de contar até dez. Do outro lado do quarto, Banjo dormia de boca aberta, com a mão pendurada para fora da cama e um seixo parado a um palmo dos dedos, girando devagar. Até dormindo ele treinava, o traidor. Na cama ao lado, Breno já estava sentado, calçando a bota com a precisão de quem acordou cinco minutos antes do aviso para não precisar ser avisado.
+Bruno enfiou a cara no travesseiro. Banjo dormia de boca aberta, com um seixo girando a um palmo da mão caída para fora da cama. Breno já calçava as botas.
 
-— Levanta — disse Breno.
+— Levanta — ordenou.
 
-— Estou levantando.
+— Estou levantando deitado. Técnica nova.
 
-— Você está deitado. — Breno amarrou o cadarço da outra bota, sem pressa, esperando.
+Na cozinha, o achocolatado de Bruno fumegava mais do que o necessário, como ele preferia desde que perdera o hábito de controlar o frio sem esforço. Beatriz desceu de cabelo amassado e contou que sonhara com uma vela gigantesca que ninguém deixava acender. Bruno empurrou-lhe uma torrada.
 
-— Estou levantando deitado. É uma técnica.
+— Foi a primeira vez que você obedeceu num sonho. Parabéns.
 
-A cozinha cheirava a pão, e a caneca de Bruno já estava na mesa, com o achocolatado que ele tinha aprendido a pedir quente demais, para ter desculpa de esperar esfriar. Velho-Sábio passou com o cajado debaixo do braço e uma torrada na mão, falando sozinho sobre horários. Átila ia atrás, de olho na torrada.
-
-Beatriz desceu a escada de olhos meio fechados, com o cabelo amassado de um lado só e o anel no dedo. Sentou-se na frente de Bruno e apoiou o queixo na mesa.
-
-— Eu sonhei que tinha uma vela — disse Beatriz, sem abrir os olhos direito. — Uma vela enorme, Bruno, do tamanho de um poste, e eu ficava rodando em volta dela de braço cruzado, porque eu não podia acender. Só podia olhar. Era igual quando mandam a gente esperar o bolo esfriar.
-
-— Parabéns — disse Bruno, passando manteiga na torrada com a faca inteira. — Foi o primeiro sonho da sua vida em que você obedeceu. Eu pagaria pra ver isso acordada, juro, só pra contar pro Breno depois.
-
-— Não ria, eu acordei com vontade de chorar por causa de uma vela de mentira.
-
-— É que no sonho você tem juízo. Aqui, acordada, é que o negócio complica.
-
-Ela fez uma careta, mas pegou a torrada que ele empurrou na direção dela. Quando Velho-Sábio voltou a passar, Bruno se levantou de um salto, com a mão estendida na altura do ombro.
+Velho-Sábio passou com uma torrada numa mão e o cajado na outra. Bruno se ergueu, animado.
 
 — Velho! Toca aqui!
 
-O mago olhou a palma aberta, estendeu a sua, e Bruno, já esperando o estalo, ouviu só o barulho de uma pata. Átila tinha enfiado a cabeça entre os dois e acertado em cheio, orgulhoso, de língua para fora.
+O mago estendeu a mão. Átila enfiou a cabeça entre os dois e acertou a palma de Bruno com a pata.
 
-— Não vale — disse Bruno. — Esse não conta.
+— Esse não conta! — protestou o garoto.
 
-— Foi um acerto, no entanto. Há quem passe a vida sem conseguir um.
+— Um acerto é um acerto — disse Velho-Sábio. — E vocês têm treino.
 
-— O senhor está se defendendo.
+No Arcano, uma mesa comprida os esperava com quatro tigelas de cobre, cada uma cheia de água até a metade.
 
-— Estou me divertindo, que é diferente. Terminem o café.
+— Uma gota — disse Velho-Sábio. — É só o que eu quero.
 
-O dia deles, desde a primeira semana, era sempre o mesmo. Arcano às seis e quinze, treino até o almoço, treino de novo depois do almoço, e a volta para casa na hora em que as estrelas do relógio do quarto já subiam para o teto. Nenhum dos quatro tinha reclamado em voz alta. Bruno desconfiava de que Breno reclamava por dentro, e achava isso pior.
+Bruno congelou a tigela inteira. A água saiu sólida, com o formato de um pudim, e o cobre rachou.
 
-A sala do segundo andar tinha uma mesa comprida, janelas para o jardim da entrada e quatro tigelas de cobre enfileiradas, cada uma com água até a metade. Velho-Sábio esperava na ponta, sem o cajado.
+— Eu fiz a gota. Fiz todas.
 
-— Hoje, uma gota — disse. — Uma só.
+Velho-Sábio empurrou outra tigela. Bruno congelou a mesa junto na tentativa seguinte. Na segunda semana, conseguiu finalmente uma gota redonda, flutuando em água líquida, e desfilou com a tigela até Breno pedir que a guardasse.
 
-— Uma gota de quê? — perguntou Banjo.
+Breno atravessava madeira sem esforço até o mentor lhe dar um tronco de carvalho. O braço entrou, ficou sólido no lugar errado e não voltou.
 
-— De água, Banjo. Das que estão na tigela. As outras ficam como estão.
+— Estou preso — anunciou, examinando o próprio cotovelo.
 
-Bruno olhou a sua. Tinha rachado o chão de um tribunal de sombras com gelo, no ano anterior, e não via por que uma gota seria um problema. O frio vinha do peito, como sempre vinha, e ele o mandou para a tigela do jeito que sempre mandava, em massa, sem fazer perguntas. A água virou pedra com um estalo. O cobre rachou ao meio, e o gelo ficou de pé sozinho, no formato exato da tigela, igual a um pudim.
+— Estou vendo — disse Velho-Sábio, tomando chá.
 
-— Uma gota — repetiu Velho-Sábio.
+— Pode me ajudar?
 
-— Eu fiz uma gota. Fiz todas.
+— Comece pelos dedos.
 
-— Fez todas. — O mago empurrou outra tigela para ele. — Agora pense só na que quer.
+Bruno arrastou uma cadeira até ele.
 
-Nos primeiros dias foi assim. No terceiro, Bruno congelou a gota certa e a tigela inteira junto. No quinto, a gota certa e um pedaço da mesa. Na segunda semana, conseguiu uma gota que boiava, perfeita, redonda, no meio de uma água que continuava água, e ficou tão orgulhoso que a mostrou aos irmãos um por um, com a tigela nas duas mãos, até Breno perguntar se ele pretendia andar assim o dia inteiro.
+— Quer uma almofada, véi? Tem uma de lavanda que combina com tronco.
 
-Os outros estavam na mesma, cada um com o seu pudim. Breno atravessava uma tábua fina de pinho como quem passa por uma cortina, sem fazer barulho, com um tédio que dava gosto de ver. Na segunda hora, Velho-Sábio trouxe um tronco de carvalho do tamanho de uma criança. Breno enfiou o braço nele, ficou sólido no ponto em que não devia, e parou. O antebraço sumira dentro da madeira até o cotovelo.
+Breno demorou vinte minutos para sair. Examinou o braço inteiro e voltou à tábua fina, recusando-se a reconhecer que o irmão tinha razão sobre começar por um dedo.
 
-— Estou preso — disse Breno, devagar, sem mexer a cabeça, no tom de quem avisa que perdeu a chave. — O braço ficou sólido no meio, o senhor está vendo? Do cotovelo pra cá eu sou eu, e do cotovelo pra lá eu sou tronco.
+Banjo devia conduzir dois seixos por um corredor entre vasos. Com um só, acertou. Com dois, um caiu no vaso, outro bateu no teto e um terceiro, que estava escondido na terra, atingiu a orelha de Bruno.
 
-— Estou vendo — respondeu Velho-Sábio, mexendo o chá.
+— Eu peguei só dois! — jurou Banjo, horrorizado. — Acho que o outro se animou quando viu os dois voando!
 
-— O senhor pode me soltar?
+Do outro lado, Beatriz tinha de acender apenas a vela central de uma fileira de três. Conseguiu uma chama minúscula. Banjo se aproximou para elogiar; as três velas acenderam de uma vez, e uma fagulha chamuscou metade de sua sobrancelha. Beatriz apertou o anel e apagou tudo, assustada.
 
-— Posso.
+— Eu cheguei perto — disse Banjo, passando o dedo na parte queimada. — Não foi culpa sua.
 
-Velho-Sábio não se mexeu. Breno respirou fundo, fechou os olhos e tentou de novo, e a madeira estalou, e nada. Bruno trouxe uma cadeira e a deixou ao lado dele.
+Velho-Sábio trouxe água e um pano. Encerrou o exercício para Beatriz naquele dia. A sobrancelha de Banjo demorou três dias para crescer, e ele passou os três com a expressão de quem duvidava do mundo.
 
-— Fica à vontade, véi, eu vou buscar um livro — disse Bruno, empurrando a cadeira para mais perto com o pé. — Um bem grosso, que pelo jeito você vai demorar. Quer uma almofada? Tem uma com cheiro de lavanda na sala, eu vi, e acho que combina com tronco.
+Na semana seguinte, o mentor misturou as duplas. Bruno trabalharia com Beatriz; Breno, com Banjo. Precisavam levar um ovo de cristal até um pano azul, atravessando vinte passos de obstáculos sem lhe tocar. O ovo apitaria se batesse em alguma coisa.
 
-— Cala a boca, Bruno.
+Bruno construiu um trilho de gelo com curvas tão elegantes que se esqueceu de pensar na velocidade.
 
-— Eu estou ajudando! Sou muito solidário, todo mundo nesta casa sabe disso. Só você é que nunca reconhece quando eu me dedico.
+— Se eu esquentar um pouco a curva, ele freia — sugeriu Beatriz.
 
-— Comece pelo que você sente — disse Velho-Sábio a Breno, sem olhar para Bruno. — Os dedos primeiro. O resto vem atrás.
+— Deixa comigo, Bia.
 
-Levou vinte minutos. Quando o braço saiu, Breno o examinou dos dois lados com atenção e dobrou o cotovelo duas vezes.
+O ovo disparou, passou pelo pano e apitou contra a parede. Ao mesmo tempo, o ovo de Breno e Banjo bateu no teto: Breno exigira um trajeto baixo, mas Banjo tentara erguê-lo por cima dos móveis.
 
-— Você sabia que ia prender? — perguntou Bruno, ainda de pé ao lado da cadeira. — Porque, se sabia, é maluquice, e, se não sabia, é maluquice maior.
+— De novo — disse Velho-Sábio.
 
-— Não sabia — disse Breno. Dobrava o cotovelo devagar, um lado, depois o outro.
+Dessa vez, Bruno aguardou Beatriz aquecer uma curva do trilho. O ovo deslizou até o pano e parou, intacto. O de Breno e Banjo apitou outra vez.
 
-— Então por que enfiou o braço inteiro de uma vez? Podia ter começado por um dedo. Eu começaria por um dedo, e olha que eu sou o corajoso da família.
+— A dupla de Bruno e Beatriz venceu. A outra leva as tigelas.
 
-Breno apoiou o braço na mesa, ainda checando os dedos um por um.
+— Eu já ia fazer isso — disse Bruno.
 
-— Porque ele foi buscar o tronco lá fora e carregou até aqui, e é um tronco do tamanho de uma criança. Ele não ia carregar aquilo à toa. Se trouxe, é porque achou que eu dava conta, e eu não ia passar a manhã inteira provando que ele estava errado.
+— Não ia — respondeu Beatriz.
 
-— Ele trouxe o tronco para você descobrir que não pode.
+Breno começou a explicar que Banjo desobedecera ao trajeto, mas o mais novo se adiantou:
 
-— Isso também é aprender.
+— Eu achei que por cima era melhor. Pode deixar que eu levo as tigelas.
 
-Bruno tinha uma resposta pronta e engoliu. Breno voltou à tábua fina sem mais comentários, o que, em Breno, era uma forma de gritar.
+Na terceira semana, Velho-Sábio pôs os quatro em quadrados de giz. Um minuto de magia, dois de descanso. Breno em metal; Banjo, com cinco seixos no ar; Beatriz, com uma chama minúscula no polegar; Bruno, sustentando uma parede de gelo.
 
-Banjo, do outro lado, mandava um seixo por um corredor estreito entre três vasos de folhas, sem encostar numa só. O primeiro fez o caminho inteiro. Quando ele soltou o segundo ao mesmo tempo, o primeiro caiu no vaso, o segundo foi para o teto, e um terceiro, que não era de nenhum dos dois, acertou a orelha de Bruno.
+— Quando o sino tocar, vocês param. Mesmo que consigam continuar.
 
-— Desculpa, Bruno, desculpa! — gritou Banjo, com as duas mãos na cabeça. — Eu soltei os dois juntos porque achei que ia dar certo, você sempre diz que é só soltar e não pensar!
+A parede de Bruno resistiu às primeiras rodadas. Na quarta, ganhou um veio escuro no meio. O sino tocou, mas ele manteve as mãos erguidas.
 
-— Eu nunca disse isso. — Bruno esfregava a orelha, que já estava vermelha. — E que terceiro seixo é esse? Você só pegou dois!
+Uma pressão atingiu o centro do peito, exatamente onde a lâmina de sombra de Saliens o atravessara no ano anterior. A parede rachou e caiu em placas. Bruno sentou no chão com a palma espalmada sobre o osso e o ar preso entre os dentes. Quando a dor passou, deixou um peso morno.
 
-— Eu peguei dois, eu juro! Acho que tinha um escondido na terra do vaso desde ontem, e ele se animou quando viu os outros voando.
+Breno correu até ele.
 
-— Dois alvos pedem mais atenção que um — disse Velho-Sábio, e anotou alguma coisa num caderno pequeno. — Dois seixos pedem duas atenções. Não é uma atenção partida ao meio.
+— O que aconteceu?
 
-Beatriz tinha três velas finas, coladas lado a lado numa tábua, e a tarefa era acender só a do meio. Ficou muito tempo de olhos fechados, com a mão estendida e a testa franzida. Então uma chama do tamanho de uma lentilha apareceu no pavio, miúda e firme, e Bruno só soube que prendia a respiração quando soltou o ar.
+— Gelo caiu, Breno. Gravidade, aquela coisa que você devia conhecer, já que vive atravessando parede.
 
-— Isso, Bia — disse Banjo, perto demais, de queixo quase em cima da vela.
+— Está pálido.
 
-A chama saltou. Passou para o pavio da esquerda, para o da direita, e o do meio estalou numa fagulha que subiu em arco e chamuscou metade da sobrancelha esquerda de Banjo. Beatriz fechou a mão sobre o anel e apertou a pedra com o polegar, e as três chamas sumiram de uma vez, como se alguém as tivesse apagado com um sopro.
+— Meu charme natural.
 
-Fez-se um silêncio. Banjo passou o dedo na sobrancelha e olhou a ponta, escurecida.
+Velho-Sábio os chamou para beber água. Bruno passou o resto da aula levantando uma barreira baixa, da altura de um armário. Ninguém reclamou.
 
-— Ficou curta?
+Na túbula de volta, Breno ficou um tempo olhando para a janela antes de falar.
 
-— Ficou — disse Bruno.
+— Se tiver alguma coisa errada, me conta. Nem que seja depois.
 
-— Eu não fiz de propósito — disse Beatriz, com a voz fina.
+— Conto.
 
-— Eu sei. — Banjo sorriu, com a sobrancelha torta. — Eu cheguei perto.
+— Contar de verdade, Bruno.
 
-Velho-Sábio não perguntou nada. Trouxe um copo de água e o pôs ao lado da vela apagada, junto com um pano úmido, e disse que por hoje bastava. Beatriz bebeu sem levantar o rosto. O polegar continuava no anel, esfregando a pedra devagar, de um lado para o outro, e Bruno viu o gesto e olhou para outra coisa.
-
-A sobrancelha de Banjo levou três dias para voltar. Ele passou os três dias com uma expressão permanente de dúvida.
-
-Na segunda semana, Velho-Sábio começou a misturar os quatro. Embaralhou os irmãos em duplas, e a primeira calhou de ser Bruno com Beatriz, enquanto Breno ficava com Banjo, o que Breno recebeu com a cara de quem pede para reconsiderar. No meio da mesa havia um ovo de cristal, fino como casca, com uma luz dentro. Atrás dele, um corredor de bancos, cadeiras e vasos que se estendia por vinte passos até um pano azul.
-
-— Levem o ovo até o pano sem encostar a mão nele, nem fazer ninguém encostar. Ele apita se sofrer um choque. A dupla que fizer o apito soar primeiro perde a rodada.
-
-— E o que acontece com quem perde? — perguntou Bruno, desconfiado, porque já conhecia o jeito do velho de deixar a parte ruim para depois.
-
-— Carrega as tigelas.
-
-— Sempre as tigelas. Essa casa tem tigela demais, eu acho que o senhor compra mais cada vez que a gente erra.
-
-— São muito bonitas, e quem as carrega aprende a andar com cuidado. Eu uso o método que tenho.
-
-Bruno decidiu em dois segundos. Ia fazer um trilho de gelo, liso, deslizante, que levasse o ovo de um lado ao outro como num escorregador. Esticou a mão e o trilho cresceu pelo corredor, azulado, cheio de curvas elegantes, e Beatriz ficou ao lado, de braços cruzados, mordendo o lábio.
-
-— Bruno! — disse Beatriz. — A curva tá muito inclinada! O ovo vai descer correndo e passar do pano, e aí ele apita!
-
-— Estou concentrado, Bia, não me atrapalha. — Ele nem olhou. — Eu sei fazer um trilho. Fiz um no ano passado que levou o Banjo da cozinha até o jardim, sentado numa bandeja, e ele não reclamou nenhuma vez.
-
-— Reclamou, sim, você só estava ocupado demais rindo pra ouvir. Escuta, se eu esquentar um pouquinho a curva depois que o ovo passar, o gelo amolece e ele freia, e...
-
-— Bia, deixa comigo.
-
-O ovo deslizou, ganhou velocidade na curva, passou direto pelo pano azul, bateu na parede do fundo e soltou um apito agudo, de galinha ofendida. Do outro lado da sala, o ovo de Breno e Banjo apitou no mesmo instante. Os quatro olharam para os dois ovos e depois uns para os outros.
-
-— Eu falei pra levantar o ovo por cima das cadeiras — disse Banjo, olhando o ovo apitado, que ainda zumbia. — Por cima ele ficava longe de tudo!
-
-— Por cima ele ficava longe de mim, que é o que importa, porque lá em cima eu não consigo ver o que acontece — respondeu Breno, apontando o teto com o queixo. — Pelo meio eu enxergo o ovo o tempo todo. Se ele cair, eu pego.
-
-— Mas por cima é mais rápido, e a gente só precisava...
-
-— Pelo meio, Banjo.
-
-Velho-Sábio olhou de uma dupla para a outra e não disse que um deles tinha razão. Pediu que repetissem. Bruno olhou para Beatriz, que não tinha mudado de lugar, e ela ergueu uma sobrancelha. Ele soltou o ar pelo nariz.
-
-— Tá bom, tá bom. Esquenta aí, então. Mas, se der errado, a culpa é do gelo, que ficou liso demais.
-
-— Esquento onde? Na curva toda?
-
-— No pedaço que eu apontar, não me faz explicar na frente do velho. Se é pra esquentar, esquenta de uma vez.
-
-Ela hesitou. Estendeu a mão devagar, depois mais devagar, e a chama que saiu dos dedos dela apareceu a um palmo a mais do que precisava, longe do gelo e longe da mão de Bruno. Era um calor cauteloso, de quem confere duas vezes onde estão os outros, e a superfície da curva foi amolecendo só o suficiente, sem derreter. O ovo desceu com mais calma, chegou ao pano azul e parou ali, mudo, com a luz acesa.
-
-— Eu já ia fazer isso, pô — disse Bruno, de braços cruzados, para ninguém em especial. — Só estava esperando o momento.
-
-— Não ia — disse Beatriz.
-
-— Quase ia. Estava com a mão pronta, você viu.
-
-— A dupla Bruno e Beatriz venceu — anunciou Velho-Sábio. — A dupla Breno e Banjo carrega as tigelas.
-
-— Foi o Banjo que subiu o ovo — começou Breno. — Eu mandei ir pelo meio, ele foi por cima, e...
-
-— Fui eu — disse Banjo, olhando o ovo apitado como quem se despede de um amigo. — Eu ouvi você, Breno, só que a ideia do alto estava tão boa na minha cabeça! Pode me dar as tigelas. Eu levo todas, até as que o Bruno quebrou na semana passada.
-
-Bruno ia dizer que na próxima eles decidiriam tudo de novo do jeito dele, mas Beatriz sorria para o trilho de gelo, orgulhosa e meio surpresa, e ele guardou a frase para outro dia.
-
-Na terceira semana, o exercício era só de ficar em pé. Parecia pouco, e não era.
-
-Era numa sala sem móveis, com o piso marcado a giz, onde cada irmão ocupava um quadrado e fazia a mesma coisa por um minuto, parava por dois, e começava de novo. Velho-Sábio medira o tempo com uma ampulheta de areia azul, que tocava um sino fraco quando a areia acabava. Breno ficava em metal, os ombros cinzentos, o rosto fechado. Banjo segurava cinco seixos no ar, e Bruno sustentava uma parede de gelo à frente, da altura de um homem.
-
-— Quando eu disser parar, parem — avisou o mago. — Não quando vocês acharem que podem. Quando eu disser.
-
-— E se eu ainda estiver bem? — perguntou Bruno.
-
-— Então pare bem. É o que estamos aprendendo.
-
-A parede de gelo era perfeita na primeira rodada. Na segunda, já tinha um veio de sombra no meio. Na quarta, Bruno sentia o frio puxando mais do que ele mandava, e lembrou do que tinha aprendido no ano anterior, que o frio vinha de dentro e a gente só convidava. Estava convidando havia muito tempo. Atrás dele, os seixos de Banjo desciam um a um para o chão, com uma disciplina dolorida, enquanto Beatriz, no último quadrado, mantinha uma chama minúscula no polegar e suava mais do que a chama merecia.
-
-A parede ainda estava de pé quando o sino tocou. Bruno não parou.
-
-Foi na quinta ou sexta rodada, e ele não soube depois dizer qual. Algo pressionou o centro do peito, por dentro, do lado do osso. Era uma pressão dura e muito precisa, a ponta de um dedo, no lugar exato em que uma lâmina de sombra o tinha atravessado, no ano anterior, sem rasgar a camisa. A parede estalou e caiu em placas. Bruno largou a mão, deu um passo para trás e sentou no chão, com a palma colada no peito e o ar preso entre os dentes.
-
-Durou alguns segundos. Depois a pressão passou, e ficou um peso morno no mesmo lugar, um peso de quem tinha comido demais.
-
-— Parar — disse Velho-Sábio, e o sino da ampulheta tocou pela sétima vez.
-
-Breno estava ao lado dele antes do segundo sino. Voltara ao corpo normal, ofegante, e examinou o rosto de Bruno com a mesma atenção com que tinha examinado o braço no tronco.
-
-— O que foi? — perguntou Breno. — Você está estranho desde que a parede caiu em cima de você.
-
-— Gelo caiu. É a lei da gravidade, Breno, você devia saber, que já atravessou uma tábua.
-
-— Você está pálido. De verdade, não é implicância.
-
-— É o meu charme natural, a Kali fala isso toda manhã. — Ele pôs a mão no joelho, para ter o que fazer com ela, e sorriu o sorriso de sempre. — Acho que o achocolatado estava quente demais e me escaldou por dentro. Eu sou delicado, você sabe.
-
-Breno não acreditou, e Bruno viu isso, mas Velho-Sábio chamou todos para beber água, e o assunto foi junto com o copo. Bruno tomou o dele em goles pequenos, com a mão ainda perto do peito, e quando o sino tocou outra vez, para a rodada seguinte, levantou antes dos outros.
-
-Não tentou a parede de novo naquele dia. Fez o resto com uma barreira baixa, do tamanho de uma porta de armário, e não houve reclamação, nem de Velho-Sábio, que se limitou a anotar alguma coisa no caderno.
-
-Na túbula de volta, entre uma estação e outra, Breno falou baixo, de olho na janela do tubo.
-
-— Se for alguma coisa, você me fala. Não precisa ser agora, nem com cara de drama. Só que eu não quero descobrir pelo Velho-Sábio, nem pelo Banjo, que desconfia de tudo e não segura a boca por dois minutos.
-
-— Falo.
-
-— Falo de verdade ou falo de brincadeira?
-
-— De brincadeira, em geral. — Bruno encostou a cabeça no vidro e deixou as luzes de Tayo passarem. — Mas, se for alguma coisa, eu falo de verdade. Pode confiar, eu até treino a cara que eu vou fazer.
+— De verdade. Eu até ensaio a cara.
 
 Breno não perguntou mais. Bruno mentiu com a melhor cara que tinha, e achou, pelo menos, que mentira bem.
 

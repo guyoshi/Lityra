@@ -1,256 +1,144 @@
-O leite de Bruno estava congelando por dentro, e ele fingia que não.
+O leite de Bruno estava congelando por dentro, e ele fingia que não. Sob a palma do copo, uma casquinha branca cresceu até o tamanho de uma moeda. Ele olhou para a janela, onde a neblina engolia o quintal havia três dias, e pôs o copo no micro-ondas antes que alguém reparasse.
 
-Segurava o copo com as duas mãos, como quem esquenta os dedos, e olhava para a janela. A neblina tinha engolido o fim do quintal e começava a subir pelo varal, a garoa riscava o vidro sem pressa, e fazia três dias que o sol não aparecia em lugar nenhum. A lâmpada da cozinha zumbia.
+Breno chegou à mesa com o caderno de desenhos. Banjo, de óculos tortos, fingia ler um gibi enquanto tentava alcançar a caixa de cereal sem se levantar. Por baixo do moletom grosso que usava naquele abafado, uma luz dourada se mexia. Beatriz mastigava uma torrada, de olhos no fogão apagado, cantarolando as três notas que a mãe usava quando fazia suas tranças. Calou-se assim que percebeu.
 
-Sob a palma de Bruno, uma casquinha branca crescia da borda do copo para o meio. Ele esperou até ela ficar do tamanho de uma moeda, olhou para os lados, enfiou o copo no micro-ondas e apertou trinta segundos. Depois ficou de costas para a mesa, de braços cruzados, assobiando.
+— Fica quieto — sussurrou Banjo para o volume escondido na barriga.
 
-Breno chegou com seus papéis e seu lápis e se sentou à mesa para continuar seus desenhos, concentrado. Do outro lado da mesa, Banjo ergueu os olhos do gibi com os óculos redondos escorregando no nariz e olhou pro cereal. Ele queria pegar, mas estava tão longe. Beatriz, a caçula, mastigava a torrada olhando para o fogão apagado, com a atenção fixa de quem vigia uma panela que nem estava ali. Sem perceber, cantarolou baixinho três notas da canção que a mãe cantava quando fazia suas tranças. Parou ao perceber o próprio som e continuou olhando para o fogão.
+Bruno tirou o leite do micro-ondas, bebeu com cristais ainda estalando no fundo e anunciou que estava delicioso. Foi quando viu uma folha presa à geladeira com um ímã de abacaxi. A letra de Frank furara o papel em dois pontos.
 
-Banjo usava o moletom grosso de capuz, apesar do abafado da cozinha, e a barriga do moletom tinha um volume que não existia no ano anterior. De vez em quando o volume se mexia, e uma luz fraca escapava pela gola. Banjo empurrava a coisa para dentro com a palma, por cima do tecido, sem tirar os olhos do gibi.
+— Regra um: ninguém usa nada. Regra dois: nem quando ninguém está olhando. Regra três: nem pra pegar o sal. — Bruno inclinou a cabeça. — Isso aqui é um bilhete ou um testamento?
 
-— Fica quieto — sussurrou. — Já falei.
+Frank entrou com as chaves do táxi na mão e o cabelo molhado.
 
-Bruno tirou o copo do micro-ondas. O leite tinha derretido e deixado um fundo de cristais que estalavam contra o vidro. Ele bebeu mesmo assim, com cuidado, e fez questão de dizer "delícia".
+— Escrevi no sinal vermelho.
 
-Foi então que reparou no papel na porta da geladeira. Era uma folha do bloco que o tio usava no táxi, presa com um ímã de abacaxi, e as letras maiúsculas tinham sido pressionadas com tanta força que furaram o papel em dois pontos.
+Sentou-se, e os quatro se ajeitaram na hora. Tinha dormido pouco durante todo aquele ano. Os meninos ainda se lembravam da noite em que ele contara que acompanhara Gabrielle a Belfex, mesmo sem ter magia, e deixara metade da história por dizer.
 
-— "Regra um" — leu Bruno, em voz alta. — "Ninguém usa nada." "Regra dois. Nem quando ninguém estiver olhando." "Regra três." — Ele inclinou a cabeça. — "Nem pra pegar o sal." — Ergueu a folha contra a luz, conferindo os dois furos. — Isso não é bilhete de geladeira, é testamento.
+— Aqui vocês não usam poder nenhum — falou Frank. — Principalmente dentro de casa, onde é fácil esquecer o perigo.
 
-Frank tinha acabado de entrar na cozinha, com o cabelo ainda molhado e as chaves do táxi pendendo de um dedo. Parou no meio do caminho e olhou para a geladeira, surpreso com a própria folha.
+— Nem pra salvar um cachorro pendurado numa ponte? — perguntou Bruno.
 
-— Tio, o senhor escreveu com parkinson? A caneta sofreu — disse Bruno.
+— Nesse caso você chama ajuda. Estou falando sério. Basta um vizinho ver alguma coisa e vocês deixam de ser meus sobrinhos para virar assunto na rua inteira.
 
-— Escrevi no sinal vermelho — disse Frank. — Não tinha muito tempo.
+Beatriz apertou o pingente azul que Maria lhe dera.
 
-Frank puxou uma cadeira e se sentou, e isso bastou para os quatro se ajeitarem também. Tinha o rosto de quem dormia pouco havia meses, e as olheiras já não saíam dali. Esfregou as mãos uma na outra, devagar, e não olhou para nenhum deles.
+— E se escapar sozinho, tio?
 
-Bruno lembrava da noite em que o tio tinha contado, no sofá, com a televisão desligada, olhando o rodapé. Que fora a Belfex uma vez, de penetra, sem uma gota de magia no corpo, só porque a irmã tinha pedido. A cada pergunta, o tio respondera um pouco menos, até que Banjo parou de perguntar. Os quatro ficaram com meia história e com a sensação de terem ouvido a metade que mais doía.
+— Você respira e vem me contar. A gente resolve junto.
 
-— Aqui — disse Frank, e bateu o dedo na mesa — vocês não usam poder nenhum. Nem quando só tiver a gente em casa. Principalmente quando só tiver a gente em casa, porque é aí que a pessoa se acostuma.
+Banjo olhou para o cereal, desejando que a caixa estivesse mais perto. Ela deslizou dez centímetros. O menino ficou vermelho e escondeu as mãos debaixo das coxas.
 
-— E se for pra salvar um cachorro, tio? — perguntou Bruno. — Tipo, o bicho tá pendurado numa ponte e eu lá: peraí, cachorro, segura aí que eu vou pedir licença pro tio?
+— Foi sem querer.
 
-— Aí você vem me contar antes.
+— Eu sei. Mas vocês precisam tomar cuidado. — Frank apontou para o moletom dele. — E o Farol fica em casa.
 
-— Antes de salvar o cachorro?
+— Ele não faz nada.
 
-— Sim, Bruno, antes de salvar o... dá pra parar de graça — Frank quase sorriu, e o sorriso não chegou aonde precisava. — Eu tô falando de uma cidade pequena, de uma escola com trinta janelas e de gente que fala. Basta um vizinho ver uma coisa, e vocês deixam de ser meus sobrinhos e viram assunto.
+— Ele brilha, Banjo. Um vizinho não esquece um bicho que brilha.
 
-Breno assentiu, sério, como assentia a tudo que vinha de adulto quando o assunto era perigo. Beatriz ficou um instante quieta, com os dedos fechados no pingente azul-claro que Maria lhe dera, por baixo da gola da camiseta, e perguntou, num fiapo de voz:
+Banjo apertou o tecido contra a barriga. A luz se encolheu. Bruno, de fininho, engoliu o resto do leite antes que congelasse de novo.
 
-— E se escapar sozinho? Sem eu querer?
+Frank consultou o relógio e foi procurar o guarda-chuva. Assim que ouviu a porta do armário, Bruno pôs uma caneca de achocolatado fumegante ao lado do caderno de Breno.
 
-Frank demorou a responder.
+— Toma. O tio deixou pra você.
 
-— Aí você respira, vem até mim e a gente resolve — disse. — Sem esconder. Combinado?
+— Eu nem pedi.
 
-— Combinado.
+— Eu só cuido da logística.
 
-Já Banjo, que olhava para a caixa de cereal, do outro lado da mesa, por acaso pensou em como seria bom tê-la mais perto. A caixa deslizou uns dez centímetros e parou diante dele. Ele ficou vermelho até as orelhas.
+Breno pegou a caneca. Bruno encostou um dedo no fundo. O primeiro gole chegou à língua do irmão em pedaços gelados; ele cuspiu na pia, errou, e a caneca caiu. O achocolatado saiu inteiro, uma pedra marrom com a forma exata do recipiente.
 
-— Foi sem querer — disse ele.
+— Bruno! Faz cinco minutos que o tio falou!
 
-— Eu sei — disse Frank, e olhou a caixa, depois o menino. — Mas isso não pode acontecer. Já faz um ano que vocês voltaram, e o Breno parece ser o único que colabora.
+— Falou pra não usar quando ninguém tivesse olhando. Você estava olhando pra caneca!
 
-Banjo escondeu as mãos debaixo das coxas, como se elas tivessem feito aquilo de propósito.
+Banjo mordeu o gibi para não rir. Beatriz acabou rindo também. Bruno escondeu no bolso a mão ainda branca nas pontas.
 
-— E o Farol — disse Frank, e o olhar dele desceu até a barriga do moletom. — Esse não sai de casa. Nunca. Nem no quintal sem eu ver.
+Frank voltou com o guarda-chuva e encontrou os quatro tentando parecer inocentes diante da pedra de achocolatado.
 
-— Ele não faz nada, tio.
+— Nem vou perguntar. Vamos.
 
-— Ele brilha, Banjo. Um bicho que brilha é o que um vizinho lembra pelo resto da vida.
+Na soleira, uma luz dourada escapou do moletom de Banjo e correu para ver a chuva. O menino mergulhou atrás de Farol antes que o tio se virasse.
 
-Banjo apertou o moletom com os dois braços. Lá dentro, a luz se encolheu.
+— Ele só queria olhar — explicou, com o petrisco entre as mãos.
 
-Bruno pegou o copo, viu a casquinha branca crescendo outra vez no fundo e engoliu o resto de uma vez, para o gelo não ter tempo de aparecer.
+— Casa. Agora.
 
-Frank olhou o relógio da parede, resmungou que o ônibus não esperava e foi procurar o guarda-chuva no corredor. A porta do armário rangeu lá no fundo. Bruno ouviu o rangido, contou até três e foi até a garrafa térmica em cima da pia.
+Banjo subiu, guardou Farol na mochila sob um casaco e desceu com o moletom vazio, levando também uma casca de maçã e uma tampinha com água para o bichinho. Frank acreditou que o deixara no quarto.
 
-— Toma — disse, e pôs uma caneca fumegante ao lado do caderno de Breno. — Achocolatado pra você.
+Saíram para o ponto de ônibus. Na esquina, Bruno procurou o discman no bolso e voltou correndo para buscá-lo. Encontrou Frank sozinho na cozinha, com o rádio do pai deles nas mãos. O tio erguera a tampa das pilhas e examinava o símbolo minúsculo de linhas curvas gravado no plástico.
 
-— Eu não pedi achocolatado.
+Bruno pegou o discman no sofá e saiu sem ser visto. Dessa vez fechou a porta com cuidado.
 
-— Foi o tio que deixou, ainda tá quente. Eu só fiz a logística.
+O ensaio do coral cheirava a cera de chão molhada e poeira de cortina. Na quarta-feira, a professora Marlene tentava fazer a turma cantar para a apresentação do Dia das Mães, enquanto seis baldes recebiam as gotas do teto. Beatriz ficava no fundo, mexendo a boca sem soltar voz. Conhecia a segunda estrofe desde pequena: Gabrielle a cantava enquanto fazia suas tranças.
 
-Breno suspirou, com a paciência de quem já perdeu essa discussão em outros dias, e estendeu a mão sem erguer os olhos do desenho. Bruno encostou o dedo no fundo da caneca no instante em que ela mudou de dono. O vapor ainda subia, e Beatriz viu o vapor parar no meio do caminho.
+— Está sem voz ou sem vontade, querida? — perguntou a professora.
 
-Breno bebeu um gole comprido, com a confiança de quem acredita no próprio irmão pela última vez. O achocolatado chegou à língua em pedaços. Ele ficou com a boca cheia de uma lama marrom e dura, gelada até os dentes, e fez um som que nenhum dos quatro tinha ouvido dele antes. Cuspiu na pia, errou, e a caneca bateu no chão e rolou até o pé da mesa. O achocolatado saiu dela inteiro, numa só peça, e ficou lá, uma pedra marrom com a forma exata do fundo da caneca.
+— Sem voz.
 
-— Bruno! — Breno falou num sussurro furioso, de olho na porta do corredor. — Cinco minutos! Faz cinco minutos que ele falou!
+— Então pega a caixa de lanternas de papel na sala de adereços, por favor.
 
-— Falou "quando ninguém estiver olhando" — disse Bruno, já rindo tanto que precisou apoiar a mão na pia. — Você tava olhando pra caneca, véi. Eu não ia desperdiçar uma chance dessas.
+Beatriz agradeceu em silêncio. Atrás do palco, a cortina de veludo escondia cadeiras empilhadas, um piano sem tampa e programas antigos com corações na capa. Ela puxou a caixa de lanternas de cima de um armário, desceu do banquinho e sentiu o calor subir pelo peito.
 
-Banjo mordeu o gibi para não rir alto e rendeu-se no segundo seguinte. Até Beatriz soltou uma risada pelo nariz, a primeira da manhã. Bruno olhou para a própria mão, aberta, ainda branca nas pontas. O gelo viera mais rápido que na semana passada, e ele nem tinha precisado se concentrar. Guardou a mão no bolso antes que alguém percebesse o tamanho do sorriso.
+Apertou o Anel Orcidal. O pingente de Maria também esquentou. Lembrou do teto do covil desabando quando precisara tirar o anel para salvar Bruno.
 
-— Que barulho foi esse? — perguntou Frank, de volta à porta, com o guarda-chuva debaixo do braço.
+— Não. Para.
 
-— A caneca escorregou — disseram os quatro ao mesmo tempo.
+A caixa caiu sobre os programas. Uma labareda correu pelo papel e subiu pela cortina. Beatriz tentou diminuir o fogo, mas as chamas avançavam depressa demais. Saiu correndo, agarrou um balde de água debaixo das goteiras e voltou arrastando-o. Na porta, encontrou a cortina preta e o fogo já apagado.
 
-Frank olhou a caneca no chão. Olhou a pedra de achocolatado ao lado dela, que não tinha um pingo de líquido em volta. Olhou Breno, de boca ainda marrom, com a língua para fora, esfregando-a na manga. Respirou fundo, devagar.
+Melissa ajoelhava-se diante dos últimos pedaços de papel fumegantes, segurando um balde vazio. Olhou para as mãos vermelhas de Beatriz, que tremiam sem nenhuma bolha.
 
-— Eu nem vou perguntar nada — disse. — Vamos, que o ônibus não espera.
+— Que cheiro de pão queimado — disse, tão baixinho que só a amiga ouviu.
 
-Na porta, quando Frank a abriu, o moletom de Banjo deu um tranco. Uma luzinha escapou pela gola, correu pelo piso até a soleira e parou na beira do degrau, fascinada pela chuva. Banjo mergulhou, apanhou-a com as duas mãos e a embrulhou contra a barriga antes que o tio se virasse. Frank se virou mesmo assim, e olhou as mãos juntas, o rosto vermelho, o moletom que pulsava.
+O zelador apareceu no corredor, seguindo o cheiro de fumaça.
 
-— Ele só queria ver a chuva — disse Banjo.
+— Seu Osmar! — chamou Melissa, sem hesitar. — O ventilador velho deu curto! A Bia já desligou e a gente jogou água!
 
-— Casa — disse Frank, baixinho, apontando para dentro. — Agora.
+O homem olhou para o ventilador esquecido no canto e para a cortina chamuscada.
 
-Banjo subiu correndo, acomodou Farol no fundo da mochila, por baixo de um casaco, e desceu de moletom liso, sem volume nenhum, bem a tempo de alcançar o ônibus. Antes de fechar o zíper, deixou lá dentro uma casca de maçã que tinha guardado do café e uma tampinha de garrafa cheia de água, bem encaixada entre dois cadernos para não derramar. — Come tudo, hein — cochichou. — Eu sei que você acha ruim. Eu também acho. Frank não percebeu que o petrisco continuava com ele.
+— Eu disse que esse treco tinha que ir pro lixo. Vocês se machucaram?
 
-Saíram debaixo do guarda-chuva grande do tio, que não cobria nenhum deles inteiro, até o ponto do ônibus escolar. Foi só na esquina que Bruno enfiou a mão no bolso, procurou o discman e achou o bolso vazio.
+— Não, senhor — respondeu Melissa.
 
-— Esqueci — resmungou. — Vão indo.
+Ele mandou as duas saírem enquanto procurava alguém para examinar a fiação. No corredor, Beatriz apertou as mãos debaixo dos braços.
 
-Voltou correndo pela rua molhada, entrou pela porta dos fundos para não fazer barulho e parou na entrada da cozinha. Frank continuava sentado à mesa, sozinho, com a xícara de café frio ao lado. Tinha o rádio do pai deles nas mãos. Com a unha do polegar, levantara a tampa das pilhas e olhava para o fundo do compartimento, para o símbolo minúsculo de linhas curvas gravado no plástico, como quem olha para uma porta que decidiu não abrir.
+— Mel, não conta. Nem pros meus irmãos. O Breno vai querer me vigiar, o Bruno vai fazer piada e o Banjo vai ficar com medo.
 
-Bruno recuou um passo sem fazer ruído. Pegou o discman e os fones do braço do sofá, onde estavam o tempo todo, e saiu de novo, tentando fechar a porta com mais cuidado do que jamais fechara qualquer porta na vida.
+— Então foi o ventilador — disse Melissa, mostrando os dentes. — E eu sei guardar segredo, mesmo quando parece impossível.
 
-O ensaio do coral cheirava a cera de chão molhada e a poeira de cortina velha.
+No recreio, contudo, Bruno ouviu Melissa atrás de um pilar, falando baixo demais para o entusiasmo dela e alto o bastante para atravessar o pátio.
 
-Beatriz ficava sempre no fundo da fileira, entre uma colega que cantava alto demais e outra que não cantava nada, e na quarta-feira o ensaio era no auditório, porque a apresentação do Dia das Mães estava a duas semanas. O teto goteirava em seis pontos, e o seu Osmar, o zelador, tinha posto seis baldes enfileirados no corredor e no palco. Os pingos caíam no ritmo que queriam, e a professora Marlene regia por cima deles, com os braços erguidos e uma paciência que já estava no fim.
+— Minha melhor amiga é uma super-heroína! Você faz de novo um dia, só pra eu ver?
 
-A música tinha duas estrofes. A segunda Beatriz sabia de cor desde antes de aprender a ler, porque a mãe cantarolava aquela melodia enquanto fazia as tranças dela, e por isso mesmo ela cantava sem som, só mexendo a boca, com os olhos no fundo do auditório.
+— Não vou fazer na frente de ninguém, Mel. Vão me chamar de aberração.
 
-— Beatriz — chamou a professora Marlene, no meio de um compasso. — Querida, você está sem voz hoje ou está sem vontade?
+— Eu ia te visitar no circo — respondeu Melissa.
 
-— Sem voz — mentiu Beatriz.
+Bruno apareceu de braços cruzados. Beatriz ficou pálida.
 
-— Então me faz um favor. Na sala de adereços, atrás do palco, tem uma caixa com as lanternas de papel do ano passado. Pega e traz, pode ser? Cuidado com a poeira.
+— Eu sabia que você não tinha segurado a língua, irmãzinha.
 
-Beatriz foi, aliviada de sair da fila. A sala de adereços ficava depois de uma cortina de veludo cor de vinho que era pesada demais para ser aberta com uma mão só. Lá dentro havia cadeiras empilhadas, um piano sem tampa e uma pilha de programas do ano anterior, cada um com um coração desenhado na capa. Beatriz subiu em um banquinho, puxou a caixa de lanternas e desceu abraçada nela.
+— Ela é minha melhor amiga! — protestou Beatriz. — E foi ela que apagou!
 
-Foi aí que sentiu o calor.
+— Eu sei. Mas o tio precisa saber. Ele pediu pra gente contar quando escapar alguma coisa.
 
-Começou no meio do peito, como uma panela esquentando em fogo baixo, e subiu para os ombros, para o pescoço e para as mãos. Beatriz apertou o anel com o polegar. Continuava usando, como Velho-Sábio pedira. Sob a gola, o pingente de Maria esquentava junto com ela. Na Presália, quando o tirara para salvar Bruno, o fogo derrubara parte do teto da caverna, e Breno precisara carregá-la para fora. Beatriz não queria que aquilo acontecesse outra vez. Tentou respirar, mas as palmas formigaram. A caixa de papelão sob os seus dedos escureceu num círculo do tamanho de uma moeda, depois de uma mão aberta, e cheirou a pão esquecido no forno.
+Bruno fez uma pergunta séria antes de brincar de novo:
 
-— Não — disse Beatriz, baixinho. — Para, para, para.
+— Você se queimou?
 
-Largou a caixa. Ela caiu sobre os programas, e os programas pegaram. Foi rápido demais para ela entender, uma língua amarela que lambeu o coração desenhado da primeira capa, atravessou a pilha e subiu pela barra da cortina de veludo, devorando a poeira de anos. O calor estava na sala inteira. Ela tentou fazer a coisa que Velho-Sábio ensinara, olhar para a chama e pedir que baixasse, mas dentro dela não havia pedido nenhum, só o impulso de tudo, e a chama cresceu com a respiração dela.
+— Não — respondeu Melissa. — Só ficou assustada. Eu disse que foi o ventilador, e o seu Osmar acreditou.
 
-Beatriz correu.
+— O seu Osmar acreditaria até num ventilador assombrado — disse Bruno.
 
-No corredor, os baldes. Beatriz pegou o primeiro, com água suja de chuva até a metade, e voltou arrastando. Na porta da sala de adereços, parou. O fogo já não existia.
+Beatriz não achou graça. Mais tarde, Bruno contou o acontecimento a Breno no quarto. O mais velho pôs o lápis sobre o desenho inacabado de um rosto sem olhos.
 
-Melissa estava ajoelhada diante da cortina, com um balde vazio ainda inclinado nas mãos. A água escorria pelo chão até a ponta dos sapatos de Beatriz. Dois outros baldes tinham sido largados de lado, e as partituras estavam empilhadas torto numa cadeira, longe do molhado. Do último palmo de brasa restava só um chiado comprido, que foi morrendo enquanto as duas olhavam.
+— Pega leve com ela. Está com medo do próprio fogo.
 
-O balde de Beatriz escorregou da mão e bateu no chão, e a água suja se espalhou até a base da cortina. Ela ficou parada no meio da sala, encharcada até os joelhos pela própria água derramada, com as mãos abertas diante do rosto. As palmas estavam vermelhas, sem bolhas. Tremiam tanto que ela as prendeu debaixo dos braços.
+— Eu sei. Por isso o tio tem que saber.
 
-A cortina estava preta de baixo até a altura da cintura. Os programas viraram uma pasta molhada. No ar havia fumaça, e o cheiro ia sair pelo corredor inteiro.
+Frank chegou do táxi no começo da noite e ouviu a história de pé, ainda com o casaco molhado. Perguntou primeiro pelas mãos de Beatriz e depois por quem tinha visto o incêndio. Soube da explicação de Melissa, puxou uma cadeira e cobriu o rosto com as mãos. No andar de cima, uma tábua do corredor estalou.
 
-— Que cheiro de pão queimado.
-
-Melissa levantou os olhos. Falava rápido, perguntava demais e achava que qualquer silêncio era urgente. Naquele momento, olhou para a cortina preta, para o balde caído e para as mãos da amiga, e não perguntou nada. Não gritou nem recuou. Só fez a conta, depressa, de quem já sabia que um dia ia precisar fazer.
-
-Passos no corredor. A voz do seu Osmar, que tinha ouvido barulho de balde.
-
-Melissa soltou as partituras sobre o piano e puxou o ar.
-
-— Seu Osmar! — gritou, na voz mais normal do mundo. — O ventilador velho do palco deu curto de novo! A Bia já arrancou da tomada e jogou água, a gente tava com medo de pegar fogo na cortina!
-
-O zelador apareceu na porta, olhou para a cortina, para o ventilador de pedestal esquecido num canto, que nunca fora ligado, e fez o gesto de quem desiste de entender.
-
-— Esse treco tem que ir pro lixo — resmungou. — Eu falei pra diretoria. Falei! Vocês duas se machucaram?
-
-— Não, senhor — disse Melissa.
-
-— Ótimo. Saiam daí, que eu tenho que chamar alguém pra ver a fiação.
-
-Elas saíram para o corredor, onde o cheiro de queimado ficava mais fraco, e foram parando perto da janela, de costas para o auditório. Beatriz respirava curto. Fechou a mão no pingente, e o metal estava morno. Pensou em Eshley, que saberia o que dizer, e em como Belfex estava longe.
-
-— Mel...
-
-— Mostra a mão — disse Melissa.
-
-Beatriz mostrou. As palmas continuavam vermelhas, sem bolha.
-
-— Então foi um ventilador — disse Melissa. — Só isso.
-
-— Mel, eu não queria. Eu só tava... — A voz de Beatriz estremeceu. — Ninguém pode saber disso aqui, tá? Nem os meus irmãos. O Breno vai ficar com aquela cara, o Bruno vai fazer piada de um jeito que eu não aguento, e o Banjo vai querer saber tudo e depois ficar com medo de mim.
-
-— Eu nunca contei nada pra eles — disse Melissa. — Nem pra minha mãe, que me pergunta toda hora, e olha que ela é muito boa em arrancar segredo. Relaxa. Eu já disse que levo pro túmulo, e eu não esqueço do que eu falo.
-
-As duas voltaram para o ensaio devagar.
-
-No recreio, Bruno atravessava o pátio quando ouviu a voz de Melissa atrás do pilar. Era impossível confundir: Melissa era a única pessoa que ele conhecia capaz de falar de superpoderes em voz baixa e ainda assim ser ouvida do outro lado do pátio.
-
-— Ah, desculpe! É que... isso é tão tão tão legal! Minha melhor amiga é tipo uma super-heroína que nunca passa frio... será que... você pode fazer de novo... depois... pra eu ver? Por favorzinho?
-
-— Não, Melissa. Não vou fazer mais na frente de ninguém. Se mais alguém ver, vão me chamar de aberração. Vão me colocar num circo.
-
-— Eu adoro circos. Vou te visitar.
-
-Bruno deu a volta no pilar com o sorriso mais largo do pátio e encostou-se nele.
-
-— Eu sabia — disse. — Eu sabia que você não tinha segurado a língua, irmãzinha.
-
-Beatriz deu um pulo e ficou da cor do cimento. Melissa abriu a boca, fechou, abriu de novo e escondeu o caderno atrás das costas.
-
-— Segurado a língua? Hã? Do que você tá falando? A gente tava falando de... de ventilador. Um ventilador muito interessante, Bruno. Sabia que teve um que deu problema mais cedo em uma das salas?
-
-— Tanta gente pra contar, Beatriz. — Bruno cruzou os braços. — E você conta pra pessoa mais barulhenta do continente.
-
-— Ela é minha melhor amiga — disse Beatriz, ofendida, e depois ficou vermelha. — Se fosse contar pra alguém, essa pessoa seria a Mel.
-
-Na fila do refeitório, Beatriz segurou a bandeja pelas pontas dos dedos. O cabelo dela cheirava a fogueira.
-
-— Pode contar — ordenou Bruno. — Se não contar, eu vou descobrir de qualquer jeito.
-
-— Foi na sala de adereços, atrás do palco — disse Melissa. — A Bia perdeu o controle do fogo. Quando cheguei, ele já tinha alcançado os programas e a cortina.
-
-Beatriz não negou. Olhou para o chão e apertou os lábios.
-
-— E ela se machucou? — perguntou Bruno a Melissa, porque a irmã não ia responder.
-
-— Ficou com as mãos vermelhas. Mais nada. — Melissa mordeu o lábio. — E eu cobri com o ventilador, que era o único jeito de explicar.
-
-— Ela cobriu mesmo — disse Beatriz, e quase sorriu. — O seu Osmar acreditou.
-
-— O seu Osmar acredita em tudo. Se disser que o ventilador é assombrado ele chama um padre pra exorcizar.
-
-— Acidentes são acidentes, maninha. Mas... — disse Bruno, e a frase saiu mais séria do que ele queria. — A regra é do tio, e ele precisa saber.
-
-— Bruno...
-
-— Não é castigo. Ele mesmo falou, lembra? "Conte tudo pra mim". Se der algum problema maior, ele tem que saber. E eu não quero o tio enchendo o saco porque não contei que minha irmã espalhou a notícia de que somos os guardiões de Belfex.
-
-— Guardiões de Belfex? — perguntou Melissa.
-
-— Tipo, lá podemos voar, combater o crime, levantar pesos cem vezes maiores do que os nossos.
-
-— Você não me contou isso — Melissa arregalou os olhos sorrindo.
-
-— Ele está zoando com você, Mel — disse Beatriz.
-
-— Ah! — calou-se a amiga.
-
-Beatriz ficou olhando para ele por um tempo, com os olhos marejados, e depois assentiu uma vez só.
-
-— Tudo bem...
-
-Bruno voltou para casa a pé, debaixo da garoa. Encontrou Breno no quarto, com o caderno aberto no desenho inacabado de um rosto sem olhos. Contou tudo, e Breno foi ficando quieto, de uma forma que Bruno conhecia muito bem. Os dedos dele afundaram um centímetro no cabo de madeira do lápis e depois voltaram ao normal.
-
-— Bruno, pega leve com ela — disse Breno, por fim. — Ela tem medo do próprio poder.
-
-— Cara, eu não tô pensando em mim. Acredite, dessa vez não. — Bruno se sentou na beirada da cama. — Eu tô dizendo que a gente tem que contar pro tio. Não podemos esconder isso dele.
-
-Breno guardou o caderno.
-
-— Eu não escondo coisas do tio. Só... temos que saber como contar.
-
-Frank chegou do táxi no começo da noite e ouviu a história de pé, ao lado da pia, ainda de casaco. Quando Bruno terminou, puxou uma cadeira devagar e se sentou.
-
-— Ela se queimou? — perguntou, e a voz saiu mais grossa do que de costume. — Alguma coisa na pele, no braço, nas mãos? Porque às vezes a gente não vê na hora, e a pessoa só sente depois.
-
-— Não, tio — disse Breno. — A gente conferiu duas vezes, a pele estava normal. Ela ficou mais assustada do que machucada.
-
-— E na escola? Alguém suspeitou? Algum professor, o diretor, algum aluno que estava perto?
-
-— Acharam que foi um ventilador — disse Bruno. — Falaram que deu curto-circuito, e a gente só concordou com a cabeça.
-
-Frank pôs as duas mãos no rosto. Ficou assim tanto tempo que Bruno olhou para o fogão, para a geladeira com a folha furada e para o chão. Lá em cima, no alto da escada, uma tábua do corredor estalou, e ele soube sem olhar que alguém tinha ouvido a conversa inteira.
-
-— Eu vou falar com ela amanhã — disse Frank, entre os dedos. — Hoje, deixa ela descansar.
+— Eu falo com ela amanhã — disse Frank. — Hoje deixa a menina descansar.
 
 Na quinta, a neblina estava tão branca no pátio de trás que as pessoas apareciam e sumiam como desenhos mal apagados. Banjo e Bruno dividiam o banco debaixo da velha ameixeira e um pacote de biscoito de polvilho.
 

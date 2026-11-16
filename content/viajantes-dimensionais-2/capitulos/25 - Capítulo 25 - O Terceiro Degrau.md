@@ -6,9 +6,9 @@ Banjo percebeu quando desceram da túbula na estação de Sorevan. O cheiro vinh
 
 Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia atrás dele, com o capuz da capa de Ivy puxado até as sobrancelhas, e Banjo ia por último, porque era de onde dava para sentir todo mundo.
 
-Banjo olhava as pessoas e tentava adivinhar o que sentiam. No covil de Korvo, precisara tocar Marcus para alcançar o medo dele. Desde então, às vezes percebia alguma coisa sem encostar, mas com Shirley tinha descoberto como era fácil entender tudo errado. Ali não parecia ódio. Era um medo frio e miúdo, de bicho pequeno que se junta no canto da toca. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
+Banjo sentiu um medo miúdo entre as pessoas na calçada, mas, depois do que acontecera com Shirley, não se atrevia a dizer de quem era. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
 
-Beatriz viu os dois gestos. Banjo percebeu pelo modo como ela ficou imóvel. Ela puxou o capuz mais para baixo e apertou o passo, e foi a única vez no caminho inteiro que ele quis pegar na mão dela, e não pegou, porque ela odiava ser levada.
+Beatriz puxou o capuz mais para baixo e apressou o passo. Banjo chegou perto, mas deixou que ela andasse sozinha.
 
 O Hospital Lumiar de Tayo ficava no fim da avenida, colado ao muro dos jardins do Edifício Arcano. Era um prédio alto e fino como uma vela, de pedra branca, com cinco andares de janelas redondas que acendiam e apagavam cada uma num ritmo diferente, como se o prédio respirasse por vários pulmões. O nome estava escrito sobre a porta em letras de luz. A porta abriu sozinha quando eles chegaram a três passos, e uma voz de água disse, de lugar nenhum:
 
@@ -116,7 +116,7 @@ Shirley olhou para Nayra, e Nayra, sem entender o olhar, leu a pergunta seguinte
 
 O quarto ficou quieto. Banjo sentiu o aperto dentro de Shirley subir tão depressa que ele teve de se segurar na cama.
 
-— Eu fiz o doce — disse ela. — Eu estava na cozinha da Eshley, com as minhas mãos, e eu fazia a receita da minha mãe com a mão direita e com a esquerda eu... — Parou. — Eu via, Nayra. Eu estava lá dentro vendo. Como quando a gente está no fundo da piscina e olha a luz da superfície tremer. Eu via as minhas mãos fazerem coisas e minha boca falar, e eu gritava, e não saía nada. Eu vi ela colocar uma coisa no seu prato. Eu não consegui nem mexer um dedo.
+— Eu fiz o doce — disse ela. — Na cozinha da Eshley, antes do desafio. Eu estava fazendo a receita da minha mãe, e ela usou a minha outra mão para pôr alguma coisa num dos pedaços. Depois guardou aquele pedaço. — Shirley apertou o lençol entre os dedos. — Eu via tudo, Nayra. Via as minhas mãos se mexendo e gritava por dentro, mas a minha boca não abria. Quando você pediu o doce no banco, eu tentei dizer para não comer. Ela sorriu e entregou justamente aquele.
 
 — Eu fiquei quatro dias na cama — disse Nayra.
 
@@ -130,7 +130,7 @@ Bruno virou o rosto para a parede e fingiu que olhava um quadro.
 
 — Seis — disse Nayra, no cabelo de Shirley, sem soltá-la. — Quanto tempo ela foi você. Sete, o que ela queria de nós.
 
-— Ela queria a pequena — respondeu Shirley, quando conseguiu falar. Tinha a voz toda molhada. — Falava isso dentro da minha cabeça o tempo todo. A pequena. A pequena. Eu achei que era um bicho, depois achei que era alguém do passado, e só no fim eu entendi que era a Bia.
+— Ela queria a pequena — respondeu Shirley, quando conseguiu falar. Tinha a voz toda molhada. — Falava isso dentro da minha cabeça o tempo todo. A pequena. A pequena. Só no fim eu entendi que era a Bia. E queria que eu fizesse dupla com o Banjo. Assim eu estaria sempre perto de vocês, sem ninguém estranhar. Nayra estava no caminho.
 
 Beatriz não mexeu um músculo. Banjo sentiu o medo dela subir pela cama, frio e liso, e o capuz escondeu o resto.
 
@@ -142,13 +142,13 @@ Beatriz não mexeu um músculo. Banjo sentiu o medo dela subir pela cama, frio e
 
 Bruno limpou a garganta.
 
-— Mano, desculpa a curiosidade. — A voz dele saiu esquisita, sem a graça de sempre. — Mas então a Hazel foi fazendo tudo isso e a gente fez de tudo para ser enganado. A Shirley some, volta com bota limpa, e a gente acha que ela é ágil. O Banjo sente uma coisa estranha, acha que é tristeza. A gente nem desconfiou. Parece que alguém escreveu isso de propósito.
+— Mano, eu fico lembrando... — Bruno passou a mão no rosto. — A Shirley sumia e voltava com as botas limpas. O Banjo sentia uma coisa esquisita e achava que ela estava triste. A gente estava do lado dela o tempo todo e não percebeu.
 
-— Escreveu — disse Kalev, com os olhos ainda fechados. — Não a moça de fumaça. Alguém mais paciente.
+— Korvo percebeu — disse Kalev, com os olhos ainda fechados. — E contou com isso.
 
 Os quatro olharam para ele ao mesmo tempo.
 
-— Korvo sabia que a máscara só se abre para quem se oferece por outro — disse Kalev. — E sabia que vocês são o tipo de irmãos que vão. Ele não empurrou ninguém. Só deixou a porta onde vocês fossem passar.
+— Korvo conhecia a regra da máscara. Sabia que vocês entrariam para salvar um irmão e deixou o caminho aberto — disse Kalev.
 
 — A gente foi usado — disse Breno.
 
@@ -325,6 +325,10 @@ A chuva engrossou. Uma gota gorda caiu do beiral e bateu na bota de Ivy, e ela n
 — E você saiu.
 
 — Eu saí. — Ivy olhou para ela. — Foi a coisa mais difícil que eu fiz na vida, e eu faria de novo. A terra morreu num círculo de dez passos. A Vigilância desenha o sinal onde a maldição leva alguém. É para ninguém pisar. Um círculo e uma barra, que quer dizer "aqui terminou".
+
+— E o desenho no portão? — perguntou Beatriz.
+
+— Alguém copiou o sinal para assustar vocês. Não sei quem. Eu raspei porque não ia deixar usarem o lugar onde a Tuli morreu para ameaçar quatro crianças.
 
 Beatriz abriu a boca e fechou. Pensou no Bruno de bruços atrás da cerca, e no Breno erguendo o dedo enfaixado para dizer "fato", e em todos eles ali na sala, chamando o desenho do marco de símbolo dos antidimensais.
 

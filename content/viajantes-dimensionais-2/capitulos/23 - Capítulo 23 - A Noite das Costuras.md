@@ -240,7 +240,7 @@ Foi uma mão de lama com dedos de gancho, de um verde tão escuro que quase não
 
 — Mantenham a calma! — A voz de Garmande, muito alta, vinda de uma galeria no alto. — Sociedade, formação! Vigilância, para as portas!
 
-Ferris passou por Breno como um raio ruivo, tão rápido que só deixou o vento, e derrubou uma criatura de cabeça de cavalo com os dois pés. Grimaldus, com a barba aberta para trás, jogou a tábua de contas no ar e as contas se soltaram uma a uma, estalando, e se espalharam em volta dele num anel de luz. Mereditha gritava. Alguém gritava ao longe: Ricochet, Ricochet, cadê o Ricochet. Os fios de luz do teto, que tinham prendido Bug, estavam todos arrebentados e se soltavam como cabelos.
+Ferris passou por Breno como um raio ruivo, tão rápido que só deixou o vento, e derrubou uma criatura de cabeça de cavalo com os dois pés. Grimaldus, com a barba aberta para trás, jogou a tábua de contas no ar e as contas se soltaram uma a uma, estalando, e se espalharam em volta dele num anel de luz. Perto das colunas, Serafira cruzou duas correntes de luz diante de uma porta; Elowen puxou por ela dois aprendizes menores, enquanto Karoli indicava a passagem livre e contava quem ainda faltava, sem parar nem quando uma sombra lhe roçou a manga. Mereditha gritava. Alguém gritava ao longe: Ricochet, Ricochet, cadê o Ricochet. Os fios de luz do teto, que tinham prendido Bug, estavam todos arrebentados e se soltavam como cabelos.
 
 Kalev tinha tentado se levantar e não conseguiu. Estava de joelhos junto à coluna do arco com o embrulho cinzento apertado contra o peito, o rosto de cera, e Ferris, que voltou correndo, caiu de joelhos ao lado dele.
 
@@ -352,7 +352,7 @@ Uma mulher de avental estava agarrada à porta de uma padaria, e uma coisa compr
 
 Ele não esperou resposta. Pôs a mão livre no chão, na água da rua, e o frio saiu de dentro dele como um sino. Um som claro de gelo, agudo, que subiu pela rua em volta da criatura, e a água das poças virou vidro em círculos que se espalharam, e as pernas de arame da coisa, que se enrolavam no calçamento, ficaram presas num piso de cristal que estalou e brilhou. A criatura sacudiu o corpo. Soltou a mulher de avental, que caiu sentada, e Beatriz, de longe, gritou que corressem. O menino correu para os braços dela. Os dois entraram na padaria, e a porta bateu, e uma tranca de ferro caiu do lado de dentro.
 
-Bruno ficou parado, com a mão no chão e a respiração em fumaça, olhando o que tinha feito. Não tinha sido bonito. Tinha sido rápido e quase fácil, e ele sentira uma coisa estranha. Uma satisfação limpa, que não era de se achar o máximo, que era a de poder ser útil quando a hora pedia. Pela primeira vez em dias, o rosto de Dário não apareceu na cabeça dele.
+Bruno ergueu a mão do gelo. A mulher e o filho já estavam a salvo na padaria; ele acompanhou a porta fechada com os olhos, ainda ofegante.
 
 — Eu consegui — disse, baixinho, e levantou a cabeça. — Banjo, eu consegui.
 
