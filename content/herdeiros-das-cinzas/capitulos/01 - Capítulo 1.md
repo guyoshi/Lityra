@@ -1,4 +1,4 @@
-A crosta de gelo sobre a neve aguentava o peso de um cátilo e cedia sob o de qualquer pessoa, de modo que Bera ia na frente sem deixar mais do que uma fileira de marcas miúdas, e os três que vinham atrás afundavam até a canela a cada passo, com um ruído de quem pisa em louça. A lua menor ainda estava no céu, pálida e baixa sobre a crista do vale, como se a noite tivesse esquecido de recolhê-la. O ar cheirava a pedra molhada e a resina. Sefter respirava por dentro do capuz e o hálito congelava no pelo da gola, formando uma casca que raspava o queixo toda vez que ele virava a cabeça.
+A crosta de gelo sobre a neve aguentava o peso de uma cátila e cedia sob o de qualquer pessoa, de modo que Bera ia na frente sem deixar mais do que uma fileira de marcas miúdas, e os três que vinham atrás afundavam até a canela a cada passo, com um ruído de quem pisa em louça. A lua menor ainda estava no céu, pálida e baixa sobre a crista do vale, como se a noite tivesse esquecido de recolhê-la. O ar cheirava a pedra molhada e a resina. Sefter respirava por dentro do capuz e o hálito congelava no pelo da gola, formando uma casca que raspava o queixo toda vez que ele virava a cabeça.
 
 — Se o bicho estiver por perto, já ouviu a gente desde a curva do riacho — disse Klafres, baixo, ao lado dele. — Deve estar sentado em algum lugar esperando para ver quem chega primeiro com a pior bota.
 
@@ -22,7 +22,7 @@ Foi nesse trecho, antes da curva, que Bera parou. Parou inteira, com uma pata ai
 
 Klafres foi o primeiro a falar, e falou de leve.
 
-— Cátilo que rosna para nada costuma ter razão.
+— Cátila que rosna para nada costuma ter razão.
 
 Kedran não respondeu. Já tinha o arco na mão e examinava a encosta da base ao topo, devagar, procurando o que se procura primeiro quando se vive longe de tudo: fumaça, pegadas, a mancha escura de uma pessoa parada contra a neve. Sefter fez o mesmo. Havia a crista, havia o céu cinzento atrás dela, e do meio da encosta uma fina linha de neve se soltou e subiu. Subiu rente ao chão, a passo de gente, desenhando uma curva preguiçosa, e Sefter percebeu que o vento que lhe batia no rosto vinha exatamente do outro lado. A linha durou o tempo de duas respirações e se desfez.
 
@@ -58,7 +58,7 @@ Sefter foi. Rastejou até a saída entre duas pedras, com o arco embaixo do corp
 
 O primeiro tiro pegou no ombro. Sefter sentiu a flecha entrar antes de ouvir o grunhido, e o sarnak não caiu nem diminuiu. Veio ainda mais depressa, num galope torto por causa da pata ruim, e Sefter armou o segundo tiro com os dedos duros de frio, atirou, errou por uma palma, e rolou para o lado quando o bicho passou a dois passos dele, com o bafo quente e o cheiro de couro molhado. Atrás vinham Kedran correndo e Bera em disparada. O sarnak mudou de rumo, atravessou o alargamento direto pelo gelo e, no meio, onde uma nascente mantinha a camada fina, o gelo cedeu com um estalo longo e sem pressa.
 
-O animal caiu de peito dentro da água preta, debateu-se uma vez e conseguiu apoiar as patas dianteiras na borda de uma laje. Bera, que vinha atrás dele com a boca aberta, escorregou na camada nova, bateu a pata no gelo quebrado e desapareceu com um ganido agudo. Sefter correu. Quando chegou à borda ela estava ali, a poucos passos, agarrada com as unhas a uma lasca de gelo, com a água escura até o pescoço e os olhos arregalados de um jeito que ele nunca tinha visto num cátilo.
+O animal caiu de peito dentro da água preta, debateu-se uma vez e conseguiu apoiar as patas dianteiras na borda de uma laje. Bera, que vinha atrás dele com a boca aberta, escorregou na camada nova, bateu a pata no gelo quebrado e desapareceu com um ganido agudo. Sefter correu. Quando chegou à borda ela estava ali, a poucos passos, agarrada com as unhas a uma lasca de gelo, com a água escura até o pescoço e os olhos arregalados de um jeito que ele nunca tinha visto numa cátila.
 
 — A Bera! — gritou.
 
@@ -86,7 +86,7 @@ Houve um silêncio curto, o suficiente para Sefter ouvir a água batendo na laje
 
 Sefter chegou perto o bastante para agarrar Bera pela pele do pescoço. A água lhe entrou pela manga até o ombro e ele sentiu o braço se apagar, sem dor nenhuma, de um golpe. Puxou. Bera tentou ajudar com as patas, arranhando o gelo, e a corda esticou, e Kedran puxou de lá com a força de quem não tem escolha, e os dois deslizaram pelo gelo quebrado até o lado onde havia pedra embaixo. Ficaram deitados lado a lado sobre a crosta, respirando fumaça. Bera, encolhida entre eles, tremia tanto que parecia ter se desprendido do próprio corpo.
 
-Kedran tirou o casaco pesado de pele de sarnak, enrolou nele o cátilo com mais cuidado do que enrolaria um filho e o entregou a Sefter.
+Kedran tirou o casaco pesado de pele de sarnak, enrolou nele a cátila com mais cuidado do que enrolaria um filho e a entregou a Sefter.
 
 — Segura isso contra a barriga e esfrega. Os dedos, também. Não deixa ela dormir.
 
@@ -112,7 +112,7 @@ Sefter mexeu os dedos. Eles responderam devagar, desajeitados, de longe. Do outr
 
 Sefter quis rir e saiu só um tremor. Apertou Bera contra a barriga e esfregou o pelo duro do flanco, devagar, como o irmão tinha mandado.
 
-— Se você não tivesse entrado, eu teria deixado a Bera. Fiz a conta antes de você se mexer. O sarnak alimenta oito até o degelo, e ela é um cátilo.
+— Se você não tivesse entrado, eu teria deixado a Bera. Fiz a conta antes de você se mexer. O sarnak alimenta oito até o degelo, e ela é uma cátila.
 
 Sefter olhou para ele. O irmão olhava para o céu, onde a lua menor tinha finalmente sumido no cinza. Depois olhou para o casaco de pele de sarnak, o melhor que a família tinha, que Kedran tirara sem pensar e que agora estava encharcado em volta do bicho que ele dizia ter deixado.
 
@@ -154,13 +154,13 @@ Kedran olhou ao longo da borda. A crosta nova corria intacta até a margem, sem 
 
 Sefter não respondeu. Ficou olhando o borrão até ouvir o gancho de Klafres raspar a pedra, do outro lado, e então os dois rastejaram de volta até a margem, onde o gelo aguentava, e se sentaram sobre uma laje com Bera entre eles.
 
-Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, e quando viu os dois sentados na laje, molhados e com o cátilo no meio, parou com as mãos nos joelhos e olhou de um para o outro com a cara de quem ia fazer um discurso.
+Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, e quando viu os dois sentados na laje, molhados e com a cátila no meio, parou com as mãos nos joelhos e olhou de um para o outro com a cara de quem ia fazer um discurso.
 
 — Se alguém quiser a minha opinião — disse.
 
 — Ninguém quer — disse Kedran.
 
-— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com o cátilo no meio, feito três cátilos molhados. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
+— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com a cátila no meio, feito três cátilas molhadas. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
 
 Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
@@ -202,9 +202,9 @@ Mentesra foi a primeira a aparecer. Alta, magra, o lenço cobrindo parte das tra
 
 Ela passou a panela e um pano seco a Kedran. Depois voltou para dentro. Sefter reparou nisso como reparava sempre, sem comentar. A mão de Kedran, quando ele pegou o pano, ficou um instante parada no ar, e Kedran o jogou no peito de Sefter com uma expressão que dizia exatamente o que a tia tinha evitado dizer.
 
-Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para o cátilo, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
+Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia e descia nas peles do teto, de modo que o abrigo parecia respirar. Havia colchões de ramos de pinho forrados com mantas pesadas, um saco de raiz já pela metade, as facas penduradas num cordão pela ordem do tamanho, e em cada canto uma coisa que alguém tinha feito para si: a flauta de osso de Klafres, a bolsa de contas de Nefestra, o par de luvas remendadas que Sefter nunca deixava longe. Maltaren estava sentado do lado do fogo, afiando uma ponta de lança numa pedra, e ergueu os olhos quando entraram. Era um homem de ombros largos, a pele escura vincada pelo frio, o cabelo curto já cinza nas laterais, e as cicatrizes dos braços cruzavam-se por baixo das mangas arregaçadas como os veios numa pedra. Olhou para a cátila, olhou para os rostos dos três, e só depois, devagar, olhou para a carne que Klafres arrastava pela entrada.
 
-— Por Jesed. Eu pedi carne para o inverno, não um mergulho. — Olhou do cátilo embrulhado para as mangas de Sefter. — Quem foi atrás de quem dessa vez?
+— Por Jesed. Eu pedi carne para o inverno, não um mergulho. — Olhou da cátila embrulhada para as mangas de Sefter. — Quem foi atrás de quem dessa vez?
 
 — A Bera caiu e o Sefter foi buscar — disse Kedran. — Rompeu o gelo da nascente da curva. Pai, o sarnak está lá fora, é o velho de pata ruim. Dá três semanas.
 
@@ -216,7 +216,7 @@ Bera foi posta perto do fogo, embrulhada, e de repente a ravina inteira ouviu a 
 
 — Bera! Bera molhada!
 
-A menina tinha dois ciclos e o cabelo ainda fino demais para ficar preso, de modo que ele lhe saía da cabeça em tufos escuros, com uma mecha branca perto da orelha esquerda, tão clara quanto uma teia. Nefestra vinha atrás, a única mão agarrando a gola do casacão da menina para segurá-la antes de chegar ao cátilo. Litara se deixou conter por dois passos e depois se atirou para a frente, abraçando o embrulho de pele que cheirava a água e a bicho. Bera abriu um olho, bateu o rabo uma vez e voltou a tremer, só que mais devagar.
+A menina tinha dois ciclos e o cabelo ainda fino demais para ficar preso, de modo que ele lhe saía da cabeça em tufos escuros, com uma mecha branca perto da orelha esquerda, tão clara quanto uma teia. Nefestra vinha atrás, a única mão agarrando a gola do casacão da menina para segurá-la antes de chegar à cátila. Litara se deixou conter por dois passos e depois se atirou para a frente, abraçando o embrulho de pele que cheirava a água e a bicho. Bera abriu um olho, bateu o rabo uma vez e voltou a tremer, só que mais devagar.
 
 Maltaren soltou a pedra de afiar.
 
