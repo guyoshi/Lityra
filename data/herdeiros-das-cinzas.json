@@ -4,8 +4,13 @@
   "chapters": [
     {
       "n": 1,
-      "title": "Brasa Guardada",
+      "title": "A Cantiga Pendurada",
       "text": "content/herdeiros-das-cinzas/capitulos/01 - Capítulo 1.md"
+    },
+    {
+      "n": 2,
+      "title": "A Menina de Fora",
+      "text": "content/herdeiros-das-cinzas/capitulos/02 - Capítulo 2.md"
     }
   ]
 }
