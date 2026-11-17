@@ -1,10 +1,10 @@
 Dareth já tinha decidido duas vezes, desde a conversa com Vetarius, que ia embora.
 
-A primeira vez fora ainda na mesma noite, sentado na cama larga demais do quarto que lhe tinham preparado na Ala Oeste, olhando para o teto pintado com folhas de raiz entrelaçadas que ele nunca pedira para ver todos os dias. A segunda fora na manhã seguinte, quando um servo lhe trouxera água quente que ele não pedira e roupas limpas que não eram suas, e Dareth ficara ali parado, sentindo o cômodo inteiro como uma armadilha bem-feita, generosa demais para ser recusada sem parecer ingratidão. Nas duas vezes, alguma coisa o fizera adiar. Não coragem. Só o reconhecimento cansado de que partir sem responder de verdade à pergunta de Vetarius seria outro jeito de fugir, e ele já tinha decidido, muitos anos antes, que não fugiria mais de nada, mesmo que continuasse recusando voltar.
+A primeira vez fora ainda na mesma noite, sentado na cama larga demais do quarto que lhe tinham preparado na Ala Oeste, olhando para o teto pintado com folhas de raiz entrelaçadas. A segunda fora na manhã seguinte, quando um servo lhe trouxera água quente que ele não pedira e roupas limpas que não eram suas, e Dareth ficara parado, sentindo o cômodo inteiro como uma armadilha bem-feita, generosa demais para ser recusada sem parecer ingratidão. Nas duas vezes, alguma coisa o fizera adiar. Não coragem. Só o reconhecimento cansado de que partir sem responder de verdade à pergunta de Vetarius seria outro jeito de fugir, e ele já tinha decidido, muitos anos antes, que não fugiria mais de nada, mesmo que continuasse recusando voltar.
 
 Foi Selina quem o encontrou antes que a terceira decisão pudesse se firmar.
 
-Bateu na porta sem anunciar-se por um servo, o que já era, por si só, estranho o bastante para Dareth abrir sem perguntar quem era. Ela entrou com o mesmo passo contido de sempre, olhou rapidamente para o quarto como quem avalia um cômodo antes de avaliar a pessoa dentro dele, e só depois voltou os olhos para Dareth.
+Bateu na porta sem ser anunciada por um servo, o que já era estranho o bastante para Dareth abrir sem perguntar quem era. Ela entrou com o passo contido de sempre, olhou o quarto como quem avalia um cômodo antes de avaliar a pessoa dentro dele, e só depois voltou os olhos para Dareth.
 
 — Vetarius me contou sobre sua esposa. E sua filha.
 
@@ -12,7 +12,7 @@ Dareth enrijeceu diante do assunto. Selina não demonstrava curiosidade nem pena
 
 — Ele fala demais — respondeu Dareth, por fim, a voz baixa, sem acusação real.
 
-— Fala. — Selina cruzou os braços, mas não pelo hábito defensivo que costumava usar em Kaendar; parecia mais estar se sustentando contra alguma coisa. — Quando fui até sua propriedade e disse que você era um covarde por se esconder lá, eu não sabia disso.
+— Fala. — Selina cruzou os braços, mas não pelo hábito defensivo que usava em Kaendar. Parecia estar se sustentando contra alguma coisa. — Quando fui até sua propriedade e disse que você era um covarde por se esconder lá, eu não sabia disso.
 
 — Eu sei.
 
@@ -46,7 +46,7 @@ Dareth ficou em silêncio. Não confirmou decisão alguma, não anunciou nada. S
 
 *
 
-A Câmara dos Onze se reunia raramente com tanta gente presente, e Vetarius, sentado à cabeceira da longa mesa de reunião com uma taça já pela terceira vez cheia, achava aquilo mais tedioso do que qualquer batalha que já tivesse evitado pessoalmente. Quase todos os onze estavam ali: a conselheira dos Celeiros recitando números de reserva de grão com a paciência de quem já tinha dito aquilo antes e sabia que teria de dizer de novo; o conselheiro das Forjas e Ofícios discutindo licenças temporárias para artesãos estrangeiros que chegavam para o torneio; alguém da Cadeira das Obras, Águas e Cidade reclamando de estradas que precisavam de reparo antes que as primeiras delegações estrangeiras as usassem; Selina, na Cadeira dos Caminhos e Estandartes, apontando problemas de alojamento e circulação entre setores que os outros pareciam achar menores do que realmente eram.
+A Câmara dos Onze se reunia raramente com tanta gente presente, e Vetarius, sentado à cabeceira da longa mesa com uma taça já pela terceira vez cheia, achava aquilo mais tedioso do que qualquer batalha que já tivesse evitado pessoalmente. Quase todos os onze estavam ali: a conselheira dos Celeiros recitando números de reserva de grão. O conselheiro das Forjas e Ofícios discutindo licenças temporárias para artesãos estrangeiros. Alguém da Cadeira das Obras, Águas e Cidade reclamando de estradas que precisavam de reparo antes que as delegações as usassem. Selina, na Cadeira dos Caminhos e Estandartes, apontando problemas de alojamento e circulação que os outros pareciam achar menores do que eram.
 
 Amira entrou pela lateral da sala no meio de uma dessas discussões, discreta o bastante para que quase ninguém além de Selina erguesse os olhos. Aproximou-se da cadeira dela com um maço curto de autorizações e falou baixo, mas não tanto que Vetarius, sentado perto o suficiente, deixasse de ouvir pedaços da conversa.
 
@@ -68,13 +68,13 @@ Selina fez um pequeno gesto com dois dedos, encerrando o assunto antes que ele c
 
 — Depois, Amira.
 
-Amira recolheu os papéis e se afastou sem discutir. Vetarius mal prestou atenção ao resto; para ele, aquilo parecia exatamente o tipo de detalhe que justificava ter uma Cadeira dos Caminhos e, por consequência, não precisar pensar pessoalmente em carroças depois do anoitecer.
+Amira recolheu os papéis e se afastou sem discutir. Vetarius mal prestou atenção. Para ele, aquilo era exatamente o tipo de detalhe que justificava ter uma Cadeira dos Caminhos e, por consequência, não precisar pensar em carroças depois do anoitecer.
 
-A mesa diante deles estava coberta de alimentos que Dareth não via reunidos havia muito tempo. Havia fruto-de-bruma inteiro, sem cortar, a casca pálida sob a luz das lamparinas. Nas casas ricas Polar, servi-lo intacto, sem dividir, também era uma forma de exibir posição. Havia dente-doce empilhado numa tigela funda, a fruta buldar que agora chegava aos mercados de Kaeliran em quantidade suficiente para acabar em toda mesa importante da cidade. Havia uva-de-raiz em cachos e também fermentada, servida em jarros que os servos reabasteciam antes mesmo de secarem, e carnes importadas das terras Quendrar, cortadas finas, dispostas ao lado de pães buldar ainda quentes e raízes assadas que ninguém parecia comer com verdadeiro apetite, só por hábito de mesa cheia.
+A mesa diante deles estava coberta de alimentos que Dareth não via reunidos havia muito tempo. Havia fruto-de-bruma inteiro, sem cortar, a casca pálida sob a luz das lamparinas, e nas casas ricas Polar servi-lo intacto era uma forma de exibir posição. Havia dente-doce empilhado numa tigela funda, a fruta buldar que agora chegava aos mercados de Kaeliran em quantidade suficiente para acabar em toda mesa importante. Havia uva-de-raiz em cachos e fermentada, em jarros que os servos reabasteciam antes de secarem, carnes importadas das terras Quendrar cortadas finas, pães buldar ainda quentes e raízes assadas que ninguém parecia comer com apetite, só por hábito de mesa cheia.
 
-Um dos conselheiros de linhagem mordeu um fruto-de-bruma, fez uma careta discreta com a textura, e o deixou de lado, meio comido, sem sequer considerar chamar de volta o próprio gesto. Pegou outra coisa da bandeja mais próxima sem pensar duas vezes.
+Um dos conselheiros de linhagem mordeu um fruto-de-bruma, fez uma careta discreta com a textura e o deixou de lado, meio comido. Pegou outra coisa da bandeja mais próxima sem pensar duas vezes.
 
-Vetarius observava tudo aquilo com o tédio específico de um homem que já vira a mesma mesa, os mesmos pratos e os mesmos assuntos administrativos se repetirem por décadas, interrompendo de vez em quando com uma piada que nem sempre encontrava graça, mas que ninguém ali teria coragem de deixar sem resposta.
+Vetarius observava tudo com o tédio de um homem que já vira a mesma mesa, os mesmos pratos e os mesmos assuntos administrativos se repetirem por décadas, interrompendo de vez em quando com uma piada que ninguém ali teria coragem de deixar sem resposta.
 
 Foi quando discutiam a circulação de documentos religiosos e a autoridade das Casas da Permanência sobre registros que Hadris, sentado na Cadeira do Culto em nome do Sumo Vigia, levantou uma questão adicional.
 
@@ -106,27 +106,25 @@ Vetarius bebeu mais um pouco antes de falar, achando graça no próprio comentá
 
 — Deixa eu entender. A Raiz mobilizou metade dos Filhos numa casa de Maruva por uma caixa de papéis que nem sequer encontraram? — Riu, sozinho no início, depois acompanhado por dois ou três conselheiros que pareciam mais interessados em rir com o soberano do que com a piada em si. — Hadris, com todo respeito ao seu Sumo, isso parece um problema para vocês resolverem entre orações, não algo que precise da atenção desta mesa.
 
-— A questão não é o valor dos papéis, Vetarius. — Hadris não elevou a voz, não pareceu ofendido; só repetiu, com a paciência específica de quem já sabia que não seria ouvido daquele jeito. — É quem possui autoridade para retirar registros religiosos sem prestar contas a ninguém.
+— A questão não é o valor dos papéis, Vetarius. — Hadris não elevou a voz, não pareceu ofendido. Só repetiu, com a paciência de quem já sabia que não seria ouvido daquele jeito. — É quem possui autoridade para retirar registros religiosos sem prestar contas a ninguém.
 
 — Resolvam isso com o Sumo Vigia, então. — Vetarius já tinha voltado a atenção para o fruto-de-bruma diante de si, partindo a casca pálida com os dedos. — Tenho estradas para reparar, delegações chegando antes do previsto e uma cidade inteira para preparar em menos tempo do que qualquer torneio decenal já exigiu. Próximo assunto.
 
 Hadris assentiu, sem insistir, e anotou algo numa pequena tábua que trazia, o único registro visível de que a resposta o incomodara de alguma forma.
 
-A reunião seguiu adiante (estradas, alojamentos, uma disputa entre dois administradores distritais sobre quem receberia a delegação Cendar, o custo crescente de tudo) e Vetarius voltou a se sentir exatamente tão entediado quanto antes, até que as portas grandes da sala se abriram sem anúncio prévio.
+A reunião seguiu adiante (estradas, alojamentos, uma disputa entre dois administradores distritais sobre quem receberia a delegação Cendar, o custo crescente de tudo), e Vetarius voltou a se sentir tão entediado quanto antes, até que as portas grandes da sala se abriram sem anúncio.
 
 Dareth entrou.
 
-A conversa morreu por conta própria, sem que ninguém precisasse pedir silêncio. Dareth não fez nenhum gesto grandioso, não ergueu a voz, não parou no centro da sala esperando ser notado. Olhou direto para Vetarius, do outro lado da mesa farta, por entre conselheiros que se calavam um a um ao perceber quem tinha acabado de entrar, e disse apenas:
+A conversa morreu por conta própria, sem que ninguém precisasse pedir silêncio. Dareth não fez gesto grandioso, não ergueu a voz, não parou no centro da sala esperando ser notado. Olhou direto para Vetarius, do outro lado da mesa farta, por entre conselheiros que se calavam um a um, e disse apenas:
 
 — Eu aceito.
 
-Vetarius ficou com o fruto-de-bruma a meio caminho da boca. Então se levantou tão depressa que a cadeira raspou contra a pedra. O tédio de minutos antes desaparecera; agora parecia animado como uma criança.
+Vetarius ficou com o fruto-de-bruma a meio caminho da boca. Então se levantou tão depressa que a cadeira raspou contra a pedra. O tédio de minutos antes desaparecera. Agora parecia animado como uma criança.
 
 — Dareth! — A voz saiu mais alta do que a sala exigia. — Eu sabia. Eu sabia que você viria!
 
-Ninguém na mesa parecia mais lembrar da caixa desaparecida, dos moradores detidos em Maruva, das estradas ou dos alojamentos. Tudo aquilo, que segundos antes ocupara a atenção da Câmara, tinha perdido importância diante de um homem parado na porta.
-
-Dareth não participou da celebração que se formava. Atravessou a sala até a mesa farta, ignorando os conselheiros que já se levantavam para cumprimentá-lo, pegou uma garrafa qualquer sem verificar o conteúdo, serviu-se num copo de metal que encontrou por perto e bebeu de uma vez, sem cerimônia, sem brinde, sem esperar ninguém erguer a própria taça em sua direção. Levou o copo consigo quando se virou para ir embora, sem ter dito mais nenhuma palavra além daquelas duas, e a porta se fechou atrás dele antes que Vetarius conseguisse decidir se devia segui-lo ou ficar ali recebendo os parabéns que já começavam a chover de todos os lados da mesa.
+Dareth não participou da celebração que se formava. Atravessou a sala até a mesa farta, ignorando os conselheiros que já se levantavam para cumprimentá-lo, pegou uma garrafa qualquer, serviu-se num copo de metal que encontrou por perto e bebeu de uma vez, sem brinde. Levou o copo consigo quando se virou para ir embora, e a porta se fechou atrás dele antes que Vetarius conseguisse decidir se devia segui-lo ou ficar ali recebendo os parabéns que já começavam a chover de todos os lados da mesa.
 
 Selina não se levantou com os outros. Apenas observou Dareth anunciar a decisão do jeito dele: sem discurso, sem cerimônia.
 
@@ -134,23 +132,21 @@ Selina não se levantou com os outros. Apenas observou Dareth anunciar a decisã
 
 Vetarius não perdeu um único dia.
 
-Antes mesmo que a reunião se dispersasse por completo, já convocava escribas, arautos e administradores, decidindo ali mesmo, entre um gole e outro, que a apresentação pública de Dareth Quatro-Dedos como campeão da Dinastia Polar receberia um nome digno da ocasião: o Erguimento do Estandarte. Falava da cerimônia como se já a tivesse assistido, descrevendo estandartes, multidões, o próprio Dareth diante de Kaeliran inteira, e ninguém na sala teve coragem de lembrá-lo de que a data ainda precisava ser marcada.
+Antes mesmo que a reunião se dispersasse, Vetarius já convocava escribas, arautos e administradores, decidindo ali mesmo, entre um gole e outro, que a apresentação pública de Dareth Quatro-Dedos como campeão da Dinastia Polar receberia um nome digno da ocasião: o Erguimento do Estandarte. Falava da cerimônia como se já a tivesse assistido, descrevendo estandartes, multidões, o próprio Dareth diante de Kaeliran inteira, e ninguém na sala teve coragem de lembrá-lo de que a data ainda precisava ser marcada.
 
 *
 
 Os dias seguintes passaram na cidade como uma febre lenta e organizada.
 
-Dareth observava tudo com a distância de quem via, ao mesmo tempo, o nascimento de um símbolo e o sequestro silencioso da própria vida. Tecidos azul-escuros começaram a ser pendurados nas fachadas do Caminho da Permanência, alguns tão antigos que precisaram ser tirados de depósitos que ninguém abria havia anos, o cheiro de mofo ainda preso nas dobras quando os estenderam ao vento. Estandartes que Dareth reconhecia de campanhas que preferia não lembrar voltaram a aparecer nas mãos de homens jovens demais para saber o que representavam de verdade. Artesãos erguiam plataformas de madeira numa velocidade que só dinheiro suficiente conseguia comprar, e símbolos Polar eram repintados em muralhas e portões, as raízes entrelaçadas ganhando cor nova sobre a pedra desbotada.
+Dareth observava tudo com a distância de quem via, ao mesmo tempo, o nascimento de um símbolo e o sequestro silencioso da própria vida. Tecidos azul-escuros começaram a ser pendurados nas fachadas do Caminho da Permanência, alguns tão antigos que precisaram ser tirados de depósitos que ninguém abria havia anos, o cheiro de mofo ainda preso nas dobras. Estandartes que Dareth reconhecia de campanhas que preferia não lembrar voltaram a aparecer nas mãos de homens jovens demais para saber o que representavam. Artesãos erguiam plataformas de madeira numa velocidade que só dinheiro conseguia comprar, e símbolos Polar eram repintados em muralhas e portões, as raízes entrelaçadas ganhando cor nova sobre a pedra desbotada.
 
-Guardas ensaiavam rotas de circulação para o dia da cerimônia, mensageiros atravessavam os três distritos levando anúncios que a população já conhecia de boca em boca antes mesmo de qualquer arauto abrir a mensagem oficial. Dareth ouviu, sem procurar ouvir, versões cada vez mais generosas da Passagem de Arven sendo contadas por gente que não tinha nascido quando aquilo aconteceu: números de inimigos que cresciam a cada boca, feridos que se multiplicavam, um dedo perdido que em algumas versões já eram dois. Viu crianças brincando de recriar a passagem estreita com paus de madeira, um deles sempre insistindo em ser Quatro-Dedos e recusando-se a "morrer" na brincadeira, porque todo mundo sabia que Quatro-Dedos não morria. Viu comerciantes vendendo pequenas réplicas de espada, fitas azuis, até pães moldados vagamente em formato de mão com um dedo faltando, uma piada de mau gosto que ainda assim vendia bem.
-
-Sua própria história, percebeu Dareth, já não lhe pertencia havia muito tempo. Só que agora ela crescia mais rápido do que ele conseguia acompanhar, alimentada por uma cidade inteira que precisava, mais do que de um homem, de uma lenda inteira e brilhante para acreditar antes do torneio.
+Guardas ensaiavam rotas de circulação para o dia da cerimônia, mensageiros atravessavam os três distritos levando anúncios que a população já conhecia de boca em boca. Dareth ouviu, sem procurar ouvir, versões cada vez mais generosas da Passagem de Arven contadas por gente que não tinha nascido quando aquilo aconteceu: números de inimigos que cresciam a cada boca, feridos que se multiplicavam, um dedo perdido que em algumas versões já eram dois. Viu crianças brincando de recriar a passagem estreita com paus de madeira, um deles insistindo em ser Quatro-Dedos e recusando-se a "morrer", porque todo mundo sabia que Quatro-Dedos não morria. Viu comerciantes vendendo pequenas réplicas de espada, fitas azuis, até pães moldados vagamente em formato de mão com um dedo faltando, uma piada de mau gosto que ainda assim vendia bem.
 
 Foi durante esses mesmos dias que cruzou com Amaric num corredor estreito perto dos portões da guarda.
 
 Por um instante os dois pareceram prontos para se cumprimentar como sempre tinham feito, o mesmo gesto de décadas prestes a se repetir sem pensar. Então algo em Amaric hesitou, um instante apenas, e ele desviou o rosto e passou por Dareth como se não o tivesse reconhecido, os olhos fixos em algum ponto adiante no corredor que não existia de verdade.
 
-Dareth não foi atrás dele. Não havia nada para discutir, nenhuma pergunta que precisasse ser feita em voz alta. Só continuou andando, guardando aquilo no mesmo lugar onde guardava o resto das coisas que preferia não examinar demais.
+Dareth não foi atrás dele. Não havia nada para discutir. Só continuou andando, guardando aquilo no mesmo lugar onde guardava o resto das coisas que preferia não examinar demais.
 
 *
 
@@ -158,15 +154,13 @@ Vetarius insistiu, através de um servo, em oferecer a Dareth uma das melhores l
 
 Levou-a até Mestre Orvath.
 
-A forja de Orvath ficava numa ala baixa de Kaendar, longe o suficiente das salas cerimoniais para que o calor e a fumaça não incomodassem ninguém importante, perto o suficiente para que qualquer soberano pudesse chamá-lo em menos de um quarto de hora quando precisasse. Orvath era um homem de mãos enormes e movimentos lentos, o tipo de lentidão que só vinha de décadas de trabalho que não perdoava pressa, e recebeu a espada de Dareth com as duas mãos, virando-a contra a luz de uma lamparina antes de dizer qualquer coisa.
+A forja de Orvath ficava numa ala baixa de Kaendar, longe o suficiente das salas cerimoniais para que o calor e a fumaça não incomodassem ninguém importante, perto o suficiente para que qualquer soberano pudesse chamá-lo em menos de um quarto de hora. Orvath era um homem de mãos enormes e movimentos lentos, a lentidão de décadas de trabalho que não perdoava pressa, e recebeu a espada de Dareth com as duas mãos, virando-a contra a luz de uma lamparina antes de dizer qualquer coisa.
 
 — Varkhama — disse, por fim, passando o polegar ao longo da lâmina, sentindo pequenas imperfeições que só quem conhecia o metal conseguia perceber pelo tato. — Forjada bem. Material bom, técnica melhor ainda. Isso não se faz em qualquer forja, mesmo lá.
 
 — Consegue restaurá-la?
 
 — Ela está desgastada, não morta. — Orvath ergueu os olhos para Dareth, e havia neles um respeito que não parecia reservado à fama do homem diante dele, mas ao objeto que segurava. — Vou fazer tudo o que puder para deixá-la impecável. Vai levar alguns dias.
-
-Dareth assentiu, satisfeito com aquilo de um jeito que a lâmina ornamentada de Vetarius nunca conseguiria satisfazê-lo.
 
 — Não é a espada que me preocupa — comentou Orvath, já guardando a lâmina num pano limpo, os olhos correndo brevemente pelo corpo de Dareth, pela forma como ele se apoiava mais num pé do que no outro, pela rigidez que anos longe do treino tinham deixado nos ombros. — Restaurar isso aqui vai ser mais fácil do que restaurar o homem que vai empunhá-la.
 
@@ -180,13 +174,13 @@ Renar cumpriu exatamente a promessa de Orvath.
 
 Reuniu alguns homens experientes num pátio de treino afastado, o tipo de lugar sem plateia, sem propósito cerimonial, só terra batida e paredes altas o suficiente para conter o som, e colocou Dareth diante deles sem nenhum discurso de boas-vindas.
 
-Nos primeiros treinos, Dareth cansou antes de aceitar que estava cansado. O corpo pesava de um jeito que a memória não reconhecia como próprio; o fôlego se esgotava antes que a luta merecesse cansaço; golpes que durante décadas executara sem pensar saíam um instante atrasados, tempo suficiente para o adversário responder. Um dos homens, bem mais jovem, conseguiu empurrá-lo para trás com facilidade constrangedora. Outro o acertou de raspão no ombro antes que Dareth sequer visse o golpe se formar. O suor vinha rápido, mais rápido do que devia, e por duas vezes ele precisou parar, as mãos nos joelhos, respirando fundo, sentindo o peso dos próprios vinte anos de ausência de um jeito que nenhuma conversa com Vetarius tinha conseguido lhe mostrar.
+Nos primeiros treinos, Dareth cansou antes de aceitar que estava cansado. O corpo pesava de um jeito que a memória não reconhecia como próprio, o fôlego se esgotava antes que a luta merecesse cansaço, e golpes que durante décadas executara sem pensar saíam um instante atrasados, tempo suficiente para o adversário responder. Um dos homens, bem mais jovem, conseguiu empurrá-lo para trás com facilidade constrangedora. Outro o acertou de raspão no ombro antes que Dareth visse o golpe se formar. O suor vinha mais rápido do que devia, e por duas vezes ele precisou parar, as mãos nos joelhos, sentindo o peso dos próprios vinte anos de ausência de um jeito que nenhuma conversa com Vetarius tinha conseguido lhe mostrar.
 
 Então, devagar, alguma coisa começou a mudar.
 
-Dareth parou de tentar acompanhar a velocidade dos homens mais jovens, porque já sabia, no fundo, que aquela batalha específica estava perdida antes de começar. Em vez disso, começou a observar. Postura. Peso do corpo antes de cada ataque. As mãos que se preparavam um instante antes de o golpe realmente vir. Os pés que revelavam intenção antes de qualquer arma se mover. O ritmo da respiração de cada adversário, a distância exata em que cada um se sentia confortável demais para continuar cauteloso. Economizou movimentos que não precisava fazer. Deixou que os outros atacassem primeiro, provocando erros pequenos que décadas de instinto ainda sabiam reconhecer e explorar antes que a própria cabeça formulasse o plano por completo.
+Dareth parou de tentar acompanhar a velocidade dos homens mais jovens, porque já sabia que aquela batalha específica estava perdida antes de começar. Em vez disso, começou a observar. Postura. Peso do corpo antes de cada ataque. As mãos que se preparavam um instante antes de o golpe vir. Os pés que revelavam intenção antes de qualquer arma se mover. O ritmo da respiração de cada adversário, a distância exata em que cada um se sentia confortável demais para continuar cauteloso. Economizou movimentos. Deixou que os outros atacassem primeiro, provocando erros pequenos que décadas de instinto ainda sabiam reconhecer e explorar antes que a própria cabeça formulasse o plano.
 
-O desempenho melhorou de um jeito que surpreendeu até os homens mais experientes. Dareth não voltou a ser o soldado de trinta ciclos que uma vez segurara sozinho a boca de uma passagem estreita. Mas ficou claro, para qualquer um que observasse com atenção, exatamente por que aquele homem tinha se tornado uma lenda antes de se tornar cansaço.
+O desempenho melhorou de um jeito que surpreendeu até os homens mais experientes. Dareth não voltou a ser o soldado de trinta ciclos que uma vez segurara sozinho a boca de uma passagem estreita.
 
 Renar observava dos dois lados da mesma verdade, sem esconder nenhum dos dois de Dareth quando o treino terminou.
 
@@ -200,7 +194,7 @@ Caeren apareceu no pátio pouco depois de o treino terminar, quando Dareth ainda
 
 — O futuro soberano — respondeu Dareth, sem qualquer inflexão que sugerisse reverência ou desprezo, só o reconhecimento simples de um fato.
 
-Caeren pareceu satisfeito com a resposta, embora tivesse esperado, talvez, mais alguma coisa (uma reverência maior, um gesto de respeito mais visível) e decidiu deixar passar. Sentou-se no muro baixo ao lado de Dareth, com aquele entusiasmo específico de quem crescera ouvindo histórias sem nunca precisar viver nenhuma delas.
+Caeren pareceu satisfeito com a resposta, embora tivesse esperado, talvez, uma reverência maior, e decidiu deixar passar. Sentou-se no muro baixo ao lado de Dareth, com o entusiasmo de quem crescera ouvindo histórias sem nunca precisar viver nenhuma delas.
 
 — Cresci ouvindo sobre você. Sobre a Passagem de Arven. — Os olhos do garoto brilhavam de um jeito que, por um instante, quase pareceu simpático. — Como foi que você perdeu o dedo?
 
@@ -250,7 +244,7 @@ Caeren olhou para ele com uma decepção que já não se esforçava para esconde
 
 — Soral matou trinta e um e voltou inteiro — disse, num tom que não parecia maldade calculada, só uma avaliação fria, quase objetiva, do tipo que se faz sobre um tarrak ou uma ferramenta. — Você perdeu um dedo e nem sabe quantos homens matou. Meu pai fala de você como se fosse alguma coisa muito maior do que isso.
 
-O silêncio que se seguiu não veio de raiva. Dareth conhecia raiva bem demais para confundi-la com o que sentia agora, um cansaço antigo, generoso o suficiente para incluir até aquele garoto arrogante sentado ao seu lado.
+O silêncio que se seguiu não veio de raiva. Dareth conhecia raiva bem demais para confundi-la com o que sentia agora, um cansaço antigo, generoso o bastante para incluir até aquele garoto arrogante sentado ao seu lado.
 
 — Você quer saber como é uma guerra de verdade — disse, por fim, a voz baixa, sem nenhuma pressa. — Não a Passagem de Arven. Essa já virou história demais para servir de exemplo de qualquer coisa. Vou te contar a minha primeira.
 

@@ -1,10 +1,10 @@
 Quatro dias eram pouco para Kaendar esquecer dois mortos, mas bastavam para a dor mudar de forma.
 
-No primeiro, a cidade chorou em público enquanto as famílias velavam os rapazes no pátio baixo. No segundo, discutiu Tondrar, soberanas, Orionus e guerra em filas de pão, forjas e escadas. No terceiro, contou sal, grão, ferro e Vigias; carroças passaram a ser revistadas duas vezes e crianças foram chamadas para dentro antes do anoitecer.
+No primeiro, a cidade chorou em público enquanto as famílias velavam os rapazes no pátio baixo. No segundo, discutiu Tondrar, soberanas, Orionus e guerra em filas de pão, forjas e escadas. No terceiro, contou sal, grão, ferro e Vigias. Carroças passaram a ser revistadas duas vezes e crianças foram chamadas para dentro antes do anoitecer.
 
 No quarto, Kaendar fingiu calma. Foi quando os mensageiros de Alyra começaram a voltar.
 
-Ela os recebeu numa sala pequena do anel alto, longe da Mesa da Raiz, longe dos olhos oficiais, longe das tábuas de registro de Maelis. A sala tinha paredes nuas, uma mesa curta de pedra e uma única lamparina de óleo de semente escura misturado com gordura velha, cujo cheiro lembrava cozinha pobre, couro aquecido e coisa escondida tempo demais. Era onde recebia quem não podia aparecer diante do Conselho.
+Ela os recebeu numa sala pequena do anel alto, longe da Mesa da Raiz, dos olhos oficiais e das tábuas de registro de Maelis. A sala tinha paredes nuas, uma mesa curta de pedra e uma única lamparina de óleo de semente escura misturado com gordura velha, cujo cheiro lembrava cozinha pobre, couro aquecido e coisa escondida tempo demais. Era onde recebia quem não podia aparecer diante do Conselho.
 
 Daryon esperava ao lado da mesa, de pé, com as mãos unidas atrás do corpo. A lamparina deixava metade de seu rosto na sombra.
 
@@ -20,7 +20,7 @@ O primeiro mensageiro ajoelhou-se diante de Alyra. Trazia barro até os joelhos 
 
 — Terão só mais dois.
 
-O homem baixou a cabeça. O segundo voltou dos Buldar. Era mais gordo que o primeiro, com olhos pequenos e mãos sempre úmidas. Cheirava a estrada, celeiro fechado e farinha de grão-de-caule. Trazia na barra da capa poeira escura de campo irrigado, aquela terra que Kaendar comprava sem nunca admitir dependência. Ajoelhou-se depressa demais.
+O homem baixou a cabeça. O segundo voltou dos Buldar. Era mais gordo que o primeiro, de olhos pequenos e mãos sempre úmidas, e cheirava a estrada, celeiro fechado e farinha de grão-de-caule. Trazia na barra da capa a poeira escura de campo irrigado, aquela terra que Kaendar comprava sem nunca admitir dependência. Ajoelhou-se depressa demais.
 
 — A família de fronteira dos Buldar ouviu o recado. Disseram que respeitam a Dinastia Polar e que considerarão a proposta.
 
@@ -46,7 +46,7 @@ Alyra não olhou para ele, mas a frase a agradou.
 
 O mensageiro abaixou a cabeça ainda mais, como se fosse culpa dele. O terceiro vinha das rotas Vendrar.
 
-Não se ajoelhou tão rápido. Não por desrespeito; por cansaço verdadeiro. Tinha a capa chamuscada numa ponta e uma queimadura recente atravessando dois dedos da mão esquerda. Alyra notou. Daryon também.
+Não se ajoelhou tão rápido. Não por desrespeito, mas por cansaço verdadeiro. Tinha a capa chamuscada numa ponta e uma queimadura recente atravessando dois dedos da mão esquerda. Alyra notou. Daryon também.
 
 — Os Vendrar? — perguntou ela.
 
@@ -86,7 +86,7 @@ Alyra bateu dois dedos na mesa.
 
 — Talvez os Fendelar tenham pedido mais tempo.
 
-Daryon aproximou-se da mesa, mas não se sentou. Nunca se sentava sem que a cena já o tivesse convidado.
+Daryon aproximou-se da mesa, mas não se sentou. Nunca se sentava sem ser convidado.
 
 — Os Fendelar não pedem tempo como os Buldar. Não têm celeiros para esconder resposta, nem muralhas para sustentar orgulho. Se hesitam, desaparecem. Se recusam, também. Se matam… esperam que a floresta engula a prova.
 
@@ -112,7 +112,7 @@ Ela tamborilou os dedos na pedra.
 
 — Os Fendelar são quarenta sombras empoleiradas em árvores. Não são exército.
 
-— Não precisam ser. São olhos, são trilhas, são carne para os Tondrar — caminhos que os nossos mapas fingem conhecer. Um clã pequeno não precisa vencer Kaendar. Só precisa mostrar aos outros clãs que Kaendar pode ser mordida sem resposta.
+— Não precisam ser. São olhos, trilhas e carne para os Tondrar, caminhos que os nossos mapas fingem conhecer. Um clã pequeno não precisa vencer Kaendar. Só precisa mostrar aos outros clãs que Kaendar pode ser mordida sem resposta.
 
 Alyra levantou-se e a cadeira raspou o chão.
 
@@ -156,7 +156,7 @@ Alyra caminhou até a parede. Havia um mapa antigo ali, quase apagado pela umida
 
 — Kaelina não precisa saber.
 
-Alyra olhou para Daryon. Alyra sentiu alívio.
+Alyra olhou para Daryon e sentiu alívio.
 
 — Se os usarmos, quem garante que obedecerão?
 
@@ -198,7 +198,7 @@ Daryon levou a mão ao peito, fingindo ofensa.
 
 — Uma qualidade rara entre homens honestos.
 
-Alyra voltou a sentar-se. O desconforto veio então. Baixo. Quase nada. Um aperto breve no ventre, como se algum músculo tivesse decidido contrariá-la por capricho. Ela prendeu a respiração um instante. O corpo passou a sensação adiante, deixando só uma sombra de náusea leve no fundo da garganta. Daryon notou. Claro que notou. Ele notava o que devia e o que não devia.
+Alyra voltou a sentar-se. O desconforto veio então, baixo, quase nada. Um aperto breve no ventre, como se algum músculo tivesse decidido contrariá-la por capricho. Ela prendeu a respiração um instante. A sensação passou, deixando só uma sombra de náusea leve no fundo da garganta. Daryon notou. Claro que notou. Ele notava o que devia e o que não devia.
 
 — Está ferida?
 
@@ -222,7 +222,7 @@ Daryon inclinou a cabeça.
 
 A armadura não fechou direito. Isso, por si só, já era uma ofensa.
 
-A criada puxou as correias com cuidado, os dedos nervosos demais para parecerem competentes. Alyra estava de pé diante de um espelho de bronze escuro, observando o próprio reflexo fragmentado. A peça era a mesma que usara em patrulhas de fronteira, uma armadura flexível de couro reforçado com pequenas placas internas de metal. A roupa servia a movimento, tarrak, estrada e lâmina curta em espaço apertado. No bronze, a Ramagem continuava inteira desde a manhã. Daryon sugerira que ela a lavasse antes de sair, para atravessar o portão como qualquer viajante. Alyra recusara. Os exilados precisavam ver com quem estavam falando.
+A criada puxou as correias com cuidado, os dedos nervosos demais para parecerem competentes. Alyra estava de pé diante de um espelho de bronze escuro, observando o próprio reflexo fragmentado. A peça era a mesma que usara em patrulhas de fronteira, uma armadura flexível de couro reforçado com pequenas placas internas de metal, feita para movimento, tarrak, estrada e lâmina curta em espaço apertado. No bronze, a Ramagem continuava inteira desde a manhã. Daryon sugerira que ela a lavasse antes de sair, para atravessar o portão como qualquer viajante. Alyra recusara. Os exilados precisavam ver com quem estavam falando.
 
 Servira-lhe perfeitamente havia menos de um ciclo da lua maior. Agora apertava. Não muito, mas o suficiente.
 
@@ -254,7 +254,7 @@ A criada desfez as correias com pressa. O ar entrou no corpo de Alyra como se ti
 
 — O gibão de caça — disse. — O leve.
 
-Daryon continuava parado. A criada trouxe o gibão. Couro escuro, flexível, gasto nos pontos certos. Alyra vestiu-o sem ajuda. Apertava menos. O desconforto diminuiu, mas não desapareceu. Ficou ali, baixo, como uma advertência dita por alguém que ela não respeitava. Daryon aproximou-se quando a criada saiu.
+Daryon continuava parado. A criada trouxe o gibão, de couro escuro, flexível, gasto nos pontos certos. Alyra vestiu-o sem ajuda. Apertava menos. O desconforto diminuiu, mas não desapareceu. Ficou ali, baixo, como uma advertência dita por alguém que ela não respeitava. Daryon aproximou-se quando a criada saiu.
 
 — Você devia descansar.
 
@@ -326,7 +326,7 @@ Alyra aproximou-se um passo.
 
 — Porque todos sabem que ninguém em Kaendar acusa minha irmã diante de Cal Edran e espera parecer corajoso depois.
 
-Ele olhou para a porta. Edran olhou para ela por mais um instante e, por fim, inclinou a cabeça.
+Ele olhou para a porta e depois para ela por mais um instante. Por fim, inclinou a cabeça.
 
 — Voltarei rápido.
 
@@ -364,7 +364,7 @@ Alyra saiu. No corredor, os guardas evitaram olhar para ela. Eram bons homens. H
 
 A saída foi feita pelos fundos, onde Kaendar deixava de parecer dinastia e voltava a ser máquina.
 
-Havia uma passagem de serviço por trás dos depósitos de couro, larga o bastante para carroças pequenas e estreita o bastante para não chamar atenção dos anéis superiores. Ali, o ar era mais quente, carregado de cheiro de animal tratado, gordura, fumaça velha e madeira molhada. Nenhum súdito esperava encontrar uma soberana naquela passagem. Alyra sabia atravessá-la.
+Havia uma passagem de serviço por trás dos depósitos de couro, larga o bastante para carroças pequenas e estreita o bastante para não chamar atenção dos anéis superiores. Ali o ar era mais quente, carregado de cheiro de animal tratado, gordura, fumaça velha e madeira molhada. Nenhum súdito esperava encontrar uma soberana naquela passagem. Alyra sabia atravessá-la.
 
 Daryon já a esperava junto a uma carruagem curta, coberta por pano escuro. Não trazia brasão Polar. Apenas duas lanternas pequenas protegidas por vidro fosco e quatro tarrak de passo baixo, treinados para estrada ruim, pedra solta e silêncio de fuga.
 
@@ -376,7 +376,7 @@ Daryon já a esperava junto a uma carruagem curta, coberta por pano escuro. Não
 
 — Trancada em seu quarto. Não deseja ser incomodada.
 
-Ela entrou na carruagem. Lá dentro, havia sacos cobertos por lona. Sal. Grão. Couro tratado. Pequenas barras de metal. Entre as cargas menores, havia Sacos de Três Dias, provisões de carne seca, raiz e gordura preparadas para homens que precisassem viajar sem acender fogo. Uma caixa menor com moedas e pedras de troca. Recursos suficientes para alimentar desespero por um tempo.
+Ela entrou na carruagem. Lá dentro, sacos cobertos por lona. Sal. Grão. Couro tratado. Pequenas barras de metal. Entre as cargas menores, Sacos de Três Dias, provisões de carne seca, raiz e gordura preparadas para homens que precisassem viajar sem acender fogo. Uma caixa menor com moedas e pedras de troca. Recursos suficientes para alimentar desespero por um tempo.
 
 Alyra tocou um dos sacos.
 
@@ -394,7 +394,7 @@ Alyra olhou para ele. Daryon entrou e fechou a porta.
 
 — E você julga demais para alguém que está a caminho dos exilados.
 
-A carruagem deixou os anéis pelos acessos de serviço e seguiu até a Ponte da Raiz Baixa. Daryon mostrou um selo pela fresta; os guardas ergueram a corrente sem perguntas suficientes. Quando as rodas passaram da pedra para a madeira e cruzaram o Rio Grande, Kaendar enfim ficou para trás.
+A carruagem deixou os anéis pelos acessos de serviço e seguiu até a Ponte da Raiz Baixa. Daryon mostrou um selo pela fresta, e os guardas ergueram a corrente sem perguntas suficientes. Quando as rodas passaram da pedra para a madeira e cruzaram o Rio Grande, Kaendar enfim ficou para trás.
 
 — Kaelina acha que sou impulsiva — disse Alyra.
 
@@ -414,13 +414,13 @@ Daryon demorou. Quando respondeu, sua voz veio mais baixa.
 
 — Importante.
 
-Alyra abriu os olhos. A palavra era simples, mas o suficiente.
+Alyra abriu os olhos. A palavra era simples, mas bastou.
 
 As terras secas surgiram aos poucos. Depois da ponte ainda havia postos Polar, carroças rumo às Salinas de Arvessa e pequenas casas de sal. Mais a oeste, a Raiz desaparecia das portas, pegadas de harrun marcavam a poeira e cercas de espinho-de-Ardash protegiam casas isoladas.
 
 A floresta afinou até dar lugar a árvores baixas, pedra exposta, caule-gordo e barrancos claros. A lama endureceu. O ar ganhou gosto mineral.
 
-Ali viviam os que Kaendar expulsara sem coragem de matar. Do outro lado do Rio Grande, para lá da ponte, da cobrança e dos postos que fingiam controlar tudo, a Dinastia deixara crescer aquilo que não queria ver.
+Ali viviam os que Kaendar expulsara sem coragem de matar. Para lá da ponte, da cobrança e dos postos que fingiam controlar tudo, a Dinastia deixara crescer aquilo que não queria ver.
 
 A primeira construção apareceu pouco antes de a lua maior alcançar o alto. A menor ainda subia atrás deles, avermelhada pela poeira das terras secas. Era uma cabana torta, feita de madeira roubada, pele velha e barro rachado. Depois outra. Depois um círculo de casas baixas ao redor de um poço coberto por grade de ferro. Perto dele, folhas grossas de agave-de-Veshkar secavam sobre pedras, esperando virar fibra, bebida amarga ou cerca. Havia cordas penduradas em traves, animais magros amarrados a pedras, crianças de olhos fundos observando a carruagem sem correr. Algumas tinham o símbolo da Raiz queimado no braço, não completo, apenas uma espiral partida, marca de famílias que haviam perdido o direito de tocá-la.
 
@@ -490,7 +490,7 @@ O riso dele diminuiu.
 
 Alyra fez um gesto para a carruagem e Daryon abriu a lona. O cheiro de sal veio primeiro: sal de Kaendar, limpo demais para aquele lugar, depois o de couro tratado, grão-de-caule, raiz seca e, por fim, o brilho pequeno das pedras de troca.
 
-O círculo de exilados mudou. Não se aproximaram de imediato. Alyra deixou que olhassem, todos curiosos. Orionus dizia que fome ouve melhor depois de ver comida. Alyra odiava quando o pai morto continuava útil.
+O círculo de exilados mudou. Não se aproximaram de imediato. Alyra deixou que olhassem. Orionus dizia que fome ouve melhor depois de ver comida. Alyra odiava quando o pai morto continuava útil.
 
 — Isto vale uma estação — disse Sarkan.
 
@@ -654,7 +654,9 @@ Isso pareceu agradá-lo mais. Sarkan fez sinal. Dois homens foram até a carruag
 
 — Um terço, idiota. Se roubar antes do acordo, acabou o tratado.
 
-Alyra guardou a faca. A carruagem deixou as areias antes da primeira claridade. Quando as casas tortas viraram sombras na distância, ela puxou discretamente o pano lateral e olhou para trás.
+Alyra guardou a faca.
+
+A carruagem deixou as areias antes da primeira claridade. Quando as casas tortas viraram sombras na distância, ela puxou discretamente o pano lateral e olhou para trás.
 
 A viagem de volta foi mais lenta. Daryon evitou as rotas principais, descendo por caminhos de pedra seca até uma curva de rio estreito onde a água corria escura entre margens baixas. Ali, pararam para descansar os tarraks e esperar que uma patrulha de Kaendar passasse longe.
 

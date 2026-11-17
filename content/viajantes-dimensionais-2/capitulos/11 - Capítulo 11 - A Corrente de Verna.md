@@ -109,7 +109,7 @@ Brenda levantou o rosto. Dário não se mexeu. Ficou com os olhos fixos na esfer
 
 — Dário Vanterre, eliminado — anunciou Grimaldus, sem pressa, e a voz dele chegou fraca até o patamar. — Corrente cinco, posição três.
 
-Fez-se um silêncio de neve. Dário continuava parado, com os restos do gelo nas mãos, e Bruno viu pela primeira vez o rosto dele sem a calma, porque a calma tinha saído dali junto com a luz. Não era raiva. Os olhos estavam muito abertos, fixos em Bruno, e a boca tinha se afrouxado, a de alguém a quem abrem uma porta que ele passou meses mantendo trancada.
+Dário ficou parado na neve, segurando os cacos, com os olhos muito abertos em Bruno. A boca se afrouxou, mas nenhuma palavra saiu.
 
 — Que carta? — perguntou Brenda.
 

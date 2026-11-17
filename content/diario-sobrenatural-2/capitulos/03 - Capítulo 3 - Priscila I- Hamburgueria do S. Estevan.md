@@ -1,34 +1,28 @@
-— Priscila, presta atenção nos hambúrgueres! — o berro do chefe atravessou a cozinha como se eu tivesse entrado ali para fazer turismo gastronômico.
+— Priscila, presta atenção nos hambúrgueres! — berrou o Sr. Estevan.
 
-Dez discos de carne estalavam na chapa ao mesmo tempo, cuspindo gordura. O calor grudava o avental na minha cintura e o cheiro já tinha passado da fase de “fome” fazia meses; agora era um tipo de punição constante. Eu virava hambúrguer como quem vira página de livro obrigatório: sem prazer, só querendo acabar.
+Dez carnes na chapa. Três pedidos de suco. A fritadeira apitando. E o Charles parado olhando para mim, em vez de cortar os pães.
 
-E o Charles fazia o que ele sempre fazia: ocupava espaço perto de mim. Existia com uma cara de quem pede autorização até para respirar, e olhava. Não era um olhar corajoso. Era um olhar de hábito. Daqueles que não encaram de verdade, só ficam ali como mosca no canto.
+— Perdeu alguma coisa? — perguntei.
 
-Eu me virei rápido o bastante para pegá-lo no flagra.
+Ele desviou os olhos.
 
-— Perdeu alguma coisa?
+— Eu... não.
 
-Ele abaixou a cabeça, encarando o chão.
+— Então corta os pães, querido. Eles não vão se cortar sozinhos.
 
-— Eu… não.
+O avental estava grudado nas minhas costas. Eu tinha passado um ano naquele lugar. Um ano inteiro cheirando a fritura quando entrava no ônibus, ouvindo reclamações de clientes e obedecendo a um homem que confundia grito com método de trabalho. Eu, que tinha guarda-roupa só para roupa de sair. Agora tinha dois uniformes iguais, e lavava um no tanque da minha casa enquanto usava o outro.
 
-Claro. Então era só a alma dele passeando, porque utilidade não tinha chegado.
+— Pessoal, os clientes estão esperando! — o Sr. Estevan gritou outra vez. — Priscila, cadê o suco?
 
-— Pessoal, os clientes estão esperando! — o senhor Estevan gritou de novo, agora da porta. — Priscila, cadê o suco?
+— O senhor quer o suco ou os hambúrgueres? Porque, se eu tiver que fazer os dois ao mesmo tempo, alguém vai receber carne dentro do copo.
 
-— Ou eu cuido dos hambúrgueres ou eu faço o suco, senhor Estevan. Escolhe um.
+— Charles, corta os pães! Depois faz o suco. Manuela, atende o salão!
 
-Naquele lugar, ele era “chefe Estevan”. O título não mudava o fato de ele ser um velho resmungão que tratava carne como obra de arte e funcionário como peça substituível. Eu respeitava a mania dele por qualidade. Só não respeitava o jeito como ele esquecia que, sem os “condenados”, não existia cliente satisfeito, nem hambúrguer perfeito, nem nada.
+A cozinha voltou a funcionar. Eu virei as carnes, uma por uma. Tinha aprendido a fazer aquilo sem queimar os dedos. Outra habilidade que jamais imaginei colocar no currículo.
 
-Ele rosnou. Admitir qualquer coisa era humilhação.
+Na noite anterior, ficara estudando para a prova de Hotelaria e Turismo. Tinha sido cancelada por causa de uma manifestação em São Paulo. Quando recebi a notícia, quase atirei a apostila pela janela. Era só o que me faltava: um dia de trabalho perdido, horas de estudo e uma prova que resolveram empurrar para a semana seguinte.
 
-— Tá. Charles, era pra você ter cortado os pães. Quando acabar, faz o suco. Manuela, larga essa louça e atende o salão.
-
-Ele organizava o caos com grosseria porque era o único idioma que falava com fluência. E, para ser justa, funcionava. A cozinha se ajeitava na marra, porque ordem é um luxo quando todo mundo está cansado e ninguém é pago para aguentar pressão o dia inteiro.
-
-Eu estava exausta num nível que nem dava mais raiva; dava um tipo de vazio irritado. Tinha virado a madrugada estudando pro vestibular de Hotelaria e Turismo, só para descobrir que a prova tinha sido cancelada por causa de manifestação perto da faculdade. Uma manifestação. Em São Paulo. Como se isso fosse novidade. Reagendaram, simples assim. Eu tentei enxergar aquilo como um “sinal”. Só não sabia de quê. Do universo? Do meu azar? Do meu talento em escolher sofrimento como rotina?
-
-A hamburgueria ficava em Pirituba, bairro que fingia ser tranquilo do mesmo jeito que muita gente finge ser feliz: por falta de opção. Eu sempre gostei de hambúrguer. Mas depois de meses respirando gordura e carne processada, bastava o cheiro para meu estômago reagir como se eu tivesse sido envenenada.
+A hamburgueria ficava em Pirituba. Antes de vir para cá, se alguém me dissesse que eu passaria o dia atrás de uma chapa e voltaria para um quarto alugado com cheiro de gordura no cabelo, eu teria rido na cara da pessoa. Hoje a única coisa que me fazia rir era lembrar que ainda tinha aluguel para pagar.
 
 — Priscila! Já terminou? — gritou de novo.
 
@@ -42,7 +36,7 @@ Claro. O salão. A parte que eu mais odiava.
 
 Não porque eu “não gostava de gente”. Eu gostava de gente quando gente não se achava dona do mundo porque pagou por um lanche. Alguns entravam ali e achavam que compravam comida e o direito de ser insuportáveis no mesmo combo. E ainda pediam mais ketchup.
 
-Limpei uma mancha de molho na blusa, saí ensaiando o sorriso que eu usava quando precisava fingir que educação era escolha, não ferramenta de sobrevivência.
+Limpei uma mancha de molho na blusa e saí ensaiando o sorriso que eu usava quando precisava fingir que educação era escolha, não ferramenta de sobrevivência.
 
 — Boa tarde, sejam bem-vindos à hamburgueria Cha…
 
@@ -60,9 +54,7 @@ Um sorriso bobo apareceu no meu rosto sem pedir autorização.
 
 Foi aí que eu vi os outros dois de verdade.
 
-O pai dele era alto, magro, cabelo comprido preso. Usava um terno muito bonito e aparentemente caro e um relógio prateado. O tipo de homem que parece relaxado e consegue. Ele tinha aquele ar de quem nunca se apressa e nunca se desculpa. E a garota era mais baixa que Jason, com uma aparência bizarra: um olho verde, o outro castanho, uma mecha branca no cabelo como assinatura. Mas não foi isso que me prendeu.
-
-Foi o olhar.
+O pai dele era alto, magro, cabelo comprido preso. Usava um terno muito bonito e caro e um relógio prateado. O tipo de homem que parece relaxado e consegue. Ele tinha aquele ar de quem nunca se apressa e nunca se desculpa. E a garota era mais baixa que Jason, com uma aparência bizarra: um olho verde, o outro castanho, uma mecha branca no cabelo como assinatura. O que me prendeu foi o olhar.
 
 Ela me observava como se eu fosse um osso de frango que deveria ser descartado.
 
@@ -112,7 +104,7 @@ Olhei: 13:54.
 
 Meu almoço começava às 14:00.
 
-Eu fiz o básico: fingi que estava ocupada na louça enquanto o Charles me olhava de canto, e quando deu exatamente duas horas eu larguei tudo com a dignidade de quem está prestes fazendo algo absolutamente fútil e necessário: passar perfume antes de falar com um rapaz.
+Eu fiz o básico: fingi que estava ocupada na louça enquanto o Charles me olhava de canto, e quando deu duas horas eu larguei tudo com a dignidade de quem está prestes a fazer algo fútil e necessário: passar perfume antes de falar com um rapaz.
 
 — Vou almoçar, gente.
 
@@ -124,13 +116,13 @@ Passei pelo senhor Estevan.
 
 Só isso. Uma palavra. Porque discutir com ele fora do meu horário era dar combustível de graça.
 
-Fui no armazém, tirei o avental, soltei o cabelo e borrifei perfume. Se alguém dissesse que eu fazia aquilo “por um menino”, eu negaria na cara dura. Mas fazia.
+Fui ao armazém, tirei o avental, soltei o cabelo e borrifei perfume. Se alguém dissesse que eu fazia aquilo “por um menino”, eu negaria na cara dura. Mas fazia.
 
 Voltei pro salão e fui até a mesa.
 
 — Oi.
 
-Jason sorriu: eu tinha voltado pra uma parte que ele queria manter viva.
+Jason sorriu como quem esperava que eu voltasse.
 
 — E aí. Achou um tempinho?
 
@@ -138,7 +130,7 @@ Jason sorriu: eu tinha voltado pra uma parte que ele queria manter viva.
 
 — Claro — Diego respondeu com um sorriso, antes de Jason abrir a boca.
 
-Eu sentei e o barulho do salão continuou normal, talheres, gente rindo, cadeira arrastando. Mas, ali na mesa, havia uma espécie de foco, uma presença que me conectava com uma das poucas fases bonitas de meu passado.
+Eu sentei e o barulho do salão continuou normal, talheres, gente rindo, cadeira arrastando. Mas, ali na mesa, havia uma espécie de foco, uma presença que me conectava com uma das poucas fases bonitas do meu passado.
 
 — O que você faz aqui na cidade? — perguntei a Jason.
 
@@ -158,7 +150,7 @@ Jason me olhou com cuidado.
 
 Eu podia mentir. Mentir era fácil. Era automático. Eu mentia desde criança: para não pegar, para não ser julgada, para não dar o gostinho de me ver fraca. Mas naquela mesa, com Jason me olhando daquele jeito, a verdade escorregou antes da estratégia.
 
-— Eu não vejo meus pais faz quase um ano tempo.
+— Eu não vejo meus pais faz quase um ano.
 
 — Como assim?
 
@@ -166,7 +158,7 @@ Eu podia mentir. Mentir era fácil. Era automático. Eu mentia desde criança: p
 
 Diego inclinou a cabeça, como quem guarda um comentário no bolso.
 
-— Às vezes é melhor mesmo — ele disse — Filhos começam a ter opinião, e opiniões divergem.
+— Às vezes é melhor mesmo — ele disse. — Filhos começam a ter opinião, e opiniões divergem.
 
 — Foi por isso que escolhi morar com minha mãe quando eles se separaram há dois anos. A gente se desentendia bastante, mas hoje as coisas são bem melhores — falou Jason. 
 
@@ -180,7 +172,7 @@ Até que a prima me olhou com uma calma que parecia treinada e falou:
 
 O salão continuou barulhento. Mas na minha cabeça o som diminuiu, como se alguém tivesse fechado uma porta por dentro. Eu senti a mudança antes de entender.
 
-Eu devia ter mentido mais uma vez. Devia. Mas não queria dar este gostinho à essa garota. 
+Eu devia ter mentido mais uma vez. Devia. Mas não queria dar esse gostinho a essa garota. 
 
 — Minha irmã caçula morreu.
 
@@ -196,7 +188,7 @@ Mas ela não parou aí. Com a suavidade de quem sabe exatamente onde está a fer
 
 — Você não sabe o que aconteceu naquela casa — respondi, mais baixo do que pretendia. — E não vai ser aqui que eu vou contar.
 
-— Glenda — Diego falou baixo, numa voz que não era bronca, era aviso. — Chega.
+— Glenda — Diego falou baixo, numa voz que mais avisava do que repreendia. — Chega.
 
 Jason ficou rígido, como se aquela pergunta tivesse aberto uma gaveta que todo mundo finge trancada. Manuela apareceu com os pedidos e o mundo tentou disfarçar que estava acontecendo alguma coisa.
 
@@ -228,13 +220,13 @@ Acordei do transe.
 
 — Claro — Jason disse rápido. — Você disse que alugou uma casa aqui perto. É aqui em São Paulo?
 
-— Sim. Fica há alguns quarteirões daqui. Conhece a rua dos Cristãos? 
+— Sim. Fica a alguns quarteirões daqui. Conhece a rua dos Cristãos? 
 
 — Não conheço muito por aqui pra ser sincero — respondeu Jason. 
 
 — Perto da Padaria Dois Jardins? — perguntou Diego. 
 
-— Sim — assenti — Há menos de um minuto da padaria. 
+— Sim — assenti. — A menos de um minuto da padaria. 
 
 Então a prima falou mais uma vez: 
 
@@ -252,23 +244,23 @@ Diego pegou as batatas como se estivesse mediando duas crianças, e a cena quase
 
 No fundo, ouvi um prato quebrar e o senhor Estevan gritar. Pelo menos uma coisa no mundo continuava coerente.
 
-— Qualquer dia dê uma passada em casa — disse Jason — moramos no Jardim Everest, não é tão longe daqui. 
+— Qualquer dia dê uma passada em casa — disse Jason. — Moramos no Jardim Everest, não é tão longe daqui. 
 
 — Ah, não sei. Ando muito ocupada, Jason. 
 
-— Você consultou seu pai se você pode levá-la pra casa antes? — perguntou Glend, a voz tediosa. 
+— Você consultou seu pai se você pode levá-la pra casa antes? — perguntou Glenda, com a voz tediosa. 
 
-— É claro que ela pode ir. Será bem-vinda a hora que quiser — Diego respondeu — Se é amiga de meu filho, é nossa amiga.
+— É claro que ela pode ir. Será bem-vinda a hora que quiser — Diego respondeu. — Se é amiga de meu filho, é nossa amiga.
 
 Diego deu um sorriso e eu retribuí. 
 
 — Bom, vou deixá-los à vontade, não quero tomar o tempo de vocês.
 
-— Mas ainda nem chegou a sobremesa, querida — Glenda comentou sobre sobremesa com uma doçura que dava vontade de arrancar com a unha, só para ver o que tinha por baixo. 
+— Mas ainda nem chegou a sobremesa, querida — Glenda comentou, com uma doçura que dava vontade de arrancar com a unha, só para ver o que tinha por baixo. 
 
-— Não se preocupe, ela está vindo. A sua então, virá deliciosa — respondi. Tomara que ela tenha entendido o recado. 
+— Não se preocupe, ela está vindo. A sua, então, virá deliciosa — respondi. Tomara que ela tenha entendido o recado. 
 
-Quando meu almoço acabou, voltei pra cozinha com a cabeça cheia. Fingi que estava comendo enquanto observava de longe Jason conversando com o pai e a prima. Ele era lindo. E eu odiei isso também, porque beleza é um tipo de problema quando a sua vida está desmoronando e você prometeu a si mesma que não ia cair em mais nada.
+Quando meu almoço acabou, voltei pra cozinha com a cabeça cheia. Fingi que estava ocupada com a louça enquanto observava de longe Jason conversando com o pai e a prima. Ele era lindo. E eu odiei isso também, porque beleza é um tipo de problema quando a sua vida está desmoronando e você prometeu a si mesma que não ia cair em mais nada.
 
 Quando os três se levantaram para ir embora, eu engoli o resto rápido demais e fui até o salão.
 
@@ -278,13 +270,11 @@ Jason chegou perto do balcão, sorrindo daquele jeito que me lembrava coisas que
 
 — Pra ser sincero, eu esperava mais… mas gostei de te ver.
 
-Eu sorri como se eu não fosse idiota. Como se eu não soubesse exatamente o que aquela frase fazia comigo.
+Eu sorri para ele, bancando a idiota. Sabia exatamente o que aquela frase fazia comigo.
 
 Diego acenou. Eu acenei de volta.
 
-Glenda ficou a meio passo atrás, esperando. Ela tinha cara de quem sempre espera o momento certo.
-
-Quando Jason virou para acompanhar o pai, Glenda se aproximou de mim com a voz baixa e doce.
+Glenda ficou a meio passo atrás de Jason, brincando com a alça da bolsa. Quando ele virou para acompanhar o pai, ela se aproximou de mim com a voz baixa e doce.
 
 — Só um toque — ela disse. — Jason é mais do que irmão pra mim. Eu vi como você olhou pra ele. A pergunta sobre “namorada”. Você é esperta, então vou ser bem clara: se você fizer ele de idiota, eu vou saber. 
 
@@ -292,9 +282,9 @@ Eu soltei uma risada curta, involuntária, porque era tão absurdo que dava vont
 
 — Você vai saber? É sério, garota? 
 
-Glenda não mudou a expressão. Só me olhou com aqueles olhos diferentes como se tivesse uma faca guardada no bolso. Ah como eu sentia vontade de esmurrar aqueles olhos coloridos.
+Glenda não mudou a expressão. Só me olhou com aqueles olhos diferentes como se tivesse uma faca guardada no bolso. Ah, como eu sentia vontade de esmurrar aqueles olhos coloridos.
 
-Ela foi embora com a tranquilidade de quem tem certeza de que plantou o que queria. 
+Ela foi embora. Eu fiquei olhando para as costas dela, irritada por ter dado àquela metida a satisfação de me ver perder a paciência. 
 
 Perfeito. Agora, além de contas, eu tinha ameaça de prima possessiva para colecionar.
 
@@ -368,7 +358,7 @@ Peguei um dos ursos da mão de Kelly.
 
 — Priscila, devolve o ursinho da sua irmã — minha mãe disse.
 
-— Por que ela ganha isso e eu não ganho nada? — eu perguntei. Eu lembro do tom com perfeição. Não era tristeza. Era raiva. Pura. Antiga.
+— Por que ela ganha isso e eu não ganho nada? — eu perguntei. Eu lembro do tom com perfeição. Raiva, e das antigas.
 
 — Olha o seu tamanho pra ficar ganhando ursinho — minha mãe respondeu, sem nem pensar.
 
@@ -382,7 +372,7 @@ Kelly começou a cantarolar, achando graça, porque ela era criança e eu era…
 
 — Cala a boca — eu rosnei.
 
-— A Priscila tá com ciúmes, a Priscila tá com ciúmes…
+— Ciúmes, ciúmes, a Priscila tá com ciúmes…
 
 — Devolve o ursinho — meu pai ordenou.
 
@@ -400,7 +390,7 @@ Minha mãe me agarrou pelo braço com força demais.
 
 Eu não respondi.
 
-Eu olhei pro urso rasgado no chão, vazio por dentro, e senti uma coisa que eu não soube nomear na época. Hoje eu sei: era a primeira vez que eu entendia que a única forma de ser vista era sendo o problema que eles não podiam ignorar. 
+Eu olhei pro urso rasgado no chão, vazio por dentro, e senti uma coisa que eu não soube nomear na época.
 
 O choro da Kelly enchia o parque como sirene.
 
@@ -420,4 +410,4 @@ Eu não deixei.
 
 Levantei de uma vez, fui até a cozinha, acendi todas as luzes e abri a torneira, como se água e claridade fossem suficientes pra expulsar qualquer coisa que eu não estivesse pronta pra encarar.
 
-— Não hoje. 
+— Não hoje.

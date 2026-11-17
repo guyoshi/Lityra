@@ -60,7 +60,7 @@ Kaelina foi até os pequenos estábulos externos usados por mensageiros. Havia d
 
 — Agora.
 
-Deram-lhe uma fêmea castanha, nervosa, mas obediente. Kaelina montou sem permitir que a ajudassem mais do que o necessário. Fazia tempo que não cavalgava fora dos muros à noite. Ajustou a postura na sela e firmou as rédeas. Seguiu, mas não perto.
+Deram-lhe uma fêmea castanha, nervosa, mas obediente. Kaelina montou sem permitir que a ajudassem mais do que o necessário. Fazia tempo que não cavalgava fora dos muros à noite. Ajustou a postura na sela e firmou as rédeas.
 
 Kaelina manteve distância, usando curvas, rochas e desníveis sempre que Daryon reduzia o passo ou olhava para trás.
 
@@ -70,11 +70,11 @@ Foi seguindo essa rota, mantendo distância suficiente para que o tarrak de Dary
 
 Kaelina deixou o tarrak mais atrás, amarrou-o a uma raiz seca e seguiu a pé. O chão rangia sob pequenas pedras. Cada passo parecia alto demais. Aproximou-se por trás de uma formação baixa, abaixando-se até conseguir ver. Havia homens ali.
 
-Cinco, talvez seis. Não usavam marca Polar, mas isso não significava ausência de origem. Alguns traços não se arrancavam com exílio: o modo de prender faca, o gesto de tocar dois dedos na testa sem completar o peito, a maneira de medir muralha mesmo longe dela. Homens das Areias. Exilados antigos, filhos de exilados, netos de vergonha transformada em ofício. E entre eles estava Sarkan.
+Cinco, talvez seis. Não usavam marca Polar, mas isso não significava ausência de origem. Alguns traços não se arrancavam com exílio: o modo de prender faca, o gesto de tocar dois dedos na testa sem completar o peito, a maneira de medir muralha mesmo longe dela. Homens das Areias. Exilados antigos, filhos de exilados, netos de vergonha transformada em ofício.
 
-Pela cicatriz na boca e pelo espaço que os outros deixavam ao redor dele, Kaelina concluiu que fosse Sarkan.
+Pela cicatriz na boca de um deles e pelo espaço que os outros deixavam ao redor dele, Kaelina concluiu que era Sarkan.
 
-Homens das Areias não tinham permissão para chegar tão perto de Kaendar. Daryon parou diante deles; Kaelina não ouvia tudo.
+Homens das Areias não tinham permissão para chegar tão perto de Kaendar. Daryon parou diante deles. Kaelina não ouvia tudo.
 
 À distância, o vento e a posição das rochas roubavam partes da conversa. Vinham palavras soltas, frases quebradas, intenções suficientes para ferir e insuficientes para provar.
 

@@ -1,6 +1,6 @@
 Maruva começava a acordar muito antes de o sol conseguir alcançar suas ruas.
 
-A luz já clareava as partes mais altas de Kaeliran quando as passagens inferiores ainda permaneciam cobertas pelas sombras dos prédios, passarelas e telhados amontoados. Uma carroça atravessava a rua principal fazendo as rodas saltarem sobre pedras desniveladas, enquanto um tarrak amarrado diante de uma casa batia o casco no chão, impaciente. Panelas começavam a bater nas cozinhas coletivas, água era puxada em baldes, alguém discutia porque outra pessoa havia usado lenha demais durante a noite e, do outro lado da passagem, uma criança chorava com determinação suficiente para acordar quem ainda tentasse dormir.
+A luz já clareava as partes mais altas de Kaeliran quando as passagens inferiores ainda permaneciam cobertas pelas sombras de prédios, passarelas e telhados amontoados. Uma carroça atravessava a rua principal saltando sobre pedras desniveladas, um tarrak amarrado diante de uma casa batia o casco no chão, panelas começavam a bater nas cozinhas coletivas, água era puxada em baldes, alguém discutia porque outra pessoa usara lenha demais durante a noite, e do outro lado da passagem uma criança chorava com determinação suficiente para acordar quem ainda tentasse dormir.
 
 Dentro da casa, Kalan já trabalhava havia algum tempo. Elis sentiu o cheiro antes mesmo de entrar.
 
@@ -14,7 +14,7 @@ Kalan nem olhou para ela.
 
 — Então não está tão horrível.
 
-Elis fechou a porta com o pé e se aproximou da mesa. Kalan estava sentado diante de uma tábua, cortando em tiras uma das peças de carne de sarnak que trouxera na noite anterior. Outras já pendiam de cordas improvisadas entre duas vigas do teto, escuras nas extremidades depois de passarem a noite cobertas de sal. Ele havia chegado tarde, cansado, trazendo um embrulho grande demais para ser apenas sobra de refeição e, ainda assim, passara todo o fim da tarde limpando, salgando e separando tudo antes de dormir.
+Elis fechou a porta com o pé e se aproximou da mesa. Kalan estava sentado diante de uma tábua, cortando em tiras uma das peças de carne de sarnak que trouxera na noite anterior. Outras já pendiam de cordas improvisadas entre duas vigas do teto, escuras nas extremidades depois de uma noite sob o sal. Ele chegara tarde, cansado, com um embrulho grande demais para ser sobra de refeição, e ainda assim passara o fim da tarde limpando, salgando e separando tudo antes de dormir.
 
 Carne daquele tamanho não aparecia com frequência naquela casa. Elis ergueu uma das tiras penduradas com o dedo.
 
@@ -30,7 +30,7 @@ Elis soltou a carne.
 
 — Eu tenho olhos nos dedos, sabia?
 
-Kalan finalmente a encarou. Seus olhos desceram primeiro para a trança que já começava a se desfazer, depois para a roupa suja e por fim para o ferimento no braço do dia anterior.
+Kalan finalmente a encarou, e seus olhos desceram para a trança desfeita, depois para a roupa suja e por fim para o ferimento no braço.
 
 — O que aconteceu?
 
@@ -42,7 +42,7 @@ Elis apontou vagamente para a parede.
 
 — Só caí por aí. 
 
-Kalan olhou para ela e Elis ignorou. Andou perto dos recipientes de vidro no armário e passou os dedos sobre eles. Ele tornou a cortar a carne. Kalan tinha dezessete ciclos, mas Elis achava que às vezes se esforçava para parecer quarenta. Não conseguia simplesmente perguntar alguma coisa e aceitar uma resposta. Precisava descobrir onde ela estivera, por qual caminho passara, com quem falara e, se possível, quantas pedras havia pisado entre sair e voltar para casa.
+Kalan olhou para ela e Elis ignorou, andando perto dos recipientes de vidro no armário e passando os dedos sobre eles. Ele tornou a cortar a carne. Tinha dezessete ciclos, mas Elis achava que às vezes se esforçava para parecer quarenta. Não conseguia simplesmente perguntar alguma coisa e aceitar uma resposta: precisava descobrir onde ela estivera, por qual caminho passara, com quem falara e, se possível, quantas pedras havia pisado entre sair e voltar para casa.
 
 — Sabe que não é meu responsável, certo?
 
@@ -60,15 +60,11 @@ Kalan ergueu os olhos.
 
 — Só isso?
 
-— Só isso? — Tair respirou fundo e apontou para os recipientes. — Eu fui até a fila, esperei atrás de duas famílias, uma mulher tentou dizer que estava antes de mim, um homem derrubou metade do que carregava em cima do meu pé e voltei com água para quatro pessoas. Você quer que eu traga o rio também?
+— Só isso? — Tair respirou fundo e apontou para os recipientes. — Esperei atrás de duas famílias, uma mulher tentou dizer que estava antes de mim, um homem derrubou metade do que carregava em cima do meu pé e voltei com água para quatro pessoas. Você quer que eu traga o rio também?
 
 — Era trabalho de Karesis.
 
 Tair sentou-se.
-
-— Então vamos morrer de sede.
-
-— Pelo menos alguém entende.
 
 Elis puxou um dos recipientes na própria direção e bebeu um pouco.
 
@@ -80,12 +76,6 @@ Elis puxou um dos recipientes na própria direção e bebeu um pouco.
 
 — Então não voltou.
 
-— Às vezes ele volta quando a gente está dormindo — disse Elis. 
-
-— Isso não conta como morar numa casa.
-
-Elis bebeu mais um gole. Karesis às vezes passava dias fora e, quando voltava, podia desaparecer novamente antes que alguém perguntasse onde estivera. Kalan se irritava quando as obrigações dele acabavam sobrando para os outros.
-
 — Ele vai aparecer — disse Elis. 
 
 — Claro que vai — respondeu Kalan, espalhando mais sal sobre a carne. — Quando tiver fome.
@@ -93,14 +83,6 @@ Elis bebeu mais um gole. Karesis às vezes passava dias fora e, quando voltava, 
 Tair soltou uma risada curta.
 
 — Ou quando acabar o que estiver bebendo.
-
-Kalan apontou a faca para ele.
-
-— Você está ajudando pouco.
-
-— Eu trouxe água.
-
-— Por isso ainda pode falar.
 
 Elis sorriu e tentou pegar outro pedaço da carne. Dessa vez Kalan sequer precisou olhar. Apenas mudou a tábua de lugar antes que a mão dela chegasse.
 
@@ -132,17 +114,11 @@ Kalan apoiou a faca sobre a mesa.
 
 — Eu ouvi alguma coisa sobre um tal torneio decenal que farão entre dez dinastias.
 
-— Torneio decenal? — perguntou Elis, mordendo um pedaço de pão duro que sobrara do dia anterior. — Que tipo de torneio é esse?
-
-— Não sei ao certo. 
-
-Kalan voltou à carne. 
-
 — Dez campeões — disse Tair. — Um para cada dinastia. A vencedora terá primazia nas decisões sobre guerras e disputas entre elas. Está todo mundo falando disso.
 
 — Interessante — respondeu Elis.
 
-Kalan ergueu uma sobrancelha. Elis bebeu mais água para manter a boca ocupada, enquanto ele cortava outra tira de carne, esfregava-a no sal e a pendurava. 
+Kalan ergueu uma sobrancelha. Elis bebeu mais água para manter a boca ocupada enquanto ele cortava outra tira, esfregava-a no sal e a pendurava.
 
 — Cairon disse que nunca viu tanta carga sendo preparada de uma vez. E ele trabalha nos armazéns desde antes de eu nascer.
 
@@ -150,7 +126,7 @@ Kalan ergueu uma sobrancelha. Elis bebeu mais água para manter a boca ocupada, 
 
 — Carga pra ser transportada pras arenas. Primeiro passa por aqui. Parte segue para Braedar depois. Parte fica nos depósitos até decidirem o que fazer. 
 
-Kalan tornou a trabalhar enquanto falava. Naro apostava que a Companhia teria de contratar gente de fora antes do fim da semana. Neris já reclamava que os registros de carga estavam chegando mais rápido do que conseguia conferir. Corven havia fechado dois acessos próximos aos armazéns para impedir curiosos, o que para Elis pareceu uma informação especialmente interessante, embora ela tivesse o bom senso de não demonstrar isso diante do irmão.
+Kalan tornou a trabalhar enquanto falava. Naro apostava que a Companhia teria de contratar gente de fora antes do fim da semana, Neris reclamava que os registros de carga chegavam mais rápido do que conseguia conferir, e Corven fechara dois acessos próximos aos armazéns para impedir curiosos, o que para Elis pareceu uma informação especialmente interessante, embora tivesse o bom senso de não demonstrar isso diante do irmão.
 
 — E você acha que funcionará? — perguntou Tair.
 
@@ -162,10 +138,6 @@ Kalan pensou antes de responder.
 
 — Se dez pessoas lutarem e evitarem que dez mil façam o mesmo, é uma conta fácil.
 
-— Então você aprova.
-
-— Não falei isso.
-
 Kalan terminou de pendurar mais uma tira.
 
 — Eu acho estranho chamar luta de paz. Mas nunca estamos realmente em paz, não é? 
@@ -174,43 +146,31 @@ Elis ficou olhando para ele.
 
 — Vetarius disse que vai impedir guerras — continuou Kalan. — Mas soberanos dizem muitas coisas.
 
-Elis pensou no homem sobre a plataforma, no manto azul, no povo gritando seu nome e em Kaendar atrás dele.
+Elis pensou no homem sobre a plataforma, no manto azul, no povo gritando seu nome e em Kaendar atrás dele. Para Kalan, o torneio existia principalmente na quantidade absurda de caixas que teria de carregar e nas horas extras que conseguiria trabalhar. Elis achava aquilo uma maneira muito sem graça de enxergar o mundo.
 
-Para Kalan isso tudo seria indiferente. Para ele, o torneio existia principalmente na quantidade absurda de caixas que teria de carregar, nas horas extras que conseguiria trabalhar e na possibilidade de a cidade enlouquecer por algumas semanas. Elis achava aquilo uma maneira muito sem graça de enxergar o mundo.
+Quando o sol subiu o bastante para iluminar parte das ruas, Kalan já terminara com a carne. As tiras ficariam penduradas até mais tarde e, se ele tivesse feito tudo direito, o sal seguraria o suficiente para guardar parte por alguns dias. Ele sempre fazia tudo direito. Era irritante.
 
-Quando o sol subiu o suficiente para começar a iluminar parte das ruas de Maruva, Kalan já havia terminado com a carne. As tiras permaneceriam penduradas até mais tarde e, se ele tivesse feito tudo direito, o sal seguraria o bastante para que parte pudesse ser guardada por alguns dias.
-
-Ele sempre fazia tudo direito. Era irritante.
-
-Elis passou boa parte da manhã dentro e fora de casa, sendo chamada duas vezes para carregar água, uma para devolver uma tigela que pegara sem avisar e outra porque Kalan decidiu que o ferimento em seu braço precisava ser lavado novamente. Depois do almoço, quando o movimento aumentou e ninguém parecia prestar atenção suficiente nela, desapareceu.
+Elis passou a manhã dentro e fora de casa, chamada duas vezes para carregar água, uma para devolver uma tigela que pegara sem avisar e outra porque Kalan decidiu que o ferimento em seu braço precisava ser lavado de novo. Depois do almoço, quando o movimento aumentou e ninguém parecia prestar atenção nela, desapareceu.
 
 Maruva era melhor vista de cima.
 
-Para chegar ao lugar que gostava, Elis atravessou uma passagem estreita entre duas casas, subiu sobre uma mureta rachada, agarrou uma viga que sustentava uma cobertura improvisada e usou os pés contra a parede até alcançar uma pequena plataforma de madeira. Dali passou para o telhado de uma oficina, atravessou duas tábuas que ninguém em sã consciência chamaria de ponte e alcançou a lateral de uma construção mais alta.
+Para chegar ao lugar de que gostava, Elis atravessou uma passagem estreita entre duas casas, subiu numa mureta rachada, agarrou uma viga que sustentava uma cobertura improvisada e usou os pés contra a parede até alcançar uma plataforma de madeira. Dali passou ao telhado de uma oficina, atravessou duas tábuas que ninguém em sã consciência chamaria de ponte e alcançou a lateral de uma construção mais alta.
 
-No caminho, encontrou um pequeno cacho de uva-de-raiz sobre o parapeito de uma janela. Ela parou, olhou para a fruta, olhou para dentro e não avistou ninguém. Pegou uma, pensou e pegou outra. A segunda era para garantir que a primeira não estivesse estragada.
+No caminho, encontrou um cacho de uva-de-raiz sobre o parapeito de uma janela. Olhou para dentro, não avistou ninguém, pegou uma, pensou e pegou outra. A segunda era para garantir que a primeira não estivesse estragada. A fruta estourou entre os dentes, ácida o bastante para fazê-la apertar um dos olhos, e Elis continuou subindo enquanto mastigava até a cobertura mais alta, onde sentou na beirada e deixou as pernas balançarem sobre a rua.
 
-A fruta estourou entre os dentes, ácida o suficiente para fazê-la apertar um dos olhos, e Elis continuou subindo enquanto mastigava. Quando finalmente alcançou a cobertura mais alta, sentou-se na beirada e deixou as pernas balançarem sobre a rua.
+Dali via uma parte enorme de Maruva. Os telhados se apertavam uns contra os outros, de pedra, madeira, tecido endurecido e remendos de todo tipo, e a fumaça das cozinhas coletivas se misturava ao ar antes de sumir acima dos prédios. Mais longe, as muralhas da Cidade Exterior recortavam o horizonte, e além delas havia pedaços de estradas, campos e o brilho distante da água.
 
-Dali conseguia ver uma parte enorme de Maruva.
+O mundo continuava depois de Kaeliran. Era uma ideia simples e ainda assim estranha. Elis conhecia nomes: Buldar, Cendar, Vendrar, Braedar, Leidar. Sabia histórias, conhecia mercadorias e ouvira falar de rios largos demais para atravessar sem barco, de cidades construídas sobre água e de terras onde alguém podia caminhar um dia inteiro sem encontrar uma muralha. Mas nunca estivera lá fora, e tentou imaginar como seria acordar num lugar em que Kaendar não estivesse no centro de tudo, sem conseguir.
 
-Os telhados se apertavam uns contra os outros: pedra, madeira, tecido endurecido, remendos de todo tipo. Fumaça subia das cozinhas coletivas e se misturava ao ar antes de desaparecer acima dos prédios. Mais longe, as muralhas da Cidade Exterior recortavam o horizonte, e além delas Elis conseguia ver pedaços das estradas, campos, o brilho distante da água e pequenas construções que pareciam insignificantes vistas dali.
+Uma discussão na rua chamou sua atenção. Vessa estava diante de uma das cozinhas coletivas, com uma concha numa mão, afastando com a outra um homem que insistia em ter recebido menos comida que o vizinho. Mais adiante, Yaro atravessava uma viela com uma corda enrolada no ombro, parando para cumprimentar praticamente todo mundo, e duas crianças tentavam fazer um bravão carregado virar a cabeça oferecendo alguma coisa que provavelmente nem era comida, enquanto o dono do animal ameaçava contar aos pais delas.
 
-O mundo continuava depois de Kaeliran. Era uma ideia simples e ainda assim estranha. Elis conhecia nomes. Buldar. Cendar. Vendrar. Braedar. Leidar. Sabia histórias, conhecia mercadorias e já ouvira pessoas falando de rios largos demais para atravessar sem barco, de campos que levavam horas para terminar, de cidades onde as casas eram construídas sobre água e de terras em que alguém podia caminhar um dia inteiro sem encontrar uma muralha.
-
-Mas nunca estivera lá fora. Tentou imaginar como seria acordar num lugar em que Kaendar não estivesse no centro de tudo, mas não conseguiu.
-
-Uma discussão na rua chamou sua atenção. Vessa estava diante de uma das cozinhas coletivas, segurando uma concha numa mão e afastando um homem da fila com a outra porque ele insistia que recebera menos comida que o vizinho. Algumas pessoas riam. Mais adiante, Yaro atravessava uma viela com uma corda enrolada no ombro, parando para cumprimentar praticamente todo mundo que encontrava. Duas crianças tentavam fazer um bravão carregado virar a cabeça oferecendo alguma coisa que provavelmente nem era comida, enquanto o dono do animal ameaçava contar aos pais delas.
-
-Elis gostava de observar as pessoas quando elas não sabiam que estavam sendo observadas.
-
-Todo mundo parecia mais interessante assim.
+Elis gostava de observar as pessoas quando não sabiam que estavam sendo observadas. Todo mundo parecia mais interessante assim.
 
 — Vai cair daí, menina.
 
 Ela reconheceu a voz e perdeu imediatamente parte do interesse no mundo.
 
-Rovan Polar estava numa janela alguns metros abaixo, olhando para ela com a mesma expressão que reservava para lixo acumulado perto de uma porta. Era um homem magro, já passando dos sessenta ciclos, com o rosto comprido e os cabelos grisalhos cuidadosamente penteados com óleo. Mesmo trabalhando perto de couro e sujeira, mantinha as mãos limpas de um jeito quase obsessivo. No peito, sobre a camisa azul desbotada, a velha insígnia Polar brilhava de tanto ser polida.
+Rovan Polar estava numa janela alguns metros abaixo, olhando para ela com a expressão que reservava para lixo acumulado perto de uma porta. Era um homem magro, já passando dos sessenta ciclos, com o rosto comprido e os cabelos grisalhos penteados com óleo, e mantinha as mãos limpas de um jeito quase obsessivo, mesmo trabalhando perto de couro e sujeira. No peito, sobre a camisa azul desbotada, a velha insígnia Polar brilhava de tanto ser polida.
 
 — Não vou não — respondeu Elis.
 
@@ -220,11 +180,7 @@ Rovan Polar estava numa janela alguns metros abaixo, olhando para ela com a mesm
 
 Rovan apertou os lábios.
 
-— Vocês sempre têm resposta.
-
-— É habilidade Nular, sempre ter o que falar.
-
-— É só isso que vocês sabem fazer, afinal. 
+— Vocês sempre têm resposta. É só isso que sabem fazer, afinal.
 
 Elis terminou a última uva-de-raiz antes de perguntar.
 
@@ -248,17 +204,7 @@ Elis o encarou.
 
 — No tempo de Naryon isso não acontecia — continuou ele. — Gente sem raiz agradecia por permanecer dentro das muralhas. Sabia qual era o próprio lugar. Agora exigem água, trabalho, passagem, registro. Daqui a pouco vão querer Kaendar.
 
-— Eu não quero Kaendar.
-
-— Vocês são todos iguais. Filhos de gabais, imundos que se aproveitam das nossas terras. 
-
-— Deve ser horrível viver entre nós, Sr. Rovan. 
-
-Rovan franziu a testa.
-
-— Você faz piada porque é criança.
-
-— E o senhor reclama porque é velho?
+— Eu não quero Kaendar. Deve ser horrível viver entre nós, Sr. Rovan.
 
 — Eu reclamo porque vi esta cidade antes de vocês tomarem tudo.
 
@@ -280,23 +226,21 @@ Na parede lateral de uma casa, quase escondido por cal nova, ainda aparecia um n
 
 **SARVEN SEM-ANEL.**
 
-Alguém tinha tentado raspar as letras anos antes. Restavam sulcos irregulares na pedra. Elis conhecia o nome do mesmo jeito que conhecia dezenas de coisas antigas de Kaeliran: sem saber a história inteira. Para os Filhos da Raiz, Sarven tinha sido traidor. Para alguns velhos de Maruva, era nome que aparecia em discussões quando a água faltava ou um portão fechava cedo demais. Kalan já dissera para ela não repetir aquilo perto de gente do Culto.
+Alguém tentara raspar as letras anos antes, e restavam sulcos irregulares na pedra. Elis conhecia o nome como conhecia dezenas de coisas antigas de Kaeliran: sem saber a história inteira. Para os Filhos da Raiz, Sarven tinha sido traidor. Para alguns velhos de Maruva, era um nome que aparecia em discussões quando a água faltava ou um portão fechava cedo demais. Kalan já dissera para ela não repetir aquilo perto de gente do Culto.
 
 Elis nunca perguntara o suficiente para descobrir por quê.
 
 Seguiu sem destino por algum tempo.
 
-Passou diante de uma casa que sempre tinha as janelas abertas pela metade, mesmo quando todas as outras fechavam por causa do vento. Tecidos vermelhos e violetas cobriam parte das entradas, havia cheiro de perfume barato misturado com bebida e, quase sempre, alguém ria lá dentro alto demais. Homens olhavam para os lados antes de entrar e repetiam o gesto ao sair. Tair adorava passar naquela rua. Segundo ele, era o caminho mais curto entre a casa e o vendedor de carvão. 
-
-Não era. Elis estava decidindo entre os canais antigos e os telhados quando um urro a fez parar. Conhecia aquele som.
+Passou diante da casa de janelas entreabertas e tecidos vermelhos e violetas que Tair adorava atravessar, segundo ele por ser o caminho mais curto até o vendedor de carvão, o que não era verdade. Decidia entre os canais antigos e os telhados quando um urro a fez parar. Conhecia aquele som.
 
 — Orel.
 
 O segundo urro veio mais baixo. Elis correu.
 
-Entrou numa passagem lateral, pulou sobre um canal estreito de água suja e passou entre duas casas até encontrar a entrada de um túnel baixo. Atravessou sem diminuir muito, tocando a parede para se orientar quando a luz desapareceu, e saiu do outro lado numa área esquecida entre antigas fundações e a traseira de alguns depósitos pequenos.
+Entrou numa passagem lateral, pulou um canal estreito de água suja, atravessou um túnel baixo tocando a parede quando a luz desapareceu e saiu numa área esquecida entre antigas fundações e a traseira de depósitos pequenos.
 
-Ouviu risadas. Depois o som de madeira batendo em alguma coisa. Elis correu mais rápido. Encontrou quatro garotos. Orel estava no chão.
+Ouviu risadas, depois o som de madeira batendo em alguma coisa. Encontrou quatro garotos. Orel estava no chão.
 
 Era um homem grande o suficiente para fazer qualquer um deles parecer pequeno, mas permanecia encolhido junto à parede, as pernas dobradas contra o peito e as duas mãos protegendo o rosto. Sangue escorria entre seus dedos. Um dos garotos segurava um pedaço de madeira, enquanto outro o empurrava com o pé.
 
@@ -342,7 +286,7 @@ Os quatro olharam. Orel permaneceu encolhido. Elis se aproximou.
 
 O garoto que estava no chão sentou-se e olhou para ela antes de começar a rir de novo.
 
-Elis reconheceu dois deles. Não sabia os nomes de todos, mas já os tinha visto perto das oficinas e em algumas cozinhas coletivas. O mais alto era particularmente fácil de lembrar porque falava alto o suficiente para garantir que todos soubessem quando estava por perto.
+Elis reconheceu dois deles de vista, perto das oficinas e das cozinhas coletivas. O mais alto era fácil de lembrar porque falava alto o bastante para garantir que todos soubessem quando estava por perto.
 
 — Ele está com medo — disse Elis. — Vocês estão machucando ele.
 
@@ -386,19 +330,9 @@ Os outros olharam para ele.
 
 Elis apontou para o garoto.
 
-— Ele não é guarda. Ele nem consegue entrar na Cidade Interna sem autorização de trabalho.
+— Ele não é guarda. Ele nem consegue entrar na Cidade Interna sem autorização de trabalho. Seu tio importante descarrega couro, que poderoso. E vocês quatro juntos conseguiram vencer Orel sentado no chão. Devem ser a família mais perigosa de Jesed.
 
-Um dos meninos soltou uma risada. O mais alto virou para ele.
-
-— Cala a boca!
-
-— Seu tio importante descarrega couro — continuou Elis. — Que poderoso.
-
-— Eu falei para calar a boca!
-
-— E vocês quatro juntos conseguiram vencer Orel sentado no chão. Devem ser a família mais perigosa de Jesed.
-
-Dessa vez dois riram. O garoto avançou. Elis ainda teve tempo de perceber que talvez tivesse ido longe demais. A mão dele fechou em seu pescoço. Ela foi empurrada contra a parede.
+Dois dos garotos riram. O mais alto avançou. Elis ainda teve tempo de perceber que talvez tivesse ido longe demais. A mão dele fechou em seu pescoço, e ela foi empurrada contra a parede.
 
 — Repete.
 
@@ -422,7 +356,7 @@ O garoto mais alto se levantou.
 
 Kalan virou para ele. O menino parou.
 
-Havia algo diferente no rosto do irmão de Elis. Não gritava. Kalan quase nunca gritava quando estava realmente com raiva. A tensão surgia primeiro no maxilar e nas mãos, e naquele momento ambos pareciam feitos de pedra.
+Havia algo diferente no rosto do irmão. Kalan quase nunca gritava quando estava realmente com raiva: a tensão surgia primeiro no maxilar e nas mãos, que naquele momento pareciam feitas de pedra.
 
 O garoto olhou para os amigos.
 
@@ -432,19 +366,15 @@ Kalan puxou a espada.
 
 O som da lâmina saindo da bainha encerrou qualquer tentativa de coragem.
 
-Elis já conhecia a arma. Era velha, sem adornos, com marcas que não saíam mesmo quando Kalan passava horas limpando o metal. Ele a havia conseguido numa aposta no pátio de pesagem da Balança Azul, vencendo um trabalhador que apostara mais do que podia pagar. Kalan nunca explicara exatamente por que o outro homem carregava uma espada daquele tipo no trabalho. Também nunca pareceu muito interessado em devolver.
+Elis conhecia a arma: velha, sem adornos, com marcas que não saíam mesmo depois de horas de limpeza. Kalan a conseguira numa aposta no pátio de pesagem da Balança Azul, vencendo um trabalhador que apostara mais do que podia pagar. Nunca explicara por que o outro homem carregava uma espada daquelas no trabalho, e também nunca pareceu interessado em devolvê-la.
 
-Ele não apontou a lâmina para ninguém. Apenas a manteve baixa ao lado do corpo. Foi suficiente. Os garotos ergueram as mãos.
+Ele não apontou a lâmina para ninguém. Apenas a manteve baixa ao lado do corpo, e foi suficiente. Os garotos ergueram as mãos.
 
-— Calma.
+— Calma. A gente estava brincando.
 
 — Vão embora — disse Kalan.
 
-— A gente estava brincando.
-
-— Saiam.
-
-Kalan deu um passo. Os quatro fugiram. Nenhum esperou pelo outro. 
+Deu um passo, e os quatro fugiram sem esperar um pelo outro.
 
 Elis correu imediatamente até Orel.
 
@@ -502,7 +432,7 @@ Orel começou a balançar a cabeça.
 
 Aquilo não parecia convencê-lo.
 
-Orel era grande e pesado, mas conseguia andar quando os dois o mantinham equilibrado. O caminho até Vesna pareceu muito maior do que normalmente. Algumas pessoas olharam quando passaram, mas poucas perguntaram o que havia acontecido. Em Maruva, sangue chamava atenção principalmente quando era demais.
+Orel era grande e pesado, mas conseguia andar quando os dois o mantinham equilibrado. O caminho até Vesna pareceu muito maior do que de costume. Algumas pessoas olharam, mas poucas perguntaram o que havia acontecido, porque em Maruva sangue só chamava atenção quando era demais.
 
 Elis bateu na porta de Vesna. Nada. Bateu novamente.
 
@@ -516,7 +446,7 @@ Abriu a porta completamente.
 
 — Coloquem ele aqui.
 
-A casa de Vesna cheirava a ervas, água quente e tecido seco. Havia pequenos recipientes organizados sobre prateleiras, faixas dobradas, agulhas guardadas dentro de caixas e plantas penduradas perto de uma janela.
+A casa de Vesna cheirava a ervas, água quente e tecido seco, com pequenos recipientes organizados em prateleiras, faixas dobradas, agulhas guardadas em caixas e plantas penduradas perto de uma janela.
 
 Kalan ajudou Orel a sentar. Vesna colocou uma bacia diante dele e começou a examinar seu rosto.
 
@@ -547,12 +477,6 @@ Vesna olhou para ela rapidamente, então pegou um pano limpo, molhou-o na água 
 Orel recuou imediatamente.
 
 — Não.
-
-— Preciso limpar.
-
-— N-não.
-
-— Preciso, sim.
 
 Vesna falava com firmeza, mas sem pressa. Pegou o rosto dele com cuidado.
 
@@ -586,11 +510,11 @@ Vesna retomou o trabalho e Orel apertou.
 
 — Não tanto! — resmungou Elis. 
 
-Kalan soltou uma pequena risada enquanto Elis virava o rosto, esmagada contra Orel. Vesna passou o pano pela ferida novamente e Orel apertou mais forte. Elis teve a impressão de que suas costelas estavam prestes a trocar de lugar.
+Kalan soltou uma pequena risada enquanto Elis virava o rosto, esmagada contra Orel. Vesna passou o pano de novo e Orel apertou mais forte, e Elis teve a impressão de que suas costelas estavam prestes a trocar de lugar.
 
 — Está tudo bem — conseguiu dizer. — Pode apertar.
 
-Vesna limpou o sangue, examinou o olho e preparou uma compressa com folhas-de-frio para o inchaço. Depois usou musgo de cicatriz bem limpo sobre os cortes menores antes de envolver parte do rosto com uma faixa.
+Vesna limpou o sangue, examinou o olho e preparou uma compressa de folhas-de-frio para o inchaço. Usou musgo de cicatriz bem limpo nos cortes menores e envolveu parte do rosto com uma faixa.
 
 — Isso não faz milagre — explicou enquanto trabalhava. — Só protege. O resto é o corpo que faz. E a Raiz, se ela decidir colaborar.
 
@@ -608,7 +532,7 @@ Orel continuava abraçado a Elis.
 
 — O quê? — perguntou ela.
 
-—  Precisarei limpar, olhar os cortes e trocar isso por pelo menos uma semana. Se o olho inchar mais, se tiver febre, ou se começar a sair alguma coisa da ferida, venham.
+— Precisarei limpar, olhar os cortes e trocar isso por pelo menos uma semana. Se o olho inchar mais, se tiver febre ou se começar a sair alguma coisa da ferida, venham.
 
 Elis assentiu e Vesna olhou para Orel.
 
@@ -664,7 +588,7 @@ Orel apertou novamente Elis e Vesna olhou para ele.
 
 — Ou aparentemente Elis fica mais um pouco também.
 
-Kalan saiu sozinho. Quando voltaram para casa, o sol já começava a desaparecer atrás das construções. Orel caminhava devagar entre Elis e Kalan, evitando olhar para as pessoas. Ninguém falou muito.
+Kalan saiu sozinho. Quando voltaram para casa, o sol já desaparecia atrás das construções, e Orel caminhava devagar entre Elis e Kalan, evitando olhar para as pessoas. Ninguém falou muito.
 
 Naquela noite, a carne de Kalan finalmente chegou à mesa. 
 
@@ -672,31 +596,27 @@ Ele cozinhou parte das tiras salgadas com raiz de margem amassada e dividiu tudo
 
 — A minha é menor.
 
-— Não é.
+— Cortei igual.
 
-— É.
+— Então cortou errado.
 
-— Eu cortei igual.
-
-— Não, cortou errado.
-
-Kalan empurrou o prato dele.
+Kalan empurrou o prato para ele.
 
 — Quer trocar?
 
-Tair olhou para a porção de Kalan.
+Tair olhou para a porção de Kalan e desistiu.
 
 — Não.
 
 — Então cala a boca.
 
-Elis comeu depressa. A carne estava salgada demais e ainda assim era uma das melhores coisas que tinham comido naquela semana. Tair insistia que um pouco da água deveria ter sido usada para retirar parte do sal antes do cozimento, enquanto Kalan lembrava que a mesma pessoa havia reclamado do esforço necessário para buscar água naquela manhã.
+Elis comeu depressa. A carne estava salgada demais e ainda assim era uma das melhores coisas que tinham comido naquela semana. Tair insistia que parte da água deveria ter servido para tirar o sal antes do cozimento, e Kalan lembrava que a mesma pessoa reclamara do esforço de buscar água naquela manhã.
 
-Orel estava sentado ao lado de Elis, comendo lentamente e mantendo os olhos no prato. A faixa cobria parte da bochecha e o olho machucado estava quase fechado. Desde que voltaram de Vesna, falara apenas quando alguém perguntava alguma coisa diretamente.
+Orel comia devagar ao lado de Elis, com os olhos no prato, a faixa cobrindo parte da bochecha e o olho machucado quase fechado. Desde que voltaram de Vesna, só falava quando alguém lhe perguntava alguma coisa.
 
 Elis diminuiu o ritmo.
 
-Tair começou a contar como havia encontrado um trabalho temporário para copiar números de recibos numa das cozinhas e passou boa parte da refeição reclamando que as pessoas sabiam cobrar, mas pareciam ofendidas pela ideia de registrar o que haviam cobrado.
+Tair contou que arranjara um trabalho temporário copiando números de recibos numa das cozinhas e passou boa parte da refeição reclamando que as pessoas sabiam cobrar, mas se ofendiam com a ideia de registrar o que haviam cobrado.
 
 — Vessa me entregou quatro folhas diferentes para a mesma semana.
 
@@ -722,9 +642,9 @@ Kalan deixou o prato sobre a mesa.
 
 Tair balançou a cabeça. Elis também. Orel ficou imóvel.
 
-Três batidas vieram em seguida e Kalan levantou, sua primeira reação sendo olhar para a espada. Ele pegou a arma, prendeu a bainha na cintura e caminhou até a porta. Parou antes de abrir, pensou por um instante e escondeu a mão com a espada por detrás da porta. 
+Três batidas vieram em seguida, e Kalan se levantou olhando primeiro para a espada. Prendeu a bainha na cintura, caminhou até a porta e parou antes de abrir. Pensou um instante e escondeu a mão com a espada atrás da porta.
 
-Kalan levou um dedo aos lábios. Nova pancada. Finalmente Kalan abriu.
+Levou um dedo aos lábios. Nova pancada. Finalmente abriu.
 
 Dois guardas estavam do lado de fora. O primeiro olhou para Kalan.
 
@@ -840,7 +760,7 @@ O guarda olhou para ela.
 
 — Então diga.
 
-Elis tentou lembrar. Durante a agressão ninguém havia chamado o garoto pelo nome. Ela conhecia o rosto, conhecia Belan e sabia onde já os vira, mas aquilo não era suficiente.
+Elis tentou lembrar. Durante a agressão ninguém chamara o garoto pelo nome. Ela conhecia o rosto, conhecia Belan e sabia onde já os vira, mas isso não bastava.
 
 Tair se levantou.
 
@@ -884,23 +804,23 @@ Tair engoliu em seco.
 
 — Verifique.
 
-A resposta saiu firme. Kalan aproveitou.
+A resposta saiu firme.
 
-— E os outros três?
+— E os outros três? — perguntou o guarda.
 
-Kalan permaneceu imóvel, olhou para Tair, então arriscou:
+Kalan permaneceu imóvel, olhou para Tair e arriscou:
 
 — Também são Nular.
 
-A expressão do guarda endureceu. O homem olhou novamente para dentro. Orel continuava sentado à mesa, o rosto parcialmente coberto pela faixa de Vesna, um olho inchado e as mãos juntas diante do prato.
+A expressão do guarda endureceu. Ele olhou outra vez para dentro, onde Orel continuava sentado à mesa, com o rosto parcialmente coberto pela faixa de Vesna, um olho inchado e as mãos juntas diante do prato.
 
 — Então temos uma briga entre Nular — disse o segundo.
 
-— Não foi uma briga — respondeu Elis — eles atacaram primeiro. 
+— Não foi briga — respondeu Elis. — Eles atacaram primeiro.
 
 Kalan olhou para ela. Elis apertou os lábios.
 
-O primeiro guarda suspirou. Então o homem apenas respondeu:
+O primeiro guarda suspirou e respondeu apenas:
 
 — Amanhã descobrimos.
 

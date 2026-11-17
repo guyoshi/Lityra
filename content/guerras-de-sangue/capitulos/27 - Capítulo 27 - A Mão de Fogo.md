@@ -30,7 +30,7 @@ O Vendrar atingido pela flecha ainda respirava. Olhou para Rendar como se espera
 
 O homem tentou. Não conseguiu. Rendar deixou-o.
 
-No alto, os sinos continuavam. O toque do cais já havia sido absorvido pelos outros. Não anunciavam mais uma possível invasão. Anunciavam que o inimigo estava dentro. Homens corriam em direção ao Anel Baixo vindos das passagens superiores; outros subiam, levando a notícia de que o Cais dos Zírrios havia sido rompido. Os capitães podiam esconder uma derrota durante algum tempo. Sinos não sabiam mentir com delicadeza.
+No alto, os sinos continuavam. O toque do cais já havia sido absorvido pelos outros. Não anunciavam mais uma possível invasão. Anunciavam que o inimigo estava dentro. Homens corriam em direção ao Anel Baixo vindos das passagens superiores. Outros subiam, levando a notícia de que o Cais dos Zírrios havia sido rompido. Os capitães podiam esconder uma derrota durante algum tempo. Sinos não sabiam mentir com delicadeza.
 
 Rendar olhou para o alto da fortaleza.
 
@@ -314,7 +314,7 @@ Alyra desceu uma escada, atravessou uma galeria e subiu outra. Kaendar havia sid
 
 As criadas haviam partido. Uma arca estava caída junto à cama, roupas espalhadas sobre o chão. Alguém tentara recolher objetos importantes e desistira antes de decidir o que realmente importava. Alyra foi até a parede onde mantinha a espada.
 
-Orionus a entregara muitos ciclos antes, quando ela e Kaelina ainda treinavam sob os olhos de Cal Edran. A espada era simples e bem equilibrada, feita para uma mão que ainda cresceria, sem qualquer função cerimonial. Orionus dissera que uma lâmina não ensinava coragem; ensinava distância. Quem não aprendesse até onde podia alcançar morreria tentando parecer maior.
+Orionus a entregara muitos ciclos antes, quando ela e Kaelina ainda treinavam sob os olhos de Cal Edran. A espada era simples e bem equilibrada, feita para uma mão que ainda cresceria, sem qualquer função cerimonial. Orionus dissera que uma lâmina não ensinava coragem. Ensinava distância. Quem não aprendesse até onde podia alcançar morreria tentando parecer maior.
 
 Alyra retirou a espada dos suportes. A bainha ainda trazia uma pequena marca feita por ela na juventude, quando tentara arrancá-la depressa demais e acertara a borda de pedra. Cal Edran havia mandado que deixasse o risco. Segundo ele, armas que escondiam os erros dos donos acabavam ensinando mentira. Ela prendeu a espada à cintura. Depois abriu o armário de guerra.
 
@@ -352,7 +352,7 @@ Os três homens junto à porta olharam para ele. Alyra virou o rosto devagar.
 
 — O que disse?
 
-— Disse que não. A senhora não deve sair. Há homens procurando por você dentro da fortaleza, e a armadura não muda isso.
+— Disse que não. A senhora não deve sair. Há homens procurando pela senhora dentro da fortaleza, e a armadura não muda isso.
 
 — Muda o que acontece quando encontrarem.
 

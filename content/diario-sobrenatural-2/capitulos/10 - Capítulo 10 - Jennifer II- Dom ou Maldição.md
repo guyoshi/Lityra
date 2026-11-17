@@ -4,7 +4,7 @@ Eu estava de joelhos no chão da sala, brincando com o Ernesto. Ele era o nosso 
 
 Eu fazia carinho no Ernesto, e ele pulou do sofá e subiu as escadas. Eu corri atrás dele, chamando pelo nome com aquela urgência infantil de quem não suporta perder uma coisa de vista nem por cinco segundos.
 
-Quando cheguei ao andar de cima, vi o Ernesto subindo mais um lance de escadas na direção do meu quarto. Eu segui, ainda a chamá-lo, e ao chegar lá, a porta estava fechada. E ele já não estava.
+Quando cheguei ao andar de cima, vi o Ernesto subindo mais um lance de escadas na direção do meu quarto. Eu segui, ainda chamando por ele, e ao chegar lá, a porta estava fechada. E ele já não estava.
 
 Não havia outra direção por onde ele pudesse ter ido. Naquela altura, eu ainda acreditava que o mundo tinha regras fixas e que qualquer coisa fora da regra tinha uma explicação simples, escondida num canto.
 
@@ -14,9 +14,9 @@ O meu quarto estava como sempre: o meu antigo berço no canto, cheio de tralhas,
 
 O silêncio ficou ali, pesado, por minutos longos demais para uma criança. Até que ouvi um som perto do berço. Um ruído pequeno, não de gato. Um ruído de presença.
 
-Eu me aproximei de fininho, e foi aí que o vi.
+Eu me aproximei de fininho, e o vi.
 
-Encostado à parede, agachado no chão, havia um garoto com mais ou menos a minha idade. Não era o Ernesto. Não era um esconderijo brincalhão. Era um menino, e estivera ali o tempo todo.
+Encostado à parede, agachado no chão, havia um garoto com mais ou menos a minha idade. Era um menino, não o Ernesto, e estivera ali o tempo todo.
 
 — Quem é você? — perguntei, e a minha voz saiu menor do que eu queria.
 
@@ -30,7 +30,7 @@ Encostado à parede, agachado no chão, havia um garoto com mais ou menos a minh
 
 — Está de castigo? Cadê seus pais? — perguntei, agachando e sorrindo na frente dele. Eu sorria porque era o que as crianças fazem quando não sabem lidar com o estranho: tentam tornar o estranho normal.
 
-O Matheus levantou a cabeça e acenou, olhando para trás de mim — para quem quer que estivesse na porta.
+O Matheus levantou a cabeça e acenou, olhando para trás de mim, para quem quer que estivesse na porta.
 
 Quando eu me virei, vi um homem e uma mulher parados na entrada do meu quarto.
 
@@ -46,7 +46,7 @@ O homem se abaixou na minha frente e aproximou o rosto do meu, tão perto que eu
 
 Quando eu abri os olhos, ele já não estava lá.
 
-Eu levantei devagar, como se qualquer movimento pudesse chamar de volta alguma coisa, e corri o mais rápido que pude para o andar de baixo. Ouvi os meus pais discutindo mais uma vez, o mesmo tom de sempre, a mesma tristeza com raiva por cima.
+Eu levantei devagar, como se qualquer movimento pudesse chamar de volta alguma coisa, e corri o mais rápido que pude para o andar de baixo. Ouvi os meus pais discutindo mais uma vez, o mesmo tom de sempre, a mesma tristeza com raiva por cima. No sofá, Ernesto estava encolhido, olhando para mim.
 
 — Ernesto? — indaguei, porque havia algo estranho no rosto dele.
 
@@ -78,11 +78,11 @@ Aquilo me assustou de um jeito que eu não sabia nomear. Desde esse dia eu nunca
 
 Na manhã de quarta-feira, a primeira aula do dia era de física. O professor Caetano explicava sobre supernovas, um conceito até bonito: nada é eterno, nem mesmo as estrelas.
 
-— … e quando não há mais fusão nuclear no núcleo estelar, a gravidade vence. A estrela implode, invertendo suas camadas interiores com as exteriores, e então ocorre um dos eventos cósmicos mais avassaladores: a supernova. Alguém sabe qual evento primordial pro universo acontece após uma supernova?
+— … e quando não há mais fusão nuclear no núcleo estelar, a gravidade vence e ocorre a supernova. Alguém sabe o que acontece depois?
 
 — Uma nebulosa surge, professor — respondeu Junior, e eu me virei no impulso para ver a cara dele.
 
-— Excelente, Junior. Uma nebulosa é formada, de onde milhares de novas estrelas podem surgir e o ciclo reiniciar. Tudo neste mundo, meus queridos, possui um início e um fim. Nada é eterno, nem mesmo as estrelas. Mas existe algo de bom no fim. O fim significa um novo começo. A própria vida segue este ciclo. Nascemos, existimos e, no fim, morremos para que outras vidas ocupem nosso lugar.
+— Excelente, Junior. Uma nebulosa é formada, de onde milhares de novas estrelas podem surgir. Tudo neste mundo, meus queridos, possui um início e um fim. Nada é eterno, nem mesmo as estrelas. A própria vida segue este ciclo: nascemos, existimos e morremos para que outras vidas ocupem nosso lugar.
 
 — Mas as pessoas não deixam de existir exatamente. Apenas seus corpos morrem, não é? — perguntou Célia, na fileira da frente, com aquela confiança de quem encontrou uma frase pronta.
 
@@ -90,7 +90,7 @@ Na manhã de quarta-feira, a primeira aula do dia era de física. O professor Ca
 
 — É claro que existe. Temos nosso espírito — insistiu ela.
 
-— Espírito? — o professor indagou, forçando um sorriso. — Bom, não vamos entrar em assuntos religiosos por aqui, mas vou explicar o que a ciência diz sobre a vida. Por milhares de anos, os maiores cientistas estiveram atrás do que seria esse espírito, ou alma, o que nos dá a consciência. E eles chegaram a uma conclusão: ela simplesmente não existe. A sua consciência não passa de um aglomerado de sentidos trabalhando todos em conjunto. E com isso você tem a ilusão do Eu, quando na verdade você não passa de um animal como qualquer outro, com a única diferença de possuir um nível de conscientização maior devido ao seu desenvolvimento cerebral.
+— Espírito? — o professor indagou, forçando um sorriso. — Não vamos entrar em assuntos religiosos por aqui, mas vou explicar o que a ciência diz. Por milhares de anos, os maiores cientistas procuraram esse espírito, ou alma, o que nos dá a consciência, e chegaram a uma conclusão: ela simplesmente não existe. A sua consciência não passa de um aglomerado de sentidos trabalhando em conjunto, e você não passa de um animal como qualquer outro, só com o cérebro mais desenvolvido.
 
 — Está dizendo que espíritos não existem? — Junior perguntou, com um sorrisinho que eu reconheci: o sorrisinho de quem cutuca o mundo para ver se o mundo morde.
 
@@ -134,7 +134,7 @@ A sala inteira virou para mim. O professor Caetano fechou a cara no mesmo instan
 
 — Trouxa. Mas não sou eu quem está te apelidando. São suas atitudes que me mostraram isso.
 
-— É por essa razão que as escolas desse país são uma droga! — eu gritei, levantando. — As pessoas não possuem opiniões, os professores não têm carácter, tudo é uma merda!
+— É por essa razão que as escolas desse país são uma droga! — eu gritei, levantando. — As pessoas não possuem opiniões, os professores não têm caráter, tudo é uma merda!
 
 — Jennifer, já chega! Por favor, se retire da minha aula — ele apontou para a porta.
 
@@ -144,9 +144,9 @@ Ao lado dele estava o casal. O mesmo homem e a mesma mulher que eu tinha visto n
 
 A turma toda me encarava, menos Junior. Junior olhava fixo para a frente, mas os olhos não estavam no professor. Estavam nas figuras ao lado dele. Os punhos dele estavam cerrados.
 
-Eu saí da sala. Enquanto eu saía, o casal virou a cabeça, me acompanhando até a porta fechar. Não era curiosidade. Era outra coisa. Era espera.
+Eu saí da sala. Enquanto eu saía, o casal virou a cabeça, me acompanhando até a porta fechar. Curiosidade seria pouco. Eles esperavam.
 
-Meu pai foi chamado na escola por causa do meu “comportamento fora do normal”. Ele chegou rápido, preocupado, sem nem saber direito o motivo. Quando entrou e me viu, correu e me abraçou como se eu fosse cair.
+Meu pai foi chamado na escola por causa do meu “comportamento fora do normal”. Saiu do trabalho para vir me buscar. Chegou com a camisa amarrotada, preocupado, e me abraçou ali mesmo, na frente da diretora. Fiquei com vergonha, mas não soltei.
 
 — Filha, o que houve? Por que disse aquilo para o professor? — ele perguntou.
 
@@ -164,7 +164,7 @@ Meu pai pegou no meu ombro e sorriu, um sorriso cansado de quem já entendeu cer
 
 Depois de ele assinar a reclamação na diretoria, saímos e seguimos para casa. Na rua, meu pai retomou o assunto com a naturalidade de quem tenta ensinar sem ferir.
 
-— Jennifer… você disse que as pessoas são horríveis. Diga-me uma novidade. Todo mundo sabe disso. As pessoas são egocêntricas, não estão nem aí para os outros. Se seu professor for tão horrível como você diz, eu lhe aconselho a não o ouvir mais. Apenas cerque-se dos melhores. São poucos os empáticos… os que estendem a mão quando você precisa. Aquele amigo seu lá da nossa rua, ele foi pra aula hoje?
+— Jennifer… você disse que as pessoas são horríveis. Me diga uma novidade. Todo mundo sabe disso. As pessoas são egocêntricas, não estão nem aí para os outros. Se seu professor for tão horrível como você diz, eu te aconselho a não ouvi-lo mais. Apenas cerque-se dos melhores. São poucos os empáticos… os que estendem a mão quando você precisa. Aquele amigo seu lá da nossa rua, ele foi pra aula hoje?
 
 — O Junior? Sim. Mas ele também é como todos os outros. Só pensa em si.
 
@@ -290,7 +290,7 @@ Ficamos assim quase dez minutos. Pedi, mais de uma vez, que se houvesse alguém 
 
 — Não. Eu jamais apareceria por lá. Eu matei a neta dela.
 
-— Para de falar assim, cara. Você não matou ninguém. Já conversamos sobre isso. Junior, me escute: vá atrás de alguém que consiga te ajudar. Porque coisa boa não é.
+— Para de falar assim, cara. Eu sei que você puxou o gatilho. Também sei quem te levou até aquele ponto. Já conversamos sobre isso. Junior, me escute: vá atrás de alguém que consiga te ajudar. Porque coisa boa não é.
 
 Ele assentiu e olhou para cima, para a árvore.
 
@@ -304,13 +304,15 @@ Ele me olhou e, instintivamente, nos abraçamos. Eu não tinha o hábito de abra
 
 À noite meu pai foi até o meu quarto e disse que precisava passar alguns dias fora por trabalho. Ele tinha finalmente saído do supermercado e agora era coordenador de uma loja de móveis no centro da cidade, e às vezes a empresa o mandava para outras unidades para “ajeitar” o resto. Ele não gostava de me deixar sozinha. E ligava pelo menos três vezes por dia quando estava fora.
 
-Quando ele saiu, eu liguei o computador para estudar um pouco. Me sentei na cadeira, peguei o mouse e vi um papel debaixo dele. Puxei. Era o telefone da Glenda, a menina que eu conheci no dia anterior na visita ao Vinícius na prisão.
+Quando ele saiu, fiquei um tempo na janela vendo o carro desaparecer na esquina. Papai ligava várias vezes por dia quando viajava, e eu vivia reclamando. Da última vez, perguntou três vezes se eu tinha comido. Achei irritante na hora. Depois me peguei esperando a próxima ligação.
+
+Liguei o computador para estudar um pouco. Quando peguei o mouse, encontrei um papel debaixo dele: o telefone da Glenda, a menina que conheci no dia anterior na visita ao Vinícius na prisão.
 
 Glenda tinha sido uma completa idiota… mas podia ajudar. Ela disse que tinha uma semana para ter a matéria. Será que eu conseguia contar uma história convincente a ponto de uma publicação surtir efeito na condenação do Vinícius?
 
 Não. Eu não faria isso. Mentir faria a morte da Kelly ser em vão. Eles teriam a verdade. Eu não precisava dizer que Junior puxou o gatilho… mas todo o resto, sim. Chega de esconder.
 
-Peguei o telefone e liguei.
+Peguei o celular que meu pai tinha me dado no começo do ano e liguei.
 
 — Alô! — disse a voz de Glenda.
 
@@ -378,6 +380,6 @@ Eu não sabia por que estavam agindo assim. Eu só sabia uma coisa, com a certez
 
 Junior estava certo.
 
-O meu dom — ou maldição, como preferir — não era apenas ver e ouvir.
+Os mortos tinham imitado o meu movimento. Até então, eu sempre fora a garota que precisava fugir deles. Fiquei com vontade de correr para contar ao meu pai, só para ver a cara dele. Depois lembrei que não podia explicar nem metade da história sem assustá-lo.
 
-Talvez eu pudesse… controlar.
+Levantei a mão outra vez, devagar. Eles levantaram também. Talvez eu conseguisse fazer mais do que ver e ouvir.

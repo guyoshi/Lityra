@@ -1,24 +1,28 @@
 “Eu já estou morta.”
 
-Eu quase caí da cadeira. A TV chiou mais alto nesse momento, como se tivesse reagido junto, e eu olhei pra tela tremida, esperando encontrar ali uma explicação. Claro que imaginei que fosse brincadeira. Mortos não usam MSN. Mortos não mandam poema. Mortos não chamam alguém de “fofo”.
+Fiquei olhando para o monitor. Li de novo. “Eu já estou morta.”
 
-Mas o meu corpo não concordou com essa lógica simples. Meu corpo sempre se apavora primeiro.
+A minha primeira reação foi procurar a câmera escondida. Não tinha. A segunda foi pensar que algum moleque da escola tinha descoberto meu blog e resolvera brincar comigo. Só podia ser isso. Fantasma com MSN? O próximo passo era o Drácula pedir para adicionar minha mãe aos contatos.
+
+Só que eu conhecia fantasmas. Esse era o pequeno detalhe que estragava todas as explicações normais. E a TV resolveu chiar bem naquela hora, porque até os eletrodomésticos queriam participar da conversa.
+
+Fiquei com a mão parada no teclado. Eu gostava de conversar com a Mel. Muito mais do que tinha coragem de admitir. E, se ela estivesse falando a verdade, não fazia ideia do que responder.
 
 “Entao vce nao ta mais viva?”, eu digitei, e apaguei, e digitei de novo, porque o jeito como eu escrevia parecia importante demais.
 
 “Naum. Eh estranho, naum eh.”
 
-Eu podia ter dito “é estranho pra caramba”, mas eu queria parecer calmo. Eu queria parecer alguém que merecia conversa.
+Pensei em responder “estranho pra caramba”. Apaguei. Não queria parecer um idiota logo na primeira conversa séria com a garota. O problema é que eu era um idiota, então a margem de manobra era pequena.
 
 “Nem tanto”, eu menti.
 
 “Que bom que não achou. A maioria abandona a conversa quando falo isso.”
 
-Ela não colocou “rsrs”. Ela não colocou carinha. Ela escreveu seco, como se estivesse testando uma reação.
+Ela não colocou “rsrs” nem carinha. Escreveu seco, como se estivesse testando uma reação.
 
 “Eu nunca faria isso.”
 
-Ela demorou alguns segundos, e os segundos no MSN têm um peso diferente. Não é silêncio normal. É silêncio com o teu rosto iluminado pelo monitor, com a tua cabeça inventando mil possibilidades.
+Fiquei esperando a resposta. O “digitando...” apareceu, sumiu e apareceu outra vez. Nunca pensei que três pontinhos fossem capazes de me deixar tão nervoso.
 
 “Coloca sua foto pra eu te conhecer”, eu pedi, tentando puxar o assunto de volta pro normal.
 
@@ -34,7 +38,7 @@ A foto chegou. Eu abri. Família em churrasco. Um homem moreno sorridente segura
 
 Meu príncipe.
 
-Nenhuma garota tinha me chamado disso antes. E eu senti um calor idiota no peito, aquele calor de quem está faminto de afeto e encontra um pedaço de pão.
+Nenhuma garota tinha me chamado de príncipe antes. Bom, minha avó chamava, mas acho que não conta. Sorri feito bobo para o monitor.
 
 “Me chamando de meu principe, vai me obrigar a arrumar um trabalho.”
 
@@ -44,25 +48,25 @@ Nenhuma garota tinha me chamado disso antes. E eu senti um calor idiota no peito
 
 “Idiota. Vc eh fofo assim mesmo, ou eh soh pq eh comigo?”
 
-Eu ri sozinho, mas não foi um riso inteiro. Foi mais um sopro pelo nariz, porque eu ainda estava com aquela palavra presa no fundo da cabeça: morta.
+Eu ri sozinho, mas só um sopro pelo nariz, porque eu ainda estava com aquela palavra presa no fundo da cabeça: morta.
 
 “Vce eh a exceção.”
 
 “A exceção? O q quer dizer com isso?”
 
-Eu hesitei. Eu não gostava de falar de mim. Eu gostava de falar como se eu fosse um personagem. Um narrador engraçado. Um… Starman.
+Hesitei. Fazer piada era fácil. Contar para uma garota o que eu sentia era tão simples quanto escalar o Everest de chinelo. Ainda bem que ela não podia ver a minha cara.
 
 “Naum costumo conversar mto com as pessoas. Mas com vce, Mel Jones, a cvsa eh mto boa.”
 
 “Gracinha. Eu tbm sinto isso com vce. Ninguem me entende nesse mundo. Ninguem me ouve. A não ser vce.”
 
-Ela escreveu isso como quem coloca a mão no teu ombro, e eu senti uma coisa estranha: era bom… mas era bom do jeito perigoso. Bom do tipo não sai mais daqui.
+Ela escreveu isso como quem coloca a mão no ombro da gente, e eu senti uma coisa estranha: era bom… mas era bom do jeito perigoso. Bom do tipo não sai mais daqui.
 
 “Naum te ouvem pq vce eh um fantasma?”, eu brinquei, tentando aliviar.
 
 “Naum, besta. Pq nunca consigo fazelos me ouvir.”
 
-“Como eh que eles podem fazer isso? Em algumas horas conversando contigo, jah estou cativado.”
+“Como eh que eles podem fazer isso? Em algumas horas conversando com vc, jah estou cativado.”
 
 “Cativado? Rsrs, serio que t cativei?”
 
@@ -70,7 +74,7 @@ Ela escreveu isso como quem coloca a mão no teu ombro, e eu senti uma coisa est
 
 “Fala a verdade.”
 
-Veio o primeiro empurrãozinho. Não foi agressivo. Foi suave. Foi alguém encostando um dedo no teu queixo e virando teu rosto para onde ela quer.
+Pronto. Ela tinha percebido que eu estava gostando da conversa. Se descobrisse que eu estava sorrindo para o monitor havia uns dez minutos, podia mandar internar.
 
 “Droga. Vce me cativou muito forte.”
 
@@ -94,7 +98,7 @@ Eu fiquei olhando para a tela. Aquela pergunta parecia inocente… mas parecia t
 
 Eu demorei para enviar. Quando enviei, fui ao banheiro. A água do lavatório estava fria e eu lavei o rosto como se quisesse apagar a conversa, mas a conversa estava dentro.
 
-Eram quase cinco da manhã. Eu tinha passado praticamente a noite inteira ali, e só então lembrei da conta, do computador, da comida, de tudo. Pelo menos, depois da meia-noite, a internet era “grátis”, e isso virava desculpa pra muita coisa. A conexão discada fazia aquele barulho de fax possuído, e eu sempre tinha medo de acordar meus pais — o medo do sobrenatural era um tipo de medo; o medo de decepcionar os meus pais era outro.
+Eram quase cinco da manhã. Eu tinha passado praticamente a noite inteira ali, e só então lembrei da conta, do computador, da comida, de tudo. Pelo menos, depois da meia-noite, a internet era “grátis”, e isso virava desculpa pra muita coisa. A conexão discada fazia aquele barulho de fax possuído, e eu sempre tinha medo de acordar meus pais. O medo do sobrenatural era um tipo de medo, o de decepcionar os meus pais era outro.
 
 Quando voltei pro quarto, Mel ainda não tinha respondido. Eu cliquei no botão de chamar atenção, aquele que fazia a janela vibrar, como se eu estivesse dando um leve sacode no ombro dela.
 
@@ -108,7 +112,7 @@ Ela apareceu um minuto depois.
 
 Ela ficou offline.
 
-Eu desliguei o computador. A luz do gabinete demorou um segundo a apagar, e tive a sensação de que algo ainda estava ligado mesmo com tudo desligado, igual quando a TV fica chiando mesmo depois que tu baixa o volume.
+Eu desliguei o computador. A luz do gabinete demorou um segundo a apagar, e tive a sensação de que algo ainda estava ligado mesmo com tudo desligado, igual quando a TV fica chiando mesmo depois que a gente baixa o volume.
 
 Deitei. Encostei a cabeça no travesseiro. Eu estava gostando de conversar com ela. Ela fazia eu sentir que eu era… alguém. Que eu existia pra alguém. Mas aquela frase não largava o fundo do meu cérebro: morta.
 
@@ -137,11 +141,13 @@ Eu ia responder, mas a verdade era grande demais pra caber na sala de aula.
 
 — Ahm… desculpe. Confundi seu nome, cara.
 
-— Filipo com Junior? — ele repetiu, indignado, e eu dei uma risada curta.
+— Filipo com Junior? — ele repetiu. — Quer que eu escreva o nome num crachá? Posso cobrar barato.
+
+— Se vier com manual de instruções, eu aceito — respondi. Filipo riu. Foi a primeira vez que o vi fazer uma piada sem parecer que alguém tinha obrigado.
 
 Quando descemos pro intervalo, ele me puxou de canto.
 
-— Li seu blog.
+— Fiquei pensando no seu blog.
 
 Pronto. Era agora. Agora ele ia dizer que eu era um esquisito e que meu texto era ridículo.
 
@@ -151,29 +157,35 @@ Pronto. Era agora. Agora ele ia dizer que eu era um esquisito e que meu texto er
 
 Meu peito apertou. Eu fiquei dividido entre a vontade de despejar tudo e a vontade de fingir que eu era só um personagem. Starman era isso: uma máscara que eu podia vestir.
 
-— Bom — eu disse. — Vamos lá. Até ano passado eu vivia em uma cidade chamada Vila Velha. Morei naquela cidade por três anos. E então nos últimos dias, algumas coisas estranhas aconteceram. Eu e meu melhor amigo começamos a ver algumas criaturas pela noite.
+— No ano passado eu morava em Vila Velha — comecei. — Tinha um amigo, Junior, que era praticamente meu irmão. Aí conhecemos a Kelly e a Jennifer. Antes disso, minha maior preocupação era tirar nota boa. Mentira, era tirar nota suficiente para não apanhar da minha mãe.
 
-— Ver o quê? — Filipo arregalou os olhos. — Criaturas?
+— E as criaturas? — Filipo perguntou.
 
-— Sim. Um tipo de cachorro grande e negro, uma senhora que não podíamos olhar direto nos olhos… dentre outras.
+— Você não quer começar pela parte normal? Uma aula de Matemática, talvez?
 
-Ele franziu o cenho, curioso demais pra parecer cético.
+— A parte normal eu já li no blog.
 
-— E por sinal o nome do seu amigo era Junior? Por isso me chamou desse nome?
+Contei do cachorro negro, da senhora em quem não podíamos olhar diretamente e da casa dos Marques. Falei dos espíritos daquela família, presos havia mais de trinta anos, e dos seis demônios dos sentidos. Filipo não me interrompeu, até eu mencionar que eram os Elos, objetos ligados aos mortos, que mantinham os demônios ali.
 
-— Exato. Eu e Junior também fizemos amizade com mais duas meninas, Kelly, a menina nova, e Jennifer, a menina que via espíritos.
+— Vocês destruíram todos? — perguntou.
 
-— Jennifer conseguia ver os espíritos? Assim… normalmente?
+— Os Elos, sim. O problema era o Agouro, a entidade que mandava neles.
 
-— Sim. O tempo todo, em todos os lugares.
+— E o Junior?
 
-Eu falei sem parar, como se eu precisasse colocar aquilo pra fora antes que a coragem morresse.
+A pergunta me pegou desprevenido. Olhei para o pátio. Um grupo de garotos estava jogando bola, brigando por um gol que ninguém tinha visto.
 
-— Junto com a gente também estava a irmã de Kelly e o namorado dela. Descobrimos que as criaturas na verdade eram espíritos de uma família morta há mais de trinta anos, possuídos por seis demônios, conhecidos como demônios dos sentidos, que estavam sob controle de uma entidade que eu chamei de… Entidade… mas depois descobrimos ser conhecida como Agouro.
+— Aconteceu uma coisa com ele. E com a Kelly. Não quero falar disso.
 
-Vi que o Filipo estava prestando atenção de verdade, com aquela expressão de quem quer acreditar e ao mesmo tempo tem medo.
+— Tudo bem. — Filipo esperou um pouco. — Mas a Jennifer, a que você disse que via espíritos... ela conseguia vê-los o tempo todo? Mesmo quando ninguém mais percebia nada?
 
-— Então descobrimos que, pra derrotar esses demônios e o Agouro, precisávamos destruir os Elos… objetos que prendiam eles a esse mundo. E nós fizemos isso. E quando íamos derrotar o Agouro…
+— Conseguia. No ônibus, na escola, em casa. Uma vez achei que ela ia me cobrar por fazer amizade com tanta gente morta.
+
+Ele quase sorriu. Depois ficou sério outra vez.
+
+— Isso não é comum — murmurou.
+
+— Bem-vindo ao clube dos problemas incomuns.
 
 — Peraí… essa história é a do seu blog? Quer dizer… você realmente é o Starman? — ele perguntou, quase sussurrando.
 
@@ -199,9 +211,9 @@ Eu ri. Alto demais. Forçado demais.
 
 Filipo riu também, mas foi um riso esquisito, como se ele não soubesse onde colocar as mãos.
 
-— Não vou roubar — ele disse.
+— Pode ficar tranquilo. Se eu roubar, vou corrigir os erros de português antes de publicar — ele respondeu, com a cara mais séria do mundo.
 
-E aí ele soltou uma frase que eu não esperava, de coisa que cresceu ouvindo.
+E aí ele soltou uma frase que eu não esperava, dessas que a gente cresce ouvindo.
 
 — Sabe… não é fácil lidar com essas entidades. Quando elas querem algo, vão até o fim. E o pior… elas nunca estão sozinhas.
 
@@ -211,13 +223,13 @@ E aí ele soltou uma frase que eu não esperava, de coisa que cresceu ouvindo.
 
 Alvorada.
 
-A palavra ficou presa na minha cabeça. Eu já tinha ouvido em algum lugar. Talvez no blog. Talvez em fórum. Talvez naquela sensação estranha de que eu estava sendo puxado por algo que eu ainda não via.
+A palavra ficou presa na minha cabeça. Eu já tinha ouvido em algum lugar. Talvez no blog, talvez em fórum, talvez naquela sensação estranha de que eu estava sendo puxado por algo que eu ainda não via.
 
 — Eu também tenho uma história pra te contar — Filipo continuou. — Não é minha, na verdade. Meu pai disse que meu avô foi vítima de uma entidade. E que essa coisa foi o gatilho da morte dele.
 
 — Isso é sério? Ou é história?
 
-— Não sei ao certo. Em Alvorada Alegre tinha muita coisa… e as histórias nascem de algum lugar. Acontecimento real, ou cabeça de alguém. É impossível saber. Na verdade… eu nunca soube como meu avô morreu, então… pode ser que seja verdade.
+— Sei o que meu pai contou. Meu avô morreu depois de lidar com uma entidade. Não vi tudo, e meu pai detesta falar daquela manhã. Às vezes eu acho que tem medo de que eu faça as mesmas perguntas.
 
 — Alvorada Alegre? — eu repeti, e o nome encaixou numa peça invisível dentro de mim. — Eu já ouvi isso.
 
@@ -227,15 +239,15 @@ A palavra ficou presa na minha cabeça. Eu já tinha ouvido em algum lugar. Talv
 
 Filipo sorriu, mas o sorriso dele não fechou. Ele desfocou o olhar por um tempo, como se visse uma lembrança antiga.
 
-— Preciso ir ao banheiro — ele disse, se levantou, e saiu no meio da multidão.
+— Preciso ir ao banheiro — ele disse, e saiu no meio da multidão.
 
 Aquilo ficou comigo o resto do dia. Pensei que talvez eu devesse ligar pra Jennifer, saber se ela estava bem, mas eu nem tinha coragem de ouvir a voz dela e acordar o passado. À tarde, eu não consegui estudar. Almocei, subi pro quarto e liguei o computador só pra mandar uma mensagem rápida pra Mel, porque eu tinha medo da conta e medo de mim mesmo.
 
-“Te vejo hoje a noite.”
+“Te vejo hoje à noite.”
 
 Fechei. Desconectei. Deitei. Esperei o relógio virar o que eu precisava que virasse.
 
-À noite, meus pais chegaram do trabalho. Jantamos ovos mexidos. Eu insisti para dividir igual, porque eu não suportava mais ver eles a fingirem que não estavam com menos fome.
+À noite, meus pais chegaram do trabalho. Jantamos ovos mexidos. Eu insisti para dividir igual, porque eu não suportava mais ver eles fingirem que não estavam com menos fome.
 
 Quando deu meia-noite, eu já estava na frente do computador. A TV chiava ao fundo, imagem tremida, e a luz do gabinete piscava.
 
@@ -251,7 +263,7 @@ Eu não tinha falado de Kelly. Não tinha dito o nome. Não tinha dito nada.
 
 “Boa noite”, eu digitei, devagar. “Por que sente muito?”
 
-O status dela estava “ocupado”. Fiquei olhando aquilo; “ocupado” parecia um aviso. A televisão estalou uma interferência, e por um segundo eu juro que ouvi meu nome no meio do chiado, mas era só a minha cabeça fazendo o que sempre faz: me trair quando a luz fica baixa.
+O status dela estava “ocupado”. Fiquei olhando aquilo. “Ocupado” parecia um aviso. A televisão estalou uma interferência, e por um segundo eu juro que ouvi meu nome no meio do chiado, mas era só a minha cabeça fazendo o que sempre faz: me trair quando a luz fica baixa.
 
 Então apareceu: “Mel Jones está escrevendo uma mensagem”.
 
@@ -273,8 +285,6 @@ E, como se ela soubesse que eu estava entrando num buraco, ela mudou o assunto c
 
 “Como foi seu dia, principe?”
 
-Era como se ela colocasse um cobertor em cima de mim enquanto me arrastava pro lugar que ela queria.
-
 “Foi chato, minha princesa. E o seu?”
 
 “Tedioso, longe de meu príncipe. Mas fiz alguns desenhos hoje, depois te mando.”
@@ -293,7 +303,7 @@ Antes que eu pudesse responder, o link chegou.
 
 David Bowie — Starman.
 
-Aquilo me atingiu, porque “Starman” não era só um codinome. Era a minha tentativa de ser outra coisa, alguém que não tinha culpa, alguém que podia contar a história sem ter sido esmagado por ela. E agora uma garota estranha, supostamente de uma cidade estranha, supostamente morta, estava enfiando o dedo exatamente nessa máscara.
+Aquilo me atingiu. “Starman” era a minha tentativa de ser outra coisa, alguém que não tinha culpa, alguém que podia contar a história sem ter sido esmagado por ela. E agora uma garota estranha, de uma cidade estranha, que dizia estar morta, estava enfiando o dedo exatamente nessa máscara.
 
 “Feche os olhos, relaxe, ouca e se desligue do mundo. Qdo a musica terminar, volte aqui para continuarmos.”
 
@@ -303,9 +313,7 @@ Eu devia ter estranhado mais. Devia ter perguntado como ela conhecia o meu apeli
 
 Eu cliquei no play. O som saiu baixo, e eu aumentei. A voz do Bowie entrou nos meus ouvidos como se abrisse uma janela num quarto abafado. Eu fechei os olhos, encostei as costas na cadeira, e tentei fazer o que ela pediu: desligar do mundo.
 
-E foi aí que aconteceu a parte mais perigosa.
-
-Porque a música falava de um alguém lá em cima, chamando, e eu senti como se aquele “alguém” fosse a Mel, apontando para um lugar onde “o mundo não dói tanto”. Como se fosse possível escapar. Como se existisse mesmo um “homem nas estrelas”, ou qualquer coisa assim, prometendo que não era só isto.
+A música falava de um alguém lá em cima, chamando, e eu senti como se aquele “alguém” fosse a Mel, apontando para um lugar onde “o mundo não dói tanto”.
 
 Quando a música terminou, eu voltei pro Messenger com um vazio bom, quase confortável.
 
@@ -325,7 +333,7 @@ Ela tinha dito “algo horrível” como se conhecesse o meu conceito de horrív
 
 Um álbum pra lembrar de mim.
 
-Aquilo parecia romântico. Mas tinha uma sombra, porque lembrar dela era lembrar de alguém que dizia estar morta — e, ainda assim, me puxava como se estivesse viva demais.
+Aquilo parecia romântico. Mas tinha uma sombra, porque lembrar dela era lembrar de alguém que dizia estar morta e, ainda assim, me puxava como se estivesse viva demais.
 
 A conversa durou mais três horas. Quando ela disse que estava com sono e que ia dormir, veio uma tristeza boba, quase infantil, como se eu estivesse perdendo o único lugar onde eu cabia.
 
@@ -339,7 +347,7 @@ Levantei, encostei a cama na mesa do computador, liguei o fone no gabinete, e co
 
 Adormeci assim.
 
-Durante a noite, acordei assustado com a sensação de algo ter encostado no meu rosto. Sentei na cama, tirei os fones — que já não tocavam mais nada — e peguei minha bomba ao lado, puxando ar como se o ar tivesse acabado no mundo. Minha bexiga estava gritando, então levantei e fui pro banheiro.
+Durante a noite, acordei assustado com a sensação de algo ter encostado no meu rosto. Sentei na cama, tirei os fones, que já não tocavam mais nada, e peguei minha bombinha ao lado, puxando ar como se o ar tivesse acabado no mundo. Minha bexiga estava gritando, então levantei e fui pro banheiro.
 
 O vento lá fora estava forte. A árvore do lado de fora da janela sacudia como se quisesse arrancar a si mesma do chão.
 
@@ -351,11 +359,11 @@ O vaso estava cheio. Não de sujeira. De larvas. Centenas. Cobriam a água intei
 
 — Mas que droga… o que foi que minha mãe jogou dessa vez no vaso? — eu resmunguei, com raiva nervosa, porque raiva é a forma adulta do pânico.
 
-Da última vez ela tinha jogado sopa estragada no vaso e esquecido de dar descarga. O dia estava quente e, quando eu fui ao banheiro à noite, tinha mosca pra todo lado. Eu dei bronca nela, porque é claro que eu dei bronca — eu precisava descontar em alguma coisa que não fosse demônio, fantasma ou culpa.
+Da última vez ela tinha jogado sopa estragada no vaso e esquecido a descarga, e eu dei bronca, porque precisava descontar em alguma coisa que não fosse demônio, fantasma ou culpa.
 
-Minha mãe era esquecida. Tinha TDAH. Eu também tinha. Herdar isso virou a nossa piada privada: eu não herdei os olhos dela nem o físico do meu pai; herdei a distração e a altura. A loteria da vida não paga prêmio pra todo mundo.
+Minha mãe era esquecida, vivia no mundo da lua. Eu também. Herdar isso virou a nossa piada privada: eu não herdei os olhos dela nem o físico do meu pai: herdei a distração e a altura. A loteria da vida não paga prêmio pra todo mundo.
 
-Dei descarga, vendo as larvas descerem num redemoinho nojento, e quase pensei pronto, resolvido, porque a minha cabeça ainda insistia em fingir que existe botão de “consertar” pra tudo. Mijei, enfim, e fui lavar as mãos.
+Dei descarga, vendo as larvas descerem num redemoinho nojento, e quase pensei: pronto, resolvido, porque a minha cabeça ainda insistia em fingir que existe botão de “consertar” pra tudo. Mijei, enfim, e fui lavar as mãos.
 
 Foi quando senti uma coisa gosmenta cair na minha pele.
 
@@ -389,32 +397,28 @@ O título apareceu, sem enfeite:
 
 E abaixo vinha o texto, escrito com vontade de me deixar doente:
 
-“Cara-de-Larva. Os habitantes de Alvorada Alegre contavam a história de uma criatura conhecida como Cara-de-Larva.
+“Cara-de-Larva.
 
-A lenda diz que um homem busca aterrorizar as pessoas com medos profundos e devora suas almas inteiras. Vou lhes contar aqui o relato de um sobrevivente. Um usuário anônimo que vamos chamar de João que passou por uma experiência macabra com esse ser. Mas preparem-se, o que vão ler abaixo pode fazê-los ter pesadelos a noite.
+Os moradores de Alvorada Alegre contavam que uma criatura atacava as pessoas usando os seus medos e lhes devorava as almas. O relato publicado no fórum vinha de um rapaz identificado apenas como João.
 
-João diz que vivia em Alvorada e sempre ouviu as lendas da cidade, mas nunca tinha acreditado muito. Até um dia em que sua irmãzinha desapareceu. A garota brincava com outros colegas na rua, e foi buscar uma bola que caiu, na floresta ao lado de sua casa. João e outros garotos ouviram um grito, e quando correram até a floresta, encontraram rastros de sangue, a bola com a marca sangrenta da mão da garota e estranhamento uma trilha de larvas espalhadas pela região.
+A irmã mais nova dele brincava na rua quando a bola caiu na floresta. A menina foi buscá-la e não voltou. João e os amigos ouviram um grito. Encontraram sangue nas folhas, a marca de uma mão pequena na bola e uma trilha de larvas que desaparecia entre as árvores.”
 
-João se desesperou e saiu a procura da irmã. Você pode perguntar por que ele não chamou a polícia, mas não havia polícia em Alvorada. Era uma cidade pequena. Eles então percorreram a floresta toda procurando pela garota até que, seguindo algumas trilhas de larvas, eles encontrassem um pequeno galpão isolado.
+Parei de ler. A televisão chiou atrás de mim. Olhei para o banheiro, onde tinha acabado de ver centenas daquelas coisas caindo da torneira. Resolvi desligar a TV e voltei para a página.
 
-Lá dentro, João descreve que viu coisas macabras, que jamais sonhou ver na vida. Logo na entrada, havia um dedo humano que ele imediatamente viu não ser de sua irmã. A porta estava emperrada, então eles tiveram de arrombá-la para conseguir entrar.
+“João não chamou a polícia. Segundo ele, a cidade não tinha uma delegacia que pudesse ajudá-los. Procurou pela irmã com os outros garotos até encontrarem um galpão afastado. Havia um dedo humano junto à entrada. A porta emperrara, e eles precisaram arrombá-la.
 
-Ao dar seus primeiros passos, ele se separou com uma criatura peluda e negra escondida em um canto. Parecida com um gato, mas grande e com olhos totalmente brancos. A princípio achavam que o animal tinha pegado a garota, mas então ouviram um som vindo dos fundos do galpão.
+Lá dentro encontraram ferramentas enferrujadas, facões, machados e armários muito antigos. Uma criatura peluda, negra, do tamanho de um gato enorme e de olhos completamente brancos, estava encolhida num canto. Dois garotos ficaram vigiando o animal. João e outros dois seguiram um barulho vindo dos fundos.”
 
-Enquanto dois garotos ficaram de olho no animal, João e os outros dois foram ver do que se tratava o barulho. O galpão estava repleto de armários velhos que pareciam ser de outro século, além de ferramentas enferrujadas e empoeiradas, muitas delas sendo objetos cortantes como machados e facões.
+Eu aumentei o brilho do monitor. Queria achar a parte em que ele dizia que era uma brincadeira de mau gosto. Em vez disso, o relato continuava descrevendo o galpão. Li a frase sobre o armário duas vezes. Havia uma foto pequena da floresta, sem nada que ajudasse a identificar o lugar.
 
-João diz que apontou a lanterna para o chão, e viu que havia um caminho de larvas que os guiava até atrás de um armário, ao fundo do galpão. Quando ele e os colegas olharam atrás do armário, eles viram um ser alto nu, com cabelos sujos e colados no rosto, uma barriga enorme com buracos de onde larvas caíam.
+“Uma trilha de larvas desaparecia atrás de um armário. Quando olharam, viram um homem alto e nu, de cabelos sujos e grudados no rosto. Tinha a barriga aberta em vários pontos, e larvas caíam da pele. Onde deveria haver um rosto, havia uma massa de insetos empurrando uns aos outros.
 
-E sua face estava também coberto pelos insetos, os quais empurravam uns aos outros onde deveria haver um rosto no ser. Aquele era o Cara-de-Larva.
+Um dos meninos foi agarrado. João descreveu alguma coisa saindo do rosto da criatura e devorando o garoto. Outro companheiro também foi apanhado, mas João conseguiu fugir. Quando alcançou o exterior, os dois meninos que tinham ficado com o animal desapareceram. No meio das árvores, João ainda viu a silhueta de um ser com chifres.
 
-João disse que os dois colegas que o homem agarrou um de seus colegas, e então algo surgiu de dentro das larvas em seu rosto, e consumiu o rapaz. O outro garoto também foi pego, mas João conseguiu fugir.
+Ele correu até casa, chamando pelos pais. Ninguém respondeu. As ruas estavam vazias. Para João, o Cara-de-Larva tinha levado sua irmã, seus amigos e todos os habitantes de Alvorada Alegre. Ele dizia ter sido o único sobrevivente.”
 
-Quando chegou do lado de fora, gritou para os garotos para que corressem, mas enquanto corria, os outros garotos sumiram. João disse que se lembra apenas de ver um ser com chifres no meio das árvores enquanto corria.
+Olhei para a data do relato. A página estava velha, cheia de links que já não abriam. Não havia assinatura verdadeira, nem indicação de onde aquele João tinha ido parar. Tentei clicar no nome de usuário e recebi uma mensagem de erro.
 
-João, ao chegar em casa, tentou contar para seus pais o que tinha acontecido, mas ao chegar na cidade, ninguém o respondeu. Tudo estava mais silencioso que o normal.
+A cidade inteira tinha sumido, segundo um desconhecido da internet. Eu devia rir da história. Só que as larvas na minha pia eram reais demais para achar graça.
 
-João não sabia, mas a criatura que levou sua irmã, e os garotos dentro da casa, o Cara-de-Larva, tinha também levado todos daquela cidade. Por alguma razão, ele se tornou o único sobrevivente.”
-
-Quando terminei, eu afastei a mão do mouse. A luz do gabinete piscou mais uma vez e a TV chiou, comprida, como se estivesse rindo da minha cara.
-
-Eu estava respirando curto, apertado, o peito virado um corredor estreito. Alcancei a bombinha no bolso do casaco pendurado na cadeira e puxei uma dose, segurando o ar até o peito parar de reclamar. Olhei para o quarto — o mesmo quarto, as mesmas paredes — e, ainda assim, parecia que eu tinha trazido alguma coisa comigo do banheiro. Algo que não era larva. Algo que era a ideia de larva. A sensação de que aquilo podia cair de qualquer lugar.
+Eu estava respirando curto, apertado, o peito virado um corredor estreito. Alcancei a bombinha no bolso do casaco pendurado na cadeira e puxei uma dose, segurando o ar até o peito parar de reclamar. Olhei para o quarto, o mesmo quarto, as mesmas paredes, e ainda assim parecia que eu tinha trazido alguma coisa comigo do banheiro. Algo que não era larva. Algo que era a ideia de larva. A sensação de que aquilo podia cair de qualquer lugar.

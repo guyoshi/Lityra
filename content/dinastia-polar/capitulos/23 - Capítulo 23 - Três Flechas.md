@@ -1,12 +1,12 @@
 Elis correu.
 
-As pernas ainda lembravam como fazer aquilo: correr atrás de gente que se afastava, correr por ruas que não perdoavam quem tropeçava. Mas dessa vez não havia telhado nenhum para escalar, nenhum beco para virar. Só o portão, e os guardas segurando Kalan, e a distância entre os dois pulsos dela, livres pela primeira vez em dias, e os pulsos dele, ainda presos.
+As pernas ainda lembravam como fazer aquilo: correr atrás de gente que se afastava, correr por ruas que não perdoavam quem tropeçava. Mas dessa vez não havia telhado para escalar, nenhum beco para virar. Só o portão, os guardas segurando Kalan, e a distância entre os pulsos dela, livres pela primeira vez em dias, e os dele, ainda presos.
 
 — Kalan!
 
 Ele virou a cabeça. Só isso. Não conseguiu mais nada, porque os guardas já o empurravam para dentro da passagem, e o espaço entre os dois se fechou como uma boca.
 
-Um braço a deteve antes que alcançasse a corda. O guarda a deteve com a expressão cansada de quem cumpria uma ordem. Elis empurrou, tentou passar por baixo, e não conseguiu. As pernas que tinham corrido por telhados inteiros dias atrás agora não eram fortes o bastante contra um braço adulto que nem estava tentando de verdade.
+Um braço a deteve antes que alcançasse a corda, o do guarda, com a expressão cansada de quem cumpria uma ordem. Elis empurrou, tentou passar por baixo, e não conseguiu. As pernas que tinham corrido por telhados dias atrás não eram fortes o bastante contra um braço adulto que nem tentava de verdade.
 
 O portão terminou de fechar.
 
@@ -22,7 +22,7 @@ Selina ergueu os olhos.
 
 — Eu quero falar com ele.
 
-Não era um pedido que admitia negociação. Selina olhou para os guardas, para Hadris ainda conversando baixo com um dos oficiais, para a movimentação inteira do pátio se organizando ao redor de uma sentença que já tinha sido dita em voz alta.
+Não era um pedido que admitia negociação. Selina olhou para os guardas, para Hadris ainda conversando baixo com um oficial, para o pátio inteiro se organizando ao redor de uma sentença já dita em voz alta.
 
 — Não sei se conseguimos.
 
@@ -30,7 +30,7 @@ Alguma coisa na garganta de Elis se apertou até doer.
 
 — Por favor. — A voz saiu quebrada, e ela não conseguiu impedir. — Eu preciso falar com ele.
 
-Não lembrava a última vez que tinha pedido alguma coisa daquele jeito, com a voz inteira aberta, sem guardar nada para trás. Viu isso alcançar Selina de um jeito que nenhum argumento jurídico tinha alcançado a manhã inteira.
+Não lembrava a última vez que pedira alguma coisa assim, com a voz inteira aberta, sem guardar nada. Viu isso alcançar Selina como nenhum argumento jurídico alcançara a manhã inteira.
 
 Selina respirou fundo.
 
@@ -38,7 +38,7 @@ Selina respirou fundo.
 
 Foi então que Elis percebeu Dareth.
 
-Ele não estava mais olhando para a cadeira vazia onde Vetarius deveria estar. Olhava para o próprio tarrak, já sendo trazido por um dos homens, o rosto fechado de um jeito que Elis reconheceu sem entender exatamente o que significava.
+Ele não olhava mais para a cadeira vazia onde Vetarius deveria estar. Olhava para o próprio tarrak, já sendo trazido por um dos homens, o rosto fechado de um jeito que Elis reconheceu sem entender o que significava.
 
 — Aonde ele vai? — perguntou, puxando a manga de Selina.
 
@@ -50,23 +50,21 @@ Selina não respondeu na hora, e o silêncio dela pesou mais do que qualquer res
 
 — Vai — disse, por fim, com mais firmeza do que talvez sentisse.
 
-Elis olhou para Dareth montando, para o jeito como ele não olhou para trás nem uma vez antes de partir, e guardou aquilo como a coisa mais parecida com esperança que tinha desde que a palavra execução fora dita pela primeira vez.
+Elis olhou para Dareth montando, para o jeito como ele não olhou para trás nem uma vez antes de partir, e guardou aquilo como a coisa mais parecida com esperança que tinha desde que a palavra execução fora dita.
 
 Dareth foi buscar Vetarius. Vetarius ia mandar parar aquilo. Bastava isso.
 
-*
-
-O tempo que se seguiu não tinha forma clara na cabeça de Elis. Gente conversando baixo. Portas se abrindo e fechando. Selina desaparecendo por um corredor e voltando, desaparecendo de novo. Tair e Orel apareceram em algum momento, Orel com os olhos vermelhos, Tair segurando o próprio braço como se pudesse se manter inteiro daquele jeito.
+O tempo que se seguiu não tinha forma na cabeça de Elis. Gente conversando baixo. Portas se abrindo e fechando. Selina desaparecendo por um corredor e voltando, desaparecendo de novo. Tair e Orel apareceram em algum momento, Orel com os olhos vermelhos, Tair segurando o próprio braço como se pudesse se manter inteiro daquele jeito.
 
 Quando Selina finalmente voltou, não sorriu, não comemorou. Só disse:
 
 — Consegui.
 
-Ninguém perguntou como. Ninguém perguntou por quanto tempo. Seguiram atrás dela pelo mesmo corredor de pedra fria, guardas em cada esquina, até uma porta que se abriu para uma sala pequena, sem janela, iluminada só por uma lamparina presa alto na parede. Kalan estava sentado num banco baixo, as correntes ainda presas aos pulsos, a cabeça erguendo-se devagar quando a porta se abriu, como se tivesse aprendido, naquelas poucas horas, a não esperar boas notícias de portas que se abriam.
+Ninguém perguntou como. Ninguém perguntou por quanto tempo. Seguiram atrás dela pelo corredor de pedra fria, guardas em cada esquina, até uma sala pequena, sem janela, iluminada só por uma lamparina presa alto na parede. Kalan estava sentado num banco baixo, as correntes ainda presas aos pulsos, a cabeça erguendo-se devagar quando a porta se abriu, como se tivesse aprendido, em poucas horas, a não esperar boas notícias de portas que se abriam.
 
 Elis correu antes de qualquer um conseguir dizer nada.
 
-Não pediu licença ao próprio corpo. Atravessou a sala e o abraçou com tanta força que ele quase perdeu o equilíbrio no banco, e por um instante, só um instante, tão curto que Elis quase não notou, Kalan não reagiu, os olhos presos primeiro nos pulsos dela, livres, sem corrente nenhuma, depois no rosto dela, depois no corpo inteiro, como se precisasse confirmar cada parte antes de acreditar.
+Não pediu licença ao próprio corpo. Atravessou a sala e o abraçou com tanta força que ele quase perdeu o equilíbrio no banco, e por um instante, tão curto que Elis quase não notou, Kalan não reagiu, os olhos presos nos pulsos dela, livres, sem corrente, depois no rosto, depois no corpo inteiro, como se precisasse confirmar cada parte antes de acreditar.
 
 Ela estava viva.
 
@@ -74,7 +72,7 @@ Estava livre.
 
 Então ele a abraçou de volta, com a força que as correntes permitiam, e por um momento nenhum dos dois disse nada.
 
-— Selina ainda está tentando — disse Elis, as palavras saindo atropeladas contra o ombro dele. — Dareth foi buscar Vetarius. Vão conseguir uma ordem. Talvez tenha outro recurso, talvez o julgamento possa ser revisto, eu não sei direito como funciona, mas a Selina sabe, ela sempre dá um jeito, e a gente vai tirar você daqui.
+— Selina ainda está tentando — disse Elis, as palavras atropeladas contra o ombro dele. — Dareth foi buscar Vetarius. Vão conseguir uma ordem. Talvez tenha outro recurso, talvez o julgamento possa ser revisto, eu não sei direito como funciona, mas a Selina sabe, ela sempre dá um jeito, e a gente vai tirar você daqui.
 
 Kalan olhou para ela.
 
@@ -82,7 +80,7 @@ Ele não disse que ela estava errada.
 
 — Tá bom — respondeu, baixo.
 
-Depois, um fio de sorriso, o mesmo de sempre, o que ele sempre usava quando queria que ela parasse de se preocupar.
+Depois, um fio de sorriso, o de sempre, o que ele usava quando queria que ela parasse de se preocupar.
 
 — Então anda logo com isso. Essa cadeira é horrível.
 
@@ -102,7 +100,7 @@ Orel balançou a cabeça contra o ombro dele, sem soltar.
 
 — Eu faria aquilo de novo — continuou Kalan. — Entrar. Ficar entre você e eles. Faria de novo, sem pensar duas vezes.
 
-Tocou o rosto de Orel, gentil, o mesmo gesto que fazia desde que os dois eram menores. Orel não entendia tudo o que estava acontecendo (Elis via isso, via a confusão por trás do medo dele), mas entendia o bastante: Kalan estava preso, estavam levando Kalan, alguma coisa ruim estava acontecendo. Era suficiente para doer, mesmo sem entender o resto.
+Tocou o rosto de Orel, gentil, o gesto de quando os dois eram menores. Orel não entendia tudo o que acontecia, e Elis via a confusão por trás do medo dele, mas entendia o bastante: Kalan estava preso, estavam levando Kalan, alguma coisa ruim acontecia. Era suficiente para doer, mesmo sem entender o resto.
 
 Tair esperou, os olhos já molhados antes mesmo de se aproximar.
 
@@ -124,7 +122,7 @@ Depois olhou para Elis. Para Orel.
 
 — Cuida deles.
 
-O ar da sala pareceu mudar. Elis sentiu, sem conseguir nomear o motivo, que aquela frase pesava mais do que qualquer uma que tinha sido dita ali dentro.
+O ar da sala pareceu mudar. Elis sentiu, sem saber nomear o motivo, que aquela frase pesava mais do que qualquer outra dita ali dentro.
 
 — Você mesmo vai cuidar — disse, rápido demais, quase brava. — Para de falar assim.
 
@@ -156,7 +154,7 @@ Abraçou Kalan de novo, e dessa vez nenhum dos dois soltou.
 
 Elis não se moveu.
 
-Mãos a puxaram por trás, gentis a princípio, depois com mais força. Outras mãos seguravam Kalan pelos ombros, afastando-o na direção oposta. Os dedos de Elis continuaram presos ao tecido da roupa dele até não alcançarem mais nada.
+Mãos a puxaram por trás, gentis a princípio, depois com mais força. Outras seguravam Kalan pelos ombros, afastando-o na direção oposta. Os dedos de Elis continuaram presos ao tecido da roupa dele até não alcançarem mais nada.
 
 — Kalan!
 
@@ -166,9 +164,7 @@ A porta se fechou.
 
 E Elis ainda acreditava, com a teimosia inteira de quem não tinha escolha melhor, que ia vê-lo sair vivo dali.
 
-*
-
-Encontrou Karesis parado perto de uma das colunas, longe o suficiente da movimentação para parecer que estava tentando desaparecer dentro da própria roupa.
+Encontrou Karesis parado perto de uma das colunas, longe da movimentação, como quem tentava desaparecer dentro da própria roupa.
 
 Foi até ele.
 
@@ -178,7 +174,7 @@ Karesis não respondeu.
 
 — Faz alguma coisa.
 
-Ele parecia mais velho do que de manhã, os ombros curvados de um jeito que Elis nunca tinha visto nele, nem nos piores dias em que desaparecia por semanas.
+Ele parecia mais velho do que de manhã, os ombros curvados de um jeito que Elis nunca vira, nem nos piores dias em que desaparecia por semanas.
 
 — Não há nada que eu possa fazer.
 
@@ -192,9 +188,7 @@ Viu o golpe alcançá-lo, não como raiva, não como defesa. Karesis nem ergueu 
 
 Elis esperou. Ele não olhou para ela de novo.
 
-Deu as costas e foi embora, deixando-a ali, com a pergunta ainda pendurada no ar entre os dois, sem resposta melhor do que aquela.
-
-*
+Deu as costas e foi embora, deixando a pergunta pendurada no ar entre os dois, sem resposta melhor do que aquela.
 
 Foi Selina quem trouxe a notícia, o rosto tenso de um jeito que Elis não soube ler até as palavras saírem.
 
@@ -216,19 +210,17 @@ Selina não respondeu aquilo. Só segurou o ombro de Elis, um gesto pequeno, e d
 
 — Vamos ficar perto dele o quanto pudermos.
 
-*
-
 Levaram Kalan primeiro até Maruva.
 
-Elis não entendeu de início por que desciam, por que o caminho parecia se afastar do Pátio em vez de continuar ali mesmo. Foi Selina quem explicou, a voz baixa, andando ao lado dela enquanto seguiam a pequena distância da escolta, Tair e Orel logo atrás, guardas separando-os do resto do cortejo.
+Elis não entendeu de início por que desciam, por que o caminho parecia se afastar do Pátio. Selina explicou, a voz baixa, andando ao lado dela a pequena distância da escolta, Tair e Orel logo atrás, guardas separando-os do resto do cortejo.
 
 — Querem que a cidade inteira veja.
 
-Kalan ia à frente, as mãos presas, cercado por Filhos da Raiz armados, o caminho descendo pelas ruas estreitas que Elis reconhecia de memória: a mesma curva onde escorregava na lama depois da chuva, a mesma esquina onde vendiam zírrio seco, a mesma fachada torta que sempre parecia prestes a cair e nunca caía.
+Kalan ia à frente, as mãos presas, cercado por Filhos da Raiz armados, descendo pelas ruas estreitas que Elis reconhecia de memória: a curva onde escorregava na lama depois da chuva, a esquina onde vendiam zírrio seco, a fachada torta que sempre parecia prestes a cair e nunca caía.
 
 Maruva parou para olhar.
 
-Não gritavam. Não riam. Janelas se abriam, uma a uma, rostos que Elis reconhecia: a mulher que vendia pão na esquina, o velho que consertava redes, crianças com quem tinha dividido brincadeiras em alguma tarde qualquer, todos parados, olhando, em silêncio.
+Não gritavam. Não riam. Janelas se abriam, uma a uma, rostos que Elis reconhecia: a mulher que vendia pão na esquina, o velho que consertava redes, crianças com quem dividira brincadeiras em alguma tarde qualquer, todos parados, olhando, em silêncio.
 
 Alguns choravam. Uma mulher levou a mão à boca quando Kalan passou. Um homem baixou o rosto, incapaz de continuar olhando. Uma mãe puxou o filho pequeno para dentro de casa antes que ele conseguisse perguntar o que estava acontecendo.
 
@@ -236,9 +228,9 @@ Aquelas pessoas conheciam Kalan. Não conheciam "o condenado".
 
 Hadris, montado logo atrás da escolta, ergueu a voz o suficiente para que as ruas próximas ouvissem.
 
-— Este jovem roubou registros da Raiz. — Fez uma pausa, deixando a frase alcançar as janelas, as portas, os poucos que tinham parado nas esquinas. — Não roubou apenas da Raiz. Roubou de vocês. Cada um de vocês depende desses registros para provar onde mora, a quem pertence, que trabalho pode exercer. Um registro roubado é uma prova que desaparece — a de vocês, na próxima vez, se este tipo de ato continuar sem resposta.
+— Este jovem roubou registros da Raiz. — Fez uma pausa, deixando a frase alcançar as janelas, as portas, os poucos parados nas esquinas. — Não roubou apenas da Raiz. Roubou de vocês. Cada um depende desses registros para provar onde mora, a quem pertence, que trabalho pode exercer. Um registro roubado é uma prova que desaparece, a de vocês, na próxima vez, se este tipo de ato continuar sem resposta.
 
-Ninguém respondeu. Mas Elis viu, em alguns rostos, a dúvida plantada ali começar a funcionar: o tipo de dúvida que não precisa convencer todo mundo, só afrouxar o suficiente para que ninguém se atreva a discordar em voz alta.
+Ninguém respondeu. Mas Elis viu, em alguns rostos, a dúvida plantada começar a funcionar, a que não precisa convencer todo mundo, só afrouxar o bastante para que ninguém se atreva a discordar em voz alta.
 
 Uma voz, no entanto, respondeu.
 
@@ -248,13 +240,13 @@ Elis reconheceu a voz antes mesmo de virar. Rovan Polar, parado na porta da pró
 
 Ninguém concordou com ele em voz alta. Mas ninguém discordou também.
 
-Elis procurou, sem querer procurar, uma janela específica, uma porta específica, onde esperaria encontrar Vesna parada com os braços cheios de panos limpos, pronta para resmungar sobre algum curativo malfeito. Encontrou só madeira fechada, sem luz nenhuma por trás.
+Elis procurou, sem querer procurar, uma janela específica, onde esperaria encontrar Vesna com os braços cheios de panos limpos, pronta para resmungar sobre algum curativo malfeito. Encontrou só madeira fechada, sem luz por trás.
 
 Não perguntou por ela. Não suportava imaginar a resposta.
 
 Foi então que viu Cairon.
 
-Estava parado entre as pessoas, um pouco afastado, os olhos cheios demais para conseguir esconder. Elis não o conhecia direito, sabia só que era o homem que mandava no trabalho de Kalan, tinha visto o rosto dele algumas vezes de longe, perto da Balança, perto do cais.
+Estava parado entre as pessoas, um pouco afastado, os olhos cheios demais para esconder. Elis não o conhecia direito, sabia só que era o homem que mandava no trabalho de Kalan, que vira de longe, perto da Balança e do cais.
 
 Kalan o viu também.
 
@@ -268,7 +260,7 @@ A procissão deixou Maruva para trás e começou a subir.
 
 A mudança veio devagar, depois rápida demais.
 
-Em Vardeno, o silêncio de Maruva virou outra coisa. Gente que não conhecia Kalan, que só conhecia o caso: a versão que Hadris contava, cada vez com palavras um pouco diferentes.
+Em Vardeno, o silêncio de Maruva virou outra coisa. Gente que não conhecia Kalan, que só conhecia o caso, a versão que Hadris contava, cada vez com palavras um pouco diferentes.
 
 — Ele interferiu numa investigação em curso — dizia agora, para as oficinas, para os ferreiros parados nas portas, para os comerciantes que largavam o balcão para ver passar. — Desafiou a autoridade que mantém esta cidade em ordem. Colocou a própria vontade acima da lei que protege a todos vocês.
 
@@ -284,9 +276,9 @@ Um objeto, Elis não viu o quê, passou perto de Kalan e caiu na pedra.
 
 Elis sentiu o próprio corpo se fechar a cada palavra, como se cada uma delas também acertasse nela.
 
-Continuaram subindo. As ruas ficavam mais largas, as casas mais altas, as roupas das pessoas nas portas mais caras. Perto do topo de Vardeno, onde a rua começava a se preparar para a subida final até Kaelyr, gente já estava posicionada nas sacadas, esperando, como se soubesse exatamente a que horas aquilo passaria por ali.
+Continuaram subindo. As ruas ficavam mais largas, as casas mais altas, as roupas nas portas mais caras. Perto do topo de Vardeno, onde a rua se preparava para a subida final até Kaelyr, gente já esperava nas sacadas, como se soubesse a que horas aquilo passaria ali.
 
-Crianças eram erguidas para ver melhor, pequenas mãos apontando, vozes agudas perguntando qual dos homens era o ladrão. Um vendedor ambulante gritava alguma coisa sobre água fresca para quem esperava havia tempo demais debaixo do sol. Mais adiante, outro oferecia pedaços de fruta, aproveitando a multidão parada como aproveitaria qualquer feira. Alguém riu, um riso alto, do tipo que Elis reconhecia de festas, não de lugar nenhum onde alguém devesse rir. Duas mulheres comentavam entre si, sem baixar muito a voz, se aquele seria tão rápido quanto a última execução que tinham visto, ou se demoraria mais.
+Crianças eram erguidas para ver melhor, pequenas mãos apontando, vozes agudas perguntando qual dos homens era o ladrão. Um vendedor ambulante gritava sobre água fresca para quem esperava havia tempo demais debaixo do sol. Mais adiante, outro oferecia pedaços de fruta, aproveitando a multidão parada como aproveitaria qualquer feira. Alguém riu, um riso alto, de festa, não de lugar onde alguém devesse rir. Duas mulheres comentavam, sem baixar muito a voz, se aquele seria tão rápido quanto a última execução que tinham visto, ou se demoraria mais.
 
 Para elas aquilo era um acontecimento. Um dia diferente. Não o último dia de alguém.
 
@@ -296,31 +288,29 @@ Hadris, mais perto agora da subida para o Pátio, mudou de novo o discurso, a vo
 
 — Ele desafiou a Raiz. Retirou o que estava sob a guarda da Permanência. Mentiu. Ocultou. Recusou-se a devolver o que não era seu. Decidiu que sabia melhor do que a cidade, melhor do que a lei, melhor do que a própria Raiz.
 
-A multidão ali reagiu diferente: não com objetos, não com gritos soltos, mas com um tipo de aprovação mais fria, mais organizada, cabeças balançando em concordância silenciosa.
+A multidão ali reagiu diferente: não com objetos nem gritos soltos, mas com uma aprovação mais fria e organizada, cabeças balançando em concordância silenciosa.
 
-Elis olhava para trás o tempo inteiro, entre um grito e outro, entre uma esquina e outra. Toda vez que ouvia um tarrak, toda vez que a multidão se abria em algum ponto mais à frente, o coração dela se apertava com a mesma pergunta.
+Elis olhava para trás o tempo inteiro, entre um grito e outro. Toda vez que ouvia um tarrak, toda vez que a multidão se abria mais à frente, o coração dela se apertava com a mesma pergunta.
 
 Dareth voltou?
 
-Quando entraram na parte mais alta de Vardeno: ainda não.
+Quando entraram na parte mais alta de Vardeno, ainda não.
 
 Selina também olhava, Elis percebeu, os olhos dela fazendo o mesmo percurso rápido pela multidão, a mesma pergunta muda.
 
 Ainda dá tempo, Elis repetia para si mesma. Ainda dá tempo.
 
-*
-
-O Pátio de Namar apareceu à frente exatamente como Elis lembrava da manhã, só que agora vazio de qualquer formalidade de tribunal, preparado para outra coisa.
+O Pátio de Namar apareceu à frente como Elis lembrava da manhã, só que vazio de qualquer formalidade de tribunal, preparado para outra coisa.
 
 No centro, sobre uma pequena elevação, havia uma cadeira de madeira pesada, sem nenhum enfeite, funcional demais para ser qualquer coisa além do que era.
 
 Elis sentiu o estômago virar.
 
-O mesmo lugar. A mesma pedra onde de manhã tinham lido a sentença, onde Selina discutira com Hadris, onde Karesis gritara para abrir passagem. Kalan saíra dali horas antes e atravessara a cidade inteira. Agora voltara ao mesmo lugar. Elis reconheceu a pedra junto ao portão e parou de andar.
+O mesmo lugar. A mesma pedra onde de manhã tinham lido a sentença, onde Selina discutira com Hadris, onde Karesis gritara para abrir passagem. Kalan saíra dali horas antes e atravessara a cidade inteira. Agora voltara. Elis reconheceu a pedra junto ao portão e parou de andar.
 
 Guardas conduziram Kalan até lá. Sentaram-no. Prenderam os pulsos aos braços da cadeira. Passaram uma faixa larga pelo torso, presa com força suficiente para impedir qualquer movimento brusco.
 
-Elis avistou o Pátio se enchendo ao redor: os mesmos tipos de rosto da manhã, sacadas ocupadas, famílias de tecido azul-profundo, funcionários religiosos em bancos reservados. Muitos dos mesmos que tinham assistido à sentença agora voltavam para assistir o resto.
+O Pátio se enchia ao redor: os mesmos tipos de rosto da manhã, sacadas ocupadas, famílias de tecido azul-profundo, funcionários religiosos em bancos reservados. Muitos dos que tinham assistido à sentença voltavam para assistir o resto.
 
 Três homens se posicionaram diante da cadeira, cada um com um arco nas mãos.
 
@@ -334,17 +324,17 @@ Antes que alguém se aproximasse com o tecido, Kalan procurou por ela.
 
 Encontrou.
 
-Elis estava chorando, não sabia exatamente desde quando tinha começado, e ainda olhando por cima do ombro, para trás, à procura de qualquer sinal de Dareth.
+Elis chorava, não sabia desde quando, e ainda olhava por cima do ombro, à procura de qualquer sinal de Dareth.
 
-Kalan conseguiu um sorriso pequeno. Não feliz. O mesmo sorriso de sempre, o que usava desde que ela era pequena demais para entender o resto do mundo, o que sempre queria dizer a mesma coisa sem precisar de palavra nenhuma: fica tranquila.
+Kalan conseguiu um sorriso pequeno. Não feliz. O de sempre, o que usava desde que ela era pequena demais para entender o resto do mundo, o que queria dizer a mesma coisa sem palavra nenhuma: fica tranquila.
 
 Então colocaram o saco sobre a cabeça dele.
 
 Elis perdeu o rosto do irmão.
 
-Foi ali, mais do que em qualquer outro momento daquele dia inteiro, que alguma coisa dentro dela começou, bem devagar, a entender que ninguém estava chegando a tempo.
+Foi ali, mais do que em qualquer outro momento daquele dia, que alguma coisa dentro dela começou, bem devagar, a entender que ninguém chegaria a tempo.
 
-Hadris avançou até perto da cadeira, o pergaminho novamente nas mãos, embora dessa vez não precisasse ler tudo, só o suficiente.
+Hadris avançou até perto da cadeira, o pergaminho nas mãos, embora dessa vez não precisasse ler tudo, só o suficiente.
 
 — Kalan, de Maruva. Condenado por furto de registros pertencentes à Raiz. Interferência deliberada em investigação. Ocultação. Desafio à autoridade da Permanência.
 
@@ -392,7 +382,7 @@ Hadris acompanhou o movimento por um instante. Não perguntou o que havia no pap
 
 Elis tentou correr até Kalan. Os guardas a impediram.
 
-Por um instante não conseguiu nem gritar: o choque chegou antes de qualquer som, um vazio branco que engoliu a voz dela inteira. Depois veio tudo de uma vez.
+Por um instante não conseguiu nem gritar: o choque chegou antes de qualquer som, um vazio branco que engoliu a voz inteira. Depois veio tudo de uma vez.
 
 — Kalan!
 
@@ -408,7 +398,7 @@ O nome se repetiu tantas vezes que perdeu qualquer capacidade de virar resposta.
 
 Kalan não respondeu. Elis tentou avançar de novo. Selina a segurou.
 
-Elis lutou contra os braços dela também, por um instante, antes que o próprio corpo parasse de obedecer, as pernas cedendo, o peso inteiro despencando contra Selina, que não a deixou cair.
+Elis lutou contra os braços dela também, por um instante, até o corpo parar de obedecer, as pernas cedendo, o peso inteiro despencando contra Selina, que não a deixou cair.
 
 Orel continuava chamando o nome de Kalan, a voz já quase sem força. Tair estava perto, incapaz de se mexer.
 

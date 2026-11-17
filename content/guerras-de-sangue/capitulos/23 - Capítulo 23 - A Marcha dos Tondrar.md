@@ -1,6 +1,6 @@
 O grupo parou de imediato, como se todos dividissem o mesmo tendão. Eshvar desapareceu entre duas pedras com três homens. Kharvok esperou sem mostrar impaciência. Kaelina ouviu primeiro o vento. Depois um ruído curto, abafado, quase humano. Um corpo sendo impedido de terminar um grito.
 
-Quando Eshvar voltou, havia sangue fresco numa das facas. Atrás dele, dois Tondrar arrastavam um homem de Kaendar pelo casaco. Não era Kae, nem guarda alto. Um Vigia de rota talvez, ou batedor enviado para observar as passagens. Tinha olhos abertos, boca cheia de sangue e a Raiz pequena gravada no cabo da faca presa à cintura. Kaelina reconheceu o gesto de dois dedos que ele tentara fazer antes de morrer; a mão ficara perto da testa, incompleta.
+Quando Eshvar voltou, havia sangue fresco numa das facas. Atrás dele, dois Tondrar arrastavam um homem de Kaendar pelo casaco. Não era Kae, nem guarda alto. Um Vigia de rota talvez, ou batedor enviado para observar as passagens. Tinha olhos abertos, boca cheia de sangue e a Raiz pequena gravada no cabo da faca presa à cintura. Kaelina reconheceu o gesto de dois dedos que ele tentara fazer antes de morrer. A mão ficara perto da testa, incompleta.
 
 — Espião — disse Eshvar.
 
@@ -10,9 +10,9 @@ Kharvok olhou apenas o suficiente.
 
 Kaelina não disse nada. Não podia. Não devia. Mas o morto a viu mesmo sem ver. O rosto dele ficou com ela enquanto avançavam. Era um homem dela, de Kaendar, morto porque ela continuava viva nas mãos de inimigos. A lógica era cruel e simples: se ele voltasse, avisaria. Se avisasse, a refém perderia valor. Se a refém perdesse valor, talvez Kaelina morresse. Então ele morreu. Jesed fazia esse tipo de conta sem pedir licença.
 
-Nynestra passou por ela depois, mancava menos do que pela manhã, ou fingia melhor. Kaelina manteve a cabeça baixa. Eles já andavam por quase um dia inteiro.
+Nynestra passou por ela depois. Mancava menos do que pela manhã, ou fingia melhor. Kaelina manteve a cabeça baixa. Eles já andavam por quase um dia inteiro.
 
-Mais adiante, o calor cedeu quando nuvens baixas cobriram parte do sol. A terra também mudou. A garganta ficou menos fechada, as pedras deram lugar a trechos de mata rala, depois a caminho escondido entre árvores baixas e raízes duras. Os Tondrar avançavam fora das rotas principais, usando passos que pareciam improváveis para um grupo tão grande. Eshvar mandava batedores à frente; dois voltavam, um seguia. Às vezes paravam para apagar sinais: uma marca de bota, cinza, fibra presa em galho. O objetivo era alcançar Kaendar antes que os vigias descobrissem por onde avançavam.
+Mais adiante, o calor cedeu quando nuvens baixas cobriram parte do sol. A terra também mudou. A garganta ficou menos fechada, as pedras deram lugar a trechos de mata rala, depois a caminho escondido entre árvores baixas e raízes duras. Os Tondrar avançavam fora das rotas principais, usando passos que pareciam improváveis para um grupo tão grande. Eshvar mandava batedores à frente. Dois voltavam, um seguia. Às vezes paravam para apagar sinais: uma marca de bota, cinza, fibra presa em galho. O objetivo era alcançar Kaendar antes que os vigias descobrissem por onde avançavam.
 
 Foi perto do entardecer que ouviram tarraks. Não muitos. Mas o som de casco em terra úmida viaja diferente do som de pedra solta. Os Tondrar se espalharam sem grito. Lanças baixaram. Arcos apareceram. Kaelina foi puxada para trás de dois corpos armados, e uma faca encostou em sua lateral, não no ferimento, mas perto o bastante para lembrar que refém também podia virar cadáver rápido.
 
@@ -56,7 +56,7 @@ O relato percorreu os Tondrar de Kharvok com força estranha. O desconforto dela
 
 Nynestra caminhou até a frente, ainda mancando. Dois Tondrar tentaram bloquear. Kharvok ergueu a mão. Ela parou a uma distância segura, mas falou olhando para os Tondrar de Rendar.
 
-— Morreu tentando voltar para avisar a Boca Seca. Uma faca Urtistar atingiu a cabeça dele na chuva. Quando os seus chegaram, viram a história que os Polar queria que vissem: eu viva, ele morto, sangue no chão e inimigo fácil diante dos olhos.
+— Morreu tentando voltar para avisar a Boca Seca. Uma faca Urtistar atingiu a cabeça dele na chuva. Quando os seus chegaram, viram a história que os Polar queriam que vissem: eu viva, ele morto, sangue no chão e inimigo fácil diante dos olhos.
 
 Alguns Tondrar murmuraram. Kharvok não desviou o olhar.
 
@@ -74,7 +74,7 @@ Kharvok mostrou os dentes.
 
 — Não estou ameaçando. Mas não há espaço pra outra guerra. Somos nós, ou eles.
 
-O vento moveu folhas baixas entre os grupos. Kaelina mantinha a cabeça baixa, o rosto escondido por cabelo, poeira e sombra. Ouvia tudo. Cada palavra de Rendar parecia pedra posta sobre pedra, sem ornamento. Ele não falava como Alyra, nem como Daryon, nem como Kaelina. Não tentava vestir violência de lei. Rendar falava das consequências e não tentava justificá-las com leis.
+O vento moveu folhas baixas entre os grupos. Kaelina mantinha a cabeça baixa, o rosto escondido por cabelo, poeira e sombra. Ouvia tudo. Cada palavra de Rendar parecia pedra posta sobre pedra, sem ornamento. Ele não falava como Alyra, nem como Daryon, nem como Kaelina. Não tentava vestir violência de lei.
 
 — Liberte a Mão Buldar — disse Rendar.
 
@@ -102,7 +102,7 @@ A Mão da Colheita não correu. Caminhou. Cada passo mostrava a dor que ela não
 
 — Já estava antes.
 
-Nynestra quase sorriu, mas não chegou a fazê-lo. Os tondrar de Rendar aos poucos caminharam até Kharvok e cumprimentaram seus companheiros, compartilhando mais detalhes da batalha da Margem dos Zírrios.
+Nynestra quase sorriu, mas não chegou a fazê-lo. Os Tondrar de Rendar aos poucos caminharam até Kharvok e cumprimentaram seus companheiros, compartilhando mais detalhes da batalha da Margem dos Zírrios.
 
 — O que fazem em terras Polar? — Kharvok perguntou.
 
@@ -114,11 +114,11 @@ Kaelina levantou levemente a cabeça, para ouvir melhor.
 
 — A cidade está fraca. Com pouca água e alimento. Vamos cercá-los, e esperar.
 
-— Esperar? Até quando? Está falando da fortaleza dos Polar — interpôs Nynestra — O plano não era esse. Devíamos enfraquecê-los mais. Deixá-los sem opção. Um cerco agora é suicídio.
+— Esperar? Até quando? Está falando da fortaleza dos Polar — interpôs Nynestra. — O plano não era esse. Devíamos enfraquecê-los mais. Deixá-los sem opção. Um cerco agora é suicídio.
 
-— Não com esses homens — disse Rendar acenando a cabeça para os homens atrás de si — eu vi do que são capazes. Estão todos cansados de esperar. Temos o fogo dos Vendrar. O rio dos Glydar. E com vocês, as terras dos Buldar e Tondrar.
+— Não com esses homens — disse Rendar, acenando a cabeça para os homens atrás de si —, eu vi do que são capazes. Estão todos cansados de esperar. Temos o fogo dos Vendrar. O rio dos Glydar. E com vocês, as terras dos Buldar e Tondrar.
 
-— E como pretende alimentar esses homens durante o cerco? — perguntou Nynestra — Homens precisam de alimento pra aguentarem dias. Kaendar pode não ter alimento o suficiente para os anéis baixos, mas tem para seus homens de espadas. E enquanto definhamos no calor exterior, eles bebem água, esperam o inimigo ficar fraco, atiram flechas em nossos homens.
+— E como pretende alimentar esses homens durante o cerco? — perguntou Nynestra. — Homens precisam de alimento pra aguentarem dias. Kaendar pode não ter alimento o suficiente para os anéis baixos, mas tem para seus homens de espadas. E enquanto definhamos no calor exterior, eles bebem água, esperam o inimigo ficar fraco, atiram flechas em nossos homens.
 
 Rendar não respondeu de imediato. Ao redor, homens de clãs inimigos por gerações esperavam para saber como ele alimentaria o cerco.
 
@@ -138,7 +138,7 @@ Ele marcou vários riscos em volta do círculo.
 
 Alguns homens se entreolharam. Rendar continuou:
 
-— Quem viu dez homens pensou ter visto patrulha; quem viu cinquenta, saqueadores; quem viu carroça, fome fugindo da guerra; quem viu rastro demais, rastro falso. Nenhuma aldeia viu o todo. Nenhum Vigia viu o bastante para voltar com uma verdade inteira.
+— Quem viu dez homens pensou ter visto patrulha, quem viu cinquenta, saqueadores, quem viu carroça, fome fugindo da guerra, quem viu rastro demais, rastro falso. Nenhuma aldeia viu o todo. Nenhum Vigia viu o bastante para voltar com uma verdade inteira.
 
 — E os que viram? — perguntou Eshvar.
 
@@ -250,15 +250,15 @@ Rendar continuou encarando Kaelina. Por um momento, ela achou que ele a mataria 
 
 — A soberana assassina segue viva — disse Rendar. — Até conseguirmos o que queremos.
 
-Kharvok inclinou a cabeça, satisfeito não por concordar, mas por não ter sido contrariado diante dos seus. Nynestra permaneceu ao lado dos Buldar, apoiada em Hadrun, o rosto fechado. Eles não marcharam de imediato. Rendar virou-se para a direção de Kaendar. Dessa vez, ninguém falou de imediato.
+Kharvok inclinou a cabeça, satisfeito não por concordar, mas por não ter sido contrariado diante dos seus. Nynestra permaneceu ao lado dos Buldar, apoiada em Hadrun, o rosto fechado. Eles não marcharam de imediato. Rendar virou-se para a direção de Kaendar. Ninguém falou.
 
 A marcha voltou a se mover antes que o silêncio virasse discussão. Não como exército inteiro de uma vez. Como partes de uma coisa maior fingindo não se conhecer. Primeiro os batedores Tondrar, baixos entre pedra e musgo-seco. Depois grupos de Buldar com escudos simples, cargas cobertas por folha-de-chuva e sacos de pão de campo endurecido. Mais atrás, Vendrar com as carroças abafadas em couro e barro, metal embrulhado, rodas presas com tiras para não cantar na pedra. Os Glydar que seguiam por terra andavam pouco e falavam menos, sempre olhando para o lado onde o mundo descia em direção à água.
 
-Kaelina foi posta no meio de dois Tondrar, com o rosto parcialmente coberto por pano sujo. O ferimento abaixo das costelas latejava de modo fundo. A febre ia e vinha, fazendo o mundo parecer próximo demais e distante demais ao mesmo tempo. Cada passada mais longa puxava os pontos sob a faixa e obrigava Kaelina a encurtar o passo sem demonstrar por quê. Uma vez, quando tropeçou numa raiz-de-pedra exposta, a costura repuxou com tanta força que sua visão embranqueceu; um dos guardas segurou seu braço antes que caísse.
+Kaelina foi posta no meio de dois Tondrar, com o rosto parcialmente coberto por pano sujo. O ferimento abaixo das costelas latejava de modo fundo. A febre ia e vinha, fazendo o mundo parecer próximo demais e distante demais ao mesmo tempo. Cada passada mais longa puxava os pontos sob a faixa e obrigava Kaelina a encurtar o passo sem demonstrar por quê. Uma vez, quando tropeçou numa raiz-de-pedra exposta, a costura repuxou com tanta força que sua visão embranqueceu. Um dos guardas segurou seu braço antes que caísse.
 
 — Refém não quebra antes da porta — murmurou ele.
 
-A noite caiu antes que Kaendar aparecesse. Rendar escolheu um abrigo entre formações de casca-negra e pedra alta, numa dobra de terreno onde o vento passava por cima sem descer por inteiro. Árvores não esconderiam um acampamento daquele tamanho; rocha, sombra, buracos secos, raízes duras e orelha-de-pedra faziam o trabalho. Era pouco. Bastava para quem não queria ser visto.
+A noite caiu antes que Kaendar aparecesse. Rendar escolheu um abrigo entre formações de casca-negra e pedra alta, numa dobra de terreno onde o vento passava por cima sem descer por inteiro. Árvores não esconderiam um acampamento daquele tamanho. Rocha, sombra, buracos secos, raízes duras e orelha-de-pedra faziam o trabalho. Era pouco. Bastava para quem não queria ser visto.
 
 Não acenderam fogo.
 
@@ -366,7 +366,7 @@ Hadrun tossiu uma vez, menor, mais amarga.
 
 A frase ficou entre os dois. Ao redor, o acampamento respirava baixo. Um Tondrar partiu tubérculo de Nhar com os dentes. Um Buldar amarrou melhor a carga de pão de campo. Um Vendrar cobriu um tubo escuro com mais uma camada de pano. Ninguém parecia ouvir.
 
-— Ele não está errado sobre os Polar — disse Nynestra desviando os olhos.
+— Ele não está errado sobre os Polar — disse Nynestra, desviando os olhos.
 
 Nynestra respirou devagar. Hadrun tocou de leve o próprio peito, onde a tosse morava.
 
@@ -442,7 +442,7 @@ Rendar olhou de lado para Nynestra.
 
 Ele olhou para ela. Foi a primeira vez naquela noite que pareceu realmente vê-la.
 
-— Elas mandaram matar meu povo — disse ele — Mataram minha Vita. Mataram minha filha, Nara. Mataram Ilo, meu pequenino, que era um bebê.
+— Elas mandaram matar meu povo — disse ele. — Mataram minha Vita. Mataram minha filha, Nara. Mataram Ilo, meu pequenino, que era um bebê.
 
 Os nomes ficaram entre eles. Nara. Ilo. Vita. Nynestra não conhecia nenhum. Mesmo assim, os nomes pareceram ganhar lugar na pedra. Como se cada um tivesse se sentado ali, ao redor do abrigo sem fogo, exigindo que os vivos parassem de transformar morte em plano por alguns instantes. Rendar não disse mais nada. Talvez não pudesse. Nynestra olhou para a soberana encolhida. Depois para ele.
 
@@ -458,7 +458,7 @@ Rendar ficou imóvel.
 
 Rendar olhou para ela como se a odiasse por ter encontrado aquela fresta.
 
-— Eu não sou um assassino, Nynestra. Mas meus filhos não tiveram tempo de virar nada — disse ele — Eu não vou deixar a pessoa que fez isso, viver como se… como se a vida deles não fosse nada. Eles eram tudo pra mim.
+— Eu não sou um assassino, Nynestra. Mas meus filhos não tiveram tempo de virar nada — disse ele. — Eu não vou deixar a pessoa que fez isso viver como se… como se a vida deles não fosse nada. Eles eram tudo pra mim.
 
 A voz saiu quase sem ar. Nynestra sentiu a resposta prender na própria garganta. Quando falou, saiu mais baixo:
 
@@ -466,7 +466,7 @@ A voz saiu quase sem ar. Nynestra sentiu a resposta prender na própria garganta
 
 Rendar desviou o olhar.
 
-— Cuide tua gente, me deixe só. E quando chegar a hora, não fique entre mim e a irmã dela.
+— Cuide da tua gente, me deixe só. E quando chegar a hora, não fique entre mim e a irmã dela.
 
 Nynestra sustentou o olhar.
 

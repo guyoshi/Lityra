@@ -191,7 +191,7 @@ O som que veio não foi o grito dele. A rachadura clareou de dentro para fora, e
 
 O ar entre eles e a mesa abriu.
 
-Não foi explosão. Foi um rasgo comprido e vertical, como o de um tecido molhado puxado de cima para baixo, e do outro lado dele a luz estava no lugar errado, vinha de baixo, e a cor tinha som, e o som tinha cheiro de ferro e de água. O piso perdeu o sentido. Breno sentiu que caía para o lado, para cima, e ao mesmo tempo para dentro, e agarrou o pulso de Beatriz com as duas mãos, e ela gritava com a boca aberta, e a gaita, apertada entre o peito dela e o braço dele, bateu contra as costelas dos dois.
+Um rasgo vertical abriu-se como tecido molhado puxado de cima para baixo; do outro lado, a luz vinha do lugar errado, vinha de baixo, e a cor tinha som, e o som tinha cheiro de ferro e de água. O piso perdeu o sentido. Breno sentiu que caía para o lado, para cima, e ao mesmo tempo para dentro, e agarrou o pulso de Beatriz com as duas mãos, e ela gritava com a boca aberta, e a gaita, apertada entre o peito dela e o braço dele, bateu contra as costelas dos dois.
 
 Viu a máscara se soltar do pano e subir, leve, e ir para dentro do rasgo à frente deles, como uma coisa que sempre soube o caminho.
 

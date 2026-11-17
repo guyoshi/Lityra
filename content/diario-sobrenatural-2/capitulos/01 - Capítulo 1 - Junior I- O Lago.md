@@ -1,22 +1,22 @@
-Se esta fosse uma história sobre superação, eu começaria dizendo que o tempo cura tudo. Se fosse uma história sobre amadurecimento, talvez dissesse que a dor ensina. Mas esta não é nenhuma das duas. É uma história sobre como o mundo continua funcionando mesmo depois que algo essencial dentro de você quebra — e como isso, por si só, já é uma forma de horror.
+Abri o caderno em que vinha tentando escrever uma história nova. Na primeira página, tinha desenhado uma nave e escrito “Capítulo 1”. Na segunda, nada. Fiquei um tempão olhando para o papel, até fechar tudo e empurrar o caderno para o outro lado da mesa.
 
-Depois de Vila Velha, depois da casa, depois da morte de Kelly, descobri que o pior não era o que havia acontecido, mas o fato de que nada ao redor parecia disposto a parar por causa disso. As pessoas continuavam indo à padaria, os carros seguiam passando na rua, os professores insistiam em provas, datas e horários. Era como se todos tivéssemos concordado, em silêncio, que aquilo não podia ser nomeado. Que seguir em frente era obrigatório.
+Antes eu inventava finais felizes para os meus personagens. Agora não conseguia pensar num final nem para a minha própria história.
 
-E mesmo assim, de alguma forma, as coisas conseguiram piorar.
+Já fazia quase um ano desde a casa dos Marques. Vila Velha continuava a mesma: os ônibus passavam, a padaria abria cedo, os professores cobravam trabalhos como se a maior tragédia possível fosse esquecer um exercício de Matemática. Eu tentava acompanhar. Às vezes até conseguia. Aí via uma menina de cabelos parecidos com os da Kelly e perdia o resto do dia.
 
-A morte é um ponto definitivo da vida. Não porque encerra uma história, mas porque muda todas as outras. Quando somos crianças, a perda vem envolta em metáforas reconfortantes: um lugar melhor, um céu específico para cães. Quando crescemos, essas camadas se dissolvem, e o que sobra é seco, cru e exaustivo. A ausência deixa de ser simbólica e passa a ocupar espaço físico. Ela se senta ao seu lado, dorme no quarto ao lado, aparece nos horários vazios.
+Não adiantava fingir que ela tinha simplesmente ido embora. Eu tinha atirado nela. Lembrava da arma, da voz do Agouro e do momento em que acreditei que podia salvar a minha mãe daquela maneira. Podia repetir mil vezes que ele me enganara. Quem apertou o gatilho fui eu.
 
-Eu não apenas perdi Kelly. Eu fui responsável pela sua morte. Fui eu quem apertou o gatilho. Fui eu quem aceitou ouvir o Agouro. Fui eu quem acreditou que sacrificar alguém que eu amava era um preço razoável para proteger minha mãe. Todas as noites, sem exceção, esse raciocínio voltava para me julgar. E em nenhuma delas o veredito era diferente: deveria ter sido eu.
+O Pedro já não morava perto para me distrair com alguma idiotice. Sentia falta até das piadas que eu fingia odiar. A Jennifer continuava em Vila Velha, mas falar com ela significava acabar falando da Kelly, do Agouro ou daquela casa. Eu fugia dos três assuntos. Não era muito difícil perceber que isso não estava funcionando.
 
-O que piorava tudo era a solidão prática. O Pedro não estava mais aqui para me puxar pela manga e me dizer qualquer piada idiota. A Jennifer ainda existia na minha vida, mas nós nunca fomos do tipo que conversa só para preencher silêncio. E havia uma fronteira óbvia entre nós: a Jennifer é alguém que vê. Eu sou alguém que viu demais uma vez e fez o que fez. As nossas conversas teriam sempre um íman puxando para o mesmo assunto. Eu não queria falar do sobrenatural. Eu não queria lembrar.
+E tinha a raiva. Antes eu ficava nervoso, discutia e depois me arrependia, como qualquer garoto. Agora às vezes vinha uma vontade repentina de quebrar alguma coisa, de gritar com alguém por um motivo idiota. Durava pouco, mas me assustava. Não sabia se o Agouro tinha deixado aquilo em mim ou se eu estava procurando um culpado para mais uma coisa que fazia.
 
-Só que evitar não é apagar. Evitar é só adiar o momento em que a mente decide cobrar com juros.
+A minha mãe tentava me manter ocupado. Comprou um carro novo e começou a me ensinar a dirigir. Eu gostava. Segurar o volante, trocar de marcha, lembrar do retrovisor: durante alguns minutos a cabeça tinha serviço suficiente para não pensar no passado.
 
-Acontecia em todo lugar: na escola, no quarto, no caminho para casa. Acontecia até no carro novo da minha mãe, que ela comprou com uma alegria cuidadosa, como quem tenta oferecer uma coisa concreta contra algo que não se resolve. Ela começou a me dar aulas de direção: projeto de futuro. E, num certo sentido, era: um futuro em que eu ainda existia.
+O problema era quando ela ficava vazia por um segundo. Naquele dia, em vez de ver a rua, vi a porta da casa dos Marques e o rosto da Kelly. Quando voltei a prestar atenção, havia um poste bem à nossa frente.
 
-Eu até conseguia dirigir. Tecnicamente. O problema era o que acontecia quando eu tentava me concentrar e, no lugar da rua, surgia a imagem da porta da casa dos Marques. O meu corpo reagia antes do volante.
+— Filho, olha o poste!
 
-— Filho, olha o poste! — a voz da minha mãe rasgou o meu transe e, no segundo seguinte, ela puxou o freio de mão.
+A voz da minha mãe rasgou o meu transe e, no segundo seguinte, ela puxou o freio de mão.
 
 Os pneus cantaram, o carro parou com um soluço, e o meu estômago fez aquele movimento de queda que só acontece quando percebemos o quão perto estivemos de fazer algo irreparável.
 
@@ -24,7 +24,9 @@ Ela olhou para mim com uma mistura de susto e cuidado.
 
 — Meu menino… de novo com a cabeça longe?
 
-Tentei responder normalmente, mas a minha garganta era uma porta velha, rangendo.
+Apertei o volante. Por um segundo me deu raiva de ouvir aquela pergunta, embora a minha mãe não tivesse culpa de nada. Engoli a resposta grosseira que quase saiu.
+
+Tentei falar normalmente.
 
 — Desculpa, mãe. Vamos tentar de novo.
 
@@ -32,11 +34,11 @@ Os meus olhos encheram sem autorização. Eu odeio quando o corpo faz isso.
 
 A minha mãe hesitou. Depois soltou o cinto e se inclinou para me abraçar. O abraço dela tinha esse poder antigo de reorganizar o mundo.
 
-— Já te disse que ficar assim não traz ela de volta — ela falou baixo, sem dureza, como quem repete uma verdade que não quer ser arma. — A vida continua, filho. Somos só nós dois. Quando eu estive fraca, você me fortaleceu. Agora é a minha vez de estar contigo. E eu vou estar contigo onde você estiver, sabe por quê?
+— Já te disse que ficar assim não traz ela de volta — ela falou baixo, sem dureza, como quem repete uma verdade sem querer usá-la como arma. — A vida continua, filho. Somos só nós dois. Quando eu estive fraca, você me fortaleceu. Agora é a minha vez de ficar com você. E eu vou estar onde você estiver, sabe por quê?
 
 Eu olhei para ela, o rosto já humilhado pelas lágrimas.
 
-Ela segurou o meu rosto com as mãos e me encarou, querendo atravessar a minha culpa.
+Ela segurou o meu rosto com as mãos e me encarou, como se quisesse atravessar a minha culpa.
 
 — Porque eu te amo. E você é a coisa mais importante do mundo para mim. E eu vou até o inferno se for preciso para te ver feliz.
 
@@ -46,7 +48,7 @@ Eu fechei os olhos e chorei no peito dela, com uma raiva infantil de ainda preci
 
 — Eu também te amo, mãe. Desculpa. Você já passou por tanta coisa… não merece ter que se preocupar comigo assim.
 
-— Ei, não. Não pede desculpa. Eu sou tua mãe. Meu dever é te fazer bem… até você virar homem e formar a sua família. Aí sim eu posso descansar e envelhecer com a consciência tranquila.
+— Ei, não. Não pede desculpa. Eu sou sua mãe. Meu dever é te fazer bem… até você virar homem e formar a sua família. Aí sim eu posso descansar e envelhecer com a consciência tranquila.
 
 — Eu nunca vou te abandonar.
 
@@ -76,23 +78,23 @@ Ela saiu do carro, mas antes de fechar a porta, se voltou para mim com o mesmo s
 
 — Obrigado, mãe.
 
-Ela entrou em casa, e eu fiquei mais uns segundos parado, observando a luz do fim da tarde. O sol brilhava como se nada no mundo tivesse mudado. Isso sempre me irritou: a natureza continua com a sua agenda mesmo quando nós desmoronamos por dentro.
+Ela voltou para o banco do motorista e dirigiu os últimos metros até casa. Eu fiquei olhando pela janela. Tinha um garoto andando de bicicleta, duas pessoas conversando na calçada, um cão latindo atrás de um portão. Tudo normal. Cheguei a sentir raiva do garoto, só porque ele parecia feliz. Que culpa ele tinha?
 
-Trocamos de lugar e ela conduziu até a porta de casa. Eu subi, tomei banho, e fui para o quarto com a sensação de ter sobrevivido a mais um dia sem colapsar em público, o que já parecia uma vitória.
+Subi, tomei banho e fui para o quarto. Pelo menos não tinha batido o carro. Já era alguma coisa.
 
-O meu quarto era um museu daquilo que eu não conseguia largar.
+O quarto estava cheio dos meus desenhos da Kelly. Alguns tinham ficado bons. Em outros eu tinha errado os olhos e tentado corrigir tantas vezes que o papel quase furou. Minha mãe dizia que eu levava jeito. Eu só queria conseguir desenhar aquele sorriso sem precisar olhar para uma fotografia.
 
-Nas paredes, colados por todo lado, havia desenhos. Eu não era um desenhista brilhante, mas tinha habilidade suficiente para capturar um rosto e repeti-lo até que a repetição virasse oração. Kelly estava em todo lugar: no contorno do cabelo, no jeito de segurar um livro, no olhar meio desdenhoso que ela tinha quando fingia não se importar. Eu sabia que isso não ajudava. Mesmo assim, ver a presença dela em papel era como encostar a palma numa porta fechada e fingir que do outro lado ainda existe calor.
+Às vezes pensava em tirar tudo da parede. Nunca conseguia. Naquela noite nem tentei.
 
 Ao lado da cama, o meu walkman descansava com os fones enrolados. Eu coloquei a fita e deixei Ballade Pour Adeline preencher o quarto. 
 
 Eu deitei e, pela primeira vez em dias, o cansaço venceu.
 
-No meio da noite, acordei com um pesadelo que não parecia sonho; parecia repetição.
+No meio da noite, acordei com um pesadelo que não parecia sonho. Parecia repetição.
 
 Eu segurava a arma. Só que, desta vez, Kelly não era a vítima. Ela estava ao meu lado, sussurrando palavras que eu não conseguia entender, e apontando para a minha mãe, como se aquilo fosse lógico. Eu tentava recuar e o meu dedo, por alguma razão, obedecia mais ao pânico do que a mim.
 
-Eu despertei com a sensação de que o peito ia partir. O walkman, ainda sobre mim, caiu no chão com um estalo plástico. Sentei na cama e respirei com a boca aberta como alguém que está reaprendendo respirando.
+Eu despertei com a sensação de que o peito ia partir. O walkman, ainda sobre mim, caiu no chão com um estalo plástico. Sentei na cama e respirei pela boca, tentando reaprender a respirar.
 
 O coração batia rápido demais para ser só medo. Era crise.
 
@@ -100,17 +102,15 @@ Eu me levantei e fui para a cozinha buscar água, acendendo todas as luzes pelo 
 
 Cheguei ao balcão e vi um copo com água já ali. O meu cérebro tentou encaixar aquilo numa lógica simples, mas falhou. Eu não lembrava de ter enchido aquele copo.
 
-A palavra “talvez” virou o meu modo de vida.
+Talvez eu tivesse enchido e esquecido. A palavra “talvez” virou o meu modo de vida.
 
-A água não era o que eu queria de verdade. O que eu queria era silêncio dentro da cabeça. E havia um lugar onde o silêncio sempre pareceu possível — antes de virar o meu lugar mais perigoso.
+A água não era o que eu queria de verdade. O que eu queria era silêncio dentro da cabeça. E havia um lugar onde o silêncio sempre pareceu possível, antes de virar o meu lugar mais perigoso.
 
-Peguei a chave, abri a porta com cuidado para não acordar a minha mãe e saí. A rua estava vazia. Vila Velha à noite tinha aquele som baixo de cães ao longe e vento mexendo folhas como se alguém passasse sem ser visto. Eu tinha medo do escuro. Mas naquela noite o medo não era um obstáculo; era um detalhe.
+Peguei a chave, abri a porta com cuidado para não acordar a minha mãe e saí. A rua estava vazia. Vila Velha à noite tinha aquele som baixo de cães ao longe e vento mexendo folhas como se alguém passasse sem ser visto. Eu tinha medo do escuro, mas naquela noite o escuro era o menor dos meus problemas.
 
-Entrei na floresta e caminhei pelo trilho com a segurança de quem já repetiu aquele caminho em pesadelos. O ar era frio e úmido. A minha respiração saía em fumaça curta. Eu andei até o lago.
+Entrei na floresta e caminhei pela trilha com a segurança de quem já repetiu aquele caminho em pesadelos. O ar era frio e úmido. A minha respiração saía em fumaça curta. Eu andei até o lago.
 
 As margens estavam exatamente como eu lembrava: a água escura, o reflexo da lua tremendo como pele viva, as sombras das árvores formando paredes. Foi ali que eu e Kelly dançamos. Foi ali que eu a amei com a estupidez de quem ainda não sabe o peso das palavras.
-
-Não era só tristeza. Era uma mistura de coisas que não cabem numa frase: saudade, culpa, raiva, cansaço, vontade de desaparecer.
 
 Eu tirei os chinelos e entrei na água.
 
@@ -118,7 +118,7 @@ O frio mordeu os meus pés de imediato, mas eu continuei. A água subiu pelos to
 
 Quando a água chegou à cintura, eu senti um alívio estranho. Como se a água fosse um peso empurrando tudo para baixo, contendo a minha agitação. Quando chegou ao peito, o frio virou dor. Quando chegou ao pescoço, a dor virou uma espécie de calma vazia. Eu pensei: se eu entrar mais um pouco, não vai doer mais.
 
-Foi então que uma voz cortou a noite como se já estivesse ali há muito tempo.
+Uma voz cortou a noite, como se já estivesse ali há muito tempo.
 
 — Você não vai fazer isso.
 
@@ -226,9 +226,9 @@ A palavra veio dura, mas não cruel. Veio como quem corta a própria mão para e
 
 — Eu não quero ser forte. Eu só quero…
 
-— Você tá cometendo o mesmo erro de antes — ela disse, sem levantar a voz, mas com uma seriedade que me acertou como um soco. — O medo de perder sua mãe te fez ser controlado. E se você continuar assim, pode ser controlado de novo. E não são só demónios que manipulam. Pessoas também manipulam. Pessoas são horríveis, Junior. 
+— Você tá cometendo o mesmo erro de antes — ela disse, sem levantar a voz, mas com uma seriedade que me acertou como um soco. — O medo de perder sua mãe te fez ser controlado. E se você continuar assim, pode ser controlado de novo. E não são só demônios que manipulam. Pessoas também manipulam. Pessoas são horríveis, Junior. 
 
-Pela primeira vez, aquela frase não me pareceu cinismo gratuito; era uma cicatriz.
+Pela primeira vez, aquilo não me pareceu cinismo gratuito.
 
 — Como você me achou? — eu perguntei.
 
@@ -242,11 +242,11 @@ Jennifer me olhou com um cansaço que parecia antigo.
 
 O caminho até a minha casa pareceu mais curto do que o caminho até o lago. Ela me acompanhou até a porta e depois seguiu para a casa dela, no fim da rua.
 
-Eu entrei, tranquei a porta e fui direto até a cozinha. O copo de água ainda estava na pia, no mesmo lugar. Ao lado dele, havia o facão que a minha mãe usava para cortar carne.
+Eu entrei, tranquei a porta e fui direto até a cozinha. O copo de água ainda estava no balcão, no mesmo lugar. Ao lado dele, havia o facão que a minha mãe usava para cortar carne.
 
 Eu parei, e observei.
 
-Era um detalhe absurdo demais para ser ignorado, mas pequeno demais para justificar pânico imediato. Eu devia ter tirado e esquecido. Só que eu me lembrava claramente de guardar as coisas: depois do que aconteceu, qualquer objeto cortante ganhou um peso novo dentro de mim.
+Era um detalhe absurdo demais para ser ignorado, mas pequeno demais para justificar pânico imediato. Eu devia ter guardado e esquecido o assunto. Só que eu me lembrava claramente de ter guardado tudo no lugar: depois do que aconteceu, qualquer objeto cortante ganhou um peso novo dentro de mim.
 
 Eu peguei o facão e guardei na gaveta, junto dos outros utensílios.
 
@@ -258,7 +258,7 @@ Eu sorri, e então olhei para a janela ao fundo.
 
 Por um segundo, eu não vi a rua.
 
-Eu vi uma forma escura, recortada contra o vidro, com olhos vermelhos fixos em mim. Não era sombra de árvore. Não era reflexo. Era presença.
+Eu vi uma forma escura, recortada contra o vidro, com olhos vermelhos fixos em mim. Sombra de árvore e reflexo eu teria reconhecido. Aquilo tinha presença.
 
 O ar saiu de mim como se alguém tivesse apertado o meu peito por dentro. Eu pisquei. Pisquei de novo. A coisa continuava ali, imóvel, olhando, esperando que eu reconhecesse.
 
@@ -270,7 +270,7 @@ Então a voz da minha mãe quebrou o silêncio, sonolenta, confusa.
 
 — Junior?
 
-Eu desci o olhar para ela. Ela estava acordada, assustada, recuando na cama. Puxou a cordinha e o abajur acendeu, enchendo o quarto de luz amarela. A sombra na janela desapareceu no mesmo instante, como se nunca tivesse existido.
+Eu desci o olhar para ela. Ela estava acordada, assustada, recuando na cama. Puxou a cordinha e o abajur acendeu, e o quarto se encheu de luz amarela. A sombra na janela desapareceu no mesmo instante, como se nunca tivesse existido.
 
 Minha mãe olhava para mim com um terror que eu nunca tinha visto no rosto dela.
 

@@ -1,6 +1,6 @@
 Nos últimos dias, Kaendar tentava conservar os hábitos de uma cidade em paz.
 
-Mudaram os horários, dobraram os guardas, fecharam acessos. No Anel Baixo, ainda se compravam pão de raiz escura, pequenos bolos de cevada-escura e fava-de-sal cozida nas esquinas; ainda se salgava zírrio seco nos pátios e se discutiam o preço da lenha e a água oleosa. Mas as conversas terminavam quando um guarda passava, as portas ficavam entreabertas e as mães perguntavam duas vezes para onde os filhos iam.
+Mudaram os horários, dobraram os guardas, fecharam acessos. No Anel Baixo, ainda se compravam pão de raiz escura, pequenos bolos de cevada-escura e fava-de-sal cozida nas esquinas, ainda se salgava zírrio seco nos pátios e se discutiam o preço da lenha e a água oleosa. Mas as conversas terminavam quando um guarda passava, as portas ficavam entreabertas e as mães perguntavam duas vezes para onde os filhos iam.
 
 Ao entardecer, três homens de Lutharus chegaram pelos acessos do norte com os tarraks quase partidos de cansaço.
 
@@ -102,7 +102,7 @@ Ele empalideceu.
 
 — Eu jamais ousaria…
 
-— Ousou. Só não teve coragem de terminar. — disse Alyra — Saia daqui.
+— Ousou. Só não teve coragem de terminar — disse Alyra. — Saia daqui.
 
 Lurok tremeu. Alyra repetiu, mas não levantou a voz.
 
@@ -122,7 +122,7 @@ Lurok recolheu os rolos diante de si com mãos rígidas e deixou a Câmara com a
 
 Ninguém respondeu. Após alguns segundos, Daryon falou baixo:
 
-— Muito bem — começou — Ouvimos falar de grão Buldar, barcos Glydar, lanças Tondrar e fogo Vendrar. Mas há uma ausência nesta mesa que talvez pese mais do que todas essas presenças.
+— Muito bem — começou. — Ouvimos falar de grão Buldar, barcos Glydar, lanças Tondrar e fogo Vendrar. Mas há uma ausência nesta mesa que talvez pese mais do que todas essas presenças.
 
 Ele ergueu o olhar, devagar.
 
@@ -130,7 +130,7 @@ Ele ergueu o olhar, devagar.
 
 Alyra olhou para ele.
 
-— Os Urtistar estão do nosso lado. Eles aceitaram vigiar as passagens a oeste e pressionar as rotas que poderiam dar fôlego aos Cendar, caso também decidam se voltar contra nós — disse Alyra. — Nossas patrulhas foram distribuídas de Leralia a Kavilia; nenhuma vila externa, nenhum celeiro de apoio, nenhum ponto de carga sairá do olhar de Kaendar. Varron receberá relatórios das bordas da Garganta Seca antes do próximo ciclo da lua maior. Vamos cortar as rotas. Se qualquer clã acredita que pode mover peças enquanto discutimos etiqueta, aprenderão que os Polar também sabem jogar na chuva.
+— Os Urtistar estão do nosso lado. Eles aceitaram vigiar as passagens a oeste e pressionar as rotas que poderiam dar fôlego aos Cendar, caso também decidam se voltar contra nós — disse Alyra. — Nossas patrulhas foram distribuídas de Leralia a Kavilia. Nenhuma vila externa, nenhum celeiro de apoio, nenhum ponto de carga sairá do olhar de Kaendar. Varron receberá relatórios das bordas da Garganta Seca antes do próximo ciclo da lua maior. Vamos cortar as rotas. Se qualquer clã acredita que pode mover peças enquanto discutimos etiqueta, aprenderão que os Polar também sabem jogar na chuva.
 
 Nalia não pareceu convencida.
 
@@ -406,7 +406,7 @@ Havia também grupos sem fogo, manchas escuras demais contra a terra, tambores b
 
 O Primeiro Kae virou-se para um Segundo Kae que subira atrás dele, homem robusto chamado Brenor, com uma cicatriz antiga no queixo.
 
-— Feche todas as portas entre Anel Baixo e Médio. Deixe passagem apenas para água, areia, feridos e homens de Brokan. Quero arqueiros no alto da Garganta e lanças duplas no portão fluvial. Chame Seron para as juntas queimadas. Nalia deve garantir que nada passe do cais, se ainda estiver viva; se não estiver, pegue qualquer pessoa que saiba diferenciar corrente de poça. E mande alguém buscar Varron.
+— Feche todas as portas entre Anel Baixo e Médio. Deixe passagem apenas para água, areia, feridos e homens de Brokan. Quero arqueiros no alto da Garganta e lanças duplas no portão fluvial. Chame Seron para as juntas queimadas. Nalia deve garantir que nada passe do cais, se ainda estiver viva. Se não estiver, pegue qualquer pessoa que saiba diferenciar corrente de poça. E mande alguém buscar Varron.
 
 — E a soberana Kaelina?
 
@@ -470,7 +470,7 @@ A humilhação foi pequena. Por isso funcionou. Daryon retirou a espada da cintu
 
 Os guardas olharam para Alyra. Ela assentiu. A porta fechou-se, deixando os guardas e servos do lado de fora. Dentro da Câmara do Primeiro Abrigo ficaram apenas os dois, a pedra antiga, as lamparinas tremendo e a guerra batendo contra Kaendar como um punho distante.
 
-Dentro, os sons da guerra diminuíram, mas não sumiram. A pedra filtrava tudo: sinos, passos, gritos distantes, pancadas surdas, estalos de fogo, chifres. O mundo parecia acontecer debaixo de água. Daryon virou-se para ela.
+Os sons da guerra diminuíram, mas não sumiram. A pedra filtrava tudo: sinos, passos, gritos distantes, pancadas surdas, estalos de fogo, chifres. O mundo parecia acontecer debaixo de água. Daryon virou-se para ela.
 
 — Estamos cercados.
 
@@ -484,7 +484,7 @@ Dentro, os sons da guerra diminuíram, mas não sumiram. A pedra filtrava tudo: 
 
 Alyra ficou olhando para ele.
 
-— Então vim buscar tua ordem. Eu reúno os Kaes, Varron, Brokan e Nalia em teu nome. Você permanece viva aqui dentro, e a tua vontade sai comigo.
+— Então vim buscar tua ordem — disse Daryon. — Eu reúno os Kaes, Varron, Brokan e Nalia em teu nome. Você permanece viva aqui dentro, e a tua vontade sai comigo.
 
 O rosto dela mudou devagar, não para gratidão, para compreensão venenosa.
 

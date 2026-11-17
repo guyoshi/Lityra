@@ -1,16 +1,16 @@
 “Cada suspiro que der, cada movimento que fizer, a cada laço que quebrar, a cada passo que você der, eu vou estar te observando.”
 
-Naquela quarta-feira de manhã, eu reli o relatório inteiro do que tinha conseguido juntar sobre Vila Velha procurando por falhas. Corrigi duas frases que soavam como opinião, reorganizei as informações para que a sequência parecesse inevitável e, quando ficou com cara de verdade, imprimi tudo de novo.
+Naquela quarta-feira de manhã, reli o relatório de Vila Velha. Havia duas frases que pareciam opinião, e Rodrigo ia perceber na hora. Corrigi, reorganizei os parágrafos e mandei imprimir outra vez. O papel saiu com uma mancha de tinta na primeira página. Fiquei irritada e imprimi de novo.
 
 Chamei um táxi. A Paper ficava num prédio alto demais para a cidade fingir que era pequena, com vidro a mais e humildade a menos. Subi de elevador e aguardei ser chamada, como se fosse apenas mais uma candidata.
 
-Na sala de espera, abri o notebook e tentei recolher mais alguma coisa que me desse vantagem. A internet parecia empenhada em me sabotar, lenta, com aquela cara de 2003 em que um carregamento podia durar uma vida inteira. Eu não me permiti irritação visível. Irritação entrega pressa. Pressa entrega fraqueza.
+Na sala de espera, abri o notebook e tentei recolher mais alguma coisa que me desse vantagem. A internet parecia empenhada em me sabotar, lenta, com aquela cara de 2003 em que um carregamento podia durar uma vida inteira. A conexão caiu duas vezes. Na terceira, tive vontade de bater no notebook. Fechei a tampa antes de fazer uma cena na sala de espera.
 
-Quando chamaram o meu nome, eu me levantei com o nervosismo certo, aquele que as pessoas interpretam como dedicação, não como desespero. Se a porta não abrisse, eu sabia exatamente o que fazer: eu não arrombava; eu descobria a chave.
+Quando chamaram meu nome, quase derrubei a pasta no chão. Juntei as folhas e entrei, fingindo que nada tinha acontecido.
 
 O entrevistador estava lá de novo.
 
-Ele pegou as páginas, as alinhou sobre a mesa com um cuidado quase teatral, como se quisesse que eu notasse que o texto, para ele, era apenas papel. Antes de ler, anunciou que ia ao WC e saiu. Três minutos é muito tempo para um homem que está no “controle”. Eu não registrei isso com o rosto. Registrei por dentro: três minutos são o bastante para alguém receber uma chamada, ler uma mensagem, confirmar um nome.
+Ele pegou as páginas, as alinhou sobre a mesa com um cuidado quase teatral, como se quisesse que eu notasse que o texto, para ele, era apenas papel. Antes de ler, anunciou que ia ao WC e saiu. Três minutos é muito tempo para um homem que está no “controle”. Fiquei esperando, olhando para o relógio. Três minutos. Ainda dava para ir embora antes que ele voltasse. Não fui.
 
 Quando voltou, se sentou e começou a ler com a lentidão calculada de quem quer que o outro lado se sinta pequeno. Era um jogo simples: ele precisava que eu acreditasse que a aprovação dele era um milagre, não um processo. Eu deixei.
 
@@ -22,19 +22,21 @@ Ele sorriu, com a calma de quem vai esmagar algo.
 
 — Isso não serviria nem para uma mini manchete. O conteúdo não é ruim, mas eu acreditava que, depois daquela nossa conversa, você trouxesse algo mais estruturado. Se quer trazer uma notícia como essa, fundamente melhor. Traga personagens. Cite fontes. Nós não somos do tipo que publica qualquer historinha pra ganhar seguidor. Somos a rede de jornais mais vendidos do país.
 
-Eu já tinha ouvido isso de outros homens antes: o “nós” como martelo, a marca como escudo. Não era sobre a Paper. Era sobre ele, e sobre o prazer de dizer “não” como se fosse uma dádiva.
+Eu já tinha ouvido isso de outros homens antes: o “nós” como martelo, a marca como escudo. Era sobre ele e sobre o prazer de dizer “não” como se fosse uma dádiva.
 
 — Eu sei exatamente quem vocês são — respondi, com a voz no ponto certo entre respeito e firmeza. — E é por isso que eu dediquei dezenas de horas a este artigo.
 
 Ele inclinou a cabeça, condescendente.
 
-— Glenda… nós queremos tragédia. Notícias impactantes. Coisas que prendam a atenção. Escreva com dupla interpretação: para os mais entusiasmados, choque-os; para os mais desconfiados, dê o máximo de informação possível. Não basta trazer a notícia. A escrita não está ruim, mas ainda não é suficiente.
+— Glenda… nós queremos tragédia. Notícias impactantes. Coisas que prendam a atenção. Escreva com dupla interpretação: para os mais entusiasmados, choque-os, e para os mais desconfiados, dê o máximo de informação possível. Não basta trazer a notícia. A escrita não está ruim, mas ainda não é suficiente.
 
 Eu deixei a pergunta sair com hesitação medida, porque hesitação, às vezes, obriga o outro a se explicar.
 
 — Não é suficiente para quê?
 
 Ele ergueu as folhas de novo, como se o papel lhe desse autoridade, e me fitou.
+
+— Ficou claro?
 
 — Não. Não está nada claro. Na verdade, até este momento eu não sei nem o seu nome — eu disse, com uma delicadeza que soava educada, mas tinha lâmina.
 
@@ -58,7 +60,7 @@ Fechei a porta do quarto e sentei na cama. Então o corpo resolveu lembrar que e
 
 Eu odiei aquilo com uma raiva limpa, silenciosa. Perder o controle do corpo é um desperdício de tempo.
 
-Apoiei as mãos na cabeça, e foi então que bateram na porta.
+Apoiei as mãos na cabeça e bateram na porta.
 
 — É a Tereza — respondeu uma voz do outro lado.
 
@@ -80,13 +82,13 @@ Ela riu, como se a indiscrição fosse uma qualidade simpática.
 
 — Vai dar certo — ela disse, como se fé fosse uma ferramenta. — Tenha fé no Senhor, que tudo dá certo, menina. Você parece ser muito boa, e seu tio te elogiou bastante.
 
-“Seu tio.” A palavra ficou na minha cabeça como um erro voluntário. Diego não era meu tio de sangue, era marido da minha tia, mas eu não corrigi. Eu preferia recolher informação.
+“Seu tio.” A palavra ficou na minha cabeça. Diego era irmão da minha mãe, tio de sangue, mas naquela boca a palavra soava como senha. Eu preferia recolher informação.
 
 — Ele me elogiou? O que mais ele falou de mim?
 
 — Ah… disse só coisa boa. Disse que você era a sobrinha favorita dele, que era linda, inteligente, e que tinha um futuro brilhante.
 
-Isso não era elogio. Era posse. Eu guardei.
+Aquilo era posse disfarçada de elogio. Eu guardei.
 
 — Que ótimo — eu respondi, com um sorriso que parecia agradecido o bastante para não soar ofensivo. — É bom ver que alguém tem algo bom pra falar de mim.
 
@@ -94,15 +96,15 @@ Isso não era elogio. Era posse. Eu guardei.
 
 — Não… não é isso, querida. É só que… deixa quieto. Tenha um ótimo dia — ela disse, e foi embora.
 
-Eu acompanhei com os olhos até que ela descesse as escadas. O vômito no chão era só um problema prático; eu cobri com um pano e deixei para lidar depois.
+Eu acompanhei com os olhos até que ela descesse as escadas. O vômito no chão era só um problema prático. Eu cobri com um pano e deixei para lidar depois.
 
-Corri para o notebook e voltei à internet, porque Rodrigo tinha sido claro: tragédia prende. Pesquisei casos de espíritos vingativos, mas também de pessoas vingativas. A crueldade humana é sempre um bom espelho; às vezes, o sobrenatural só imita. Li uma história de um garoto que matou o próprio irmão porque ele se envolveu com a namorada dele. Quinze anos. Eu me obriguei a interromper antes que detalhes inúteis ocupassem espaço.
+Corri para o notebook e voltei à internet, porque Rodrigo tinha sido claro: tragédia prende. Pesquisei casos de espíritos vingativos, mas também de pessoas vingativas. A crueldade humana é sempre um bom espelho. Às vezes o sobrenatural só imita. Li uma história de um garoto que matou o próprio irmão porque ele se envolveu com a namorada dele. Quinze anos. Eu me obriguei a interromper antes que detalhes inúteis ocupassem espaço.
 
-Foi então que o MSN abriu uma janela.
+O MSN abriu uma janela.
 
 A pessoa não disse “oi”. Não perguntou nada. Apenas mandou um link.
 
-Eu fiquei olhando para o link como quem olha para uma faca sobre uma mesa: não é o objeto que importa, é a intenção de quem o colocou ali. Alguém queria que eu visse aquilo. Eu cliquei.
+Eu fiquei olhando para o link como quem olha para uma faca sobre uma mesa e pensa em quem a deixou ali. Alguém queria que eu visse aquilo. Eu cliquei.
 
 A página abriu num site chamado Cabuloso. E o caso estava ali, exposto com a falta de vergonha típica de certos lugares da internet, onde o choque é moeda.
 
@@ -119,7 +121,7 @@ O texto continuava:
 
 “Lucinda relatava aos moradores locais que via coisas sobrenaturais e que sentia a cidade respirar à noite. Ela dizia que havia uma presença que a observava e que, mais de uma vez, tinha tentado levá-la.”
 
-Foi nesse ponto que a minha mente avançou sozinha. Eu conhecia aquela sensação: o pressentimento pesado, o fio invisível que puxa algo antigo dentro de mim. Não era apenas medo; era reconhecimento. Eu não era a única.
+Foi nesse ponto que a minha mente avançou sozinha. Eu conhecia aquela sensação: o pressentimento pesado, o fio invisível que puxa algo antigo dentro de mim. Era reconhecimento, mais que medo. Eu não era a única.
 
 A porta do quarto recebeu uma pancada forte e uma voz gritou meu nome.
 
@@ -175,7 +177,7 @@ Jason passou a mão no meu ombro, desajeitado, com a culpa de quem queria ter es
 
 Ele sorriu, convencido de que tinha entendido tudo, e eu deixei. A melhor mentira é a que a pessoa constrói sozinha partindo de um pedaço de verdade.
 
-Peguei a filmadora na mochila — eu vinha gravando o meu diário em vídeo por rotina. O que não é registrado pode ser negado. Saí do quarto e fui até o banheiro do piso superior.
+Peguei a filmadora na mochila. Eu vinha gravando o meu diário em vídeo por rotina, e o que não é registrado pode ser negado. Saí do quarto e fui até o banheiro do piso superior.
 
 Era imenso. Banheira grande, mármore, e uma parede com um espelho enorme. Eu o cobri rápido com uma toalha de mão, num gesto automático que já fazia parte do meu dia.
 
@@ -205,13 +207,13 @@ Corri para perto da banheira e fechei os olhos, repetindo uma frase que eu nem a
 
 “Não há nada aqui. Eu estou tranquila. Não há nada aqui.”
 
-A respiração veio de algum lugar. Pesada. De um homem grande. Não era imaginação; era som com volume, com peso, com posição no espaço.
+A respiração veio de algum lugar. Pesada. De um homem grande. Imaginação não tem volume, nem peso, nem posição no espaço. Aquilo tinha.
 
 Eu abri os olhos e caminhei a passos curtos até ela. A respiração parecia mais próxima, mais grossa, como se o ar fosse puxado por um peito enorme.
 
 Eu puxei a porta com tudo e saí.
 
-O corredor estava escuro. Cortinas fechadas. A mansão de Diego, com cortinas abertas, parecia uma vitrine de luxo; com cortinas fechadas, virava uma caverna. Apenas um filete de luz atravessava uma fresta e desenhava faixas no chão.
+O corredor estava escuro. Cortinas fechadas. A mansão de Diego, com cortinas abertas, parecia uma vitrine de luxo, e com cortinas fechadas virava uma caverna. Apenas um filete de luz atravessava uma fresta e desenhava faixas no chão.
 
 Eu virei para fechar a porta. Vi a minha filmadora na pia, lá dentro. Eu não podia deixá-la. Não por valor. Por prova.
 
@@ -231,7 +233,7 @@ Ele ergueu o facão. Eu caí no chão no exato instante em que a lâmina acertou
 
 Eu corri para a escada, e ele veio atrás, esbarrando em tudo. Quando senti a lâmina cortar o ar perto de mim, eu me abaixei e caí de novo. A filmadora voou da minha mão, bateu em algo, e eu não parei para ver se quebrou.
 
-Subi os primeiros degraus num salto, depois desci — porque eu tinha percebido: ele me empurrava para cima, para me encurralar. Eu não lhe daria essa vantagem.
+Subi os primeiros degraus num salto, depois desci, porque tinha percebido: ele me empurrava para cima, para me encurralar. Eu não lhe daria essa vantagem.
 
 O local ficou um pouco mais iluminado, mas isso não o desacelerou. Olhei para trás enquanto descia e vi que ele corria como se eu fosse exatamente o que ele queria desde o início: a presa perfeita.
 
@@ -249,7 +251,7 @@ Eu a abri e dei de cara com Diego.
 
 Diego segurou meu braço.
 
-— ME LARGA! — eu o soco forte demais, e ele soltou no mesmo instante. Foi instinto.
+— ME LARGA! — eu o soquei forte demais, e ele soltou no mesmo instante. Foi instinto.
 
 Eu virei para trás, pronta para ver o facão descendo, pronta para ver o sangue aparecendo, pronta para ver o caos… e não havia nada.
 
@@ -319,4 +321,4 @@ Sentei no vaso e, aos poucos, uma tranquilidade estranha me acometeu. Eu comecei
 
 Porque era isso: o horror podia correr atrás de mim com um facão, mas a coisa que me beijou sem permissão tinha um nome, uma casa, uma arma e uma reputação, e ainda assim o mundo chamava aquilo de “segurança”.
 
-E eu sabia, com uma clareza quase confortável, que ninguém ia me salvar de nenhum dos dois. Se eu quisesse sobreviver, teria de fazer o que sempre fiz: observar, calcular e esperar.
+Fiquei sentada ali até a risada passar. Depois lavei o rosto e fui para o quarto. As mãos ainda tremiam. Eu estava cansada de ter medo de Diego, mas naquela noite não consegui dormir.

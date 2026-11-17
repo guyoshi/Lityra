@@ -32,11 +32,11 @@ Não havia nada para ouvir, a não ser o vento. Mas o vento tinha um desenho. Vi
 
 — Aquela. — Beatriz apontou para uma colina baixa, com uma árvore preta no alto. — Eu escolhi porque tem árvore. Sempre que tem árvore alguém já passou ali.
 
-Não era um argumento que ele aceitaria numa aula, mas era o único que tinham. Andaram em silêncio por vinte minutos, a neve rangendo até os joelhos, os flocos grudando nas sobrancelhas, e Breno contou os passos até perder a conta e recomeçou. Quando a colina ficou perto, o vento comprido passou outra vez, na mesma escala, subindo o mesmo tom fora do lugar, e Breno só reparou que ele tinha acabado quando a árvore já parecia mais alta do que de longe, e a colina mais íngreme, e depois, de repente, não era colina nenhuma.
+Não era um argumento que Breno aceitasse numa aula, mas era o único que tinham. Andaram até a colina com neve pelos joelhos. A música tornou a subir um tom errado. Quando Breno percebeu, a colina já não estava lá.
 
 — É uma duna — disse, com a voz de quem corrige uma leitura. — A gente está andando num deserto, e está nevando nele.
 
-Parou. Olhou para trás. A neve continuava a cair, mas por baixo dela já não havia neve nenhuma, havia areia, e o campo inteiro era um mar de dunas curvas até o horizonte, cada uma com um chapéu branco que os flocos engordavam sem parar. Subia do chão um calor seco de forno, que fazia os flocos chiarem e não derreterem, e a árvore preta no alto virou um poste torto, de ferro enferrujado, com uma lâmpada quebrada pendurada na ponta e um pouco de neve sentada em cima.
+Sob os flocos que ainda caíam havia agora dunas de areia quente, cada uma com um chapéu branco de neve que não derretia. A árvore preta tinha virado um poste enferrujado com uma lâmpada quebrada. Breno voltou-se para conferir o caminho: o campo branco também desaparecera.
 
 — Foi ali que eu tive a ideia — disse Beatriz, apontando para a areia onde tinham passado. — Quando você estava contando passos. Eu vi a neve mudar um pouquinho, mas pensei que era o vento. Eu achei que não era importante.
 
@@ -44,7 +44,7 @@ Parou. Olhou para trás. A neve continuava a cair, mas por baixo dela já não h
 
 — Tá. Esse poste mudou agora de novo.
 
-Mudou mesmo. O vento comprido passou de leve, bem antes, e Breno não ligou uma coisa à outra. O ferro tinha virado madeira, e a madeira, um tronco coberto de limo, e do alto do tronco brotou um galho com folhas largas, e as folhas se abriram em leques de uma planta que Breno nunca vira. Em poucos segundos eles estavam parados no pé de uma samambaia gigante, num pântano escuro, com neve em cima de cada folha, placas brancas boiando na água preta e um cheiro doce de coisa apodrecendo. A areia tinha virado lama morna, que subia até o tornozelo, e os flocos caíam nela e sumiam sem fazer barulho. Breno puxou o pé com esforço e tentou segurar o que sabia, que eram duas coisas. Era um lugar que mudava, e mudava quando ele deixava de olhar.
+O poste virou tronco, criou folhas largas e cresceu até ser uma samambaia gigantesca. A areia cedeu sob as botas, transformada em lama morna; ao redor havia um pântano de água escura e folhas nevadas. Breno tentou firmar o pé. A mesma música precedera as duas mudanças.
 
 — Regra número um — disse. — A gente não solta a mão. Regra número dois, a gente não acredita no que está vendo, só no que continua igual por mais de um minuto. Regra número três...
 
@@ -90,7 +90,7 @@ Beatriz guardou a metade do botão no bolso, junto com a gaita, e acenou para o 
 
 — Eu também achei estranho. — Beatriz olhava para a lama, que de repente tinha endurecido e rachado, com a neve escorrendo para dentro das rachaduras. — Mas ele era simpático. E eu gostei do colete.
 
-A música passou de novo, curta, e o pântano terminou. Uma folha larga se afastou com um estalo, e eles pisaram numa planície de capim baixo e amarelado, toda enfeitada de neve fina, sob um céu cor de laranja de fim de tarde de onde os flocos desciam dourados. Breno estava prestes a dizer que dessa vez a mudança tinha sido mais gentil quando o chão tremeu em ondas curtas, de três em três segundos, e Beatriz agarrou o braço dele com as duas mãos.
+O contracanto soou mais uma vez. Quando terminou, estavam numa planície de capim amarelado, sob um céu laranja onde a neve caía dourada. O chão tremeu três vezes. Beatriz agarrou o braço de Breno.
 
 — Breno, é um terremoto?
 
@@ -120,21 +120,21 @@ Ela cruzou os braços e ficou olhando a fila passar, e Breno percebeu que a boca
 
 O dinossauro soltou pelo nariz um ar morno que despenteou o cabelo dela e que cheirava a capim molhado. Em seguida ele ergueu a cabeça, voltou para a fila e foi embora, e os filhotes foram atrás, e o rebanho todo se perdeu nos flocos dourados. Beatriz ficou em pé, com a bochecha brilhando de saliva, sorrindo para o horizonte. Breno teve vontade de dizer alguma coisa sensata e descobriu que não havia nada sensato para dizer.
 
-O contracanto passou outra vez enquanto andavam, e quando acabou a planície tinha um fim, numa borda reta, como a de uma mesa. Do outro lado não havia chão. Havia um mar, mas um mar em pé, uma parede de água azul e calma que subia até o céu laranja, com peixes compridos passando por dentro dela e uma neve fina que caía para dentro da água sem molhar nada. Breno ficou parado na beira, com a ponta da bota para fora, olhando um cardume virar numa curva que não existia.
+Mais adiante, a planície acabava numa borda reta. Diante deles erguia-se um mar vertical, de água azul e calma, cheio de peixes compridos. A neve entrava naquela parede sem molhar a terra. Breno parou com a ponta da bota suspensa no vazio.
 
 — O mar está de pé — disse Beatriz, baixinho. — E aquele peixe me olhou, Breno. Eu juro. Ele estava de cabeça para baixo ou eu estava, mas olhou.
 
-— Isso não existe — disse ele, e a frase soou pequena, porque tinha acabado de repetir a si mesmo a mesma coisa três vezes naquela manhã. — Água não fica de pé, e neve não entra na água sem derreter, e a gente não tem como chegar mais perto para conferir.
+— Água não fica de pé — murmurou Breno. Depois daquilo tudo, a frase lhe pareceu pequena.
 
-Foi então que a música veio mais alta e mais comprida do que todas as outras, e o vento mudou junto com ela.
+A nota seguinte veio mais alta. O vento mudou de direção.
 
-Não foi uma brisa. Foi uma parede, que chegou do lado esquerdo, fria como uma porta de geladeira aberta, e levantou a neve do chão e a saia da capa de Beatriz e arrancou da mão dele o fio azul do diapasão, que bateu no pulso como um chicote. O céu escureceu de uma vez só, como um cenário de teatro quando trocam o pano, e onde antes havia um laranja de fim de tarde havia agora um cinza-chumbo, baixo e espesso. A neve que caía devagar virou uma cortina que passava de lado. O mar em pé sumiu, e os peixes junto. Em meio minuto não se via a própria mão.
+Uma rajada gelada atingiu-os pela esquerda, arrancando o fio azul do diapasão da mão de Breno. O céu laranja tornou-se cinza-chumbo. O mar e os peixes desapareceram atrás de uma cortina de neve que corria de lado. Em segundos, mal conseguiam enxergar as próprias mãos.
 
 — A neve ficou brava! — gritou Beatriz, por cima do vento. — Breno, ela está bem mais forte, e eu continuo sem frio, e eu acho que isso não é normal!
 
 — Nada aqui é normal! — Ele a puxou para junto do peito e tentou protegê-la com a capa. — Mão, Beatriz! Não solta, não solta, não solta!
 
-Andaram contra o vento, de cabeça baixa, e a neve entrava nos olhos, na boca, nas dobras do pescoço. Breno apertava a mão dela até sentir os ossos pequenos e se perguntava, a cada passo, qual era a regra que ele tinha esquecido. A neve parou de repente, deixou um silêncio inteiro, e voltou, mais forte. A planície virou uma encosta, a encosta virou um desfiladeiro de paredes lisas, e as paredes viraram, numa curva, um corredor de árvores sem folha, e os dois seguiam em frente porque não havia outra coisa para fazer. A cada troca a música voltava, comprida, num tom que ele sentia nos dentes, e Beatriz, sem soltar a mão, cantarolou as três notas dela por baixo, bem baixinho. A música parou no meio, como quem espera uma resposta, e depois seguiu, mais baixa.
+Breno levou Beatriz pela mão entre rajadas que escondiam o caminho. A terra subia numa encosta, depois afundava num desfiladeiro e terminava entre árvores sem folhas. A cada mudança, a música soava acima do vento. Beatriz começou a cantarolar suas três notas por baixo dela. O contracanto parou no meio de uma nota, como se esperasse a resposta dela.
 
 — Ela me escutou — disse Beatriz.
 
@@ -162,7 +162,7 @@ Os dois andaram mais uns minutos, e Breno ouviu uma voz, bem longe, rouca, segui
 
 — A verdadeira era a do meio. — Beatriz pôs a cabeça de lado, escutando. — A do meio era seguir o barulho.
 
-Não foi uma boa decisão. Foi a única que ele tinha. Subiram uma lomba escorregadia, atravessaram uma faixa de pedras cobertas de gelo, e no topo, numa clareira redonda onde a neve não pegava, encontraram a briga.
+Subiram uma lomba escorregadia, atravessaram uma faixa de pedras cobertas de gelo, e no topo, numa clareira redonda onde a neve não pegava, encontraram a briga.
 
 Eram duas figuras, quase do tamanho de homens grandes, e as duas pareciam feitas de uma coisa que não devia ter forma de gente. Uma era de fogo vivo, um corpo de chama alta e amarela, com a cabeça pontuda de labareda e os braços rodando como serpentinas. A outra era de gelo, azul-claro e transparente, com cristais saindo dos ombros e dos cotovelos, e uma coroa de pontas que tilintava quando ela se mexia. Os dois se agarravam e se empurravam sem parar, e cada soco da figura de gelo deixava um buraco chiando no peito da de fogo, e cada chute da de fogo fazia lascas voarem da perna da outra. O chão em volta era uma poça rasa, fumegante, de neve derretida, que borbulhava.
 
@@ -284,7 +284,7 @@ Breno pensou em responder. Tinha pelo menos duas respostas, as duas razoáveis, 
 
 Ele quase tropeçou.
 
-A neve engrossou. Eles andaram mais uma hora, ou o que parecia uma hora, e Breno percebeu que as pernas de Beatriz tinham começado a ficar moles, e que a respiração dela vinha em soluços curtos. Ela não se queixava, o que era pior do que se queixasse. O vento puxava a capa, o gelo entrava nos sapatos, e a música passava de vez em quando, fina, vinda de um lugar que ele não sabia apontar. Pensou em acampar embaixo de uma pedra, pensou no que Bruno faria e no que Banjo faria e se arrependeu de ter pensado. Foi nesse momento que Beatriz parou, de repente, e ficou olhando para a direita, para o escuro.
+A neve engrossou durante a caminhada. Beatriz começou a tropeçar, mas não reclamou. Breno procurava um abrigo entre as árvores quando a irmã parou e apontou para a escuridão à direita.
 
 — Breno. — Ela puxou a manga dele de leve. — Não olha de uma vez, olha devagar, para o lado direito, entre as duas árvores sem folha.
 

@@ -1,8 +1,8 @@
-A manhã chegou limpa. Nada de pesadelos, nada de visões. Raios de sol atravessavam as frestas das cortinas pesadas da janela em fios finos, e o resto do quarto continuava em penumbra, como se a casa não tivesse combinado com o dia. Levantei devagar. Pedro ainda dormia no colchão do chão, de boca aberta, com a bombinha embaixo do queixo. Filipo, na cama ao lado, estava de olhos abertos, fixos no teto.
+A manhã chegou limpa. Nada de pesadelos, nada de visões. Raios de sol atravessavam as frestas das cortinas pesadas da janela em fios finos, e o resto do quarto continuava em penumbra, como se a casa não tivesse combinado com o dia. Levantei devagar. Minha mochila secava no espaldar da cadeira, o casaco ainda úmido embrulhando o que levava dentro. Pedro ainda dormia no colchão do chão, de boca aberta, com a bombinha embaixo do queixo. Filipo, na cama ao lado, estava de olhos abertos, fixos no teto.
 
 — Acordou faz tempo? — perguntei, baixo.
 
-— Não dormi quase nada — ele disse. — Qualquer ruído me fazia lembrar do Cara-de-Larva. O vento, o telhado, aquele negócio de vidrinho no portão. — Esfregou o rosto. — Você ouviu?
+— Não dormi quase nada — ele disse. — Qualquer ruído me fazia lembrar do Cara-de-Larva. O vento, o telhado, os vidrinhos no portão. — Esfregou o rosto. — Você ouviu?
 
 — Ouvi — respondi. — Achei que era o vento.
 
@@ -60,7 +60,7 @@ A Sra. Olívia finalmente se virou. Baixou a voz até onde a gente é obrigada a
 
 — E isso quer dizer o quê?
 
-— Que tem de tomar cuidado com o que você é. — Ela mancou até o fogão de lenha. — Venha. Vamos tomar um chá antes que o dia esfrie.
+— Que você tem que tomar cuidado com o que é. — Ela mancou até o fogão de lenha. — Venha. Vamos tomar um chá antes que o dia esfrie.
 
 Sentei no sofá do salão, onde os panos pretos ainda cobriam os espelhos e o pêndulo marcava um tique-taque que parecia ouvir a gente. Pedro desceu a escada, esfregando os olhos, e sentou ao meu lado.
 
@@ -70,7 +70,7 @@ Sentei no sofá do salão, onde os panos pretos ainda cobriam os espelhos e o p�
 
 — Meus pais devem estar malucos. Acha melhor eu ligar para eles?
 
-— Quer que eu seja sincera? — Hesitei. — Não acho. Quanto mais longe ficarem de você, mais seguros. Por ora é melhor ninguém saber onde estamos.
+— Eu queria dizer que sim — respondi. — Mas, se eles souberem onde estamos, podem vir atrás da gente e acabar em perigo também. Não sei o que é pior, Pedro. O meu pai também deve estar preocupado. Prometi que ligaria quando chegássemos a algum lugar seguro.
 
 — Então foi por isso que... — Pedro parou, e mudou de assunto, num tom diferente. — Bom dia, Sra. Olívia.
 
@@ -78,7 +78,7 @@ Sentei no sofá do salão, onde os panos pretos ainda cobriam os espelhos e o p�
 
 — Esqueci o que eu ia falar. A cabeça anda maluca.
 
-Ele não tinha esquecido nada. Pedro nunca soube mentir; eu sabia muito bem quando ele disfarçava.
+Ele não tinha esquecido nada. Pedro nunca soube mentir, e eu sabia muito bem quando ele disfarçava.
 
 Uma brisa fina entrou por alguma fresta e me alcançou. Tinha uma serenidade estranha, que me fez soltar os músculos e encostar as costas no sofá.
 
@@ -108,19 +108,21 @@ Ela se levantou, fez sinal com a mão e foi até a porta dos fundos. Terminei o 
 
 O terreno era plano, e de dia pude ver melhor o entorno: o muro baixo de pedra, as árvores escondidas atrás de cercas no horizonte, uma lagoa pequena ao lado da casa, de água parada e escura como um espelho sem pano. Atrás da casa havia um estábulo, e dentro dele uma égua branca.
 
-— Que linda! — exclamei.
+De dia o pelo de Leila parecia ainda mais branco. Ela ergueu o focinho quando me aproximei, e lembrei da sensação da noite anterior, do calor que tinha alcançado a minha mão sem que eu soubesse explicar.
 
-— É a Leila. A primeira coisa que percebi, quando comecei a ver espíritos, foi que eu também sentia as vitalidades — disse a Sra. Olívia, tocando o pescoço da égua. — Vá. Experimente.
+— Ontem você sentiu a Leila pela primeira vez — disse a Sra. Olívia, tocando o pescoço da égua. — Hoje vamos tentar entender o que percebeu. Eu tinha a sua idade quando descobri que conseguia sentir vitalidade junto dos espíritos. Vá, aproxime a mão.
 
-Hesitei e levantei a mão até o rosto dela. Nunca tinha tocado num cavalo. Os olhos de Leila eram grandes e molhados, mas não olhavam para mim. Olhavam por cima do meu ombro, para o mato.
+Aproximei a mão do pescoço de Leila. Na noite anterior, tinha sido tão bom sentir a vida nela que quase me esquecera do medo. Agora os olhos da égua estavam voltados para o mato, e ela não parava de mexer uma das orelhas.
 
 — Feche os olhos. Sinta a respiração dela, o pulso. A energia.
 
 Obedeci. Ouvi a respiração larga, senti o pulso nas pontas dos dedos. Em poucos segundos, voltou aquela brisa a que eu era tão acostumada e que nunca imaginei ser algo assim.
 
-— Sinto — falei, de olhos fechados. — Mas não sei o que significa.
+— Consigo sentir — respondi de olhos fechados. — Ontem parecia só calor. Agora tem outra coisa. Ela está inquieta.
 
-— Vitalidade é a força que todas as almas possuem. É o alimento preferido dos demônios. Todos nós, criaturas vivas, podemos ser possuídos. Eles se alimentam da nossa vitalidade até nos esgotar. — Ela falava devagar, com pausas calculadas, como quem conta uma história antiga para crianças e quer que elas durmam com a luz acesa. — E quem aprende a sentir toda essa vitalidade aprende também a sentir quando um demônio se aproxima. Demônio é uma anti-vitalidade. Sente-se como se toda a energia do lugar escorresse para um único ponto, frio e escuro. Os bichos ficam esquisitos. As pessoas perdem a noção das coisas.
+— Está percebendo o medo dela — explicou Olívia. — A vitalidade é a força que toda alma possui. Para um demônio, é alimento. Eles podem esgotar alguém e até usar um corpo que já não consegue resistir. Quando se aproximam, você sente a energia do lugar mudar. Os bichos percebem antes de nós.
+
+Leila bateu o casco contra o chão de palha. Passei a mão pelo pescoço dela e senti o coração acelerar de novo, só que desta vez havia uma diferença: parte do medo que me atingia não era meu.
 
 Lembrei do ano passado: os ratos, os pássaros que Junior e Kelly citaram no diário, os animais que nos atacaram.
 
@@ -130,7 +132,7 @@ A Sra. Olívia olhou dentro dos meus olhos.
 
 — Ao tomar a vitalidade de um espírito, o demônio projeta nela os medos, os desejos, as memórias, tudo o que aquela vida viveu, em força maligna. Talvez essa menina tenha sofrido com bichos. Ou os amava demais. Algum sentimento forte estava lá. — Ela inclinou a cabeça. — E por isso você precisa fortalecer a sua alma, Jennifer. Para nenhum demônio usar o que você sente contra os que estão perto de você, como fizeram comigo, e com tantos outros.
 
-— Os demônios vão se decepcionar comigo — falei. — Não tenho sentimentos fortes por nada. Minha vida sempre foi uma droga. Nunca tive amigos. Só no ano passado, quando conheci o Pedro e a sua neta, foi que senti que tinha.
+— Então eles vão encontrar muita coisa para usar contra mim — respondi. — Tenho medo de perder meu pai. E agora também tenho o Pedro, o Junior, a Priscila. Antes eu não entendia como alguém podia ter tanto medo por outras pessoas. Agora entendo.
 
 — Nossa memória é traiçoeira. Se você buscar fundo, vai achar uma alegria ou um trauma que sirva de isca. Me diga.
 
@@ -158,7 +160,7 @@ Ela soltou Leila, que voltou a se agitar, e olhou para mim, esperando. Não sabi
 
 Abri os olhos e vi a Sra. Olívia me levantando do chão de palha.
 
-— Leila estava com medo. Você tem de sentir o oposto do medo para equilibrar. Senão absorve tudo.
+— Leila estava com medo. Você tem que sentir o oposto do medo para equilibrar. Senão absorve tudo.
 
 — Foi horrível — falei.
 
@@ -178,7 +180,7 @@ Pedro assentiu, distraído. Então, como se estivesse prestes a explodir, pergun
 
 — No telefone. Eu vi as suas mensagens. Não queria ter visto, mas achei que meus pais podiam estar tentando falar comigo, então peguei para olhar.
 
-— Não é ninguém importante — respondi, cortando. — É uma garota que conheci há alguns dias, quando fui visitar o Vini na prisão.
+— É uma conhecida — respondi, cortando. — Uma garota que encontrei há alguns dias, quando fui visitar o Vini na prisão.
 
 Pedro continuou me olhando, esperando uma resposta melhor.
 
@@ -196,7 +198,7 @@ Pedro continuou me olhando, esperando uma resposta melhor.
 
 — Você acha sensato mandar mais gente para aquela cidade? — perguntou Pedro. — A Sra. Olívia disse que o lugar é amaldiçoado. Quem garante que quem entrar sai vivo?
 
-— Talvez ele tenha razão — falei. — Se a gente quer que o mundo saiba do mal, tem de ir à origem. E tudo nos leva àquela cidade. Mas não vou mandar a Glenda correr esse risco.
+— Talvez ele tenha razão — falei. — Se a gente quer que o mundo saiba do mal, tem que ir à origem. E tudo nos leva àquela cidade. Mas não vou mandar a Glenda correr esse risco.
 
 — O nome dela é Glenda? — Pedro perguntou.
 
@@ -216,7 +218,7 @@ Desviei o olhar.
 
 — Você é meu amigo. Mas é que...
 
-Aquele "mas é que" devia ter ficado de fora. Vi a decepção no rosto dele antes de terminar a frase.
+Aquele “mas é que” devia ter ficado de fora. Vi a decepção no rosto dele antes de terminar a frase.
 
 — Tudo bem. Entendi. Cansada desse gordo chato.
 
@@ -240,11 +242,15 @@ Antes de responder qualquer coisa, fechei os olhos por um segundo e vi uma camin
 
 Ele continuou me olhando. Ignorei. Desci até a cozinha para beber água e olhei o relógio da parede: seis e dez. Pela janela vi uma luz na estrada, lá embaixo, um carro que subiu um trecho e parou. Era ela. Hesitei, pensei bem, e voltei para o quarto.
 
-Na casa da Sra. Olívia não havia tomada nenhuma. O único fio da propriedade ficava no estábulo, ligado a uma bateria velha de caminhão, e ela fazia questão de que ele ficasse longe da casa. Eu tinha levado o celular do médico até lá depois do almoço, e agora fui buscá-lo, com uma lanterna de querosene na mão. O estábulo, no fim da tarde, era uma boca escura. Leila, no fundo, não se mexeu quando passei. Estava de pé, de cabeça baixa, imóvel, com os olhos abertos. Peguei o celular depressa e saí sem olhar para trás.
+Na casa da Sra. Olívia não havia tomada nenhuma. O único fio da propriedade ficava no estábulo, ligado a uma bateria velha de caminhão, e ela fazia questão de que ele ficasse longe da casa. Eu tinha levado o meu celular até lá depois do almoço, para carregar, e agora fui buscá-lo com uma lanterna de querosene na mão. Leila, no fundo do estábulo, estava parada, de olhos abertos.
+
+O aparelho era o que meu pai tinha me dado no começo do ano, e eu o usava o tempo todo. Fiquei pensando nele. Provavelmente estava esperando notícias minhas, sem saber sequer onde eu dormira. Queria ouvir a sua voz, mas tinha medo de acabar revelando onde estávamos. Uma ligação ele rastrearia, uma mensagem curta talvez não. Escrevi: “Pai, sou eu, Jennifer. Estou bem, com amigos. Te ligo assim que puder. Te amo”. Fiquei olhando para o visor até aparecer a confirmação de envio.
+
+Peguei o celular e saí sem olhar para trás.
 
 De volta ao quarto, li a mensagem que esperava ali.
 
-"18hrs então!", "Tem um carro te esperando aí fora". E depois outra: "Você não vem?".
+“18hrs então!”, “Tem um carro te esperando aí fora”. E depois outra: “Você não vem?”.
 
 Não respondi. Larguei o celular e me deitei. Pedro, escovando os dentes, me observava, tentando disfarçar e falhando.
 
@@ -332,7 +338,7 @@ Ele não respondeu. Os olhos pareciam sem esperança, e muito cansados.
 
 — O quê?
 
-— Minha irmã. Quando a levei para a escola, de manhã, ela se virou para mim, no portão, e disse... — Filipo hesitou, como se aquilo fosse estranho de repetir. — "A cabra está aqui."
+— Minha irmã. Quando a levei para a escola, de manhã, ela se virou para mim, no portão, e disse... — Filipo hesitou, como se aquilo fosse estranho de repetir. — “A cabra está aqui.”
 
 — O quê? — fiz uma careta. — Vocês criavam cabras?
 

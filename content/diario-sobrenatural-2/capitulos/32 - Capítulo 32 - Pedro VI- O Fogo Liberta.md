@@ -1,4 +1,6 @@
-O Filipo parou o carro a trinta passos do arco e apagou os faróis, e a escuridão não mudou de cor. Eram cinco e quarenta e um no relógio do painel. Em março, a essa hora, o céu de qualquer lugar do estado já teria começado a clarear por baixo, um azul de gelatina de uva subindo devagar, e ali em cima a noite continuava inteira, sem lua, sem estrela, igual a uma TV ligada num canal que saiu do ar, só que preta em vez de chuviscada.
+O Filipo parou o carro a uns trinta passos do arco de Alvorada Alegre e desligou os faróis.
+
+Olhei para o relógio. Cinco e quarenta e um da manhã. Em qualquer lugar normal já devia existir pelo menos um sinal de amanhecer. Ali, nada. O céu estava preto, sem lua nem estrela. Parecia uma televisão desligada. E eu tinha atravessado meio estado para entrar naquele lugar por vontade própria. Se existisse um prêmio para decisões idiotas, eu já podia encomendar a medalha.
 
 — Devia ser dia — eu disse.
 
@@ -6,7 +8,9 @@ O Filipo parou o carro a trinta passos do arco e apagou os faróis, e a escurid�
 
 À frente do capô, o arco de pedra segurava as letras que ele já tinha me contado de cor: BEM-VINDO A ALVORADA ALEGRE. Uma névoa grossa se arrastava na altura do meu peito, rente ao chão da estrada, e mais longe, por cima dos telhados, dava para adivinhar a torre da igreja com o relógio da fachada. Os ponteiros estavam parados em onze e seis. Um sino tocava, bem devagar, de um jeito que parecia ter mais pausa do que som.
 
-Eu estava com o relato dele no corpo desde o meio da estrada. A casa, o avô lendo sem tremer, a mão enorme no pescoço da Manu, o livro aberto no chão. Eu tinha ouvido tudo calado, com a mochila no colo, e ainda sentia a história encostada nas costelas como um prato quente que alguém esqueceu de tirar da minha barriga. Tinha o celular da Jennifer no bolso da frente, e a bombinha no outro. Procurei a bombinha. Sacudi, ouvi o chocalhar de quase nada, puxei uma dose e segurei o ar até o peito parar de reclamar. Sobravam duas, talvez uma. Não quis conferir.
+O Filipo tinha me contado a história da família dele durante a viagem. A casa, o avô com aquele livro, a Manu desaparecendo. Eu escutei quase tudo calado, o que para mim já era um acontecimento histórico. Não tinha muito que brincar naquela história.
+
+No bolso estavam o celular da Jennifer e a minha bombinha. Sacudi a bombinha e ouvi o barulhinho de quase nada. Usei uma dose e respirei fundo. Devia restar uma ou duas. Melhor não conferir. Eu ainda precisava da coragem de acreditar que estava preparado.
 
 — Se você quiser ficar no carro — o Filipo falou.
 
@@ -14,11 +18,9 @@ Eu estava com o relato dele no corpo desde o meio da estrada. A casa, o avô len
 
 — Eu sei. Eu vim pela Manu. — Ele olhou o arco. — Até a porta da igreja dá no mesmo.
 
-Não tinha o que responder a isso, então desci. O ar de fora tinha gosto de moeda. A porta do carro fez um barulho que eu senti na nuca, e eu fiquei parado na estrada, tentando decidir se eu estava com medo ou só com fome, porque nas duas situações a minha barriga fazia o mesmo som. Era medo. Eu sei porque a fome tem humor, e aquilo não tinha nenhum.
+Não tinha o que responder a isso, então desci. O ar de fora tinha gosto de moeda. A porta do carro fez um barulho que eu senti na nuca, e eu fiquei parado na estrada, tentando decidir se eu estava com medo ou só com fome, porque nas duas situações a minha barriga fazia o mesmo som. Era medo. Eu sei porque a fome tem humor, e aquilo não tinha nenhum. Foi aí que o celular vibrou.
 
-Foi aí que o celular vibrou.
-
-Uma vez, na minha coxa, e eu pulei como se o carro tivesse dado a partida sozinho. Tirei o aparelho do bolso. A tela acesa mostrava um nome que eu conhecia desde antes de saber o que ele significava: *Mel Jones*. Eu não abri a mensagem. Levantei os olhos, e ela estava embaixo do arco.
+Uma vez, na minha coxa, e levei um susto tão grande que bati o joelho no painel. Tirei o aparelho do bolso. A tela acesa mostrava um nome que eu conhecia desde antes de saber o que ele significava: *Mel Jones*. Eu não abri a mensagem. Levantei os olhos, e ela estava embaixo do arco.
 
 Não tinha vindo andando. Estava ali, do jeito que os personagens ficam na TV quando o diretor corta de um plano para o outro, sem passar pelo meio. Um vestido azul-claro de gola alta, daqueles que as minhas avós usaram no retrato de casamento, a franja reta caída nos olhos, as mãos vazias. Os pés não tocavam a névoa. A névoa passava por onde eles deviam estar.
 
@@ -36,7 +38,7 @@ Ela não sorriu. Isso, mais do que a névoa, mais do que o relógio parado, foi 
 
 — O livro é o que segura a gente aqui, Pedro. Eu e a Manu. Está na igreja. Se queimar, a gente sai. As duas. — Ela apertou as mãos uma na outra, como alguém que fez aquele discurso mil vezes na frente do espelho e agora precisava dele inteiro. — Eu não posso entrar. Eu tentei. O ar lá é como um vidro que não deixa. Eu fico do lado de fora e guio, mas quem tem que fazer é vocês.
 
-Eu abri a boca e a piada veio pronta, uma sobre ela ter vindo de gala para um fim de mundo. Ela morreu na língua. Eu tentei de novo, e a segunda também. Fiquei ali, com o ar entrando e saindo, olhando para uma menina de gola alta que me chamou de príncipe durante meses e agora estava com medo de verdade.
+Quase brinquei perguntando se ela tinha colocado aquela roupa bonita para o fim do mundo. Mas Mel estava assustada. Eu nunca a tinha visto daquele jeito, nem nas nossas conversas mais estranhas. Guardei a piada para outra hora.
 
 — Tu tá vendo ela? — o Filipo perguntou, baixo, do meu lado.
 
@@ -68,17 +70,11 @@ A Mel olhou para mim e depois para a cidade.
 
 Passamos sob o arco. Uma coisa passou pela minha pele ao atravessar a pedra, uma espécie de frio de quem tira a mão de dentro de um balde de gelo, e depois ficou só a rua.
 
-Alvorada Alegre tinha ruas de paralelepípedo, casas de portas fechadas, janelas cegas, varais com roupas paradas, e uma pracinha em que o coreto parecia um bolo deixado de fora numa festa que ninguém quis cortar. Tudo estava no lugar, tudo estava limpo demais, como no cenário de uma novela antes de os atores chegarem. A névoa subia pelas calças e eu sentia as meias molhadas. O sino continuava, lento. Uma badalada, uma respiração, uma badalada.
-
-Nos primeiros cem passos, não vi nada. Aí vi as sombras.
+Alvorada Alegre tinha ruas de paralelepípedo, casas de portas fechadas, janelas cegas, varais com roupas paradas, e uma pracinha em que o coreto parecia um bolo deixado de fora numa festa que ninguém quis cortar. Tudo estava no lugar, tudo estava limpo demais, como no cenário de uma novela antes de os atores chegarem. A névoa subia pelas calças e eu sentia as meias molhadas. O sino continuava, lento. Uma badalada, uma respiração, uma badalada. Nos primeiros cem passos, não vi nada. Aí vi as sombras.
 
 Estavam nas soleiras, nas esquinas, nos pés dos postes, e pareciam gente, mas gente com os ossos para o lado errado. Um homem de sobretudo andando de costas, a cabeça girada para frente por um pescoço de tomada. Uma mulher de blusa arrastando alguma coisa comprida pela calçada, um cabo, uma tripa, não quis olhar. Crianças pequenas de mãos dadas, em fila, as bocas abertas num O de espanto que não fechava nunca. E outras, de cuja forma eu só lembro o som: o de uma coisa molhada se virando dentro do próprio corpo.
 
-Eu parei. O Filipo parou. O ar entrou fino no meu peito.
-
-As criaturas nos viram. Todas ao mesmo tempo, como se alguém tivesse apertado uma tecla.
-
-E correram.
+Eu parei. O Filipo parou. O ar entrou fino no meu peito. As criaturas nos viram. Todas ao mesmo tempo, virando a cabeça na nossa direção. E correram.
 
 Não vieram. Correram para longe, para dentro das vielas, por cima de muros, em quatro patas quando as duas pernas não serviam, tropeçando umas nas outras, deixando para trás um ruído de coisas que arrastam e de coisas que escorregam. O homem de sobretudo se meteu entre duas casas como uma barata quando acendem a luz. As crianças em fila se desfizeram de uma vez, correndo pra todo lado. A mulher de blusa largou o que arrastava e sumiu, a blusa esvoaçando como bandeira de feira.
 
@@ -106,13 +102,15 @@ A porta pesava mais do que parecia. O Filipo empurrou com o ombro, e a madeira c
 
 A igreja estava vazia.
 
-Era comprida, de teto alto, com duas fileiras de bancos de madeira escura, e as paredes eram cobertas de nichos com santos de olhos de vidro. Havia velas por toda parte, centenas, em candelabros de ferro, em pires no chão, na beira das janelas, cada uma com a chama parada, sem a menor tremida, como se o ar ali tivesse sido combinado de não se mexer. Cheirava a cera, a flor velha e a uma doçura por baixo que eu não consegui nomear. Eu conheço o cheiro de igreja vazia. É o de domingo à tarde, quando a minha avó me deixava sentar no último banco com um pão de queijo escondido no bolso. Aquele era o cheiro de domingo antes do amanhecer e tinha alguma coisa errada nele, como uma música conhecida tocada meio tom abaixo.
+Era comprida, de teto alto, com duas fileiras de bancos de madeira escura, e as paredes eram cobertas de nichos com santos de olhos de vidro. Havia velas por toda parte, centenas, em candelabros de ferro, em pires no chão, na beira das janelas, cada uma com a chama parada, sem a menor tremida, embora a porta principal estivesse aberta. Cheirava a cera, a flor velha e a uma doçura por baixo que eu não consegui nomear. Eu conheço o cheiro de igreja vazia. É o de domingo à tarde, quando a minha avó me deixava sentar no último banco com um pão de queijo escondido no bolso. Aquele era o cheiro de domingo antes do amanhecer e tinha alguma coisa errada nele, como uma música conhecida tocada meio tom abaixo.
 
 Não havia ninguém. Nenhuma cabeça baixa, nenhum casaco esquecido nos bancos. Os livros de oração estavam nos suportes, alinhados.
 
 — Cento e doze velas só deste lado — o Filipo murmurou. — Alguém acendeu isso há pouco.
 
-— Ou alguma coisa.
+— Ou alguma coisa — respondi.
+
+— Espero que tenha deixado uma lista — ele disse. — Contar tudo de novo vai dar trabalho.
 
 Seguimos pelo corredor central. Os passos soavam altos, e cada um parecia chegar ao fim da nave um pouco depois de mim. Eu respirava pela boca. Cada vez que o peito apertava, eu levava a mão ao bolso e a retirava vazia, porque a bombinha era a última moeda, e ainda era cedo.
 
@@ -166,7 +164,7 @@ Eu o reconheci pelo andar antes do rosto. O ombro esquerdo caído, a perna que n
 
 O Junior parou no meio da nave, a um passo da luz das velas. Estava olhando para o Filipo, e para a mão do Filipo, onde tinha ficado o primeiro fósforo ainda sem riscar.
 
-— Junior — eu falei. Saiu como se alguém tivesse apertado o ar de dentro de mim. — Junior.
+— Junior — eu falei. A voz saiu rouca e baixa demais. — Junior.
 
 Ele me viu então. Ele me olhou como quem vê, numa rua de outra cidade, o rosto conhecido de um vizinho, e não sabe se alegra ou se desconfia, e acaba fazendo as duas coisas ao mesmo tempo. Ele disse "Pedro", sem som, só a boca. Depois voltou o olhar para o altar.
 
@@ -241,13 +239,9 @@ A chama nasceu pequena, azul na base, amarela na ponta, e ele a levou para a toa
 
 — Eu li. — A tela virou, brilhando no meu rosto. — São mais de cem. Ela tá desesperada, Filipo. — Apontei para o Junior, que tremia no chão, com a voz calma saindo da boca dele e uma voz de gente tentando competir. — Mas olha pra ele. Eu não sei quem tem razão. Só sei que esse aqui tá no chão, na minha frente.
 
-O Filipo olhou para o Junior e depois para o fósforo, que já tinha chegado ao dedo. Largou a ponta no chão de pedra.
+O Filipo olhou para o Junior e depois para o fósforo, que já tinha chegado ao dedo. Largou a ponta no chão de pedra. A igreja piscou.
 
-A igreja piscou.
-
-Não foi um apagão. Foi o ar mudando de pressão, e de uma vez todas as velas encolheram, como se a gente tivesse dado um passo para fora da lente de um projetor. A luz amarela murchou. O cheiro de cera sumiu e, no lugar dele, subiu de uma só vez a doçura que eu não tinha conseguido nomear.
-
-Eram os mortos.
+Não foi um apagão. Foi o ar mudando de pressão, e de uma vez todas as velas encolheram, como se a gente tivesse dado um passo para fora da lente de um projetor. A luz amarela murchou. O cheiro de cera sumiu e, no lugar dele, subiu de uma só vez a doçura que eu não tinha conseguido nomear. Eram os mortos.
 
 Estavam em toda parte. Nos bancos, sentados, os dois lados cheios, cabeças inclinadas para a frente como uma plateia que cochila em missa longa. Nos corredores, deitados de lado, com os braços sob o rosto. Em fila, junto à parede, encostados sob os nichos. Homens de camisa de domingo, mulheres de lenço, velhos, uma menina com a trança desfeita, um garoto de uniforme escolar com o pé descalço. Tinham os olhos abertos ou fechados, as bocas moles, as peles de um verde cinza de peixe de feira, e nenhum deles estava ferido de um jeito que eu pudesse apontar. Pareciam tão arrumados quanto convidados de uma festa em que ninguém quis mais comer.
 
@@ -261,9 +255,7 @@ Eu não consegui responder. Meu estômago subiu e eu o segurei com os dentes.
 
 Os degraus do altar tinham ficado mais claros, com a luz que sobrou. E eu vi o que o Filipo via: uma menina de uns doze anos, deitada de lado, de cabelo curto, vestido sujo, a respiração fina como linha. A Manu. Ao lado, sobre a mesa de pedra, o livro apodrecendo.
 
-Nós dois víamos tudo agora. Eu notei o instante em que o Filipo notou. O queixo dele se mexeu e não saiu nenhuma conta.
-
-Então, debaixo do altar, alguma coisa bateu duas vezes.
+Nós dois víamos tudo agora. Eu notei o instante em que o Filipo notou. O queixo dele se mexeu e não saiu nenhuma conta. Então, debaixo do altar, alguma coisa bateu duas vezes.
 
 TUM. TUM.
 
@@ -307,9 +299,7 @@ Ele teria respondido, acho. Mas o Cara-de-Larva se virou de novo, agora para o a
 
 TUM. TUM.
 
-A igreja trocou de pele.
-
-Foi como puxar a toalha de uma mesa posta e achar outra mesa por baixo. Os bancos continuaram onde estavam, mas passaram a ser de carteira escolar, depois de poltrona de cinema, depois de banco de ônibus, e voltaram a ser banco de igreja, tudo num piscar só, sem tempo de eu dizer qual era qual. O teto desceu até a altura de uma sala de aula e subiu de novo. As paredes ficaram, por um instante, da cor de hospital.
+A igreja trocou de pele. Foi como puxar a toalha de uma mesa posta e achar outra mesa por baixo. Os bancos continuaram onde estavam, mas passaram a ser de carteira escolar, depois de poltrona de cinema, depois de banco de ônibus, e voltaram a ser banco de igreja, tudo num piscar só, sem tempo de eu dizer qual era qual. O teto desceu até a altura de uma sala de aula e subiu de novo. As paredes ficaram, por um instante, da cor de hospital.
 
 — Junior, anda! A lateral!
 
@@ -369,17 +359,13 @@ Eu esperava ouvir aquilo do Junior havia quase um ano. Tinha ensaiado em voz alt
 
 — Pronto — eu disse, que foi tudo o que consegui.
 
-Cada um tinha a sua igreja. A dele era a escola do sexto andar. A minha ainda era essa, a podre, e eu não sabia por quanto tempo ia durar. O Cara-de-Larva bateu o pé, outro TUM entrou na minha cabeça como um prego, e a pedra do piso se ergueu em ondas.
-
-A mão me alcançou pelo tornozelo.
+Cada um tinha a sua igreja. A dele era a escola do sexto andar. A minha ainda era essa, a podre, e eu não sabia por quanto tempo ia durar. O Cara-de-Larva bateu o pé, outro TUM entrou na minha cabeça como um prego, e a pedra do piso se ergueu em ondas. A mão me alcançou pelo tornozelo.
 
 Subi de cabeça para baixo, o sangue desceu todo para o rosto, e o teto ficou onde o chão devia estar. O cheiro entrou primeiro: bolo de laranja saindo do forno. Depois o azulejo azul, o mesmo da clareira, frio nas minhas costas. A luz amarela da cozinha. A minha mãe, de costas, virada para o fogão, cantarolando uma música do rádio de que eu não lembrava a letra. Na mesa, uma cadeira estava puxada para trás, como se alguém tivesse acabado de levantar. Eu não olhei para ela.
 
 — Mãe? — eu disse.
 
-Ela não se virou. Eu estava de pé, no meio da cozinha, com a mochila nas costas, e o ar entrava. Entrava inteiro, fundo, até o fim das costelas, sem chiado, sem cair no meio do caminho. Fiquei parado, respirando, com uma gratidão tão grande que dei um passo na direção dela.
-
-Parei no segundo passo.
+Ela não se virou. Eu estava de pé, no meio da cozinha, com a mochila nas costas, e o ar entrava. Entrava inteiro, fundo, até o fim das costelas, sem chiado, sem cair no meio do caminho. Fiquei parado, respirando, com uma gratidão tão grande que dei um passo na direção dela. Parei no segundo passo.
 
 Eu nunca respirei assim na cozinha da minha mãe. Nem nos dias bons. Nem no verão sem poeira. O meu peito nunca me deixou esquecer que era meu. Aquele ar era bom demais para ser meu.
 
@@ -397,7 +383,7 @@ A bombinha estava na mão, e eu nem lembrava de tê-la tirado. Apertei duas veze
 
 — Quando fica fácil é mentira.
 
-Ele me olhou como se eu tivesse dito a primeira coisa sensata da noite, e talvez tivesse.
+Ele me olhou, surpreso, e assentiu pela primeira vez sem discutir.
 
 O Cara-de-Larva veio de novo. Cada passo era um TUM, e cada TUM era uma igreja nova. Numa delas as velas voltaram, centenas, e os bancos estavam cheios de gente viva cantando. Em outra o chão era uma água preta e parada, e eu vi o Junior de pé nela, sozinho, com o rosto de quem espera um tiro. Em outra o teto não existia, e havia um céu cheio de estrelas, como nunca teve naquela cidade, e o Filipo estava de pé embaixo dele, de braços abertos, contando. Quando eu pisquei, todas foram embora e restou a pedra.
 
@@ -411,17 +397,13 @@ Era verdade. Fechei o olho esquerdo e fiquei olhando só a Lucinda: ora num banc
 
 — Então a gente anda por eles — eu falei. — Lucinda, depois o menino de uniforme, depois a porta.
 
-Fomos de morto em morto, como quem atravessa um rio por pedras. A cada passo o Cara-de-Larva batia o pé, a igreja mudava, e a gente corrigia a rota pelo rosto de um corpo parado. Eu pisei num braço sem querer e pedi desculpa em voz alta. Foi a coisa mais idiota e a mais certa que eu disse naquela noite.
-
-Perto da porta lateral, a Mel apareceu.
+Fomos de morto em morto, como quem atravessa um rio por pedras. A cada passo o Cara-de-Larva batia o pé, a igreja mudava, e a gente corrigia a rota pelo rosto de um corpo parado. Eu pisei num braço sem querer e pedi desculpa em voz alta. Foi a coisa mais idiota e a mais certa que eu disse naquela noite. Perto da porta lateral, a Mel apareceu.
 
 Estava dentro da igreja. No meio da nave, entre dois bancos, de vestido azul, a franja nos olhos, uma vela acesa que não pingava. Atrás de nós o Cara-de-Larva batia o pé, e a igreja virava escola, cinema, ônibus, e a vela não mudava.
 
 — Pedro — ela disse. — Eu consegui entrar. O vidro quebrou. Foi por tua causa.
 
-O ar entrou em mim inteiro, fundo, fácil. Fácil demais.
-
-Eu sabia o que era. *Quando fica fácil é mentira*, eu tinha acabado de dizer, e eu sabia, do jeito que a gente sabe uma conta de cabeça e deixa quieta. Já tinha sido enganado uma vez naquela noite. Aquilo era diferente: era a mentira que vinha me consolar.
+O ar entrou em mim inteiro, fundo, fácil. Fácil demais. Eu sabia o que era. *Quando fica fácil é mentira*, eu tinha acabado de dizer, e eu sabia, do jeito que a gente sabe uma conta de cabeça e deixa quieta. Já tinha sido enganado uma vez naquela noite. Aquilo era diferente: era a mentira que vinha me consolar.
 
 O Junior pesava no meu ombro e tinha parado de ajudar com as pernas. Encostei ele no pé de um banco, ao lado de um morto de camisa de domingo, e ele deixou, e isso era o pior sinal, e eu também sabia.
 
@@ -441,9 +423,7 @@ Atrás de mim, no pé do banco, o Junior respirava com dois ritmos.
 
 Soltei a mão dela. Foi a coisa mais difícil que eu já fiz com uma mão só.
 
-A imagem estalou como a cozinha, e do outro lado do estalo só havia um morto de camisa de domingo, olhando para o altar. A minha boca ainda estava quente. Voltei até o Junior, que me olhava do chão e não perguntou nada, e levantei ele pelo braço bom.
-
-O celular vibrou na minha perna. Eu não olhei.
+A imagem estalou como a cozinha, e do outro lado do estalo só havia um morto de camisa de domingo, olhando para o altar. A minha boca ainda estava quente. Voltei até o Junior, que me olhava do chão e não perguntou nada, e levantei ele pelo braço bom. O celular vibrou na minha perna. Eu não olhei.
 
 Chegamos à porta lateral. Abri. Lá fora estava a praça, o chafariz seco, o coreto, o céu preto. Atravessamos correndo, o Junior pendurado no meu ombro, e na terceira passada o meu pé pisou na pedra do corredor central e eu vi o altar a quinze passos, com a toalha branca e o livro em cima. Tínhamos saído por uma porta e entrado pela outra.
 
@@ -455,13 +435,9 @@ Não pensei em fugir, não do jeito certo. Pensei em chegar a qualquer porta com
 
 — Filipo! — gritei. — Vem!
 
-Os três não se mexeram. O Cara-de-Larva tinha vindo na minha direção, mas parou de novo, no meio da nave, a dez passos de mim, e virou a cabeça para trás, farejando.
+Os três não se mexeram. O Cara-de-Larva tinha vindo na minha direção, mas parou de novo, no meio da nave, a dez passos de mim, e virou a cabeça para trás, farejando. Foi então que eu senti o cheiro.
 
-Foi então que eu senti o cheiro.
-
-Verniz. Papel de bala no fogo. Um estalo seco, de plástico que derrete, e depois outro, mais úmido, de bolha estourando.
-
-Olhei para o altar.
+Verniz. Papel de bala no fogo. Um estalo seco, de plástico que derrete, e depois outro, mais úmido, de bolha estourando. Olhei para o altar.
 
 A toalha branca era uma faixa de fogo. A chama subia por ela, pela mesa de pedra, e em cima, sobre a toalha, o livro se escurecia de fora para dentro, a capa se enrolando, as larvas pulando do tecido como milho de pipoca. Atrás do altar, de pé, com uma vela na mão e a luz laranja nos olhos, estava o Filipo. Não tinha expressão nenhuma, e não contava mais; eu sabia, porque os lábios estavam parados. Disse só, para o fogo, sem levantar a voz:
 
@@ -471,9 +447,7 @@ A toalha branca era uma faixa de fogo. A chama subia por ela, pela mesa de pedra
 
 O grito do Junior saiu inteiro e ficou preso nas paredes. Foi um som que eu nunca esperei ouvir dele, e que eu nunca vou esquecer: grito de quem acabou de ver a porta bater com a chave lá dentro.
 
-O Cara-de-Larva atravessou a igreja em três passadas. Os mortos tremeram no chão. Ele chegou ao altar e não atacou ninguém. Estendeu as mãos para o fogo, e elas entraram na chama e não se queimaram, e o livro, preto, se abriu no meio.
-
-A chuva de larvas parou.
+O Cara-de-Larva atravessou a igreja em três passadas. Os mortos tremeram no chão. Ele chegou ao altar e não atacou ninguém. Estendeu as mãos para o fogo, e elas entraram na chama e não se queimaram, e o livro, preto, se abriu no meio. A chuva de larvas parou.
 
 A massa do rosto dele se afrouxou aos poucos, e as larvas foram caindo uma a uma, como neve no chão. Por baixo, havia pele. Um queixo longo, cinza. Uma boca fina, rachada, de lábios apertados, como quem prende o choro numa igreja. Dois olhos que, pela primeira vez, eram só olhos, castanhos, cansados, muito, muito cansados. Ele ajoelhou. Olhou para o Junior, e ficou olhando.
 
@@ -485,9 +459,7 @@ No fundo da nave, junto à porta principal, havia alguém que eu ainda não tinh
 
 — Lídia — o Junior sussurrou. Era um nome de casa.
 
-Eu quis perguntar quem era, e uma outra coisa me impediu. O Filipo tinha largado a vela. Estava de costas para nós, olhando para os degraus do altar, onde o vestido sujo de uma menina estava amassado e vazio.
-
-O corpo da Manu não estava mais lá.
+Eu quis perguntar quem era, e uma outra coisa me impediu. O Filipo tinha largado a vela. Estava de costas para nós, olhando para os degraus do altar, onde o vestido sujo de uma menina estava amassado e vazio. O corpo da Manu não estava mais lá.
 
 Vi o rosto dele mudar, sem a conta, sem a medida. Só o rosto de alguém que lê um bilhete de despedida do próprio nome.
 
@@ -499,9 +471,7 @@ A voz veio de trás dele. Eram duas, uma sobre a outra, a de uma menina e outra 
 
 Ela estava de pé. Manu, ou o que sobrou do nome, a cabeça pendida para um lado um pouco além do que um pescoço aguenta, os braços soltos, os olhos de brasa. A boca sorria de um jeito que eu já tinha visto num cartaz de filme que a minha mãe nunca deixou eu assistir. O Filipo ainda tentou se virar e não conseguiu. A mão dela, pequena, de unhas sujas, se fechou no pescoço dele, e o levantou, e o pregou na parede de pedra ao lado do altar com um som de saco de cimento.
 
-Os pés dele deixaram o chão. Ele não gritou. Ficou olhando para ela, como se até ali tivesse faltado um número, e o número finalmente tivesse chegado.
-
-Eu não pensei. Pensar é uma coisa que eu faço depois.
+Os pés dele deixaram o chão. Ele não gritou. Ficou olhando para ela, como se até ali tivesse faltado um número, e o número finalmente tivesse chegado. Eu não pensei. Pensar é uma coisa que eu faço depois.
 
 O candelabro de ferro ao lado do altar era tão alto quanto eu e pesava mais do que eu aguentava. Agarrei com as duas mãos. Corri. O Junior gritou meu nome, e eu não ouvi o resto.
 
@@ -509,27 +479,19 @@ Bati nas costas dela com toda a força que eu nunca tinha usado em ninguém.
 
 O ferro soou como um sino rachado. Ela soltou o Filipo, que caiu de joelhos, tossindo, e se virou para mim, e abriu a boca.
 
-O grito não era de menina e não era de gente. Veio do fundo do corpo dela e saiu pelas vidraças, e as vidraças altas da nave explodiram de uma vez, e o vidro choveu colorido sobre os mortos. Eu cobri os ouvidos e senti sangue morno. Ela se curvou, as costas se abrindo como uma casca, e então subiu pela parede como um inseto, rápido, por cima do altar, até a janela quebrada do alto, e sumiu.
+O grito não era de menina e não era de gente. Veio do fundo do corpo dela e saiu pelas vidraças, e as vidraças altas da nave explodiram de uma vez, e o vidro choveu colorido sobre os mortos. Eu cobri os ouvidos e senti sangue morno. Ela se curvou, as costas se abrindo como uma casca, e então subiu pela parede como um inseto, rápido, por cima do altar, até a janela quebrada do alto, e sumiu. Pela janela aberta eu vi o morro.
 
-Pela janela aberta eu vi o morro.
-
-Era longe, a dois quilômetros, ou a vinte, não dava para saber, e o céu atrás dele continuava preto. No alto, de pé nas patas traseiras, havia um bode. Grande demais para a distância em que estava. Os chifres se enroscavam como o corrimão de uma escada de caracol. Não se mexia. Olhava para a igreja, e a menina corria pelo capim em direção a ele, pequena, pequena, e eu entendi que ele não esperava por ela: esperava pelo que ainda subia debaixo da igreja.
-
-Eu pisquei, e ele estava mais perto.
+Era longe, a dois quilômetros, ou a vinte, não dava para saber, e o céu atrás dele continuava preto. No alto, de pé nas patas traseiras, havia um bode. Grande demais para a distância em que estava. Os chifres se enroscavam como o corrimão de uma escada de caracol. Não se mexia. Olhava para a igreja, e a menina corria pelo capim em direção a ele, pequena, pequena, e eu entendi que ele não esperava por ela: esperava pelo que ainda subia debaixo da igreja. Eu pisquei, e ele estava mais perto.
 
 — Pedro. — O Filipo me puxou pela manga. A voz dele saiu fraca, com o fio do pescoço marcado de roxo. — O teto.
 
-O chão tremeu.
-
-Primeiro como um caminhão passando na rua, e eu ainda pensei que fosse isso. Depois mais forte, e mais, e uma trinca abriu da porta principal até o altar, de ponta a ponta, mostrando por baixo um escuro sem fundo, e dele subiu um ar que cheirava a fogueira velha e a lugar fechado há séculos. As velas se apagaram de uma vez. As paredes começaram a descascar. Um santo de olhos de vidro desceu do nicho e se partiu no chão sem fazer barulho.
+O chão tremeu. Primeiro como um caminhão passando na rua, e eu ainda pensei que fosse isso. Depois mais forte, e mais, e uma trinca abriu da porta principal até o altar, de ponta a ponta, mostrando por baixo um escuro sem fundo, e dele subiu um ar que cheirava a fogueira velha e a lugar fechado há séculos. As velas se apagaram de uma vez. As paredes começaram a descascar. Um santo de olhos de vidro desceu do nicho e se partiu no chão sem fazer barulho.
 
 — Por aqui! — Era a Lídia. Já estava junto à porta lateral, com o ombro contra a madeira, a viga do teto caída a dois passos dela. — Eu conheço o caminho! Vem!
 
 Ela abriu a porta com o corpo e ficou segurando, as mãos sangrando na madeira, até o último de nós passar.
 
-O Filipo pegou o Junior por baixo do braço. Eu fui atrás, sem ar, e a Lídia nos empurrou para fora num instante em que a pedra do batente já pesava sobre as nossas cabeças. Lá fora, a rua não existia mais. As pedras do calçamento tinham se erguido em lajes, e entre elas o escuro abria bocas. Os postes cuspiam faísca. Uma casa inteira se inclinou para o lado e se sentou como bicho cansado, sem pressa, soltando poeira.
-
-As criaturas estavam paradas.
+O Filipo pegou o Junior por baixo do braço. Eu fui atrás, sem ar, e a Lídia nos empurrou para fora num instante em que a pedra do batente já pesava sobre as nossas cabeças. Lá fora, a rua não existia mais. As pedras do calçamento tinham se erguido em lajes, e entre elas o escuro abria bocas. Os postes cuspiam faísca. Uma casa inteira se inclinou para o lado e se sentou como bicho cansado, sem pressa, soltando poeira. As criaturas estavam paradas.
 
 Todas. Em pé, no meio da rua, o homem de sobretudo, a mulher de blusa, as crianças da fila, olhando as próprias mãos como quem acabou de acordar de um sonho dentro de outro. Depois, todas ao mesmo tempo, como um bando de pássaros que ouve o mesmo tiro, correram. Não para nós. Para fora. Passaram em volta da gente como água em volta de pedra, sem tocar em ninguém, pelos becos, pelos quintais, pelos campos além das últimas casas, cada uma para um lado, até o escuro engolir todas e a rua ficar vazia de repente. Uma criança olhou para trás, correndo, ou era o rosto dela que ainda não tinha decidido onde ficar.
 
@@ -553,9 +515,7 @@ Olhei por cima do ombro, só um segundo. A torre se inclinava. O mostrador, chei
 
 O arco apareceu na névoa que já rareava. As letras estavam rachadas. A cidade que não deixava nada sair deixou a gente passar. Passamos por baixo dele, a caminhonete roncando, o Filipo com a mão no pescoço, o Junior caído contra o meu ombro, e alguma coisa soltou a pressão do meu peito, como uma tampa de panela que alguém tirou. Atrás de nós, a pedra do arco veio abaixo com um estrondo que foi mais de papelão que de pedra.
 
-A caminhonete parou uns cem metros adiante, e caímos da caçamba de joelhos na estrada. O ar entrou em mim em goles tortos.
-
-O céu estava mudando.
+A caminhonete parou uns cem metros adiante, e caímos da caçamba de joelhos na estrada. O ar entrou em mim em goles tortos. O céu estava mudando.
 
 Primeiro um cinza sujo no horizonte, depois um azul pálido, de gelatina de uva, subindo por baixo. A luz foi chegando sem pressa em cima do campo, nos postes caídos, nos nossos três pares de mãos sujas. Era dia, afinal. Dava raiva de um nascer do sol assim, bonito, com tudo no lugar.
 
@@ -611,7 +571,9 @@ Eu quis dizer o nome dela outra vez. A palavra foi na minha garganta e não saiu
 
 O Filipo se levantou primeiro. Foi até o carro, apoiando uma mão no capô, e abriu a porta de trás para o Junior. Eu fiquei sentado na estrada, com a bombinha vazia numa mão e o celular da Jennifer na outra. Queria que ela estivesse ali. Ela saberia dizer se o que eu senti no beijo valia alguma coisa, vindo de uma mentira. Ela sempre soube ver o que os outros não viam, e eu tinha a vontade tola de ligar e perguntar.
 
-Guardei o celular da Jennifer no bolso com a tela para baixo. Ajudei o Junior a entrar no carro, e ele não largou a mochila nem para sentar.
+Guardei o celular da Jennifer no bolso com a tela para baixo. Pensei nos meus pais. A minha mãe devia ter ligado para a polícia havia muito tempo, e meu pai provavelmente estava tentando decidir entre me abraçar ou me dar a maior bronca do século quando voltasse. Queria ouvir os dois reclamando de mim. Nunca senti tanta falta disso.
+
+Ajudei o Junior a entrar no carro, e ele não largou a mochila nem para sentar.
 
 — Vai com eles — o Pollux disse à Lídia, sem olhar para ela. — Eu sigo atrás.
 

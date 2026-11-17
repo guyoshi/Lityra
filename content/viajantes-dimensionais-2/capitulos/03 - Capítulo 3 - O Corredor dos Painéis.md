@@ -320,9 +320,13 @@ Quando voltaram ao refeitório, a luz entrava inclinada pelas janelas, e a mesa 
 
 — Foi o que eu disse a ele. — Denis ergueu um dedo. — Ele pagou o pão e saiu, e a gente ficou com cara de quem perdeu a discussão sem ter começado.
 
+— E Korvo? — perguntou Bruno. — Desde o ano passado ninguém mais viu aquele sujeito nem a Patrulha dele. Não era pra alguém ter encontrado pelo menos um?
+
+— A Vigilância não confirma nada — disse Denis. — Ouvi que alguns homens da Patrulha se espalharam, ouvi que se esconderam fora de Belfex e ouvi que o próprio Korvo continua por perto. Três histórias, nenhuma prova. Até eu sei quando não sei.
+
 — Cachorro — disse Eshley, no tom de quem avisa.
 
-— Mas a Shirley estava lá! — Denis ergueu as mãos. — No dia! Ela viu!
+— Do Kalev eu não estou inventando! — Denis ergueu as mãos. — A Shirley estava lá. No dia! Ela viu!
 
 Shirley soltou o ar devagar e pousou o garfo.
 
@@ -356,7 +360,7 @@ Ferris Montfort estava de pé, com a bandeja numa das mãos e o capacete debaixo
 
 A mesa ficou em silêncio. Até a lamparina parou de mudar de cor.
 
-— Meu pai não fugiu. — Ele falou devagar, olhando para o tampo. — Me ensinou a andar num telhado de olhos fechados quando eu tinha cinco anos, e nunca saiu de uma sala sem dizer onde estaria depois. Não some por descuido. A Vigilância diz que está procurando, mas já passaram semanas, e eu não vou esperar mais.
+— Meu pai não fugiu. — Ele falou devagar, olhando para o tampo. — Me ensinou a andar num telhado de olhos fechados quando eu tinha cinco anos, e nunca saiu de uma sala sem dizer onde estaria depois. Não some por descuido. Fui atrás dos registros da Casa de Pesquisa: anotaram a entrada dele, mas ninguém sabe me mostrar uma saída. A Vigilância diz que está procurando, só que já passaram semanas. Eu não vou esperar mais.
 
 — Ferris — disse Eshley, com cuidado.
 
@@ -368,7 +372,7 @@ Então Ferris se virou para Shirley.
 
 — Hoje, depois do treino. Você me conta de novo. Tudo. Do começo.
 
-Era um pedido e não era. Ele a olhava direto, sem piscar, do jeito que Banjo só tinha visto em quadra, quando Ferris procurava a brecha no outro time. Shirley sustentou o olhar por um instante. Depois virou o rosto para a janela, onde não havia nada além de céu, e ficou olhando, com o pedaço de pão esquecido na mão.
+Ferris a encarava como fazia em quadra, procurando uma brecha no outro time. Shirley sustentou o olhar por um instante. Depois virou o rosto para a janela, onde não havia nada além de céu, e ficou olhando, com o pedaço de pão esquecido na mão.
 
 — Está bem — respondeu, para o vidro.
 

@@ -30,7 +30,7 @@ Beatriz cantarolou as três notas sem pensar. Subiam, voltavam, subiam de novo e
 
 — Isso é muito útil em dia de chuva. — A linha de luz voltou a acompanhar os dedos de Beatriz, e a trança avançou três voltas sem nenhum comentário. — Mas se você me disser que eu preciso aprender a letra também, eu vou pedir aumento.
 
-Lá fora, as pétalas já cobriam o vidro. Eram flores inteiras, do tamanho de uma colher, amarelas e rosa-claras, e vinham na chuva em vez de gotas, em fios grossos, com um barulho macio de mão batendo em almofada. Beatriz soltou o ar e sentiu o cheiro de dentro da casa mudar para um doce de fruta madura. No jardim, os arbustos tinham fechado as folhas para proteger os botões.
+Lá fora, as pétalas já cobriam o vidro. Eram flores inteiras, do tamanho de uma colher, amarelas e rosa-claras, e vinham na chuva em vez de gotas, em fios grossos, com um barulho macio de mão batendo em almofada. Beatriz soltou o ar e sentiu o cheiro de dentro da casa mudar para um doce de fruta madura. No jardim, os arbustos tinham fechado as folhas para proteger os botões. Por trás das flores grudadas na vidraça, Beatriz teve a impressão de distinguir outra vez uma senhora de cabelos claros, imóvel, observando-a. Aproximou o rosto. Eram apenas pétalas e os galhos do jardim; não havia ninguém do lado de fora.
 
 — Quanto tempo dura isso? — perguntou ela.
 
@@ -94,7 +94,6 @@ A voz de Bruno subiu mais uma vez, passou por uma nota que só existia na imagin
 
 A tela de Kali acendeu num brilho que dizia muitas coisas e não precisava de palavra, e Bruno aceitou o brilho com um sorriso grande, sem pedir desculpa. Do lado de fora, as flores continuaram a cair, cada vez mais grossas, e a manhã inteira ficou com o barulho de almofada batendo na vidraça. Beatriz comeu devagar, sentindo a trança leve, e achou que podia ficar naquele dia pelo tempo que ele durasse.
 
-
 Na quinta, a chuva era normal, o que em Belfex queria dizer cinza, comprida e com um cheiro de ferro molhado, e a casa inteira se recolheu para dentro como um bicho que se enrola. Velho-Sábio passou o dia no escritório, com a porta entreaberta e o som do cajado batendo no chão em intervalos regulares, que Kali interpretou como sinal de pensamento. Breno estudou na mesa da sala com os livros do ano anterior abertos em leque. Banjo foi à enfermaria de manhã, com Farol no ombro, e voltou na hora do almoço dizendo que Nayra já tinha comido uma sopa inteira e feito uma lista de quantos grãos de arroz tinha o prato. Pelan chegou depois, com um guarda-chuva de folha e um saco de pães.
 
 — Pão extra! — anunciou, na porta, sacudindo a água do guarda-chuva sobre o tapete, o que arrancou um suspiro dolorido de Kali. — Para a senhorita Beatriz, conforme combinado. E uns dois para o resto, porque o resto também come, eu vi.
@@ -155,7 +154,7 @@ Velho-Sábio olhou para ela por um tempo, e Beatriz percebeu que ele a olhava se
 
 — Eu sempre preparo alguma coisa — respondeu Shirley, e Pelan já tinha voltado ao assunto dos ovos quadrados.
 
-Beatriz achou ter ouvido, bem de leve, dentro da própria cabeça, uma voz que dizia: Escuta até o fim. Olhou para Banjo, que olhava o teto, e para Breno, que lia, e concluiu que tinha sido o próprio pensamento, só que num tom que não era o dela.
+Uma voz pareceu dizer dentro da cabeça de Beatriz: Escuta até o fim. Banjo contemplava o teto e Breno continuava a ler. Ela ficou sem saber de onde viera aquilo.
 
 Naquela noite, Beatriz acordou com um barulho no corredor, uma espécie de zumbido baixo que subia e descia. Foi andando descalça até a porta do quarto dos irmãos, que estava entreaberta, e encostou o olho na fresta. Bruno estava sentado na cama, de pernas cruzadas, com um objeto redondo e achatado na mão e dois fios finos saindo dele até as orelhas. Tinha o rosto concentrado de quem conta alguma coisa preciosa.
 
@@ -174,7 +173,6 @@ Naquela noite, Beatriz acordou com um barulho no corredor, uma espécie de zumbi
 — O chiado é a música, Breno. Ele passou pela rota, atravessou três dimensões e funcionou do outro lado. Dá um desconto, vai.
 
 Beatriz fechou a porta devagar, sem fazer barulho, e voltou para o quarto. Da fresta, um fiozinho de som de outra terra ainda chegou até ela, longe, fraco, tocando uma coisa que já era antiga quando ela nasceu.
-
 
 A Velha Rota começava onde as lamparinas de Tayo terminavam. Banjo reparou nisso antes de qualquer outra coisa, porque as lamparinas de Brisália mudavam de cor a cada esquina, do azul ao verde, do verde ao âmbar, e depois da última curva houve uma só, apagada, pendurada num poste torto. Dali em diante, o caminho descia em degraus de pedra gasta, com uma fresta de céu escuro por cima e as paredes das casas se encostando uma na outra como gente que cochicha.
 

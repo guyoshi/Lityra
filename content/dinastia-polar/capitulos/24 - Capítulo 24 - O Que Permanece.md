@@ -1,38 +1,38 @@
 Elis se soltou.
 
-Foi rápido demais para Selina segurar de volta: um instante de peso morto contra o corpo dela, o instante seguinte já vazio, os braços fechando sobre o próprio ar. Elis correu, cortando entre dois guardas que ainda não tinham se reorganizado depois do fim da execução, e desapareceu na multidão que começava, lenta, a se desfazer.
+Foi rápido demais para Selina segurar: um instante de peso morto contra o corpo dela, o seguinte já vazio, os braços fechando sobre o próprio ar. Elis correu, cortando entre dois guardas que ainda não tinham se reorganizado depois da execução, e sumiu na multidão que começava a se desfazer.
 
 — Elis!
 
-Ninguém foi atrás. Tair virou a cabeça tarde demais, ainda com o rosto molhado, ainda incapaz de decidir para que lado o corpo deveria se mover primeiro. Selina deu dois passos e parou. Não adiantava. O Pátio já estava cheio demais de gente saindo, e Elis conhecia cada rua daquela cidade melhor do que qualquer guarda que pudesse mandar atrás dela.
+Ninguém foi atrás. Tair virou a cabeça tarde demais, o rosto ainda molhado, incapaz de decidir para que lado o corpo deveria se mover primeiro. Selina deu dois passos e parou. O Pátio já estava cheio demais de gente saindo, e Elis conhecia cada rua daquela cidade melhor do que qualquer guarda que pudesse mandar atrás dela.
 
 Ficou ali, olhando o lugar onde a menina tinha estado um segundo antes, até entender que aquilo também tinha virado uma ausência.
 
 O Pátio de Namar estava voltando ao normal.
 
-Era a parte que Selina não conseguia deixar de notar, mesmo com o corpo ainda duro de segurar Elis, mesmo com o som do nome de Kalan ainda ecoando em algum lugar atrás dos ouvidos. Os arqueiros já recolhiam os arcos. Um funcionário da Permanência dobrava o pergaminho de Hadris com o mesmo cuidado que usaria para qualquer outro documento arquivado. A multidão se movia para as saídas em conversas baixas, algumas pessoas já falando de outra coisa, do preço do grão, de uma disputa qualquer entre casas menores, como se o que tinham acabado de ver fosse só mais um intervalo na tarde. Selina se virou quando ouviu alguém discutir o preço do grão atrás dela.
+Era a parte que Selina não conseguia deixar de notar, mesmo com o corpo ainda duro de segurar Elis, mesmo com o nome de Kalan ainda ecoando atrás dos ouvidos. Os arqueiros já recolhiam os arcos. Um funcionário da Permanência dobrava o pergaminho de Hadris com o cuidado de qualquer documento arquivado. A multidão se movia para as saídas em conversas baixas, algumas pessoas já falando do preço do grão, de uma disputa entre casas menores, como se o que tinham visto fosse só um intervalo na tarde.
 
 Kalan continuava ali, preso à faixa, três hastes atravessando o peito, e o Pátio já tinha decidido seguir em frente sem ele.
 
-Alguém trouxe uma maca. Selina reconheceu o gesto de praxe: o mesmo procedimento de sempre, o corpo desamarrado com cuidado profissional, levado para uma das salas de preparo que ficavam encostadas no próprio muro do Pátio, reservadas para isso. Ela seguiu. Tair seguiu, sem dizer nada. Orel foi atrás deles, ainda repetindo o nome de Kalan em voz baixa, como se parar de dizer significasse aceitar que não haveria resposta.
+Alguém trouxe uma maca. Selina reconheceu o procedimento de praxe: o corpo desamarrado com cuidado profissional, levado para uma das salas de preparo encostadas no muro do Pátio. Ela seguiu. Tair seguiu, sem dizer nada. Orel foi atrás, ainda repetindo o nome de Kalan em voz baixa, como se parar significasse aceitar que não haveria resposta.
 
 Dareth não estava mais lá quando ela olhou para trás. Não perguntou onde tinha ido.
 
-A sala de preparo era pequena, iluminada por uma única fresta alta, cheirando a água e a alguma erva que Selina não soube nomear. Dois funcionários trabalharam em silêncio, tirando o saco da cabeça de Kalan, desamarrando a faixa, limpando o sangue em torno das três feridas com panos molhados, sem pressa e sem cerimônia. Trabalhavam com a precisão de quem já repetira aqueles gestos muitas vezes.
+A sala de preparo era pequena, iluminada por uma única fresta alta, cheirando a água e a alguma erva que Selina não soube nomear. Dois funcionários trabalharam em silêncio, tirando o saco da cabeça de Kalan, desamarrando a faixa, limpando o sangue em torno das três feridas com panos molhados, sem pressa e sem cerimônia.
 
-Selina já tinha visto corpos assim. Fazia parte do trabalho, de um jeito que raramente admitia em voz alta: corpos que precisavam virar registro, causa da morte, responsabilidade formal de alguém, peça num processo que continuava depois que a pessoa já não estava mais lá para reclamar dele. Não era o procedimento que a incomodava.
+Selina já tinha visto corpos assim. Fazia parte do trabalho, de um jeito que raramente admitia em voz alta: corpos que precisavam virar registro, causa da morte, responsabilidade formal de alguém, peça num processo que continuava depois que a pessoa já não estava lá para reclamar dele. Não era o procedimento que a incomodava.
 
 Era o rosto.
 
-Kalan tinha dezessete ciclos. Limpo o sangue, afastado o saco, o que restava era só isso: um rapaz jovem, o maxilar ainda sem a dureza que viria com mais alguns anos, as mãos calejadas de um jeito que Selina reconheceu antes de conseguir nomear de onde: mãos de quem carregava caixa, empurrava carroça, trabalhava com as próprias costas desde muito antes de ter idade para escolher outra coisa. Um risco antigo na palma direita, já quase apagado. As unhas cortadas rentes, do jeito de quem não tinha tempo de deixar crescer.
+Kalan tinha dezessete ciclos. Limpo o sangue, afastado o saco, o que restava era só isso: um rapaz jovem, o maxilar ainda sem a dureza que viria com os anos, as mãos calejadas de quem carregava caixa e empurrava carroça desde muito antes de ter idade para escolher outra coisa. Um risco antigo na palma direita, quase apagado. As unhas cortadas rentes, de quem não tinha tempo de deixar crescer.
 
-Até algumas horas atrás, ela precisava transformar aquele rapaz em acusação, em registro, em testemunho, em pertencimento formal a uma casa, em responsabilidade jurídica, em precedente que servisse ou não servisse a alguém. Agora ele era só um corpo jovem deitado numa mesa de pedra, com as mãos de quem tinha trabalhado a vida inteira e o rosto, sem a tensão de estar vivo, estranhamente destravado, nada nele parecia mais estar segurando alguma coisa.
+Até algumas horas atrás, ela precisava transformar aquele rapaz em acusação, em registro, em precedente que servisse ou não servisse a alguém. Agora ele era só um corpo jovem deitado numa mesa de pedra, e o rosto, sem a tensão de estar vivo, parecia estranhamente destravado, como se nada nele estivesse mais segurando alguma coisa.
 
 Dessa gente, ela já tinha pensado, mais de uma vez, sobre outros nomes, em outros papéis. A frase voltou, rápida, e ela não deixou que ficasse.
 
 Só continuou olhando.
 
-Tair chorava perto da porta, o corpo inteiro tenso como se a tristeza estivesse procurando um lugar para virar outra coisa. Orel ficou junto à mesa e, de vez em quando, soltava um som comprido, quase um uivo baixo. Em algum momento ele se afastou até a estante de panos limpos, pegou um, voltou. Ninguém prestou atenção.
+Tair chorava perto da porta, o corpo inteiro tenso como se a tristeza procurasse um lugar para virar outra coisa. Orel ficou junto à mesa e, de vez em quando, soltava um som comprido, quase um uivo baixo. Em algum momento ele se afastou até a estante de panos limpos, pegou um, voltou. Ninguém prestou atenção.
 
 Karesis chegou pouco depois, parado perto da porta, sem se aproximar da mesa.
 
@@ -50,7 +50,7 @@ Selina não teve vontade de suavizar.
 
 Ela conhecia a regra havia anos. Nunca tinha precisado dizer em voz alta na frente de alguém que amava a pessoa enterrada.
 
-Tair ficou olhando para ela por um segundo, como se esperasse que Selina fosse acrescentar mais alguma coisa, uma exceção, um caminho. Não veio nenhum.
+Tair ficou olhando para ela por um segundo, esperando que acrescentasse uma exceção, um caminho. Não veio nenhum.
 
 — Vocês fazem a gente pedir autorização pra trabalhar — disse, a voz subindo. — Fazem a gente pedir autorização pra andar de rua em rua depois do sino. Mataram o Kalan por causa dos papéis de vocês. — Apontou para o corpo na mesa, a mão tremendo. — E agora ele não pode nem ficar aqui?
 
@@ -58,7 +58,7 @@ Ninguém respondeu.
 
 — Ele nasceu aqui! Viveu aqui! Trabalhou aqui pra vocês, pra Raiz, pra Permanência, pra tudo isso! — A voz quebrou de novo, mas ele continuou. — Até morto vocês ainda precisam mandar ele embora?
 
-Aquilo pesou. Selina sentiu, e não teve resposta moral para dar, só a regra, pequena e insuficiente, do jeito que regras costumavam ser quando alguém finalmente perguntava por que existiam.
+Aquilo pesou. Selina não teve resposta moral para dar, só a regra, pequena e insuficiente, como as regras costumavam ser quando alguém finalmente perguntava por que existiam.
 
 — Tair — Karesis disse, dando um passo à frente.
 
@@ -66,7 +66,7 @@ Aquilo pesou. Selina sentiu, e não teve resposta moral para dar, só a regra, p
 
 Karesis parou onde estava.
 
-— Você era o responsável dele — Tair continuou, virando o corpo inteiro na direção dele agora, como se tivesse encontrado, finalmente, um lugar onde pudesse descarregar. — Onde você estava quando prenderam ele? Onde você estava quando levaram ele pra sala sem janela? Onde você estava quando leram a sentença? Onde você estava agora há pouco, quando as flechas saíram?
+— Você era o responsável dele — Tair continuou, virando o corpo inteiro na direção dele, como se tivesse encontrado onde descarregar. — Onde você estava quando prenderam ele? Onde você estava quando leram a sentença? Onde você estava agora há pouco, quando as flechas saíram?
 
 Karesis não disse nada.
 
@@ -74,13 +74,13 @@ Karesis não disse nada.
 
 Ainda nada.
 
-— Se você estivesse lá, ele não tinha roubado caixa nenhuma — Tair disse, e talvez nem soubesse se aquilo era verdade, só precisava que alguém tivesse causado aquilo, alguém que não fossem flechas nem leis nem a Raiz inteira, alguém com um rosto. — Seu bêbado filho de gabal!
+— Se você estivesse lá, ele não tinha roubado caixa nenhuma — Tair disse, e talvez nem soubesse se era verdade, só precisava que alguém tivesse causado aquilo, alguém com rosto, que não fossem flechas nem leis nem a Raiz inteira. — Seu bêbado filho de gabal!
 
 O funcionário mais próximo ergueu os olhos do pano quando ouviu o xingamento e tornou a baixá-los sem dizer nada.
 
-Karesis não se defendeu. Não da acusação, não do insulto. Ficou ali, absorvendo cada frase como quem já tinha decidido, muito antes daquela sala, que merecia praticamente todas elas.
+Karesis não se defendeu. Nem da acusação, nem do insulto. Ficou ali, absorvendo cada frase como quem já tinha decidido, muito antes daquela sala, que merecia quase todas.
 
-Tair esperou, como se quisesse uma reação, qualquer uma, e não recebeu nenhuma. Aos poucos, o próprio fôlego pareceu esvaziar dele.
+Tair esperou uma reação, qualquer uma, e não recebeu nenhuma. Aos poucos o próprio fôlego pareceu esvaziar dele.
 
 — Eu vou enterrá-lo — Karesis disse então.
 
@@ -90,11 +90,11 @@ Karesis não respondeu a isso também. Só disse:
 
 — Fora da muralha. Perto de Maruva.
 
-Foi o funcionário que voltava com mais panos limpos quem parou primeiro, olhando para a mesa.
+O funcionário que voltava com mais panos limpos parou primeiro, olhando para a mesa.
 
 — O que você está fazendo?
 
-Selina olhou também, e só então percebeu. Kalan estava coberto por panos demais para o que qualquer procedimento exigia: um sobre o peito, outro sobre os braços, mais um recém-colocado sobre as pernas. Orel segurava ainda outro na mão, prestes a acrescentar. Ele vinha fazendo aquilo havia um tempo, no meio de tudo, sem que ninguém notasse.
+Selina olhou também, e só então percebeu. Kalan estava coberto por panos demais para o que qualquer procedimento exigia: um sobre o peito, outro sobre os braços, mais um sobre as pernas. Orel segurava ainda outro, prestes a acrescentar. Fazia aquilo havia um tempo, sem que ninguém notasse.
 
 Orel tocou a mão de Kalan.
 
@@ -116,29 +116,29 @@ Ela fez um gesto pequeno com a cabeça. Deixa.
 
 A porta se abriu antes que alguém respondesse a mais alguma coisa.
 
-O Sumo Vigia entrou devagar, e o quarteirão inteiro da sala pareceu se reorganizar em torno dele sem que precisasse dizer uma palavra: Tair calou, Orel parou de se mexer por um segundo, até Karesis endireitou levemente os ombros. Ninguém confrontou. A presença dele fazia isso, sempre tinha feito.
+O Sumo Vigia entrou devagar, e a sala pareceu se reorganizar em torno dele sem que dissesse uma palavra: Tair calou, Orel parou de se mexer por um segundo, até Karesis endireitou os ombros. Ninguém confrontou. A presença dele fazia isso.
 
 Olhou o corpo, os panos, Orel parado perto da mesa, Tair com o rosto ainda vermelho, Karesis afastado, Selina de pé com os braços cruzados.
 
 — Deixe como está — disse ao funcionário, sobre os panos.
 
-Não tinha vindo discutir nem se desculpar. Selina reconheceu isso no jeito como ele se posicionou, de frente para os outros, não para o corpo.
+Não tinha vindo discutir nem se desculpar. Selina reconheceu isso no jeito como se posicionou, de frente para os outros, não para o corpo.
 
 — Eu sei o que vocês veem quando olham para ele — disse, a voz rouca preenchendo a sala sem precisar de volume. — Um rapaz. Alguém que protegia. Talvez, para algum de vocês, alguém que amava.
 
 Ninguém respondeu.
 
-— Intenção não apaga consequência. Ele decidiu levar aqueles registros sabendo o risco. Cada passo daquela decisão teve medo, ou lealdade, ou talvez até amor por trás — e ainda assim foi uma escolha. Os dias mais difíceis de aceitar a ordem são exatamente estes, quando a consequência cai sobre alguém que amamos. Mas uma regra que só vale enquanto não dói não é regra. É favor.
+— Intenção não apaga consequência. Ele decidiu levar aqueles registros sabendo o risco. Cada passo daquela decisão teve medo, ou lealdade, ou talvez até amor por trás, e ainda assim foi uma escolha. Os dias mais difíceis de aceitar a ordem são exatamente estes, quando a consequência cai sobre alguém que amamos. Mas uma regra que só vale enquanto não dói não é regra. É favor.
 
 Deu um passo mais para dentro da sala.
 
-— Soberanos passam. Vigias passam. Famílias passam. A Raiz existe para que esta cidade não dependa da vontade de um homem só — por mais convencido que ele esteja da própria justiça. — Fez uma pausa. — O Livro da Permanência diz: nenhum ramo cresce acima da Raiz que o sustenta. Não porque a Raiz odeie o ramo. Porque se cada ramo decidir sozinho para onde crescer, não existe mais árvore nenhuma.
+— Soberanos passam. Vigias passam. Famílias passam. A Raiz existe para que esta cidade não dependa da vontade de um homem só, por mais convencido que ele esteja da própria justiça. — Fez uma pausa. — O Livro da Permanência diz: nenhum ramo cresce acima da Raiz que o sustenta. Não porque a Raiz odeie o ramo. Porque se cada ramo decidir sozinho para onde crescer, não existe mais árvore nenhuma.
 
 Olhou diretamente para Tair.
 
 — Você pode me odiar. Pode odiar Hadris. Pode odiar este manto. A Raiz não precisa que a sua dor desapareça para continuar existindo.
 
-Tair não gritou de volta. Olhou para o rosto branco, para a faixa escura que lhe tapava os olhos como venda de quem não precisa ver para decidir, depois para o símbolo pendurado no peito do Sumo Vigia, os olhos ainda vermelhos, e segurou o que quer que ainda estivesse subindo dentro dele.
+Tair não gritou de volta. Olhou para o rosto branco, para a faixa escura sobre os olhos, para o símbolo pendurado no peito do Sumo Vigia, e segurou o que quer que ainda subisse dentro dele.
 
 — Talvez agora você só consiga enxergar aquilo que a Raiz tirou de você — o Sumo Vigia disse, mais baixo. — Um dia poderá compreender o que acontece quando ela deixa de permanecer.
 
@@ -152,7 +152,7 @@ Dareth não respondeu.
 
 Entrou com o mesmo papel dobrado que carregava no Pátio.
 
-Parou diante da mesa e olhou para Kalan por um tempo que ninguém tentou interromper. O papel estava preso na mão direita. Dareth fechou os dedos em torno dele, primeiro devagar, depois com tanta força que as bordas se dobraram contra a palma.
+Parou diante da mesa e olhou para Kalan por um tempo que ninguém tentou interromper. Fechou os dedos em torno do papel, primeiro devagar, depois com tanta força que as bordas se dobraram contra a palma.
 
 Tair viu.
 
@@ -162,7 +162,7 @@ O papel escorregou dos dedos e caiu perto de um dos pés da mesa.
 
 Dareth não se abaixou para pegá-lo.
 
-Selina viu Dareth parado ali, mas terminou primeiro o que precisava terminar. Foi até Karesis e falou baixo, baixo demais para os outros ouvirem, o jeito que a voz dela sempre ficava quando alguma coisa por dentro estava perto de sair de controle.
+Selina terminou primeiro o que precisava terminar. Foi até Karesis e falou baixo demais para os outros ouvirem, com a voz que sempre ficava assim quando alguma coisa por dentro estava perto de sair de controle.
 
 — Tair está certo numa coisa.
 
@@ -190,7 +190,7 @@ Os olhos dele voltaram para Kalan, limpo agora, coberto pelos panos que Orel tin
 
 Baixou a cabeça.
 
-Não disse nada. Não pediu desculpa, não prometeu nada a ninguém ali. Ficou alguns instantes, imóvel, e depois saiu.
+Não pediu desculpa, não prometeu nada a ninguém ali. Ficou alguns instantes imóvel, e saiu.
 
 Tair esperou até o som dos passos dele desaparecer no corredor. Então se abaixou, pegou o papel do chão e alisou como conseguiu as dobras feitas pela mão de Dareth.
 
@@ -198,11 +198,9 @@ Não abriu ali.
 
 Dobrou de novo e guardou por dentro da roupa.
 
-*
-
 Quando Tair voltou a Maruva, horas depois, Elis já estava em casa.
 
-Estava sentada no chão, encostada na parede, com os joelhos puxados contra o peito. Orel se enrolara num pano perto dela. Karesis ainda tinha saído para resolver o que fosse necessário para levar Kalan para fora das muralhas.
+Estava sentada no chão, encostada na parede, os joelhos puxados contra o peito. Orel se enrolara num pano perto dela. Karesis tinha saído para resolver o que fosse necessário para levar Kalan para fora das muralhas.
 
 Tair fechou a porta.
 
@@ -218,7 +216,7 @@ Tair estendeu o documento.
 
 Ela demorou antes de aceitar. Quando abriu, as marcas dos dedos de Dareth ainda estavam nas bordas amassadas.
 
-A escrita era formal, apertada, cheia de palavras que Elis conhecia melhor nos registros do que numa ordem daquele tipo. Passou o dedo sob a primeira linha e leu devagar, voltando quando a vista embaçava.
+A escrita era formal, apertada, cheia de palavras que Elis conhecia melhor dos registros do que de uma ordem daquele tipo. Passou o dedo sob a primeira linha e leu devagar, voltando quando a vista embaçava.
 
 — "À autoridade da Raiz..." — murmurou.
 
@@ -266,15 +264,13 @@ Horas antes, Dareth tinha chegado tarde demais com aquilo na mão.
 
 Agora os dois sabiam o que era.
 
-*
-
 Caeren estava parado perto da porta dos aposentos de Vetarius quando Dareth chegou.
 
 — Ia falar com meu pai — disse, rápido demais, como se a frase já estivesse pronta havia um tempo.
 
-Dareth passou por ele sem responder. Caeren ficou onde estava, e não fez nenhum esforço de verdade para sair dali quando a porta se fechou atrás de Dareth. Só recuou um passo, o suficiente para continuar ouvindo.
+Dareth passou por ele sem responder. Caeren não fez esforço nenhum para sair dali quando a porta se fechou. Só recuou um passo, o suficiente para continuar ouvindo.
 
-Vetarius estava sentado com um homem da Cidade Interna, um dos senhorios que financiavam parte da logística do torneio, os dois com copos na mão, o clima ainda leve de uma conversa que não sabia ainda o que tinha acontecido no Pátio. O homem riu de alguma coisa. Vetarius também.
+Vetarius estava sentado com um senhorio da Cidade Interna, dos que financiavam parte da logística do torneio, os dois com copos na mão, o clima ainda leve de quem não sabia o que tinha acontecido no Pátio. O homem riu de alguma coisa. Vetarius também.
 
 Quando a porta bateu contra a parede, os dois olharam.
 
@@ -292,11 +288,11 @@ Vetarius olhou para Dareth.
 
 — Kalan morreu.
 
-Não "o garoto". Vetarius percebeu a diferença: Dareth viu isso no jeito como ele hesitou, só um segundo, antes de responder.
+Não "o garoto". Vetarius percebeu a diferença, e Dareth viu isso no jeito como ele hesitou, só um segundo, antes de responder.
 
 — É uma pena — disse, e bebeu. Olhando de novo para o rosto de Dareth, acrescentou: — Esses gabais não responderam nenhum dos meus pedidos a tempo.
 
-Para ele, aquilo bastava. Tinha tentado. Outros tinham falhado. O assunto estava, na cabeça dele, essencialmente encerrado.
+Para ele, aquilo bastava. Tinha tentado. Outros tinham falhado.
 
 — Eu vim até você — Dareth disse. — Pedi que impedisse o julgamento.
 
@@ -336,7 +332,7 @@ Dareth não disse nada.
 
 — Eu sei que tinha nome!
 
-A voz saiu alta demais, e ficou claro, num segundo, que Vetarius tinha aprendido o nome havia muito pouco tempo.
+A voz saiu alta demais, e ficou claro que Vetarius tinha aprendido o nome havia muito pouco tempo.
 
 — Você mal conhecia aquele garoto!
 
@@ -364,13 +360,13 @@ O rosto de Vetarius avermelhou. Bateu o copo na mesa, com mais força do que qua
 
 — Eu sei.
 
-Isso pareceu piorar tudo: não havia desrespeito formal para punir, só uma resposta simples demais para conter a fúria de Vetarius.
+Isso pareceu piorar tudo: não havia desrespeito formal para punir, só uma resposta simples demais para a fúria dele.
 
 — Você assumiu um compromisso diante de Kaeliran inteira! A cidade carregou seu nome! Eu coloquei a Dinastia inteira atrás de você! — Ele deu um passo à frente. — Você não vai abandonar isso porque decidiu enlouquecer por causa de um Nular que roubou uma caixa!
 
 Dareth não respondeu. Só ficou mais duro, o silêncio dele carregando mais peso do que qualquer réplica.
 
-— Se tentar atravessar os portões amanhã, eu mando a Guarda detê-lo — Vetarius disse, e naquele instante não era ameaça vazia, era raiva suficiente para virar ordem se precisasse virar.
+— Se tentar atravessar os portões amanhã, eu mando a Guarda detê-lo — Vetarius disse, e não era ameaça vazia.
 
 — E depois? — Dareth perguntou.
 
@@ -388,7 +384,7 @@ Vetarius continuou olhando, sem responder nada.
 
 — Faça qualquer uma dessas coisas — Dareth disse, depois de uma pausa. — Nenhuma delas vai me fazer levantar uma espada por Kaeliran.
 
-Alguma coisa mudou no rosto de Vetarius. Não era mais raiva, era outra coisa, mais próxima de reconhecer alguém que já não estava mais ali.
+Alguma coisa mudou no rosto de Vetarius. Não era mais raiva. Era mais próxima de reconhecer alguém que já não estava ali.
 
 — O que aconteceu com você? — perguntou, e a raiva mal escondia o afeto que restava.
 
@@ -408,11 +404,9 @@ Dareth continuou andando.
 
 Nenhuma resposta.
 
-— Por que está assim pela morte daquele garoto? — Caeren perguntou, tentando entender de verdade, sem malícia nenhuma no tom, só a lógica fria de quem nunca tinha precisado sentir aquilo. — Você já viu sua família morrer. — Uma pausa. — Já devia estar acostumado.
+— Por que está assim pela morte daquele garoto? — Caeren perguntou, sem malícia no tom, só com a lógica fria de quem nunca precisara sentir aquilo. — Você já viu sua família morrer. — Uma pausa. — Já devia estar acostumado.
 
-Dareth parou.
-
-Dareth sustentou o olhar até Caeren desviar o próprio.
+Dareth parou e sustentou o olhar até Caeren desviar o próprio.
 
 — Não — Dareth disse.
 

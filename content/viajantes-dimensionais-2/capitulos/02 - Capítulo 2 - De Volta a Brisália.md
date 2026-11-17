@@ -162,7 +162,7 @@ Banjo parou para observar uma espécie de aro com três discos giratórios.
 
 A entrada do salão principal estava cheia de aprendizes. Alguns eram mais altos que Breno. Outros mal passavam do ombro de Banjo. Havia grupos de recém-chegados que seguravam a identificação com cuidado, com medo de perdê-la, e veteranos que se cumprimentavam aos gritos, comparando uniformes, medalhas e as férias que haviam passado em Tayo.
 
-Beatriz sentiu um frio na barriga. Desde que entrara no Edifício Arcano pela primeira vez, aprendera a reconhecer o cheiro das oficinas, os pisos claros e o barulho de dezenas de conversas se misturando. Mesmo assim, ao ver tantos rostos desconhecidos, procurou os irmãos antes de seguir.
+Beatriz sentiu um frio na barriga. Desde que entrara no Edifício Arcano pela primeira vez, aprendera a reconhecer o cheiro das oficinas, os pisos claros e o barulho de dezenas de conversas se misturando. Mesmo assim, ao ver tantos rostos desconhecidos, procurou os irmãos antes de seguir. À margem do grupo, Beatriz julgou ver uma senhora muito magra, de cabelos claros e soltos, olhando na sua direção. Tinha o pescoço comprido e não parecia acompanhar ninguém. Um grupo de aprendizes atravessou o corredor; quando passou, a mulher já não estava lá.
 
 Uma menina de cabelos ruivo-dourados apareceu entre dois grupos.
 

@@ -1,30 +1,40 @@
-— Eu te amo — foi o que escapou da minha boca.
+— Kelly, eu nunca fui muito claro sobre o que penso de você, principalmente porque meu melhor amigo gosta de você. Mas eu te amo.
 
-Só percebi o que tinha dito depois que as palavras já estavam soltas, voando entre nós e o lago. Kelly se sentou e me olhou com estranheza, como se eu tivesse soltado um palavrão na sala de aula.
+Só percebi a coragem absurda que tinha arranjado depois que as palavras já estavam soltas, voando entre nós e o lago. Kelly se sentou e me olhou com estranheza, como se eu tivesse soltado um palavrão na sala de aula.
 
-— Que foi? — perguntei, sentindo o rosto esquentar. — Eu disse alguma coisa que não devia?
+— Eu disse algo que não devia? — perguntei, sentando-me também, sentindo o rosto esquentar.
 
-— Não, você não disse… — Kelly respondeu, com um sorriso sem graça. — É só que… nós só nos beijamos uma vez, sabe…
+— Não. Você não disse — Kelly respondeu, com um sorriso sem graça. — É que só nos beijamos uma vez, sabe…
 
-Conversa fiada. Eu me inclinei e a beijei de novo, sem pedir licença ao roteiro dessa vez. Os lábios dela estavam úmidos e frios por causa da brisa, e aquela sensação era o tipo de coisa que eu sempre tentei descrever nos meus romances e nunca cheguei nem perto.
+Conversa fiada. Eu me inclinei e a beijei de novo, antes que ela terminasse. Os lábios dela estavam úmidos e frios por causa da brisa, e aquela sensação era o tipo de coisa que eu sempre tentei descrever nos meus romances e nunca cheguei nem perto.
 
-— E agora, Pavãozinha? — perguntei, quando nos separamos. — Duas vezes. Já posso te amar?
+— E agora, pavãozinha? Duas vezes. Já posso te amar?
 
-— Pode… — respondeu Kelly, corando. Virou o rosto, e eu aproveitei para admirá-la ainda mais: os cabelos caíam na frente do rosto e dançavam com o vento gelado do lago. Depois ela se deitou de novo na grama úmida.
+— Pode — respondeu Kelly, cobrindo o rosto com as mãos, rindo, nervosa. Quando baixou as mãos, os cabelos caíam na frente do rosto e dançavam com o vento gelado do lago.
 
-— Vamos só relaxar um pouco — disse, encarando o céu escuro. — Ficar aqui só nós dois, Junior. Afinal, a gente não tem todo o tempo do mundo.
+Ela ficou me olhando por um momento e perguntou se podia fazer uma pergunta esquisita. Depois de tudo que tínhamos vivido, achei que aguentaria qualquer coisa.
 
-Ela passou a mão pelos meus cabelos e eu me deitei ao lado dela, olhando direto nos seus olhos. O frio estava forte, e o vapor da nossa respiração subia como fumaça em câmera lenta. Enquanto a encarava, minhas pálpebras pesaram, como se eu tivesse virado a noite diante do computador, e tudo escureceu devagar, como a televisão perdendo o sinal.
+— Você faria um pacto com um demônio pra ficar comigo?
+
+Achei graça, procurei no rosto dela algum sinal de brincadeira, mas ela insistiu. Acabei respondendo:
+
+— Sei lá. Talvez. Acho que sim, se não tivesse outro jeito.
+
+Kelly riu e disse que era só uma pergunta. Eu ainda brinquei que preferia continuar com ela sem assinar nada com demônio nenhum. Só depois entenderia o peso daquela conversa.
+
+— Vamos só relaxar um pouco — disse ela, passando a mão no meu cabelo. — Ficar aqui só nós dois, Junior. A gente não tem todo o tempo do mundo.
+
+Me deitei ao lado dela, olhando direto nos seus olhos. O frio estava forte, e o vapor da nossa respiração subia como fumaça em câmera lenta. Enquanto a encarava, minhas pálpebras pesaram, como se eu tivesse virado a noite diante do computador, e tudo escureceu devagar, como a televisão perdendo o sinal.
 
 E apagou.
 
 Quando acordei, Kelly não estava ao meu lado. Levei um segundo para lembrar onde eu estava: a grama, o cheiro de terra molhada, o lago à frente, um frio ainda mais gelado do que antes. Ao me levantar, vi à esquerda a Kelly de costas, parada diante de uma sombra gigantesca que cobria, no mínimo, cinco árvores. Ao lado da sombra estava Ingrid Marques, com aquele ar de boneca quebrada.
 
-— Isso não fazia parte do acordo! — ouvi Kelly gritar. — Eu preciso falar com o meu irmão. Você disse que queria alguém de coração aberto e que, em troca, eu podia pedir o que quisesse. Eu cumpri a minha parte, eu trouxe ele. Ele está aqui, de coração aberto. Você é que está mudando tudo!
+— Isso não fazia parte do acordo! — ouvi Kelly gritar, em lágrimas. — Você disse que queria alguém puro, de coração aberto, e que em troca eu poderia vê-lo. Eu entreguei. Você está mudando as regras.
 
-Minha cabeça girou. Que acordo? Que “coração aberto”? Que “ele está aqui”? Ela não podia estar falando de mim, e eu me recusei a acreditar que estivesse.
+Minha cabeça girou. Que acordo? Que “coração aberto”? O que ela queria dizer com “eu entreguei”? Não podia estar falando de mim, e eu me recusei a acreditar que estivesse.
 
-— Sinto muito, Kelly — disse Ingrid, voltando o rosto na minha direção. Os olhos dela pareciam me enxergar mesmo no escuro. — Ele disse que o seu tempo começou a correr.
+— Sinto muito. Ele disse que o seu tempo começou a correr — falou Ingrid, voltando o rosto na minha direção. Os olhos dela pareciam me enxergar mesmo no escuro.
 
 Ela desapareceu, assim como a sombra, deixando Kelly sozinha, ainda de costas para mim. Eu fiquei congelado, sem saber se corria, se berrava, se acordava de novo. Quando Kelly finalmente se virou, nossos olhares se encontraram. Ela levou as mãos ao rosto, começou a chorar e saiu correndo pela mata, me deixando sozinho à beira do lago.
 

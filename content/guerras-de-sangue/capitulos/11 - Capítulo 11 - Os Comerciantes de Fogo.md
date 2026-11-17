@@ -6,7 +6,7 @@ Os crânios eram aviso para os de fora e memória para os de dentro.
 
 No pátio central, homens e mulheres cercavam uma fogueira baixa usada para luz, tinta, gordura e pedras de cura.
 
-O jovem que atravessou o pátio quase tropeçou ao passar por uma poça de sangue antigo. Não de homem. De varren. Ou talvez de homem e varren juntos; em Khar-Tondr, as coisas misturavam-se depressa quando chegavam ao chão.
+O jovem que atravessou o pátio quase tropeçou ao passar por uma poça de sangue antigo. Não de homem. De varren. Ou talvez de homem e varren juntos, porque em Khar-Tondr as coisas misturavam-se depressa quando chegavam ao chão.
 
 Ele tinha a cabeça raspada há pouco tempo. A pele ainda mostrava pequenas irritações onde a lâmina havia passado. Duas linhas negras desciam das sobrancelhas até a mandíbula. Marcas simples. Marcas de alguém que ainda não havia feito o bastante para carregar desenho maior. Mesmo assim, ele caminhou com pressa. Pressa demais. Dois guardas o viram e bateram os cabos das lanças no chão.
 
@@ -30,11 +30,11 @@ O segundo guarda cuspiu no chão.
 
 A porta baixa abriu-se antes que chamassem. Kharvok surgiu curvando o corpo para passar pelo batente, e mesmo assim pareceu grande demais para aquela entrada. Não por altura. Por presença. Ele não tinha nariz.
 
-No lugar do nariz havia uma falha antiga e mal cicatrizada. A Marca da Voz não a escondia: pigmento preto fosco cobria quase todo o rosto em planos de bordas rígidas, interrompidos pela mutilação e pelas aberturas dos olhos. Três cortes mais densos desciam da testa raspada até o pescoço; a respiração saía áspera pela ferida.
+No lugar do nariz havia uma falha antiga e mal cicatrizada. A Marca da Voz não a escondia: pigmento preto fosco cobria quase todo o rosto em planos de bordas rígidas, interrompidos pela mutilação e pelas aberturas dos olhos. Três cortes mais densos desciam da testa raspada até o pescoço, e a respiração saía áspera pela ferida.
 
-A antiga Voz morrera sob a Lei do Portão. Depois, três candidatos entraram no Círculo da Cabeça Nua e só Kharvok saiu vivo. O segundo adversário arrancara-lhe o nariz; histórias diziam que Kharvok o matara mordendo-lhe o olho antes da faca. Ninguém sabia se era verdade, mas desde então ele era Voz.
+A antiga Voz morrera sob a Lei do Portão. Depois, três candidatos entraram no Círculo da Cabeça Nua e só Kharvok saiu vivo. O segundo adversário arrancara-lhe o nariz. Histórias diziam que Kharvok o matara mordendo-lhe o olho antes da faca. Ninguém sabia se era verdade, mas desde então ele era Voz.
 
-E quando ele respirava, o som vinha quebrado, úmido, lembrando ar passando por pedra rachada. O garoto baixou a cabeça.
+Quando ele respirava, o som vinha quebrado, úmido, como ar passando por pedra rachada. O garoto baixou a cabeça.
 
 — Voz.
 
@@ -218,13 +218,15 @@ Quando terminou, Kharvok ficou diante dele por alguns instantes. Depois disse:
 
 — Tragam água.
 
-Rendar soube, então, que ainda estaria vivo. Pelo menos por enquanto. Cinco dias depois, o chão fumegava sob os pés dos Vendrar, na Forja Aberta.
+Rendar soube, então, que ainda estaria vivo. Pelo menos por enquanto.
+
+Cinco dias depois, o chão fumegava sob os pés dos Vendrar, na Forja Aberta.
 
 A Forja Aberta espalhava-se por pedra negra, cinza e fendas de vapor na lateral do Monte Varkhama. Fendros-de-fenda escondiam-se nas rachaduras quentes, pinheiros-de-cinza cresciam nas encostas inferiores e, ao longe, um ossudo-de-Karvoss caminhava sob o cume fumegante.
 
 Os Vendrar chamavam aquilo de lar e de negócio.
 
-Varkhama era espalhada e parcialmente desmontável. Cabras-negras circulavam entre oficinas e tendas; pão de grão-de-cinza e tiras de cabra-negra assada alimentavam trabalhadores. Ferro-manso crescia nos canteiros contaminados pelo metal. Cavernas serviam de oficinas, com pinheiro-de-cinza secando para cabos, bancadas de ferramentas, tubos e pós vedados. Mais abaixo ficavam o Mercado das Peças, a Casa do Óleo e o Poço do Bafo. A fumaça entrava em cabelo, roupa e dentes.
+Varkhama era espalhada e parcialmente desmontável. Cabras-negras circulavam entre oficinas e tendas, e pão de grão-de-cinza e tiras de cabra-negra assada alimentavam trabalhadores. Ferro-manso crescia nos canteiros contaminados pelo metal. Cavernas serviam de oficinas, com pinheiro-de-cinza secando para cabos, bancadas de ferramentas, tubos e pós vedados. Mais abaixo ficavam o Mercado das Peças, a Casa do Óleo e o Poço do Bafo. A fumaça entrava em cabelo, roupa e dentes.
 
 Pó cinza cobria rostos e roupas. Ferramentas, tubos e frascos vedados pendiam dos cintos de homens e mulheres.
 
@@ -246,11 +248,11 @@ As crianças riram mais. Entre os Vendrar, perigo não era ausência de educaç�
 
 Vorlan Vendrar testava uma lança de ponta dividida contra um boneco encharcado em óleo. Tinha barba curta, olhos estreitos e sorriso de comerciante.
 
-Seyra Vendrar, descalça sobre a pedra quente, girava duas lâminas curvas. Pequenas queimaduras circulares marcavam seus braços; o cabelo preso estava coberto de cinza.
+Seyra Vendrar, descalça sobre a pedra quente, girava duas lâminas curvas. Pequenas queimaduras circulares marcavam seus braços, e o cabelo preso estava coberto de cinza.
 
 Tavra Vendrar ria com uma faca na boca e outra na mão. No lugar do antebraço esquerdo, um tubo de fogo estava preso ao coto por couro e metal. Tinha a lateral do cabelo raspada, tranças queimadas nas pontas e pequenas peças metálicas no pescoço.
 
-Vorlan lançou a lança; a ponta atravessou o boneco. Tavra ergueu o tubo e disparou uma chama curta. O boneco pegou fogo.
+Vorlan lançou a lança e a ponta atravessou o boneco. Tavra ergueu o tubo e disparou uma chama curta. O boneco pegou fogo.
 
 Seyra passou por ele sem olhar, cortou a base com um golpe e deixou a estrutura cair em chamas.
 
@@ -374,7 +376,7 @@ Os risos foram ainda maiores. Vorlan ergueu a mão.
 
 — Não sou do clã deles. Estou dizendo que temos interesses em comum. E sei que os Vendrar se guiam por seus próprios interesses. Queremos acabar com a soberania Polar.
 
-Houve um breve silêncio, onde alguns ainda continuaram rindo. Então Vorlan ergueu a mão.
+Houve um breve silêncio, em que alguns ainda riam. Então Vorlan ergueu a mão.
 
 — Deixe-me ver se entendi. Diz que está com os Buldar, mas não é um deles. Veio propor que nos aliemos a vocês para derrotar os Polar? — Esperou que Rendar concordasse com a cabeça. — Antes de transformar tragédia em contrato, deixe-me poupar tempo. Os Polar compram. Bastante. Metal, ferramentas, óleo, mecanismos, fogo quando têm coragem de admitir que precisam dele. Kaendar paga melhor que qualquer outro clã. Por que eu deveria querer derrubar um comprador?
 
@@ -409,6 +411,7 @@ Vorlan seguiu com o olhar. No primeiro instante, viu apenas fumaça, pedra e cin
 Do norte, vieram os Tondrar. Não marchavam como soldados Polar. Corriam em grupos quebrados, rápidos, baixos, pinturas negras cortando rostos, lanças nas mãos, arcos curtos nas costas, ossos batendo contra cintos, enquanto gritavam descompassadamente. Não formavam um exército de conquista, mas bastavam para fazer qualquer um procurar uma saída. À frente deles vinha Torgun, o homem dos olhos fundos. Abriu distância dos outros guerreiros em poucas passadas.
 
 Do oeste, a terra tremeu sob os bravões Buldar.
+
 Animais largos, cinzentos, de quatro chifres laterais, avançavam em passo pesado. Sobre eles vinham Ceifadores de Campo: homens e mulheres de roupa grossa, faixas de semente presas aos pulsos, espadas curtas, escudos de madeira reforçada e sacos amarrados às selas. Avançavam em formação cerrada, protegendo as laterais dos bravões. Diferentemente dos Tondrar, não gritavam desafios.
 
 No centro, montada num bravão de couro escuro, vinha Nynestra Buldar. Reta, serena, como se até aquela demonstração de força fosse apenas uma conta que finalmente fechava.
@@ -424,7 +427,7 @@ Alguns usavam conchas pequenas ou dentes de peixe como enfeite, mas eram aquelas
 
 Os Vendrar calcularam distâncias e puxaram armas.
 
-Correntes foram puxadas. Arcos erguidos. Tubos de fogo apontados. Crianças desapareceram para trás das oficinas. Mulheres largaram ferramentas e pegaram lâminas. Homens subiram nas pedras. Seyra já tinha as duas facas na mão. Tavra apontava o tubo para os Tondrar, mas mantinha o braço afastado do próprio corpo. Tavra firmou o tubo e manteve o braço afastado do corpo.
+Correntes foram puxadas. Arcos erguidos. Tubos de fogo apontados. Crianças desapareceram para trás das oficinas. Mulheres largaram ferramentas e pegaram lâminas. Homens subiram nas pedras. Seyra já tinha as duas facas na mão. Tavra apontava o tubo para os Tondrar, mas mantinha o braço afastado do próprio corpo.
 
 Vorlan, por sua vez, perdeu o sorriso.
 
@@ -518,9 +521,9 @@ Seyra virou o rosto para ele.
 
 Vorlan não respondeu de imediato. Tavra parou de sorrir por meio sopro.
 
-— É só isso que estou pedindo. Não que parem de vender. Que parem de fingir que vender não é escolha.
+— É só isso que estou pedindo — disse Rendar. — Não que parem de vender. Que parem de fingir que vender não é escolha.
 
-Vorlan apertou a lança.
+Vorlan baixou os olhos para a lança.
 
 — Por isso ninguém confia em nós?
 

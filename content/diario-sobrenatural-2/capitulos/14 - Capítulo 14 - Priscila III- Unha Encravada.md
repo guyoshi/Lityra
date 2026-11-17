@@ -1,8 +1,14 @@
-O amor é uma coisa bem suspeita. Não vou romantizar, porque eu não tenho paciência para isso. Amor, para mim, é igual a unha encravada: você sabe que vai doer, você sabe que vai infeccionar se não fizer nada, mas também sabe que mexer antes da hora só piora. E sim, eu tinha uma unha encravada havia dois dias. Daquelas que latejam como se o dedo tivesse vida própria e resolvesse fazer birra. Eu queria arrancar logo, mas tinha que esperar a dor “amadurecer”. Olha a palavra: amadurecer. Até dor tem calendário. Eu sou péssima com metáfora, então pronto: amor e unha encravada são a mesma coisa. Um saco.
+Acordei com o dedão do pé latejando. A unha tinha encravado dois dias antes, e eu vinha fingindo que ia melhorar sozinha. Não melhorou. Calcei o sapato com todo o cuidado do mundo e quase gritei quando fiquei de pé.
 
-Sendo sincera, porque eu posso ser quando ninguém está me enchendo, eu sentia falta de uma companhia. Só que ao mesmo tempo eu me sentia tão bem sozinha que chegava a dar raiva lembrar que eu ainda precisava de gente. O meu medo não era o Jason em si. Era eu. Era me afeiçoar, deixar alguém entrar onde eu tinha acabado de fechar a porta com chave. Só que coração é um órgão inútil nesse sentido: ele não pede autorização, não respeita agenda, não sabe ler placa de “proibida a entrada”.
+— Maravilha — resmunguei. — Era só o que faltava.
 
-Na manhã de terça-feira ligaram para reagendar a prova do curso de Hotelaria e Turismo. Próxima terça. Ótimo. Eu tinha uma semana para fingir que ia estudar com disciplina, como se a minha vida fosse um caderno organizado e não um monte de folhas amassadas. Pelo menos uma coisa funcionou: o Sr. Estevan finalmente me pagou e eu consegui acertar o aluguel. O mundo consegue ser cruel e prático ao mesmo tempo. Você pode estar a dois passos de virar pó, mas o aluguel não quer saber.
+Eu tinha um alicate no armário e sabia perfeitamente o que fazer com ele. Também sabia que, se mexesse na unha daquele jeito, podia piorar. Então não mexi. Ainda.
+
+O pior era que tinha passado a noite pensando no Jason. Num dia eu queria que ele ligasse. No outro, quando o telefone tocava, tinha vontade de mandar o aparelho pela janela. Eu estava tão acostumada a não dar satisfação a ninguém que até sentir falta de uma pessoa me irritava.
+
+Fui até o espelho, ajeitei o cabelo e passei batom. Não tinha compromisso nenhum. Tirei o batom. Passei de novo. Que ódio.
+
+Na manhã de terça-feira ligaram para reagendar a prova do curso de Hotelaria e Turismo. Próxima terça. Ótimo. Eu tinha uma semana para fingir que ia estudar com disciplina, como se a minha vida fosse um caderno organizado e não um monte de folhas amassadas. Pelo menos uma coisa funcionou: o Sr. Estevan finalmente me pagou e eu consegui acertar o aluguel. Fui conferir o dinheiro que sobrou na carteira. Dava para comprar comida e pagar a passagem, desde que eu não me metesse a querer nada muito caro. Ainda me dava uma raiva absurda depender do dia em que o Sr. Estevan resolvia pagar.
 
 Na quarta-feira acordei cedo com aquela ideia idiota de fazer atividade física, porque os últimos dias me fizeram ganhar uns quilinhos. Estava calçando o sapato quando o telefone tocou. E eu corri para atender, não porque fosse carente, mas porque ninguém me liga. Ninguém. Deve ser o Jason, pensei. Eu tinha passado meu número pra ele.
 
@@ -18,13 +24,15 @@ Eu devia ter desligado na hora. Mas eu não desliguei, porque infelizmente eu ai
 
 — Eu estou ótima — respondi, fria. Não porque eu estava ótima. Mas porque eu não devo satisfação.
 
-— Que ótimo. Sua avó estava perguntando de você semana passada. Você podia ir lá um dia a ver. Sei que não se importa mais com seus pais, mas deixar de ver sua avó…
+— Que ótimo. Sua avó estava perguntando de você semana passada. Você podia dar uma passada lá um dia. Sei que não se importa mais com seus pais, mas deixar de ver sua avó…
 
 — Por que você não para com isso? De ficar colocando minha avó no meio pra eu me sentir culpada? Eu nunca deixei de falar com a vó. Agora vê se arruma outra coisa pra fazer, porque eu estou ocupada.
 
 — Priscila… sua avó está doente. Câncer. Ela não tem muito tempo de vida.
 
-A palavra “câncer” entrou como se fosse um objeto atirado contra minha cara. E piorou quando eu ouvi choro. Minha mãe chorando ao telefone. Como se ela fosse a vítima principal do universo.
+Fiquei sem reação. Câncer? Minha avó?
+
+Então ouvi a minha mãe chorar do outro lado da linha. Aquilo me irritou, e logo depois me senti horrível por estar irritada. Claro que ela podia chorar. Era mãe dela. Eu só não suportava ouvi-la.
 
 — Pense o que quiser sobre mim, só… vai vê-la, ok. Eu e seu pai vamos contratar alguém para cuidar dela. Para que não fique sozinha.
 
@@ -36,7 +44,7 @@ Eu desliguei. Porque eu não ia ficar ali participando do teatro dela.
 
 Coloquei o telefone no gancho e voltei para a cama. Deitei de bruços, como se a posição pudesse esmagar o pensamento. Ao lado da cama, estava a foto que eu tirei da Kelly no parque de diversão. Aquelas fotos sempre parecem mentira, não parecem? Uma versão limpa do mundo, com sorriso e fundo colorido. Eu olhei para a foto e pensei a coisa mais óbvia e mais injusta: por que a minha família era tão amaldiçoada? Primeiro Enzo, depois Kelly… agora a minha avó. A minha avó, que era literalmente a única pessoa que conseguia me irritar e me fazer sentir falta ao mesmo tempo.
 
-Para distrair a mente, liguei o rádio. Estava tocando “Beat It”. A música enchia o quarto e, por alguns minutos, eu consegui fingir que aquilo era só uma manhã qualquer em 2003, com a vida a acontecer em ritmo de rádio e não em ritmo de tragédia.
+Para distrair a mente, liguei o rádio. Estava tocando “Beat It”. A música enchia o quarto e, por alguns minutos, eu consegui fingir que aquilo era só uma manhã qualquer em 2003, com a vida acontecendo em ritmo de rádio e não em ritmo de tragédia.
 
 Fui ao banheiro e, no meio do caminho, a lembrança voltou, como se alguém tivesse me cutucado a nuca: minha avó está doente. Aquilo me deu uma necessidade física de falar com ela. Eu não sou sentimental, mas eu sou prática. E, naquele momento, o prático era ligar.
 
@@ -66,7 +74,7 @@ Eu apertei o telefone com mais força. O assunto “minha mãe” tinha o dom de
 
 — Seu pai veio como uma cura pra toda dor e sofrimento que ela tinha. Eu não o aprovei de início, estava farta de caras machucando minha pequena Karen. Então estipulei dias e horários para que eles se vissem. Sua mãe sempre foi muito disciplinada, ao contrário da sua tia. Ela obedeceu, e em alguns anos, se casou com seu pai. Tudo na vida tem o seu tempo, Priscila.
 
-“Tudo tem seu tempo.” O tipo de frase que as pessoas dizem quando não sabem como resolver a dor de alguém e jogam a responsabilidade no relógio.
+“Tudo tem seu tempo.” Minha avó adorava dizer isso. Eu detestava, principalmente quando ela estava certa.
 
 — Eu sei, vó. Mas minha mãe… sua filha… depois de tudo o que aconteceu… a minha vida inteira…
 
@@ -74,11 +82,11 @@ Eu apertei o telefone com mais força. O assunto “minha mãe” tinha o dom de
 
 — Não seja ingênua, vó. Ela não sente isso por mim.
 
-— Não estou dizendo que ela não devesse demonstrar mais, minha menina. Ela falhou em lhe ter mais por perto. Mas isso não significa que você deve falhar com ela também. Daqui há alguns anos, espero vê-las bem novamente. Isso me faria muito feliz.
+— Não estou dizendo que ela não devesse demonstrar mais, minha menina. Ela falhou em te ter mais por perto. Mas isso não significa que você deve falhar com ela também. Daqui a alguns anos, espero vê-las bem novamente. Isso me faria muito feliz.
 
 Daqui a alguns anos. Ela disse como se fosse uma coisa garantida. Ela não me contou da doença. Claro que não contou. Minha avó preferia morrer de pé do que admitir fraqueza sentada.
 
-— Obrigado, vó. Estou feliz por saber que está bem.
+— Obrigada, vó. Estou feliz por saber que está bem.
 
 — Eu estou ótima, Priscila. Hoje mesmo fiz uma faxina no velho escritório do seu avô. E aquele lugar estava encardido, viu.
 
@@ -104,7 +112,7 @@ Passei mais uma tarde tediosa fazendo lanches para esfomeados e obesos, enquanto
 
 Assenti. Assim que ele saiu, eu coloquei os fones de novo. Aquele calor chato apareceu, aquele sentimento adolescente que eu odeio, um fósforo aceso dentro do peito. Só que dessa vez eu não ia correr. Se Jason queria me ver, ele que viesse até mim.
 
-Até que um vulto entrou no meu campo de visão. Eu me virei para fingir surpresa… e a surpresa virou de verdade, porque não era Jason. Era a insuportável prima dele, parada na entrada da cozinha como se tivesse direito de estar ali.
+Até que um vulto entrou no meu campo de visão. Eu me virei para fingir surpresa… e a surpresa virou de verdade, porque o vulto era a insuportável prima do Jason, parada na entrada da cozinha como se tivesse direito de estar ali.
 
 — O que você está fazendo aqui? — perguntei, tirando um dos fones.
 
@@ -154,7 +162,7 @@ Glenda recuou e caiu perto da parede. Ela tirou o cabelo do rosto, a boca sangra
 
 — É louca como um animal. É por isso que você varre o chão enquanto eu vivo numa mansão. Provavelmente é revoltada assim porque não teve atenção dos pais, era deixada de escanteio. Nem sua irmã morta te suportava, não é?
 
-Naquele instante eu senti um ódio que eu não tinha sentido nem pela Vitória. O sangue subiu tão rápido que eu quase vi preto. Eu puxei a faca e fui para cima dela. Ela segurou meu braço e me empurrou para trás enquanto eu tentava cortar. Era ridículo: duas pessoas numa cozinha imunda, a música ainda a ecoar na minha cabeça, e eu prestes a fazer uma besteira que não dava para desfazer.
+Naquele instante eu senti um ódio que eu não tinha sentido nem pela Vitória. O sangue subiu tão rápido que eu quase vi preto. Eu puxei a faca e fui para cima dela. Ela segurou meu braço e me empurrou para trás enquanto eu tentava cortar. Era ridículo: duas pessoas numa cozinha imunda, a música ainda ecoando na minha cabeça, e eu prestes a fazer uma besteira que não dava para desfazer.
 
 — PRISCILA!
 
@@ -210,7 +218,7 @@ Eu senti o ar indo embora do peito.
 
 Aquilo não era uma árvore.
 
-Era um homem, de roupas sociais. Só que a cabeça… definitivamente não era humana. A cabeça era de bode. E o rosto parecia morto, como se aquela cabeça estivesse em decomposição há dias. O que antes eu achava que eram folhas era pelo. Pelo de bode. E eu fiquei ali, olhando, com a garganta seca, sentindo o corpo reagir antes da mente conseguir achar um insulto para se proteger.
+Era um homem, de roupas sociais. Só que a cabeça… não era humana. A cabeça era de bode. E o rosto parecia morto, como se aquela cabeça estivesse em decomposição há dias. O que antes eu achava que eram folhas era pelo. Pelo de bode. E eu fiquei ali, olhando, com a garganta seca, sentindo o corpo reagir antes da mente conseguir achar um insulto para se proteger.
 
 Foi quando ouvi uma batida forte na porta.
 

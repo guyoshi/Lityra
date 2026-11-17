@@ -1,4 +1,4 @@
-Kaelina chegou a Alestir com a manhã ainda presa à fumaça. Algumas casas soltavam vapor pelas frestas; outras eram apenas paredes partidas, vigas negras e telhados afundados. Um borralho farejou sementes carbonizadas perto de uma soleira e sumiu quando uma viga cedeu.
+Kaelina chegou a Alestir com a manhã ainda presa à fumaça. Algumas casas soltavam vapor pelas frestas e outras eram apenas paredes partidas, vigas negras e telhados afundados. Um borralho farejou sementes carbonizadas perto de uma soleira e sumiu quando uma viga cedeu.
 
 Guardas, curandeiros, carregadores e dois Vigias de fronteira caminhavam atrás dela em silêncio.
 
@@ -72,7 +72,7 @@ Harrev tocou dois dedos na testa e no peito.
 
 — A Raiz lembra.
 
-Ela olhou novamente para o corpo no chão. Kaelina olhou uma última vez para a mão fechada e para o corpo entre a explosão e a estrada por onde Alyra escapara.
+Ela olhou uma última vez para a mão fechada e para a estrada por onde Alyra escapara.
 
 Do lado norte da vila, vozes se ergueram. Dois homens surgiram entre ruínas, apoiando alguém entre eles. A figura caminhava, mas apenas porque era arrastada pela força dos outros. O rosto estava cinzento, sujo de sangue seco e fuligem. A roupa escura havia rasgado num ombro. O cabelo, antes impecavelmente controlado, caía sobre a testa em mechas grudadas. Mesmo ferido e sujo, Daryon ainda tentava manter a dignidade, o corpo rígido apesar de depender dos dois homens que o sustentavam.
 
@@ -136,7 +136,9 @@ A dureza da própria voz a atingiu no instante seguinte. Iressa não pareceu ofe
 
 — Deixarei aqui, minha soberana.
 
-Fez uma reverência curta e saiu. Kaelina ficou sozinha com o caldo, a peça de Orionus e a vergonha. Não comeu. Ao entardecer, levaram Cal Edran ao rio.
+Fez uma reverência curta e saiu. Kaelina ficou sozinha com o caldo, a peça de Orionus e a vergonha. Não comeu.
+
+Ao entardecer, levaram Cal Edran ao rio.
 
 Kaendar desceu ao rio em silêncio. Guardas, servos, Vigias, carregadores, trabalhadores e velhos que lembravam Orionus reuniram-se nas margens.
 
@@ -146,7 +148,7 @@ Edran foi colocado sobre uma barca funerária simples, madeira escura, bordas ba
 
 Alyra estava ao lado dela.
 
-Tinha o braço esquerdo imobilizado junto ao corpo e o rosto mais pálido do que tentava aparentar. Um corte fino atravessava-lhe a testa e partia o tronco da Ramagem ao meio; ninguém ousara retocá-lo. Não usava o manto pesado. Vestia escuro, com a túnica presa às pressas na cintura. Cal Kadrir permanecia atrás dela, calado, com o rosto tenso e os olhos fixos na barca, na raiz recém-pintada na têmpora do morto, igual à sua. Daryon não estava presente; os curandeiros ainda limpavam suas feridas.
+Tinha o braço esquerdo imobilizado junto ao corpo e o rosto mais pálido do que tentava aparentar. Um corte fino atravessava-lhe a testa e partia o tronco da Ramagem ao meio, e ninguém ousara retocá-lo. Não usava o manto pesado. Vestia escuro, com a túnica presa às pressas na cintura. Cal Kadrir permanecia atrás dela, calado, com o rosto tenso e os olhos fixos na barca, na raiz recém-pintada na têmpora do morto, igual à sua. Daryon não estava presente, porque os curandeiros ainda limpavam suas feridas.
 
 Alyra permaneceu calada até os homens começarem a soltar as amarras.
 
@@ -170,7 +172,9 @@ A barca deslizou sobre a água ainda manchada de óleo. Um Guardião de Costumes
 
 — A Raiz lembra.
 
-Kaelina não conseguiu repetir. A barca afastou-se para a curva do rio. O Conselho reuniu-se antes da noite.
+Kaelina não conseguiu repetir. A barca afastou-se para a curva do rio.
+
+O Conselho reuniu-se antes da noite.
 
 Daryon chegou com o ombro enfaixado. Alyra sentou-se com o braço imobilizado e, por vezes, olhava para Kadrir ou para as próprias mãos. Kaelina permaneceu de pé.
 
@@ -254,9 +258,7 @@ Varron inclinou-se para frente.
 
 Nalia, que permanecia junto a uma das colunas, braços cruzados, falou pela primeira vez:
 
-— Os Vendrar? Então os Glydar sujaram nossos rios enquanto os Vendrar nos atacaram em terra?
-
-— Talvez não tenham sido os Glydar. Talvez os Vendrar quisessem que pensássemos neles — respondeu Nalia.
+— Os Vendrar? Então os Glydar sujaram nossos rios enquanto os Vendrar nos atacaram em terra? Talvez nenhum dos dois. Talvez alguém quisesse que pensássemos neles.
 
 — Sempre essa cautela — murmurou Brokan.
 
@@ -340,11 +342,11 @@ A sala endureceu. Daryon ergueu as sobrancelhas, quase sorrindo. Alyra levantou 
 
 Kaelina respirou fundo, e a voz que veio depois não era grito. Era pior. Era conclusão.
 
-— Tem que haver mais do que ambição. Orionus passou quarenta ciclos sem guerra aberta. Não porque todos nos amavam. Não porque os clãs menores aceitavam alegremente o lugar que ocupavam. Ele manteve a palavra de Kaendar limpa o bastante para que até inimigos soubessem onde começava o risco onde terminava o acordo e que preço teria atravessar a linha. Essa guerra não nasceu apenas porque alguém olhou para nossas muralhas e desejou vê-las cair. Ela nasceu porque alguém fez os outros acreditarem que nossa palavra já não valia nada.
+— Tem que haver mais do que ambição. Orionus passou quarenta ciclos sem guerra aberta. Não porque todos nos amavam. Não porque os clãs menores aceitavam alegremente o lugar que ocupavam. Ele manteve a palavra de Kaendar limpa o bastante para que até inimigos soubessem onde começava o risco, onde terminava o acordo e que preço teria atravessar a linha. Essa guerra não nasceu apenas porque alguém olhou para nossas muralhas e desejou vê-las cair. Ela nasceu porque alguém fez os outros acreditarem que nossa palavra já não valia nada.
 
 Ninguém falou. Kaelina continuou:
 
-— Yvenn morreu sob trégua. A Voz dos Tondrar morreu junto. E desde então repetimos a mesma história porque era a mais fácil de odiar: os Tondrar envenenaram Yvenn, quebraram a Lei do Portão e mereciam consequência. Mas estou há dias me perguntando, e quero que todos pensem bem sobre: por que os Tondrar levariam a própria Voz para uma traição suicida?
+— Yvenn morreu sob trégua. A Voz dos Tondrar morreu junto. E desde então repetimos a mesma história porque era a mais fácil de odiar: os Tondrar envenenaram Yvenn, quebraram a Lei do Portão e mereciam consequência. Mas estou há dias me perguntando, e quero que todos pensem bem nisto: por que os Tondrar levariam a própria Voz para uma traição suicida?
 
 Daryon inclinou-se para frente, a voz mais dura agora.
 
@@ -378,7 +380,7 @@ Kaelina olhou para ele.
 
 — É exatamente isso que estou dizendo.
 
-Kadrir ficou pálido. Maelis parou de escrever. Iressa fechou os olhos. Daryon não se mexeu; Alyra ergueu a cabeça.
+Kadrir ficou pálido. Maelis parou de escrever. Iressa fechou os olhos. Daryon não se mexeu, mas Alyra ergueu a cabeça.
 
 — Claro — disse ela.
 
@@ -414,7 +416,7 @@ Do lado de fora, dois soldados vigiavam a porta. Um deles era Lorian, homem jove
 
 — Lorian, Odris, esperem no fim do corredor.
 
-Ele engoliu.
+Lorian engoliu.
 
 — Sim, minha soberana.
 

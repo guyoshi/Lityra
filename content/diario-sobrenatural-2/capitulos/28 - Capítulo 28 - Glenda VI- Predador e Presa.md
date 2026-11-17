@@ -1,12 +1,12 @@
-No reino animal, o predador raramente ocupa o topo da cadeia. Ele vive no meio dela. Caça porque precisa, domina porque funciona, mas quase sempre erra ao acreditar que o medo resolve tudo, que silêncio é submissão, que permanência é consentimento. Não percebe que algumas presas não fogem porque estão observando: mapeando território, aprendendo horários, rotinas, desvios de atenção.
+Se alguém me perguntasse o que lembrava do meu aniversário de quinze anos, eu falaria do bolo caro, da música alta e das fotografias. Tentaria parar aí.
 
-O mundo humano só muda a embalagem: garras viram sorrisos, dentes viram palavras bem escolhidas, território vira casa grande demais. Os predadores repetem padrões, circulam pelos mesmos lugares, e é nessa previsibilidade que a cadeia falha, porque quem observa em silêncio só precisa reconhecer o momento em que o predador esquece que também pode ser presa.
+Durante anos, bastou ouvir uma porta fechando para que o resto da festa voltasse inteiro. Eu ainda consigo ouvir aquele som.
 
-A casa estava diferente naquela noite, não por causa dos balões ou do bolo com glacê demais, mas porque meus pais tentavam fingir que eram uma família de comercial. Minha mãe circulava com um sorriso treinado, ajustando a fita do meu vestido como se fosse o detalhe mais importante da festa; meu pai falava alto na sala, rindo de piadas antigas, com o tom de “aqui está tudo sob controle” que homem usa para convencer a si mesmo. Havia música numa caixa de som que ele se orgulhava de ter comprado “boa”, e as minhas poucas amigas se apertavam num canto. Eu via tudo de fora, mesmo estando no centro, porque quinze anos é a idade em que todo mundo espera que você se sinta especial e você só consegue pensar no quanto está desconfortável com o próprio corpo.
+A casa estava diferente naquela noite, não por causa dos balões ou do bolo com glacê demais, mas porque meus pais tentavam fingir que eram uma família de comercial. Minha mãe circulava com um sorriso treinado, puxando a fita do meu vestido até me incomodar; meu pai falava alto na sala, rindo de piadas antigas, com o tom de “aqui está tudo sob controle” que homem usa para convencer a si mesmo. Havia música numa caixa de som que ele se orgulhava de ter comprado “boa”, e as minhas poucas amigas se apertavam num canto. Eu via tudo de fora, mesmo estando no centro, porque quinze anos é a idade em que todo mundo espera que você se sinta especial e você só consegue pensar no quanto está desconfortável com o próprio corpo.
 
-Lembro do cheiro de refrigerante aberto, do suor doce de gente dançando sem saber dançar, do copo de vidro batendo em bandeja, de alguém comentando uma banda que tinha passado na MTV na noite anterior. Um primo de algum convidado mexia num Discman como se fosse a coisa mais moderna do universo; no corredor, alguém mostrava um papel com um número de ICQ, senha de clube secreto. Eu estava um pouco acima de tudo, não por ser melhor, mas por ser mais desconfiada. E estava feliz, de um jeito prático: gostava da casa grande, do espaço, do barulho de gente que tinha vindo me ver, mesmo quando não gostava das pessoas. O mundo, naquele dia, era a minha festa.
+Lembro do cheiro de refrigerante aberto, do suor doce de gente dançando sem saber dançar, do copo de vidro batendo em bandeja, de alguém comentando uma banda que tinha passado na MTV na noite anterior. Um primo de algum convidado exibia um Discman novo para todo mundo; no corredor, alguém mostrava um papel com um número de ICQ, senha de clube secreto. Eu estava um pouco acima de tudo, não por ser melhor, mas por ser mais desconfiada. E estava feliz, de um jeito prático: gostava da casa grande, do espaço, do barulho de gente que tinha vindo me ver, mesmo quando não gostava das pessoas. O mundo, naquele dia, era a minha festa.
 
-A mudança não veio com trovão nem com silêncio; veio com a porta abrindo e uma presença ocupando o ambiente como se tivesse sido construída para isso. Diego entrou com Jason, e eu vi o meu pai se ajeitando. Não era respeito: era reflexo. Diego tinha essa habilidade de fazer homens mais velhos se lembrarem do que nunca foram. Era “boa pinta”, como diziam, e parecia ter nascido sabendo onde colocar a mão, onde pousar o olhar, onde deixar a voz. O terno não era exagerado, o relógio não era ostentação, e o sorriso… o sorriso era a parte mais perigosa, porque parecia simples, quase gentil. Jason vinha junto, tentando parecer adulto demais para a idade, e eu lembro de pensar, com uma pontada de vaidade ridícula, que a festa tinha ficado melhor com eles ali. Como se a presença dele validasse a minha.
+A conversa diminuiu quando Diego apareceu na porta com Jason. Meu pai ajeitou o paletó assim que os reconheceu. Não era respeito: era reflexo. Diego tinha essa habilidade de fazer homens mais velhos se lembrarem do que nunca foram. Era “boa pinta”, como diziam, e parecia ter nascido sabendo onde colocar a mão, onde pousar o olhar, onde deixar a voz. O terno não era exagerado, o relógio não era ostentação, e o sorriso… o sorriso era a parte mais perigosa, porque parecia simples, quase gentil. Jason vinha junto, tentando parecer adulto demais para a idade, e eu lembro de pensar, com uma pontada de vaidade ridícula, que a festa tinha ficado melhor com eles ali. Eu me sentia importante só porque ele tinha reparado em mim. Lembrar disso ainda me dava vergonha.
 
 Diego me cumprimentou com a naturalidade de quem acha que tudo é dele. Encostou de leve no meu ombro e disse alguma coisa sobre eu estar crescendo, sobre como o tempo passa, e eu ri do jeito certo, com o tom certo, porque eu sabia jogar o jogo social antes mesmo de entender as regras. Eu não me senti pequena; eu me senti escolhida. E, por algum motivo que eu ainda não sabia nomear, eu gostei disso.
 
@@ -14,7 +14,7 @@ A festa continuou. Eu bebi mais do que deveria, porque ninguém presta atenção
 
 — Desculpe! Assustei você?
 
-Eu me virei rápido demais e vi Diego ali, encostado no batente como se sempre tivesse estado, segurando uma bebida com a calma de quem não se apressa nem quando invade espaço alheio.
+Eu me virei rápido demais e vi Diego encostado no batente, segurando uma bebida. Ele nem havia pedido licença para entrar.
 
 — Eu… eu não ouvi você subir — eu disse, e a minha voz soou mais alta do que eu queria, com uma risada curta no final para disfarçar o desconforto.
 
@@ -28,11 +28,13 @@ Depois de um tempo que eu não consigo medir com honestidade, ele se levantou, p
 
 — Aproveita a festa, Glenda. Não some, tá? Sua mãe vai sentir falta.
 
-Saiu levando os copos e deixou a garrafa em cima da cômoda. Eu fiquei olhando para a porta fechada e, por algum motivo, a minha garganta secou. Peguei a garrafa e virei direto, como se pudesse afogar a sensação estranha antes que ela virasse pensamento. A tontura veio, grossa, e eu lembro de tentar me sentar na cama e não entender onde estavam as minhas mãos. O quarto ficou distante, como visto através de um vidro sujo, e eu apaguei.
+Saiu levando os copos e deixou a garrafa em cima da cômoda. Eu fiquei olhando para a porta fechada e, por algum motivo, a minha garganta secou. Peguei a garrafa e virei direto, tentando fazer aquela sensação passar antes que eu começasse a pensar. A tontura veio, grossa, e eu lembro de tentar me sentar na cama e não entender onde estavam as minhas mãos. O quarto ficou distante, como visto através de um vidro sujo, e eu apaguei.
 
 Anos depois, eu ainda sabia exatamente quanto tempo aquele som de porta encaixando durava.
 
-Voltei para dentro da casa sozinha. Atrás de mim, o portão se fechou com o ruído de uma decisão. *Eu não gosto de você. Nunca gostei.* Era a frase que eu tinha escolhido, a mais eficiente, a que cortaria a ponte de uma vez só; e eu a disse como quem recita um texto. Só que, no meio dela, a minha voz falhou. Uma sílaba. Jennifer percebeu. Eu vi que ela percebeu. Era o único detalhe daquela cena que eu não tinha planejado, e foi justamente ele que ficou ardendo.
+Voltei para dentro da casa sozinha. O portão se fechou atrás de mim. Ainda ouvia a minha própria voz dizendo a Jennifer: *Eu não gosto de você. Nunca gostei.*
+
+Na rua, antes de ir embora, ela tinha olhado para mim por um instante. Não disse mais nada. Eu me lembrei dela cantando no palco, rindo quando errou a letra, agarrada ao meu braço para escapar daquela briga absurda. Quis abrir o portão outra vez e chamá-la. Continuei subindo a escada.
 
 Na escada, D. Tereza recolhia os últimos pratos do jantar que ninguém terminou. Ela ergueu os olhos para mim, depois para a porta da frente, e fez a conta de tudo sem precisar de resposta.
 
@@ -48,19 +50,21 @@ Quando ela esticou o braço para pegar um copo esquecido na balaustrada, a manga
 
 Eu não perguntei. Naquela casa, certas perguntas só tinham resposta em forma de manga puxada.
 
-Subi para o meu quarto. Entrei batendo a porta como se o barulho pudesse substituir um grito. Acabei gritando mesmo assim, um som curto e bruto, e me odiei por isso, porque gritar é perder o controle. Jennifer tinha visto. Não sonhado: visto, do jeito como ela via os mortos. Eu tinha dito a ela, na véspera, que acreditava, pelo motivo errado, e agora o motivo certo me alcançava pelas costas. Ela me vira deitada, assustada, ao lado de Diego, e acreditava que já tinha acontecido. Não tinha. Mas Jennifer não inventava o que via, só errava o tempo. E eu, que passara dois meses tentando chegar perto de Diego por todos os caminhos que uma jornalista tem, entendi no gramado, com o portão se fechando, qual era o único caminho que ele nunca fecharia: eu mesma. Ela não estava errada sobre o homem. Estava errada sobre o “já”.
+Subi para o meu quarto e bati a porta. Depois gritei. Não consegui evitar.
 
-Bateram na porta.
+Jennifer tinha visto Diego comigo. Não era uma mentira. Também não era o que ela pensava. Eu conhecia aquele homem desde criança, conhecia a maneira como entrava nos quartos sem ser convidado. Ela o vira deitado ao meu lado e pensara o pior. A parte terrível era que eu já não sabia se a visão dela mostrava uma coisa que acontecera ou uma coisa que ainda podia acontecer.
 
-— Glenda? — A voz era dele. Sempre dele. Sempre como se fosse dono até do meu nome.
+Queria explicar. Queria que me acreditasse. Mas não suportaria ouvir outra vez a pergunta que estava no rosto dela. Bateram na porta.
 
-Coloquei uma máscara no rosto antes de abrir.
+— Glenda? — A voz era dele. Sempre dele. Até meu nome soava diferente na boca dele.
+
+Sequei o rosto com a manga e abri a porta.
 
 — Tá tudo bem — eu disse, antes mesmo de ele perguntar. — Bati o dedo do pé. Só isso.
 
-Diego apareceu no corredor com aquela preocupação ensaiada, uma mão no batente como se estivesse sendo delicado. Por um segundo, vi o homem que todos viam: o pai esforçado, o marido presente, o adulto confiável. Então ele entrou sem ser convidado, fechou a porta atrás de si e girou a chave. O clique foi baixo, mas não foi discreto; foi um aviso.
+Diego apareceu no corredor com aquela preocupação ensaiada, uma mão no batente e uma expressão de preocupação que eu já conhecia bem. Por um segundo, vi o homem que todos viam: o pai esforçado, o marido presente, o adulto confiável. Então ele entrou sem ser convidado, fechou a porta atrás de si e girou a chave. O clique foi baixo, mas não foi discreto; foi um aviso.
 
-Veio devagar, como se cada passo fosse calculado para não parecer ameaça, e falou com uma ternura que me embrulhou o estômago.
+Veio devagar, sorrindo, e falou num tom tão terno que me embrulhou o estômago.
 
 — Esses seus amigos… parecem um pouco descontrolados. O que houve com a garota?
 
@@ -74,17 +78,15 @@ Não respondi, porque qualquer resposta seria um presente.
 
 — Mesmo sendo uma excelente contadora de histórias — ele continuou, e eu senti o veneno como quem sente gosto de sangue na boca. — Mas essa história… — inclinou a cabeça, fingindo pena — …essa história não é verdade. Acho que a sua amiga sabe de algo. Algo que não quer compartilhar comigo. Algo que pode ser do meu interesse.
 
-Estendeu a mão e pegou uma mecha do meu cabelo, enrolando nos dedos como se fosse um gesto de carinho. Fiquei imóvel. Eu sabia que qualquer reação brusca seria usada contra mim como histeria. E sabia mais uma coisa, que aprendi nos dois meses naquela casa: Diego nunca tinha me machucado de verdade, e não por falta de vontade. Era porque eu lhe dava, todos os dias, exatamente aquilo de que ele precisava para não precisar tirar. O sorriso na hora certa. A obediência bem-humorada. O olhar um pouco mais baixo do que o meu queixo. A mão que segurava o meu cabelo sabia quanto apertar: o suficiente para lembrar, o suficiente para não deixar marca. Com D. Tereza ele não tinha esse cuidado. Com as outras… eu ainda não sabia. Mas começava a imaginar.
+Estendeu a mão e pegou uma mecha do meu cabelo, enrolando nos dedos sem desviar os olhos dos meus. Fiquei imóvel. Eu sabia que qualquer reação brusca seria usada contra mim como histeria. E sabia mais uma coisa, que aprendi nos dois meses naquela casa: Diego nunca tinha me machucado de verdade, e não por falta de vontade. Era porque eu lhe dava, todos os dias, exatamente aquilo de que ele precisava para não precisar tirar. O sorriso na hora certa. A obediência bem-humorada. O olhar um pouco mais baixo do que o meu queixo. A mão que segurava o meu cabelo sabia quanto apertar: o suficiente para lembrar, o suficiente para não deixar marca. Com D. Tereza ele não tinha esse cuidado. Com as outras… eu ainda não sabia. Mas começava a imaginar.
 
-— Eu sei que você entrou no meu quarto escondida — ele disse, baixo, quase íntimo, como se confessasse um segredo. — E eu não gosto de gente assim.
+— Eu sei que você entrou no meu quarto escondida — ele disse, baixo, perto do meu ouvido. — E eu não gosto de gente assim.
 
-A ameaça veio em forma de proximidade. Ele inclinou o rosto perto o bastante para eu sentir o perfume caro e, por trás dele, um cheiro que eu associei a couro e álcool. Eu queria arrancar a mão dele do meu cabelo e quebrar os dedos um por um. Em vez disso, mantive o rosto neutro.
-
-Batidas fortes na porta.
+A ameaça veio em forma de proximidade. Ele inclinou o rosto perto o bastante para eu sentir o perfume caro e, por trás dele, um cheiro que eu associei a couro e álcool. Eu queria arrancar a mão dele do meu cabelo e quebrar os dedos um por um. Em vez disso, mantive o rosto neutro. Batidas fortes na porta.
 
 — Glenda? — Jason. — Glenda, abre aí.
 
-Diego se afastou com um sorriso que não chegou aos olhos e destrancou como se não houvesse nada de errado. Jason entrou com cara de cansaço de quem acha que o mundo inteiro está contra ele, e parou ao perceber o clima, olhando de mim para o pai com desconfiança.
+Diego se afastou com um sorriso que não chegou aos olhos e destrancou a porta tranquilamente. Jason entrou com cara de cansaço de quem acha que o mundo inteiro está contra ele, e parou ao perceber o clima, olhando de mim para o pai com desconfiança.
 
 — Por que vocês estavam trancados? — perguntou, tentando soar firme e falhando no final.
 
@@ -96,9 +98,9 @@ Jason passou a mão no rosto e o cansaço dele parecia vir de semanas, não de u
 
 — Não é um bom dia pra ninguém — murmurou, e eu vi a fragilidade dele como uma porta aberta.
 
-Diego me lançou um olhar rápido, quase orgulhoso, como se eu tivesse passado num teste, e saiu do quarto com a mesma calma com que entrou, deixando o rastro da ameaça pendurado no ar.
+Diego me lançou um olhar rápido, quase orgulhoso da minha resposta, e saiu do quarto com a mesma calma com que entrou, deixando o rastro da ameaça pendurado no ar.
 
-Jason se jogou na minha cama como se fosse possível se livrar de si mesmo por alguns minutos, e falou sem me olhar.
+Jason se jogou na minha cama e cobriu o rosto com o braço, e falou sem me olhar.
 
 — A Pri foi embora. De táxi. Disse que não aceita viver num lugar assim, e eu nem sei… — Parou. — Combinei de encontrar com ela mais tarde, num restaurante. Não sei se ela vai aparecer. Eu odeio isso, sabe? Odeio me apaixonar. É ridículo. Eu queria ser como ele.
 
@@ -132,7 +134,7 @@ Mantive o rosto neutro.
 
 — Então por onde?
 
-— Pelos fundos. Pela garagem. — Fez um gesto vago, apontando para baixo, como se a casa tivesse camadas que ele só agora estivesse admitindo. — Tem um elevador lá.
+— Pelos fundos. Pela garagem. — Fez um gesto vago, apontando para baixo, sem olhar para mim. — Tem um elevador lá.
 
 Isso era novo.
 
@@ -146,7 +148,7 @@ Silêncio. Senti as peças se rearranjando dentro de mim, frias, precisas, encai
 
 — Direto pro último andar. — Deu de ombros. — Ele usa um dos quartos de cima. Perto da sala de jogos.
 
-Assenti devagar, como se registrasse um detalhe arquitetônico irrelevante.
+Assenti e deixei que ele continuasse falando.
 
 — Interessante. Seu pai tem mesmo estilo com as mulheres. Consegue fazer tudo às escondidas.
 
@@ -164,7 +166,7 @@ Ele me olhou, e deixei um meio sorriso aparecer, o suficiente para suavizar sem 
 
 Estendi a mão, e ele bateu de volta. Saiu arrastando os passos, e eu ouvi a porta se fechar. Esperei alguns segundos a mais, até ter certeza de que estava sozinha, e só então deixei o sorriso morrer. Pouco depois, ouvi o motor do carro dele descendo a rampa e o portão se abrindo e fechando.
 
-Sozinha, eu não pensava em sentimentos. Pensava em trajetos.
+A casa ficou quieta depois que ele saiu. Ouvi o motor afastar-se e fui até a janela conferir se o portão tinha fechado.
 
 Desci até a garagem, no subsolo, fingindo procurar uma caixa antiga que ninguém nunca encontrava. Cheiro de óleo e poeira, o silêncio de um lugar que existe para não ser observado. Nove carros de Diego, enfileirados sob lâmpadas frias, da Mercedes até o utilitário alto, de estribos laterais. Eu já tinha passado por aquele utilitário dezenas de vezes sem olhar de verdade. Naquela noite eu olhei. No vidro traseiro, pequeno, brilhante o bastante para existir até num vídeo pobre, havia um adesivo cromado de clube de tiro. O mesmo que eu tinha ampliado pixel por pixel numa filmagem granulada de segurança, diante do McDonald’s, ao lado do carro de Kátia Sobral.
 
@@ -178,15 +180,11 @@ A resposta veio não em palavras, mas em linhas. Pelas janelas altas da garagem 
 
 Voltei para a casa e, ao chegar ao térreo, encontrei Diego encostado na bancada da cozinha, fingindo ler alguma coisa enquanto me observava pelo reflexo do vidro. Ele não desviou o olhar quando percebeu que eu tinha notado. Apenas sustentou, como quem marca território.
 
-Predador não persegue sempre. Às vezes só vigia.
+Diego continuava a olhar para mim através do vidro, e eu esperei que fosse ele a desviar primeiro.
 
-Subi de volta para o quarto sem pressa, com a decisão tomada. Abri o notebook e pesquisei empresas de plantão, serviços de emergência, palavras-chave que evocassem urgência sem levantar pânico. Vazamento de gás. Inspeção emergencial. Protocolo obrigatório. Aquelas coisas que ninguém questiona quando são ditas com convicção suficiente.
+Subi de volta para o quarto sem pressa, com a decisão tomada. Abri o notebook e pesquisei empresas de plantão, serviços de emergência, palavras-chave que evocassem urgência sem levantar pânico. Vazamento de gás. Inspeção emergencial. Protocolo obrigatório. Aquelas coisas que ninguém questiona quando são ditas com convicção suficiente. Liguei.
 
-Liguei.
-
-Usei uma voz jovem, levemente irritada, o tom perfeito de quem mora numa casa grande demais e está cansada de lidar com adultos incompetentes. Disse que havia cheiro estranho de gás vindo da garagem, que a residência era antiga, que havia risco, que precisava de alguém ali ainda aquela noite. Confirmei endereço e nome, aceitei a taxa de urgência.
-
-Fechei o notebook e me sentei na cama, esperando.
+Usei uma voz jovem, levemente irritada, o tom perfeito de quem mora numa casa grande demais e está cansada de lidar com adultos incompetentes. Disse que havia cheiro estranho de gás vindo da garagem, que a residência era antiga, que havia risco, que precisava de alguém ali ainda aquela noite. Confirmei endereço e nome, aceitei a taxa de urgência. Fechei o notebook e me sentei na cama, esperando.
 
 Quando a campainha tocou, eu já estava pronta. Ouvi Diego atender antes mesmo de sair do quarto e desci apenas o suficiente para escutar sem ser vista.
 
@@ -196,19 +194,15 @@ Quando a campainha tocou, eu já estava pronta. Ouvi Diego atender antes mesmo d
 
 — O chamado partiu deste endereço, senhor. Ordem de serviço, risco de explosão, procedimento padrão. Preciso que o senhor nos acompanhe durante a verificação. Protocolo de segurança. Poderia nos indicar o caminho da garagem?
 
-Diego tentou dispensá-los, mas não conseguiu. Havia coisas que nem ele podia ignorar sem parecer culpado de algo maior.
+Diego tentou dispensá-los, mas não conseguiu. Havia coisas que nem ele podia ignorar sem parecer culpado de algo maior. Era tudo de que eu precisava.
 
-Era tudo de que eu precisava.
-
-Corri sem barulho. Subi as escadas dois degraus de cada vez, o coração acelerado não por medo, mas por precisão. No último andar, a sala depois da sala de jogos me recebeu com poeira e objetos velhos demais para terem valor afetivo. Caixas, móveis cobertos, nada além de abandono organizado. A porta do elevador estava ali, imóvel, muda, como se me observasse de volta.
+Corri sem barulho. Subi as escadas dois degraus de cada vez, o coração batendo tão depressa que quase tropecei no último degrau. No último andar, a sala depois da sala de jogos me recebeu com poeira e objetos velhos demais para terem valor afetivo. Caixas, móveis cobertos, nada além de abandono organizado. A porta do elevador estava ali, imóvel, com a porta metálica fechada.
 
 Se o elevador levava a esse andar, para onde ele ia com as mulheres? Um pensamento horrível me ocorreu, que soaria como loucura se eu não conhecesse até onde um ser humano é capaz de ir.
 
 Saí e fui direto à porta ao lado. O quarto escuro de Gisele.
 
-Estava trancada, claro, mas isso não me impediu. Tirei um grampo do cabelo e comecei a trabalhar. A fechadura cedeu com facilidade demais para algo que guardava um segredo tão grande. Abri a porta devagar, respeitando o silêncio, e fui engolida pela escuridão. O ar ali dentro era diferente, mais pesado, com um cheiro que não combinava com limpeza nem com descuido; combinava com morte e decomposição.
-
-Acendi a lanterna do celular.
+Estava trancada, claro, mas isso não me impediu. Tirei um grampo do cabelo e comecei a trabalhar. A fechadura cedeu com facilidade demais para algo que guardava um segredo tão grande. Abri a porta devagar, respeitando o silêncio, e fui engolida pela escuridão. O ar ali dentro era diferente, mais pesado, com um cheiro que não combinava com limpeza nem com descuido; combinava com morte e decomposição. Acendi a lanterna do celular.
 
 No primeiro instante, vi apenas formas. Sombras longas. Um contorno espesso que parecia ocupar mais espaço do que deveria. Então o vulto se moveu, lento, seguro. Lá estava Gisele, no terrário que ocupava quase uma parede inteira, acompanhando a luz com a cabeça, sem pressa. O corpo imenso se desenhava no escuro como algo antigo, quase indecente num ambiente doméstico. Congelei por um segundo, não por pânico, mas por cálculo, porque eu não era burra. Ela só me observou, indiferente. O cheiro não vinha dela.
 
@@ -218,7 +212,7 @@ Encaixei os dedos na borda e levantei devagar. O cheiro veio antes do que eu vi.
 
 A escada descia para um espaço estreito e escuro. Desci um degrau de cada vez, com o corpo tenso, tentando não fazer barulho. A lanterna tremia, e eu odiei isso também, porque tremor é sinal de medo, e medo é uma linguagem que predadores entendem bem. Quando meus pés tocaram o chão, minha pele inteira se arrepiou.
 
-A luz revelou manchas de sangue por todos os lugares. Não eram respingos acidentais. Eram manchas antigas, secas, como se aquilo fosse habitual. Num canto, armas e ferramentas estavam organizadas de um jeito quase metódico: machados, facas, cordas, fita adesiva, baldes, panos. Em uma prateleira improvisada havia um frasco de comprimidos. Aproximei a lanterna e li o rótulo com a calma de quem lê uma receita de bolo. Um sedativo de uso hospitalar, com um aviso impresso em letras garrafais: não combinar com álcool.
+A luz revelou manchas de sangue por todos os lugares. Não eram respingos acidentais. Havia manchas secas em várias alturas da parede e outras nas frestas das tábuas, antigas demais para que alguém tivesse tentado limpá-las recentemente. Num canto, armas e ferramentas estavam organizadas de um jeito quase metódico: machados, facas, cordas, fita adesiva, baldes, panos. Em uma prateleira improvisada havia um frasco de comprimidos. Aproximei a lanterna e li o rótulo com a calma de quem lê uma receita de bolo. Um sedativo de uso hospitalar, com um aviso impresso em letras garrafais: não combinar com álcool.
 
 Peguei o frasco e guardei no bolso como quem recolhe prova de um crime. Minha mente fazia ligações rápidas demais: o quarto, a bebida, a tontura aos quinze anos, o jeito como Jason falava das mulheres, como visitas e não pessoas. Virei a lanterna para a mesa no centro e vi o caderno de capa preta, fechado por um elástico. O mesmo que dormia no fundo do guarda-roupa de Diego, agora ali, aberto. A lista de letras, uma por linha. E dessa vez a última letra intacta que eu tinha visto, o O, estava riscada com força. Abaixo dela, a lápis, recém-escrita, havia outra letra. Virei a luz para ter certeza.
 
@@ -236,9 +230,7 @@ Foi nesse momento, e não antes, que me dei conta de algo simples e perigoso. Eu
 
 Fechei a arca e recoloquei o cadeado como se ainda estivesse preso. Subi os degraus depressa, fechei o alçapão com cuidado extremo e reposicionei o tapete exatamente como estava, alisando a dobra que eu mesma tinha causado. A cobra se mexeu no terrário, um deslizar lento e silencioso, e percebi que minhas mãos estavam sujas. Limpei na calça sem pensar. Não era o tipo de sujeira que sai com água, de qualquer forma.
 
-Comecei a trancar a porta com o grampo. Meus dedos estavam firmes, mas o mecanismo resistia, como se a casa quisesse me denunciar. O metal escorregou uma vez, depois outra. Quando a fechadura cedeu, eu não comemorei; guardei o grampo e me virei para sair.
-
-Foi então que ouvi passos apressados na escada.
+Comecei a trancar a porta com o grampo, mas o mecanismo resistiu. Na segunda tentativa, o metal arranhou alto demais no silêncio, e precisei conter a vontade de olhar por cima do ombro. Quando a fechadura cedeu, guardei o grampo e me virei para sair. Foi então que ouvi passos apressados na escada.
 
 Diego surgia subindo, dois degraus de cada vez, o rosto tenso. Nossos olhares se cruzaram no meio do lance, e por um instante breve demais para virar acusação, longo demais para ser ignorado, eu soube que ele estava avaliando. Assim como eu.
 
@@ -258,9 +250,9 @@ O olhar dele se estreitou por um segundo, calculando se havia ironia ali ou apen
 
 — Quem sabe um dia você me apresenta — continuei.
 
-Passei por ele sem pedir licença, descendo as escadas com passos tranquilos, como se nada naquela casa tivesse acabado de se reorganizar dentro de mim. Ele não me seguiu. Ficou parado no meio do lance, os olhos fixos nas minhas costas, e eu senti o peso desse olhar até o fim do corredor.
+Passei por ele sem pedir licença, descendo as escadas com cuidado, as pernas ainda tremendo. Ele não me seguiu. Ficou parado no meio do lance, os olhos fixos nas minhas costas, e eu senti o peso desse olhar até o fim do corredor.
 
-No meu quarto, tranquei a porta e sentei diante do computador como se fosse altar. O som do discador da internet parecia ridículo naquele momento. Digitei o que importava com dedos que já não tremiam: *desaparecimento Olga Cruz*.
+No meu quarto, tranquei a porta e sentei diante do computador. O som do discador da internet parecia ridículo naquele momento. Digitei o que importava com dedos que já não tremiam: *desaparecimento Olga Cruz*.
 
 As páginas carregaram devagar. Quando o nome apareceu, senti uma certeza brutal se fixar dentro de mim: **Olga Cruz, vinte e poucos anos, desaparecida desde a noite de sexta-feira, 28/03/03, última vez vista nas imediações do Parque Alfredo Volpi, no Morumbi.**
 
@@ -274,29 +266,25 @@ Eu poderia ter ligado para a polícia. Era o que se espera de uma pessoa decente
 
 Digitei também o nome impresso no rótulo do frasco. Li sobre efeito, sobre tempo, sobre o que acontecia com quem misturava aquilo com álcool. Li até ter certeza.
 
-Eu tinha ido àquela casa em busca de justiça. Eu via com clareza o que ela era: um processo longo, limpo, em que Diego teria advogados, entrevistas, uma plateia que o defenderia, e talvez, no fim, uma sentença branda e uma cela com televisão. Justiça é limpa. E ele era sujo.
+Eu tinha vindo àquela casa achando que encontraria material suficiente para uma reportagem. Agora havia uma mulher morta escondida no andar de cima e uma lista de nomes que incluía o meu. Peguei o telefone. Fiquei com ele na mão, pensando em quantas vezes Diego recebera visitas de policiais e saíra sorrindo. Desliguei antes de discar.
 
 Do lado de fora, o portão da garagem rangeu. Fui até a janela e vi Diego sair para a rua de bermuda, tênis e camiseta, o fone no pescoço, alongando um joelho. Corria toda noite, duas horas, chovesse ou não, como quem precisa lembrar ao corpo quem manda. Naquela noite saiu do mesmo jeito, porque um homem como Diego precisa provar a si mesmo que nada o abala.
 
-Esperei o som dos passos dele sumir no fim da rua. Então desci até o corredor do andar dele, passei pelos troféus de artilharia alinhados no fim, e me ajoelhei diante da porta.
+Esperei o som dos passos dele sumir no fim da rua. Então desci até o corredor do andar dele, passei pelos troféus de artilharia alinhados no fim, e me ajoelhei diante da porta. Digitei 2107. Vermelho. 2506. Vermelho. 1208. Vermelho.
 
-Digitei 2107. Vermelho. 2506. Vermelho. 1208. Vermelho.
+Ele tinha trocado. D. Tereza havia dito: *Ele muda senha quando quer se sentir importante. Só que é preguiçoso. Muda, mas não muda de verdade. Sempre as mesmas datas.* Os troféus de artilharia guardavam as datas que Diego considerava vitórias. Eu só precisava descobrir qual era a mais recente. Digitei devagar: 2803. O bipe soou seco, a luz mudou, e a fechadura cedeu.
 
-Ele tinha trocado. D. Tereza havia dito: *Ele muda senha quando quer se sentir importante. Só que é preguiçoso. Muda, mas não muda de verdade. Sempre as mesmas datas.* Os troféus de artilharia guardavam as datas que Diego considerava vitórias. Eu só precisava descobrir qual era a mais recente.
+Entrei no quarto dele. O perfume caro continuava no ar, e tudo estava arrumado: a cama, os papéis, a garrafa de uísque na cômoda, os dois copos de cristal. O espelho do guarda-roupa estava descoberto. Não queria olhar, mas olhei mesmo assim. Não havia ninguém atrás de mim.
 
-Digitei devagar: 2803.
+Diego só voltaria da corrida mais tarde. Desliguei o ar-condicionado, porque estava gelado ali dentro, e desci à cozinha. O assado que D. Tereza deixara coberto continuava sobre o fogão. Vi o pano limpo dobrado ao lado da travessa, peguei um pedaço de carne e voltei para o corredor.
 
-O bipe soou seco, a luz mudou, e a fechadura cedeu.
+Parei diante da escada que levava ao último andar. Pensei em Olga, escondida a poucos metros de todos nós. Depois subi.
 
-Entrei e fechei a porta sem fazer barulho, e o quarto me recebeu com o cheiro dele: perfume caro e uma limpeza que não era higiene, era tentativa de apagar vestígio. A cama arrumada demais, a escrivaninha com papéis alinhados, a garrafa de uísque de rótulo preto sobre a cômoda, entre os dois copos de cristal, e a gaveta de fundo falso que eu sabia guardar uma arma. O espelho alto na porta do guarda-roupa estava descoberto. Eu não podia cobri-lo ali sem que ele estranhasse, e decidi, ainda de pé na entrada, que naquela noite não desviaria o olhar. Fiquei ali alguns minutos, só observando, porque observar era sempre o primeiro golpe.
-
-Eu tinha duas horas, o tempo exato da corrida dele, e uma lista curta. Cumpri na ordem. Desliguei o ar-condicionado. Desci à cozinha. Subi de novo ao último andar. Mexi no quarto, mexi no corredor, mexi em coisas que ele nunca olharia duas vezes. Nenhuma delas parecia grande. Nenhuma delas parecia um plano.
-
-Quando terminei, voltei ao meu quarto e fiz o resto com a mesma frieza com que outras pessoas escolhem roupa para sair: um batom vermelho, um perfume forte o bastante para ocupar o espaço antes de mim, um vestido curto demais, escuro demais. Eu não queria parecer fácil; queria parecer inevitável. Guardei o batom no bolso do vestido. Peguei o frasco.
+Voltei ao meu quarto. Abri o armário e tirei um vestido que não usava havia meses. Passei batom vermelho e perfume, mais do que costumo passar. Guardei o batom no bolso. Depois peguei o frasco que tinha trazido do último andar.
 
 Quando voltei ao quarto dele, sentei na beira da cama e esperei, com a calma de quem já aceitou a própria decisão.
 
-Ele não demorou. Ouvi o portão, o elevador de serviço subindo em silêncio, os passos no corredor. A maçaneta girou. Diego entrou e parou por meio segundo, aquele meio segundo em que o cérebro dele avaliou a cena e decidiu como usá-la a seu favor. Estava suado, o cabelo preso, a camiseta colada ao peito. Vi o brilho no olhar dele, não de desejo apenas, mas de satisfação, como se o mundo tivesse finalmente confirmado algo em que ele sempre acreditou: que eu era uma história que ele mesmo tinha escrito.
+Ele não demorou. Ouvi o portão, o elevador de serviço subindo em silêncio, os passos no corredor. A maçaneta girou. Diego entrou e parou por meio segundo, aquele meio segundo em que o cérebro dele avaliou a cena e decidiu como usá-la a seu favor. Estava suado, o cabelo preso, a camiseta colada ao peito. Vi o brilho satisfeito nos olhos dele quando percebeu o vestido, o batom e a porta fechada. Eu tive de desviar o rosto para que não visse a repulsa no meu.
 
 — Está quente aqui — disse, olhando em volta. — Desligou o ar?
 
@@ -304,15 +292,15 @@ Ele não demorou. Ouvi o portão, o elevador de serviço subindo em silêncio, o
 
 Ele sorriu devagar.
 
-— Glenda… — pronunciou meu nome como se fosse um segredo partilhado.
+— Glenda… — murmurou meu nome tão perto que senti seu hálito no rosto.
 
-Eu me levantei com calma, mantendo o rosto neutro o suficiente para parecer tímida, e caminhei até ele como se fosse atraída. A distância entre nós diminuiu num ritmo que parecia sensual e que era só contagem.
+Eu me levantei com calma, mantendo o rosto neutro o suficiente para parecer tímida, e caminhei até ele, tentando não olhar para o corredor. A distância entre nós diminuiu num ritmo que parecia sensual e que era só contagem.
 
 — Feche a porta — pedi, a voz baixa, quase cúmplice. — Só pra ninguém interromper.
 
 Ele sorriu de lado, aquele sorriso de homem que acha graça na própria facilidade, e empurrou. Foi a segunda vez que ele fechou uma porta comigo dentro de um quarto. Mas daquela vez ele não sabia que quem tinha escolhido o quarto era eu.
 
-Deixei que se aproximasse. Quando a mão dele veio ao meu pescoço, aceitei o toque sem recuar. Ele me virou de leve, e senti a velha memória atravessar a pele. Foi nesse instante que tirei o batom do bolso e o coloquei sobre a escrivaninha, sem olhar, como se fosse apenas um detalhe: um troféu antecipado, bem à vista.
+Deixei que se aproximasse. Quando a mão dele veio ao meu pescoço, aceitei o toque sem recuar. Ele me virou de leve, e senti a velha memória atravessar a pele. Foi nesse instante que tirei o batom do bolso e o coloquei sobre a escrivaninha, sem olhar, deixando-o à vista sobre a madeira.
 
 Diego acompanhou o gesto com os olhos e se aproximou mais, curioso e excitado pela ideia de que aquilo era proibido. Pegou o batom, o rodou entre os dedos, cheirou.
 
@@ -332,11 +320,11 @@ Eu não descrevo o que não merece poesia. Só digo o suficiente: ele me puxou, 
 
 Foi então que o vi. Por cima do ombro de Diego, no espelho da porta do guarda-roupa, dois pontos claros, altos demais, a dois metros do chão. O homem sem lábios, a pele aberta, o facão pingando. Eu o conhecia de vitrines, de vidro de elevador, de para-brisa molhado, sempre nas noites em que eu cansava de ter medo. Naquela, ele não correu, não ergueu a lâmina; ficou parado atrás de nós, como plateia. Entre o corpo dele e o meu, a pedra do colar acendeu, laranja, pela primeira vez naquela noite, e eu fechei a mão sobre ela até a luz parar de vazar entre os dedos. Eu estava com medo, claro, e o medo era a única coisa em mim que não era plano. Olhei de volta. Contei mais um minuto.
 
-O primeiro sinal foi pequeno. Um piscar lento demais. Uma mão indo à própria cabeça como se o quarto tivesse mudado de lugar.
+O primeiro sinal foi pequeno. Um piscar lento demais. A mão dele procurou a beirada da cama para se apoiar.
 
 — Que porra… — ele murmurou, e tentou se levantar.
 
-As pernas falharam no meio do movimento, e a pose de predador escorregou para algo ridículo, humano, vulnerável. Ele cambaleou, apertou os olhos, tentando me focar como se eu fosse o problema, e eu o empurrei de costas no colchão, ajoelhada sobre o peito dele, prendendo-o ali do jeito que ele sempre prendeu os outros. Só que agora eu estava em cima, e ele embaixo.
+As pernas falharam no meio do movimento, e a pose de predador escorregou para algo ridículo, humano, vulnerável. Ele cambaleou, apertou os olhos, tentando fixar os olhos em mim, e eu o empurrei de costas no colchão, ajoelhada sobre o peito dele, prendendo-o ali do jeito que ele sempre prendeu os outros. Só que agora eu estava em cima, e ele embaixo.
 
 — Agora quem está no controle sou eu — eu disse, sem gritar, sem tremor, com a mesma voz que usava para narrar coisas num papel quando queria que parecessem verdade.
 
@@ -354,13 +342,13 @@ Ele tentou negar com a cabeça, mas o corpo não obedecia. Me inclinei, perto o 
 
 — Quinze anos. Meu aniversário. Eu subi pra tirar os sapatos. Você entrou com uma bebida. Eu dormi. E acontece que eu acordei… só um pouco… mas foi o suficiente pra ver você de pé, ao lado da cama, se ajeitando. Eu passei anos tentando transformar isso em imaginação, porque é isso que o predador faz: ele ensina a presa a duvidar de si mesma.
 
-Diego fechou os olhos, como se pudesse apagar a cena, e eu dei outro tapa, mais forte.
+Diego fechou os olhos. Dei outro tapa, mais forte.
 
 — Abre. Olha pra mim — ordenei. — Quando eu vi que uma jornalista chamada Kátia Sobral tinha desaparecido a poucos quilômetros da sua casa, o meu corpo inteiro me disse o seu nome. Eu não precisava de prova pra saber. Mas eu encontrei a prova. Um utilitário com um adesivo do seu clube de tiro, estacionado ao lado do carro dela, numa filmagem que a polícia nunca soube olhar.
 
 Respirei fundo e senti a minha própria calma assustar até a mim, porque havia um prazer estranho ali, um prazer que eu não queria admitir, mas que era real.
 
-— Eu vim pra essa casa pra te investigar. — Vi o canto da boca dele tremer, não de riso, de pânico. — Eu ia te expor. Eu ia destruir seu nome na primeira página, com vergonha pública. Eu queria te ver cair do pedestal. Eu queria justiça.
+— Eu vim pra essa casa pra te investigar. — Vi o canto da boca dele tremer, não de riso, de pânico. — Eu ia te expor. Eu ia destruir seu nome na primeira página, com vergonha pública. Eu queria justiça.
 
 Pausei, deixando o silêncio trabalhar, e depois corrigi, com honestidade cruel:
 
@@ -370,27 +358,25 @@ Ele tentou se erguer de novo, um impulso desesperado, e eu o empurrei com o joel
 
 — O que eu quero agora não é te denunciar. É te fazer sentir.
 
-Peguei uma faca da própria escrivaninha, uma dessas lâminas que homens guardam como decoração de virilidade, e enfiei na coxa dele num movimento curto, preciso. Diego soltou um gemido que não tinha nada de elegante, e o sangue começou a manchar o lençol como uma assinatura. Ele levou as mãos à perna, mas as mãos tremiam, descoordenadas. Desci de cima dele com calma, como quem sai de uma cadeira.
-
-Dei um passo para trás, e outro, até o guarda-roupa.
+Peguei uma faca da própria escrivaninha, uma dessas lâminas que homens guardam como decoração de virilidade, e enfiei na coxa dele num movimento curto, preciso. Diego soltou um gemido que não tinha nada de elegante, e o sangue começou a manchar o lençol como uma assinatura. Ele levou as mãos à perna, mas as mãos tremiam, descoordenadas. Desci de cima dele com calma, como quem sai de uma cadeira. Dei um passo para trás, e outro, até o guarda-roupa.
 
 — Existem animais que não podem ser domados, Diego — eu disse, e deixei a frase cair com a simplicidade de uma verdade antiga. — Porque eles são o que são. Selvagens.
 
-E abri a porta do guarda-roupa.
+E abri a porta do guarda-roupa. Ele acompanhou o meu gesto com os olhos arregalados, e naquele segundo eu vi a compreensão invadir o olhar dele, tarde, inteira, impossível de desfazer. Ele tentou recuar, mas recuo exige pernas, e as dele estavam falhando.
 
-Ele acompanhou o meu gesto com os olhos arregalados, e naquele segundo eu vi a compreensão invadir o olhar dele, tarde, inteira, impossível de desfazer. Ele tentou recuar, mas recuo exige pernas, e as dele estavam falhando.
+A cobra deslizou de dentro dos cabides, pesada o bastante para fazer a madeira ranger. Diego tentou se afastar e chamou por Gisele, como se o nome pudesse detê-la. Seu grito perdeu força quando o animal se lançou sobre ele. Fiquei junto à cômoda, com o revólver abaixado, sem desviar os olhos.
 
-O corpo grosso, forte, vivo, veio deslizando de dentro da escuridão dos cabides com uma lógica sem moral. Ele chamou o nome dela, como se um bicho atendesse a nome. Tentou gritar, um grito falho, feio e desesperado. Você deve imaginar o que aconteceu depois. A cobra fez o que cobra faz. E o predador, pela primeira vez, deixou de ser predador.
+Olhei para o chão do quarto. Um pequeno pedaço do assado ainda estava perto do rodapé. Recolhi-o com a ponta dos dedos e senti o cheiro de gordura no vestido. A porta do terrário tinha ficado aberta.
 
-Eu poderia ter contado antes. Poderia ter dito que, na hora em que Diego saiu para correr, o quarto dele ainda era uma câmara fria, e que desliguei o ar para que ele esquentasse. Que desci à cozinha e peguei o resto do assado de D. Tereza, em pedaços. Que abri o terrário de uma cobra que, segundo a própria empregada, só saía atrás de calor e de comida, e deixei uma trilha de carne, degrau por degrau, do quarto escuro de Gisele até o fundo do guarda-roupa de um homem que nunca olhou ali dentro depois de escolher a camisa do dia. Que fiquei sentada no escuro, esperando, até ouvir o corpo pesado se acomodar entre os cabides, quente e satisfeito, e só então fechei a porta. Foi a parte que mais me deu trabalho. Foi a que eu menos quis lembrar depois. Mas ninguém tinha avisado Diego de que animais seguem rastros. Ninguém, além de mim.
+O quarto escuro no andar de cima, o terrário de Gisele, o calor do quarto de Diego e o resto da comida de D. Tereza. Tudo estivera naquela casa o tempo inteiro. Diego nunca prestara atenção em nada que não considerasse importante.
 
-Assisti sem chorar, sem desviar o olhar, com um sorriso morno que não era alegria, era libertação. Era como se uma porta dentro de mim, trancada por anos, finalmente tivesse sido arrombada por dentro. Quando o silêncio voltou ao quarto, me movi como alguém que termina um trabalho: repus a placa de fundo falso com a gaveta vazia e guardei o revólver na cintura, sob a blusa, porque ninguém sabia que ele existia e o corpo me dizia que a noite não ia acabar naquela casa; lavei os copos no banheiro e os coloquei de volta na cômoda. Recolhi a faca e lavei. Quebrei um dos copos de cristal ao lado da cama, para que o corte na coxa tivesse um culpado. Recolhi o batom da escrivaninha. Deixei a garrafa de uísque derrubada, como se tivesse caído sozinha, e a porta do guarda-roupa aberta. Subi uma última vez ao último andar para deixar também a porta do terrário escancarada, porque o que viesse depois precisava ter uma explicação com escamas.
+Não consegui desviar os olhos. Quando tudo terminou, percebi que estava tremendo. Sentei na beira da cama, esperando o coração desacelerar. Não me senti feliz. Só sabia que Diego não voltaria a entrar no meu quarto. Quando o silêncio voltou ao quarto, me movi como alguém que termina um trabalho: repus a placa de fundo falso com a gaveta vazia e guardei o revólver na cintura, sob a blusa, porque ninguém sabia que ele existia e o corpo me dizia que a noite não ia acabar naquela casa; lavei os copos no banheiro e os coloquei de volta na cômoda. Recolhi a faca e lavei. Quebrei um dos copos de cristal ao lado da cama, para que o corte na coxa tivesse um culpado. Recolhi o batom da escrivaninha. Deixei a garrafa de uísque derrubada, como se tivesse caído sozinha, e a porta do guarda-roupa aberta. Subi uma última vez ao último andar para deixar também a porta do terrário escancarada, porque o que viesse depois precisava ter uma explicação com escamas.
 
-Voltei ao banheiro para lavar o rosto. Quando levantei os olhos para o espelho sobre a pia, percebi que fazia anos que eu não olhava para um espelho sem contar o que haveria atrás de mim. Havia só o meu rosto, a mecha branca, um olho de cada cor, uma mancha de sangue na maçã que limpei com o polegar. Nada a dois metros do chão. Esperei um segundo a mais, por hábito. O nada continuou. Voltei ao quarto e olhei o espelho do guarda-roupa, ainda aberto sobre a cena: só eu. Soube, sem precisar de prova, que ele não voltaria. A água levou o sangue, mas não levou a sensação de leveza. Pelo contrário: a leveza aumentou, como se o meu corpo tivesse entendido que eu ainda estava viva e que, dessa vez, a vida me pertencia.
+Voltei ao banheiro para lavar o rosto. Quando levantei os olhos para o espelho sobre a pia, percebi que fazia anos que eu não olhava para um espelho sem contar o que haveria atrás de mim. Havia só o meu rosto, a mecha branca, um olho de cada cor, uma mancha de sangue na maçã que limpei com o polegar. Nada a dois metros do chão. Esperei um segundo a mais, por hábito. O nada continuou. Voltei ao quarto e olhei o espelho do guarda-roupa, ainda aberto sobre a cena: só eu. Soube, sem precisar de prova, que ele não voltaria. A água levou o sangue, mas não levou a sensação de leveza. Pelo contrário: quanto mais a água corria, mais a minha respiração voltava ao normal. Consegui encarar meu próprio reflexo sem precisar desviar os olhos.
 
 O celular de Diego estava no bolso da bermuda dele, no chão. Peguei com nojo controlado. Mantinha a senha de fábrica, preguiçoso até no que importava. Abri a galeria e encontrei o que imaginava. Fotos e mais fotos de mulheres. Registros. Troféus. Provas. Reconheci a roupa de uma delas: a mesma da última foto de Kátia Sobral nos jornais.
 
-Eu iria levar aquilo à polícia? Um dia, talvez. Primeiro, eu precisava que o meu primo soubesse quem era o pai dele antes de ouvir qualquer outra versão. Escolhi três imagens, as que não deixavam margem para dúvida, e as enviei ao número de Jason a partir do telefone de Diego. Sem mensagem, sem explicação. Uma foto. Depois outra. E outra. Em algum lugar da cidade, o telefone do meu primo iria vibrar no meio de um jantar.
+Escolhi três imagens do telefone de Diego, as que mostravam mais claramente o que ele fizera, e as enviei para Jason a partir do número do próprio pai. O telefone confirmou o envio das três. Não escrevi nenhuma mensagem. Imaginei a cara do meu primo ao vê-las e tive vontade de ligar antes que as abrisse. Não liguei.
 
 Pensei no Lucas. Durante dois anos o Jason tinha guardado a memória do irmão como quem guarda uma coisa frágil dentro de uma casa que o pai ocupava. Eu estava tirando esse peso dele, e sabia que ia doer antes de aliviar.
 
@@ -400,4 +386,6 @@ Voltei ao meu quarto, peguei minha mochila, o notebook, as poucas coisas que eu 
 
 Na garagem, as lâmpadas frias zumbiam sobre os nove carros enfileirados. Na parede, ao lado do elevador, o quadro de chaves. Tirei as do utilitário de estribos cromados, o único dos nove que eu reconhecia de uma filmagem granulada. Parei diante deles, com as chaves na mão. Os faróis apagados me olhavam de volta.
 
-Lá fora, a cidade continuava normal, como se nada tivesse acontecido. Eu tinha deixado de ser a presa. E, de pé diante daquela fila de carros, eu não sentia nenhuma pressa.
+Antes de entrar no utilitário, peguei meu celular. A conversa com Jennifer ainda estava ali. Fiquei olhando para o nome dela, pensando na última coisa que lhe dissera. Escrevi «Jennifer, eu...» e apaguei.
+
+Guardei o aparelho, entrei no carro e liguei o motor. Na saída da garagem, a roda traseira raspou contra a guia, e o barulho me fez soltar um palavrão tão alto que olhei para os bancos vazios. Corrigi o volante e segui pela rua sem voltar para ver o estrago.

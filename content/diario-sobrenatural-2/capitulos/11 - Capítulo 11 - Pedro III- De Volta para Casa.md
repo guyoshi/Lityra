@@ -1,18 +1,18 @@
-Eu não acordei com medo. Acordei com aquele cansaço que deixa a gente meio desligado, como se eu estivesse a meio metro do meu próprio corpo. O quarto ainda estava escuro, vi o relógio com um olho só, e a primeira coisa que pensei foi: “Beleza. Hoje eu vou ser uma pessoa normal.” A segunda coisa foi a imagem da torneira.
+Acordei, olhei para o relógio e tomei uma decisão importantíssima: naquele dia eu seria um adolescente normal. Ia à escola, reclamaria dos professores, comeria alguma coisa na cantina e não pensaria em monstros. Plano perfeito.
 
-Passei a noite tentando convencer a cabeça de que aquilo tinha sido um sonho nojento, ou um cano entupido com alguma coisa estranha. Porque tem coisas que, se você aceita como reais, você nunca mais volta para o mesmo lugar. Eu já tinha aceitado coisa demais em Vila Velha. Não queria acrescentar “larvas saindo da minha pia” na lista.
+Durou até eu me lembrar das larvas na torneira.
 
-Só que a pia estava lá. A cozinha estava lá. E o azulejo do lado da torneira tinha uma manchinha que não estava no lugar ontem. Uma manchinha pálida, meio amarelada, como se alguém tivesse passado o dedo sujo e deixado um lembrete.
+Passei boa parte da noite tentando convencer a mim mesmo de que tinha sonhado. Talvez fosse o encanamento. Talvez o lixo. Talvez a minha casa tivesse decidido produzir vermes em série para abrir uma fábrica. O problema é que eu já tinha visto coisas piores em Vila Velha e sabia que o sobrenatural não costumava pedir licença antes de aparecer.
 
-Lavei o rosto, escovei os dentes com a pressa de quem quer fugir do próprio pensamento, peguei a mochila e saí para a escola com um nó no estômago que não era fome. Fui dizendo pra mim mesmo que estava exagerando, cansado, que a minha cabeça tinha virado uma fábrica de paranoia.
+Fui conferir a pia. Não havia larvas, mas uma mancha amarelada continuava no azulejo. Esfreguei com a ponta do dedo. Não saiu. Deixei quieto antes que a minha mãe aparecesse e me obrigasse a lavar a cozinha inteira.
 
-Na rua, o mundo parecia normal demais, e isso me irritava, porque o normal depois de certas coisas parece encenação. A padaria aberta, gente a caminho do trabalho, uma senhora varrendo a calçada como se varrer pudesse organizar o universo. Eu pensava: “Vocês não fazem ideia do que cabe embaixo do piso.”
+Na rua, a padaria estava aberta e o pessoal seguia para o trabalho. Uma senhora varria a calçada. Tudo parecia absolutamente normal, o que depois do ano anterior deixara de ser uma boa notícia. Eu só queria encontrar o Junior na esquina e ouvir alguma teoria maluca dele. Em vez disso, estava em outra cidade, indo para outra escola, com a sensação de que havia alguma coisa me seguindo.
 
 Filipo apareceu perto do portão com o jeito de quem tenta ser simpático sem parecer carente. Tinha um sorriso fácil, mas os olhos nunca eram leves: procuravam rachaduras nas coisas.
 
-— E aí, Starman — ele disse, batendo de leve na minha mochila, como se a gente fosse amigo de infância.
+— E aí, Starman — ele disse, batendo de leve na minha mochila, com intimidade demais para um colega novo.
 
-Eu tentei devolver no automático, porque sempre devolvo. Quando não devolvo, é porque estou muito mal.
+Eu até tentei sorrir. Starman era um nome ótimo para um herói. Para um aluno chamado na frente da turma, nem tanto.
 
 — Não me chama assim que eu não ganho nada com isso — eu falei. — Vou processar teu blog.
 
@@ -26,15 +26,15 @@ Só que a risada dele morreu um pouco rápido demais, e ele me olhou de cima a b
 
 A gente entrou junto, e eu notei que ele falava mais do que o normal. Tapando buraco: se o silêncio aparecesse, alguma coisa entrava por ele.
 
-Passei as aulas no modo sobrevivência. Copiei matéria sem entender, fiz piada sem achar graça, ouvi professores como quem ouve rádio baixo no fundo da casa. No intervalo, quando abri a mochila pra pegar um salgadinho e vi a bombinha ali dentro, intacta, senti um alívio tão forte que fiquei com raiva de mim. Alívio por uma bombinha, olha a vida.
+Passei as aulas copiando matéria sem prestar atenção. No intervalo, abri a mochila atrás de um salgadinho e encontrei a bombinha da asma. Estava ali, graças a Deus. Sempre carreguei uma, mas depois de Vila Velha passei a conferir o bolso umas vinte vezes por dia. Nem minha mãe fiscalizava tanto a minha vida.
 
-No fim da manhã, avisaram que uma aula tinha sido cancelada. Devia ser bom, mas na minha cabeça “sair mais cedo” virou “ter mais tempo pra tua cabeça te comer vivo”.
+No fim da manhã, avisaram que uma aula tinha sido cancelada. Devia ser bom, mas na minha cabeça “sair mais cedo” virou “ter mais tempo pra minha cabeça me comer vivo”.
 
-Filipo caminhou comigo para fora, me mantendo perto. Não era um “vamos juntos” normal. Era um “não se afasta de mim” disfarçado.
+Filipo caminhou comigo para fora, me mantendo perto. Parecia um “vamos juntos”. Era um “não se afasta de mim” disfarçado.
 
 Eu fingi que não percebi, porque às vezes fingir é a única forma de continuar andando sem começar a correr.
 
-Passamos pelo pátio, pelo portão, e ele esperou comigo como se matasse tempo. Vi gente indo embora, uma mãe chamando o filho pelo apelido, um professor ao telefone, e o mundo todo parecia tão inteiro. Eu me sentia um pedaço fora do lugar.
+Passamos pelo pátio, pelo portão, e ele ficou esperando ao meu lado, sem dizer por quê. Vi gente indo embora, uma mãe chamando o filho pelo apelido, um professor ao telefone, e o mundo todo parecia tão inteiro. Eu me sentia um pedaço fora do lugar.
 
 — Você tá pensando naquela história, né? — Filipo soltou, como quem joga uma isca.
 
@@ -42,13 +42,13 @@ Eu virei para ele.
 
 — Qual história?
 
-Ele deu de ombros, mas não era desinteresse. Era cautela.
+Ele deu de ombros, só que com cautela demais pra quem não se importa.
 
 — Aquela lenda que eu te contei… o Cara-de-Larva.
 
 O nome bateu em mim de um jeito ruim. Não como susto. Como nojo. Como quando alguém fala uma palavra e você sente o cheiro.
 
-Eu engoli seco e tentei brincar, porque eu sou assim: eu brinco para não tremer.
+Engoli seco. Pensei numa piada. Se eu fizesse os outros rirem, talvez esquecessem de perguntar por que eu estava tremendo.
 
 — Cara-de-Larva é um nome péssimo, vamos combinar. Parece coisa de programa do Ratinho.
 
@@ -78,7 +78,7 @@ Ele ficou um segundo quieto, olhando para o chão, e depois voltou para mim com 
 
 Eu quase disse “eu sempre rio”. Mas não saiu.
 
-— Você tá a me chamar pra quê? Pra uma benzedura? — eu tentei tirar sarro, mas a frase saiu fraca.
+— Tá me chamando pra quê? Pra uma benzedura? — perguntei. — Preciso levar a bombinha ou o padre fornece?
 
 — Tô te chamando pra não ficar sozinho com isso. Se for só stress, beleza, você volta pra casa e eu te pago um refrigerante. Se não for… pelo menos a gente tenta alguma coisa.
 
@@ -88,7 +88,7 @@ Olhei para o portão da escola, depois para a rua, depois para a cara dele. Pens
 
 — Claro — ele respondeu rápido demais. — Avisa.
 
-O “claro” dele parecia um “não perde tempo”. Mas eu ainda estava preso à esperança de que era só um dia estranho. Ainda no modo “não é terror, é vida”.
+O “claro” dele parecia um “não perde tempo”. Mas eu ainda estava preso à esperança de que era só um dia estranho. Ainda no modo “é só um dia ruim”.
 
 O carro que parou na frente da escola era preto, simples, comum. Só que a sensação que eu tive quando ele encostou foi de que alguma coisa tinha acabado de me escolher.
 
@@ -108,7 +108,7 @@ Eu entrei. Filipo sentou do meu lado. O carro começou a andar.
 
 E aí veio aquele estalo pequenininho, quase bobo, que a gente só percebe depois que passa: o Mike trancou as portas.
 
-Não foi um “clac” ameaçador. Foi um clique normal de carro. Só que eu ouvi como decisão.
+Foi só um clique normal de carro. Mas eu ouvi como decisão.
 
 Fiquei quieto. Não queria ser o cara que vê um gesto e monta um filme.
 
@@ -136,7 +136,7 @@ Filipo riu.
 
 — “Besteira”. Aham.
 
-O carro seguiu por ruas que eu conhecia… e depois por ruas que eu não conhecia. Aí eu comecei a notar detalhes: a rota estava a ir para fora do centro. A paisagem ficando mais aberta. Menos casas, mais estrada.
+O carro seguiu por ruas que eu conhecia… e depois por ruas que eu não conhecia. Aí eu comecei a notar detalhes: a rota estava saindo do centro. A paisagem ficando mais aberta. Menos casas, mais estrada.
 
 Eu falei sem pensar:
 
@@ -158,9 +158,9 @@ Mais cinco minutos, e eu vi a placa da rodovia.
 
 A minha boca secou.
 
-— A gente tá a sair da cidade — eu falei, tentando deixar a voz normal.
+— A gente tá saindo da cidade — falei, tentando deixar a voz normal.
 
-Mike respondeu como se fosse óbvio.
+Mike deu de ombros antes de responder.
 
 — Sim.
 
@@ -170,7 +170,7 @@ Mike respondeu como se fosse óbvio.
 
 Eu olhei para o Filipo. Ele evitou meu olho por um segundo. Um segundo só. Mas foi o suficiente.
 
-Ali eu senti a primeira fisgada de medo de verdade. Aquele medo que não é “ai que susto”. É aquele medo que vira peso no peito e começa a empurrar a respiração pra baixo.
+Ali eu senti a primeira fisgada de medo de verdade. Aquele medo que vira peso no peito e começa a empurrar a respiração pra baixo.
 
 — Filipo… — eu chamei, mais baixo. — Que lugar é esse?
 
@@ -192,7 +192,7 @@ Mike falou sem virar.
 
 — Ninguém tá brincando, Pedro.
 
-A voz dele, nessa hora, tinha um detalhe que eu não tinha ouvido antes: pressa. Não pressa de quem quer fazer mal. Pressa de quem quer chegar antes que alguma coisa aconteça.
+A voz dele, nessa hora, tinha um detalhe que eu não tinha ouvido antes: pressa, e não de quem quer fazer mal: de quem quer chegar antes que alguma coisa aconteça.
 
 Fiquei quieto, a cabeça montando hipóteses idiotas: sequestro, jornal, polícia, minha mãe chorando, eu sumindo. Parecia exagero, mas quando você já viveu horror, o exagero vira prevenção.
 
@@ -202,7 +202,7 @@ E então, depois de mais um tempo, eu reconheci uma curva. Um canavial. Um poste
 
 Vila Velha.
 
-Senti o sangue gelar, como se o corpo tivesse lembrado de um trauma e apertado o botão errado.
+Senti o sangue gelar. Lembrei de Vila Velha e comecei a respirar mais depressa.
 
 — Não… — eu falei, sem perceber. — A gente tá indo pra Vila Velha.
 
@@ -234,7 +234,7 @@ Eu tentei insistir.
 
 — Pedro — Filipo cortou, finalmente sem máscara. — Olha pra mim.
 
-Olhei. Pela primeira vez, vi desespero no rosto dele. Não era ameaça. Era desespero.
+Olhei. Pela primeira vez, vi desespero no rosto dele.
 
 — A gente precisa dela — ele disse. — E eu sei que é errado te puxar pra isso. Eu sei. Mas eu não tenho mais ninguém.
 
@@ -246,7 +246,7 @@ A palavra “viva” saiu como faca.
 
 Eu fiquei mudo. Porque a minha raiva brigou com uma coisa pior: pena.
 
-A gente entrou na rua da Jennifer. Eu reconheci cada casa como se eu estivesse entrando numa memória ruim.
+A gente entrou na rua da Jennifer. Reconheci cada casa. A vontade de dar meia-volta era enorme.
 
 Mike parou do outro lado da rua.
 
@@ -268,7 +268,7 @@ Mike soltou um ar pelo nariz.
 
 — Vai, Pedro. Por favor.
 
-Ele falou “por favor” como se isso doesse.
+Ele disse “por favor” quase sem voz.
 
 Abri a porta do carro e a chuva me acertou na cara. A rua parecia mais cinza do que eu lembrava.
 
@@ -344,7 +344,7 @@ Filipo cerrou o maxilar.
 
 — Tem a ver porque… o que prendeu minha… uma pessoa lá… não é “normal”. E você… você vê espíritos. O Pedro falou. Eu li o que ele escreveu. Eu… eu procurei você por causa disso.
 
-Eu senti o estômago cair. Então era isso. Não era amizade. Era plano. Eu sabia. Eu sabia e mesmo assim eu deixei.
+Eu senti o estômago cair. Então era isso: plano, e amizade nenhuma. Eu sabia. Eu sabia e mesmo assim eu deixei.
 
 — Você me usou — eu falei, a voz saindo com raiva e vergonha misturadas.
 
@@ -356,7 +356,7 @@ Jennifer levantou a mão.
 
 — Filipo. Mike. Explica. Sem rodeio.
 
-Mike olhou para a chuva na janela como se a chuva fosse mais fácil do que olhar para nós.
+Mike olhou para a chuva na janela, evitando encarar qualquer um de nós.
 
 — Existe uma criatura — ele disse. — Um condenado… uma coisa… que apareceu na nossa cidade. Pegou pessoas. Pegou minha filha.
 
@@ -410,7 +410,7 @@ Filipo entrou no meio rápido.
 
 — Pai, calma. Ela… ela pode não saber conscientemente, mas o caderno tem um trecho, que o vô copiou do livro dele. Eu posso guiar. Eu aprendi… eu li… eu vi meu avô lendo.
 
-Jennifer olhou pro caderno como se ele fosse uma boca.
+Jennifer recuou meio passo ao ver o caderno.
 
 — E você quer que eu leia? — ela perguntou.
 
@@ -522,11 +522,11 @@ E então ele apareceu.
 
 Não de um jeito cinematográfico, com fumaça e luz. Apareceu como se sempre tivesse estado ali e a gente só agora tivesse permissão pra ver.
 
-Uma figura alta, humana e errada. O rosto branco… não era rosto. Era um vazio tomado por larvas. Como se a pele fosse uma máscara frágil e o que tinha por baixo fosse buraco.
+Uma figura alta, humana e errada. O rosto branco era um vazio tomado por larvas. Como se a pele fosse uma máscara frágil e o que tinha por baixo fosse buraco.
 
 Meu pulmão esqueceu como funciona. O medo virou o animal no peito, raspando as unhas por dentro.
 
-A sala também mudou. Foi só um segundo, mas inteiro: o tapete virou o piso encerado da quadra da minha escola, o sofá virou arquibancada, e a turma toda estava em roda em volta de mim, rindo daquele jeito que não faz barulho. Alguém gritou o meu apelido, o que eu nunca repito. Eu estava de bermuda. O ar não entrava. Aí a luz piscou, era de novo a sala do Filipo, e a única coisa que ainda ria era o meu pulmão, assobiando.
+A sala também mudou. Foi só um segundo, mas inteiro: o tapete virou o piso encerado da quadra da minha escola, o sofá virou arquibancada, e a turma toda estava em roda em volta de mim, rindo daquele jeito que não faz barulho. Alguém gritou o meu apelido, o que eu nunca repito. Eu estava de bermuda. O ar não entrava. Aí a luz piscou, era de novo a sala da Jennifer, e a única coisa que ainda ria era o meu pulmão, assobiando.
 
 Jennifer ficou imóvel, mas a voz dela continuou por instinto, falhando no fim das palavras. O olho dela estava preso no canto da sala, e o rosto relaxou um centímetro, como o de quem ouve alguém dizer que já é hora de dormir. Isso me deu mais medo do que o monstro.
 
@@ -552,7 +552,7 @@ Mas o pai dele já não escutava ninguém.
 
 — Mike, NÃO — Jennifer falou, mas foi tarde.
 
-O Cara-de-Larva virou o rosto sem rosto para ele, como se reconhecesse o cheiro daquele desespero.
+O Cara-de-Larva virou o rosto na direção dele, devagar. Dei um passo para trás.
 
 Filipo puxou o pai pelo braço.
 
@@ -564,7 +564,7 @@ O Cara-de-Larva deu um passo.
 
 E o caderno… o caderno começou a escurecer nas bordas.
 
-Uma chama pequena apareceu no canto da página, sozinha, sem fósforo, sem isqueiro. A chama correu pelo papel como se o papel fosse gasolina.
+Uma chama pequena apareceu no canto da página, sozinha, sem fósforo, sem isqueiro. A chama correu pelo papel e chegou à outra ponta num instante.
 
 — NÃO! — Filipo gritou, tentando arrancar o caderno da mão da Jennifer.
 
@@ -576,7 +576,7 @@ O Cara-de-Larva avançou.
 
 O pânico estourou dentro de mim de uma vez, daquele que rouba ar e pensamento.
 
-Mike puxou a arma, mas a mão dele travou. Ele mirou, baixou, mirou, baixou. Ele não queria atirar. Ele queria negociar com o impossível.
+Mike puxou a arma, mas a mão dele travou. Ele mirou, baixou, mirou de novo. O disparo estourou na sala. Senti uma pancada quente na lateral do corpo, perto das costelas, e me apoiei na parede. Minha camisa começou a grudar na pele. Mike olhou para a arma, horrorizado. Ele não tinha conseguido acertar o monstro.
 
 — Não… não… — ele falava, como se pudesse convencer o monstro com “não”.
 
@@ -584,11 +584,11 @@ Filipo ficou na frente do pai.
 
 — Pai, corre! CORRE!
 
-O Cara-de-Larva ergueu o braço e pegou Mike pelo pescoço com uma facilidade absurda. Não foi um ataque rápido. Foi humilhação. Como se dissesse: “você é pequeno”.
+O Cara-de-Larva ergueu o braço e pegou Mike pelo pescoço com uma facilidade absurda. Foi lento de propósito, uma humilhação. Como se dissesse: “você é pequeno”.
 
 Mike fez um som engasgado. A arma caiu.
 
-Filipo gritou um grito que eu nunca vou esquecer. Não foi “pai!”. Foi um som de animal ferido.
+Filipo gritou um grito que eu nunca vou esquecer, um som de animal ferido.
 
 Jennifer tentou puxar o Mike pela cintura, inútil.
 
@@ -604,11 +604,11 @@ Jennifer puxou meu braço.
 
 — Pedro, VEM!
 
-Tentei andar, mas a perna falhou e percebi que tremia inteiro. Não era coragem. Era choque.
+Tentei andar, mas a perna falhou e percebi que tremia inteiro. Era choque.
 
 O Cara-de-Larva virou para nós.
 
-O ar sumiu do meu peito. Pensei na bombinha como se fosse Deus.
+A lateral ferida ardia a cada respiração. O ar sumiu do meu peito. Pensei na bombinha como se fosse Deus.
 
 — Eu… eu… — eu tentei falar, e não saiu nada.
 
@@ -626,7 +626,7 @@ Ela foi até ele, agarrou a camisa dele e puxou com força.
 
 — Eu não vou te deixar aqui. Anda.
 
-Não foi fala de amiga. Foi ordem, daquela voz que não pede licença pra existir. E senti que tinha uma coisa maior nela acordando, mesmo que ela ainda não soubesse o nome.
+Foi ordem, daquela voz que não pede licença pra existir. E senti que tinha uma coisa maior nela acordando, mesmo que ela ainda não soubesse o nome.
 
 Subimos as escadas tropeçando, eu com a perna falhando, o Filipo quase caindo de novo, a Jennifer nos empurrando pra cima.
 
@@ -668,13 +668,13 @@ Jennifer ficou rígida.
 
 — Ele tá vindo — ela falou, e eu vi o medo dela finalmente perder a máscara.
 
-Na frente do “homem e da mulher” — na frente do nada pra mim — a sombra do quarto pareceu engrossar. As larvas vieram primeiro, caindo no chão como chuva errada. Depois, a forma se mostrou, alta, humana e impossível, e o Cara-de-Larva surgiu no meio do quarto como se tivesse atravessado a parede.
+Na frente do “homem e da mulher”, que pra mim era o nada, a sombra do quarto pareceu engrossar. As larvas vieram primeiro, caindo no chão como chuva errada. Depois, a forma se mostrou, alta, humana e impossível, e o Cara-de-Larva surgiu no meio do quarto como se tivesse atravessado a parede.
 
 O meu estômago virou. Eu dei um passo pra trás, sem perceber. Filipo fez um som engasgado, como se fosse vomitar e gritar ao mesmo tempo.
 
 O Cara-de-Larva avançou direto na direção da Jennifer.
 
-E eu juro: foi como se ele ignorasse a mim e ao Filipo; a Jennifer era o ponto de luz.
+E eu juro: foi como se ele ignorasse a mim e ao Filipo, e a Jennifer fosse o único ponto de luz.
 
 Ela ergueu as mãos num reflexo inútil, travada.
 
@@ -684,7 +684,7 @@ Ele levantou o braço pra agarrar ela.
 
 E aí o quarto… respondeu.
 
-O homem e a mulher — que eu não via — se moveram, e eu senti, não vi: o ar ao redor do Cara-de-Larva ficou pesado. O monstro travou no meio do movimento, como se tivesse batido num muro.
+O homem e a mulher, que eu não via, se moveram. Eu senti, não vi: o ar ao redor do Cara-de-Larva ficou pesado. O monstro travou no meio do movimento, como se tivesse batido num muro.
 
 Jennifer arregalou os olhos, chocada, olhando pros lados como quem assiste a uma briga que só ela enxerga.
 
@@ -704,7 +704,7 @@ E então, alto, como comando:
 
 Ela me puxou primeiro, porque eu era o mais lento. Agarrei o Filipo pela manga e arrastei com o resto da força que tinha. Saímos quase caindo pelo corredor, descendo as escadas aos trambolhões, com a sensação de que algo enorme estava preso lá em cima só por um fio.
 
-No meio do caminho, olhei de canto e vi a Jennifer olhar pra trás uma última vez — não pro Cara-de-Larva, mas pro ponto onde ela via o homem e a mulher. Como se estivesse agradecendo sem saber pra quem.
+No meio do caminho, olhei de canto e vi a Jennifer olhar pra trás uma última vez. Não pro Cara-de-Larva: pro ponto onde ela via o homem e a mulher. Como se estivesse agradecendo sem saber pra quem.
 
 A porta de entrada parecia longe demais. A chuva batia na janela como se o mundo tentasse lavar a cena.
 

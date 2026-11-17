@@ -1,4 +1,4 @@
-Rendar caçava havia tempo suficiente para confiar mais em Mirval do que em gente. Homens e clãs mentiam; a floresta, para quem sabia ler folha, rastro e silêncio, apenas deixava sinais.
+Rendar caçava havia tempo suficiente para confiar mais em Mirval do que em gente. Homens e clãs mentiam. A floresta, para quem sabia ler folha, rastro e silêncio, apenas deixava sinais.
 
 Naquela manhã ele procurava comida.
 
@@ -30,7 +30,7 @@ Nara pensara nisso por um tempo, muito séria, e depois levantara o pulso para m
 
 A lembrança de Nara o fez sorrir por um instante antes de voltar ao rastro.
 
-O dorvek tentou apagar o rastro entre folhas molhadas, mas Rendar percebeu o fungo esmagado e duas folhas viradas. O vento vinha do sul; em vez de seguir por baixo, subiu por uma raiz e avançou pelos galhos.
+O dorvek tentou apagar o rastro entre folhas molhadas, mas Rendar percebeu o fungo esmagado e duas folhas viradas. O vento vinha do sul, então em vez de seguir por baixo ele subiu por uma raiz e avançou pelos galhos.
 
 O dorvek surgiu pouco depois. Rendar esperou que abaixasse a cabeça e lançou entre a placa do ombro e a base do crânio. Terminou o animal com a faca, limpou o que apodreceria depressa e amarrou as patas para o arrasto. Não alimentaria Velarim inteira, mas ajudaria.
 
@@ -66,7 +66,7 @@ Perto de uma raiz alta, viu o talismã. Madeira escura. Linha trançada. Marcas 
 
 O talismã estava visível e limpo demais para ter sido perdido em combate. Rendar o guardou no cinto e continuou.
 
-Então ouviu um som baixo e molhado. O chamado mal chegava a ser voz; parecia apenas uma tentativa de respirar.
+Então ouviu um som baixo e molhado. O chamado mal chegava a ser voz, parecia apenas uma tentativa de respirar.
 
 Rendar seguiu até a plataforma de Avara, junto à Árvore do Olho, onde crianças aprendiam que olhar não era o mesmo que ver.
 
@@ -132,7 +132,7 @@ Perto dela, havia marcas pequenas no chão. Passos de criança. Dois tamanhos di
 
 O espaço era apertado, um velho marn cujo interior morrera antes da casca. Servia para esconder mantimentos pequenos, ferramentas, mensagens e, em último caso, crianças.
 
-A entrada estava meio coberta por folhas queimadas e uma manta pequena, enfiada às pressas entre as raízes. Rendar reconheceu na altura da manta o alcance das mãos de uma criança. Rendar afastou a manta. Ilo estava lá dentro.
+A entrada estava meio coberta por folhas queimadas e uma manta pequena, enfiada às pressas entre as raízes. Rendar reconheceu na altura da manta o alcance das mãos de uma criança. Afastou-a. Ilo estava lá dentro.
 
 Encolhido atrás de um cesto quebrado, pequeno demais para parecer real. Os olhos estavam abertos. A boca também, como se tivesse prendido um grito e esquecido de soltar. Não havia grande ferida visível, apenas uma mancha escura no peito e o corpo mole demais. Talvez uma lâmina curta. Talvez pressão de mão adulta. Talvez medo. Rendar não soube. Uma parte dele agradeceu por não saber.
 
@@ -158,7 +158,7 @@ O corpo pequeno estava de lado, uma perna dobrada sob a outra, o rosto virado pa
 
 Vita tinha tentado levá-los até o esconderijo, o velho tronco oco entre as raízes. Ilo entrara. Nara ficara do lado de fora para esconder o irmão primeiro.
 
-Rendar ficou imóvel. Tocou o ombro da filha e a virou devagar. O rosto estava sujo de cinza; a fitinha do Olho da Fera continuava no pulso, manchada de sangue e barro.
+Rendar ficou imóvel. Tocou o ombro da filha e a virou devagar. O rosto estava sujo de cinza, e a fitinha do Olho da Fera continuava no pulso, manchada de sangue e barro.
 
 Era Nara.
 
@@ -204,13 +204,13 @@ Encontrou também o rastro de um invasor ferido sendo carregado para fora.
 
 Rendar desceu para o chão e seguiu a trilha por entre árvores baixas. A cada passo, a mente tornava-se mais fria. A dor continuava ali, imensa, mas agora tinha bordas afiadas. Foi então que a trilha se aproximou do caminho proibido. A árvore partida. A trilha baixa. O lugar que Avara mandara Veyr não seguir.
 
-Rendar parou antes de entrar. O ar ali era diferente. Mais pesado. As aves ainda evitavam aquela zona. A floresta tinha uma memória recente de violência, mas não violência humana organizada. Havia galhos partidos em alturas estranhas, como se uma coisa grande tivesse atravessado sem se importar com caminho. A lama apresentava marcas fundas, irregulares, não de bota, nem de pata comum. Um tronco trazia sulcos longos, paralelos, cravados na madeira até a seiva. E o pior: nenhuma ave reclamava do sangue. Rendar tocou-os com a ponta dos dedos e sentiu o estômago fechar.
+Rendar parou antes de entrar. O ar ali era diferente, mais pesado. As aves ainda evitavam aquela zona. A floresta guardava uma memória recente de violência, mas não de violência humana organizada. Havia galhos partidos em alturas estranhas, como se uma coisa grande tivesse atravessado sem se importar com caminho. A lama apresentava marcas fundas, irregulares, que não eram de bota nem de pata comum. Um tronco trazia sulcos longos, paralelos, cravados na madeira até a seiva. Rendar tocou-os com a ponta dos dedos e sentiu o estômago fechar. E o pior: nenhuma ave reclamava do sangue.
 
-Raukhar. Ninguém dizia esse nome perto de criança pequena. Não por superstição. Por respeito ao medo certo. Rendar vira um uma única vez, de longe: o corpo pesado parado entre as samambaias, a crista erguida no dorso, as presas curvas para fora da mandíbula e os olhos amarelos, pequenos demais para o tamanho da cabeça, presos nele sem pressa nenhuma. Avara avisara e Veyr ignorara.
+Raukhar. Ninguém dizia esse nome perto de criança pequena. Não por superstição, mas por respeito ao medo certo. Rendar vira um apenas uma vez, de longe: o corpo pesado parado entre as samambaias, a crista erguida no dorso, as presas curvas para fora da mandíbula e os olhos amarelos, pequenos demais para o tamanho da cabeça, presos nele sem pressa nenhuma. Avara avisara e Veyr ignorara.
 
 Rendar avançou devagar e encontrou sangue antigo, uma flecha de fabricação Polar partida, marcas de luta, couro rasgado, uma fivela com a Raiz Polar e parte de uma haste de estandarte.
 
-Mais adiante, num pequeno declive, encontrou o que restava de um manto. Escuro. Rasgado. Manchado de sangue.
+Mais adiante, num pequeno declive, encontrou o que restava de um manto, escuro, rasgado, manchado de sangue.
 
 Não encontrou o corpo de Veyr. O Raukhar raramente deixava um corpo inteiro.
 
@@ -220,7 +220,7 @@ Velarim queimara por uma morte que não provocara.
 
 Rendar fechou a mão em torno da fivela até o metal cortar sua pele. A dor pequena ajudou a conter a grande.
 
-Rendar ainda não sabia quem pagara ou guiara os invasores. Sabia apenas quem, em sua leitura, tinha força e motivo suficientes para transformar o erro de Veyr em sentença.
+Rendar ainda não sabia quem pagara ou guiara os invasores. Sabia apenas quem tinha força e motivo suficientes para transformar o erro de Veyr em sentença.
 
 Polar.
 

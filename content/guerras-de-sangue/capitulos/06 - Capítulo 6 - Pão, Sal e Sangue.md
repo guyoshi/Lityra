@@ -94,11 +94,11 @@ Cal Edran apareceu à porta e olhou da caixa fechada para as duas irmãs.
 
 — Bom dia, minha soberana. A comitiva está pronta.
 
-Kaelina segurou a caixa por um instante antes de soltá-la. O talismã continuava desaparecido. Kaelina voltou os olhos para o espaço vazio na caixa.
+Kaelina segurou a caixa por um instante antes de soltá-la, os olhos no espaço vazio onde o talismã deveria estar.
 
 A comitiva deixou Kaendar pelo portão menor. Edran mantivera a saída discreta, mas havia olhos nas cortinas, nos corredores superiores e junto às portas.
 
-À frente seguiam poucos homens da Guarda da Raiz, de escudo curto e lança baixa. Edran ainda enviou batedores pelas laterais e um terceiro adiante para verificar pedras, moitas e pontos de tiro.
+À frente seguiam poucos homens da Guarda da Raiz, de escudo curto e lança baixa. Edran enviou batedores pelas laterais e um terceiro adiante, para verificar pedras, moitas e pontos de tiro.
 
 — Se os Tondrar prepararam alguma coisa, quero saber antes que estejamos no meio dela — disse Edran, baixo, sem tirar os olhos da linha das árvores.
 
@@ -114,7 +114,7 @@ Kaelina não respondeu. Quanto mais se aproximavam do terreno intermediário, ma
 
 Duas carroças levavam grão-de-caule, couro de balili tratado, flor-de-sal e pães preparados sob os olhos de Iressa Mão-de-Sal, que seguia ao lado da carga. Yvenn Raiz-Branca vinha mais atrás, responsável pela palavra ritual e pelas testemunhas da Lei do Portão. Daryon cavalgava entre os conselheiros e os guardas.
 
-O Marco das Três Pedras ficava entre a Garganta de Kaendar e as rotas secas para Khar-Tondr, numa clareira que nenhum clã reivindicava por inteiro. A maior das pedras trazia nomes apagados; outra, marcas de fogo; a terceira era baixa e larga o bastante para servir de mesa.
+O Marco das Três Pedras ficava entre a Garganta de Kaendar e as rotas secas para Khar-Tondr, numa clareira que nenhum clã reivindicava por inteiro. A maior das pedras trazia nomes apagados, outra tinha marcas de fogo, e a terceira era baixa e larga o bastante para servir de mesa.
 
 Os batedores chegaram antes deles.
 
@@ -138,7 +138,7 @@ Edran distribuiu os guardas entre as carroças, as bordas da clareira e as sober
 
 Os Tondrar chegaram quando o sol ainda estava baixo.
 
-Doze Tondrar carecas, com faixas negras de contornos duros nos rostos, surgiram pela trilha ao som de um tambor baixo. À frente caminhava Harvok Tondrar, a Voz do Círculo da Cabeça Nua, alto e magro. A Marca da Voz cobria-lhe quase todo o rosto de preto fosco, em planos rígidos da testa às faces, deixando os olhos à vista; uma faixa ainda mais fechada atravessava a boca. A pintura continuava pelo pescoço até o peito.
+Doze Tondrar carecas, com faixas negras de contornos duros nos rostos, surgiram pela trilha ao som de um tambor baixo. À frente caminhava Harvok Tondrar, a Voz do Círculo da Cabeça Nua, alto e magro. A Marca da Voz cobria-lhe quase todo o rosto de preto fosco, em planos rígidos da testa às faces, deixando os olhos à vista, e uma faixa ainda mais fechada atravessava a boca. A pintura continuava pelo pescoço até o peito.
 
 Ao lado dele vinha Maedra, a Senhora dos Tambores, velha, careca, de dedos deformados e olhar impiedosamente vivo. Trazia um tambor pequeno preso ao corpo, mas não o tocava. Atrás, dois guerreiros de facas curvas, uma mulher com um saco de barro marcado por símbolos Tondrar e outros que Kaelina não soube classificar: testemunhas, guardas, talvez olhos de famílias diferentes.
 
@@ -166,7 +166,7 @@ Edran contou mãos, cintos e distâncias. Harvok percebeu e fez o mesmo.
 
 Yvenn adiantou-se antes de todos.
 
-— Sob as Três Pedras, diante de pão, sal, água e testemunha, a Dinastia Polar invoca a Lei do Portão em terreno neutro. Aqui, não há anfitrião único. Quem exige confiança oferece primeiro; quem aceita, responde com a própria mesa. Quem come do outro reconhece a trégua. Quem fala aceita ser lembrado.
+— Sob as Três Pedras, diante de pão, sal, água e testemunha, a Dinastia Polar invoca a Lei do Portão em terreno neutro. Aqui, não há anfitrião único. Quem exige confiança oferece primeiro, e quem aceita responde com a própria mesa. Quem come do outro reconhece a trégua. Quem fala aceita ser lembrado.
 
 Harvok olhou para o velho e depois para as soberanas.
 
@@ -186,7 +186,7 @@ A frase saiu firme. Mesmo sem o talismã em mãos, ela não desviou o olhar. Har
 
 Os olhos de Harvok passaram pela mesa e pelas mãos vazias dos Polar antes de voltarem para Kaelina.
 
-— Palavra larga. — disse ele. — Cabe muita mentira dentro.
+— Palavra larga — disse ele. — Cabe muita mentira dentro.
 
 Alyra deu um passo leve ao lado da irmã, mas Kaelina falou antes que ela pudesse transformar aquilo em insulto.
 
@@ -270,7 +270,7 @@ Depois estendeu o pedaço a Harvok. A Voz dos Tondrar aceitou. Não comeu ainda.
 
 Maedra partiu um dos pães escuros de seu povo. Algumas migalhas caíram sobre o pano.
 
-Yvenn tocou o pão Tondrar no sal escuro e comeu. Iressa fez o mesmo; Kaelina também. O gosto era terroso, amargo e seco.
+Yvenn tocou o pão Tondrar no sal escuro e comeu. Iressa fez o mesmo, e Kaelina também. O gosto era terroso, amargo e seco.
 
 Alyra aceitou um pedaço menor. Olhou para ele antes de comer.
 
@@ -278,7 +278,7 @@ Alyra aceitou um pedaço menor. Olhou para ele antes de comer.
 
 Kaelina lançou-lhe um olhar duro, mas Alyra já mastigava.
 
-Do outro lado, Harvok comia o pão de Kaendar. Dois Tondrar atrás dele também comeram, mas com uma rigidez que deixava claro o desconforto de aceitar alimento Polar diante dos seus. Maedra não tocou no pão grande; molhou a ponta dos dedos no sal de Kaendar e levou-os à testa. Kaelina aceitou o gesto.
+Do outro lado, Harvok comia o pão de Kaendar. Dois Tondrar atrás dele também comeram, com uma rigidez que deixava claro o desconforto de aceitar alimento Polar diante dos seus. Maedra não tocou no pão grande. Molhou a ponta dos dedos no sal de Kaendar e levou-os à testa. Kaelina aceitou o gesto.
 
 Daryon também comeu da oferta Tondrar. A trégua estava formalmente estabelecida.
 
@@ -290,7 +290,9 @@ Harvok engoliu o último pedaço antes de responder.
 
 Daryon ergueu as sobrancelhas, como se a acusação fosse interessante demais para ofendê-lo. Alyra soltou um riso baixo.
 
-— Que conveniente. Todos lucram, menos os Tondrar. Vocês, imagino, são apenas sobreviventes injustiçados que penduram crânios por sensibilidade estética — E avançou alguns passos, a mão próxima da arma.
+— Que conveniente. Todos lucram, menos os Tondrar. Vocês, imagino, são apenas sobreviventes injustiçados que penduram crânios por sensibilidade estética.
+
+Avançou alguns passos, a mão próxima da arma.
 
 Um dos guerreiros Tondrar levou a mão ao cabo da faca. Não sacou. Mas tocou. Alyra viu. Kaelina também.
 
@@ -334,7 +336,7 @@ Harvok ergueu as mãos.
 
 Alyra já tinha a lâmina na mão.
 
-O primeiro Tondrar a morrer foi o guerreiro que tocara a faca pouco antes. Ele moveu o braço quando ouviu “veneno”; Kaelina nunca soube com que intenção. Alyra avançou e abriu-lhe a garganta. O golpe seguinte derrubou a cabeça perto do sal derramado.
+O primeiro Tondrar a morrer foi o guerreiro que tocara a faca pouco antes. Ele moveu o braço quando ouviu “veneno”, e Kaelina nunca soube com que intenção. Alyra avançou e abriu-lhe a garganta. O golpe seguinte derrubou a cabeça perto do sal derramado.
 
 Os Tondrar sacaram armas. Os Polar avançaram. A mesa virou quando um corpo caiu contra ela e o pão rolou pelo chão. Maedra bateu três vezes no tambor. Edran puxou Kaelina para trás quando uma faca passou pelo espaço onde ela estivera.
 
@@ -342,7 +344,7 @@ Os Tondrar sacaram armas. Os Polar avançaram. A mesa virou quando um corpo caiu
 
 A ordem perdeu-se no choque de metal. Um Tondrar saltou sobre o pano rasgado e recebeu um escudo no peito. Outro feriu um guarda Polar no rosto antes de cair sob duas lâminas. Iressa arrastou Yvenn para longe da mesa.
 
-Harvok ainda estava de pé e tentava falar. Não avançava. Uma mão permanecia erguida; a outra pressionava o lado ferido. Uma lança veio de lado.
+Harvok ainda estava de pé e tentava falar. Não avançava. Uma mão permanecia erguida e a outra pressionava o lado ferido. Uma lança veio de lado.
 
 Kaelina não viu quem a arremessou. Viu apenas o corpo de Harvok dobrar quando a ponta entrou abaixo das costelas e saiu vermelha pelo outro lado. A Voz caiu de joelhos, os olhos arregalados. Maedra gritou, e o tambor respondeu ao corpo dela quando um guarda a empurrou contra a mesa caída.
 

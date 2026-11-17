@@ -52,7 +52,7 @@ A chama pressionou as barras. O ferro ficou vermelho na ponta, depois por inteir
 
 Foi nesse instante que o metal cantou.
 
-Não foi barulho. Foi uma nota funda, vinda do ferro vermelho entre os dedos dele, e atrás dela, no lugar onde devia haver a sombra das varas no muro da casa, a luz desenhou uma porta. Alta e estreita, de fecho redondo. No meio dela uma mão aberta, e embaixo da mão alguma coisa pálida e redonda com dois buracos onde deveriam estar os olhos. Breno sentiu na boca o gosto de ferro frio que não vinha do pátio, e ouviu, do outro lado de uma coisa que não era a parede, duas batidas lentas.
+Uma nota funda saiu do ferro vermelho entre os dedos dele, e atrás dela, no lugar onde devia haver a sombra das varas no muro da casa, a luz desenhou uma porta. Alta e estreita, de fecho redondo. No meio dela uma mão aberta, e embaixo da mão alguma coisa pálida e redonda com dois buracos onde deveriam estar os olhos. Breno sentiu na boca o gosto de ferro frio que não vinha do pátio, e ouviu, do outro lado de uma coisa que não era a parede, duas batidas lentas.
 
 A gaiola estremeceu. Ele perdeu a respiração, e por um instante, sem decidir, afrouxou os dedos.
 
@@ -90,7 +90,7 @@ Havia mais uma coisa que ele não disse e que Breno percebeu mesmo assim, o olha
 
 — Eu vou ver a árvore — disse.
 
-Beatriz tinha parado de tremer. Estava sentada com as costas retas e as mãos fechadas sobre as pernas, e olhava para Breno com uma expressão que ele nunca tinha visto nela, e que não era raiva.
+Beatriz parara de tremer. Sentada, de costas retas e mãos fechadas sobre as pernas, encarava Breno com os olhos secos.
 
 — Você me trancou — disse.
 

@@ -8,7 +8,7 @@ O Cais dos Zírrios ficava do outro lado do esforço principal, colado ao Rio Gr
 
 Um instante era pouca coisa para uma cidade. Era tudo para um caçador.
 
-Kaelina tropeçou numa pedra úmida e Rendar a segurou antes que caísse, não por cuidado, mas porque ainda precisava dela inteira. Os dedos dele apertaram seu braço com precisão desconfortável, e a faca voltou ao lugar junto ao pescoço antes que ela pudesse transformar a perda de equilíbrio em tentativa de fuga. Ela não tinha força para isso. O corpo ainda carregava fome, marcha, medo e a humilhação de ser conduzida como objeto de troca. A faixa sob as costelas estava dura de sangue antigo, e os pontos puxavam a cada inspiração mais funda. A pele parecia fina demais sobre os ossos; respirar sem demonstrar dor já exigia atenção.
+Kaelina tropeçou numa pedra úmida e Rendar a segurou antes que caísse, não por cuidado, mas porque ainda precisava dela inteira. Os dedos dele apertaram seu braço com precisão desconfortável, e a faca voltou ao lugar junto ao pescoço antes que ela pudesse transformar a perda de equilíbrio em tentativa de fuga. Ela não tinha força para isso. O corpo ainda carregava fome, marcha, medo e a humilhação de ser conduzida como objeto de troca. A faixa sob as costelas estava dura de sangue antigo, e os pontos puxavam a cada inspiração mais funda. A pele parecia fina demais sobre os ossos. Respirar sem demonstrar dor já exigia atenção.
 
 À distância, diante das muralhas principais, tochas se multiplicavam como enxame. O cerco se formava aos olhos de Kaendar, largo, barulhento, impossível de ignorar. Homens batiam lanças em escudos, bandeiras escuras se erguiam, tambores Tondrar respondiam uns aos outros, e gritos atravessavam a noite para obrigar as torres a olhar. Era ali que a maioria dos Vigias queria estar, que qualquer defensor treinado esperaria a primeira ruptura, que Cal Kadrir precisaria medir homem, flecha, óleo, portão, ordem e mentira.
 
@@ -318,7 +318,7 @@ Kaelina odiou a frase porque era verdade.
 
 Ele não gritou. Não suplicou. Não explicou. E talvez por isso ela obedeceu, furiosa com ele, consigo mesma e com o próprio corpo. Eles atravessaram uma passagem coberta, desceram dois degraus apenas para subir doze depois, cruzaram um corredor de depósito onde sacos de sal tinham sido rasgados e deixavam o chão branco como osso. O Anel Baixo ficou para trás aos poucos, não de uma vez. A subida por Kaendar era trabalho. Sempre fora. A cidade ensinava hierarquia com pedra, escada e fôlego. Quem subia entendia o próprio lugar antes de chegar.
 
-Kaelina apoiou a mão numa parede úmida e parou para respirar. A subida repuxara os pontos até a lateral do corpo arder sob a faixa; ela pressionou o flanco por alguns segundos e só continuou quando a dor deixou de pulsar no ritmo do coração. O som do cais ainda chegava, mas agora vinha misturado ao bater de sinos internos e ao rumor das oficinas do Anel Médio sendo fechadas às pressas. Havia cheiro de fumaça, ferro quente apagado rápido demais, couro queimado, peixe, sal e gente assustada. Passaram por fundos de forjas onde aprendizes carregavam barras de metal para dentro, por uma casa de contagem com tábuas espalhadas pelo chão, por um corredor onde um homem chorava segurando a perna aberta e mandando outro continuar sem ele.
+Kaelina apoiou a mão numa parede úmida e parou para respirar. A subida repuxara os pontos até a lateral do corpo arder sob a faixa. Ela pressionou o flanco por alguns segundos e só continuou quando a dor deixou de pulsar no ritmo do coração. O som do cais ainda chegava, mas agora vinha misturado ao bater de sinos internos e ao rumor das oficinas do Anel Médio sendo fechadas às pressas. Havia cheiro de fumaça, ferro quente apagado rápido demais, couro queimado, peixe, sal e gente assustada. Passaram por fundos de forjas onde aprendizes carregavam barras de metal para dentro, por uma casa de contagem com tábuas espalhadas pelo chão, por um corredor onde um homem chorava segurando a perna aberta e mandando outro continuar sem ele.
 
 Kaelina queria parar para cada um. Não podia. O rosto dela começou a esfriar. Marken percebeu e colocou a mão boa no braço dela para mantê-la de pé.
 
@@ -356,4 +356,4 @@ O nome não precisou ser dito para ocupar o cômodo inteiro dentro dela. A mulhe
 
 Ylvena estava ali, escondida em Kaendar durante o cerco, diante de Daryon.
 
-Kaelina sentiu a mão de Marken tocar de leve seu braço, avisando-a para não se mover. A fraqueza, o medo e a revelação a prenderam mais do que qualquer corda. Ylvena estava ali, escondida em Kaendar durante o cerco, diante de Daryon.
+Kaelina sentiu a mão de Marken tocar de leve seu braço, avisando-a para não se mover. A fraqueza, o medo e a revelação a prenderam mais do que qualquer corda.

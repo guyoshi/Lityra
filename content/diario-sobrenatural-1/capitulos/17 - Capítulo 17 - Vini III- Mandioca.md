@@ -42,9 +42,9 @@ Ele ficou pensando uns segundos, depois virou pra mim, sorrindo de canto.
 
 Thiaguinho foi até o quarto e voltou com um copo de metal cheio de tralha, virou tudo no chão e revirou até achar um grampo.
 
-— Você tem que me ensinar isso.
+— Você tem que me ensinar isso — falei.
 
-— Meu pai fugiu duas vezes da cadeia, esqueceu? Ele me ensinou umas parada, caso eu entrasse em cana um dia.
+— Meu pai fugiu duas vezes da cadeia, esqueceu? Ele me ensinou umas parada, caso eu entrasse em cana um dia — respondeu Thiaguinho.
 
 Levantei e ele ficou atrás de mim. Demorou quase dois minutos de metal raspando, até a algema abrir.
 

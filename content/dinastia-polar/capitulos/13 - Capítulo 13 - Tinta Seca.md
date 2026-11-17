@@ -1,32 +1,30 @@
 Kalan perdeu a conta de quantos dias tinha passado ali dentro, mas não das perguntas que o mantinham acordado. Elis voltara para casa? Karesis aparecera? Ela estava comendo? Sabia onde eles estavam, ou passava os dias perguntando em postos que não respondiam? A Raiz voltara à casa, encontrara a caixa, encontrara Elis sozinha?
 
-Nenhuma resposta chegava. Passos no corredor de pedra faziam Kalan erguer a cabeça antes mesmo de decidir erguer, e quando um guarda enfiava a chave na porta errada, ou parava para falar com outro guarda sem entrar em lugar nenhum, ele perguntava de qualquer forma, pela irmã, pelo nome dela, por qualquer notícia de fora que alguém tivesse esquecido de considerar importante o bastante para negar logo. Nunca recebia nada que valesse o esforço da pergunta. Um "não sei de nada disso" dito sem olhar para ele. Um silêncio que doía mais do que qualquer recusa formal. Uma vez, só uma vez, um guarda mais jovem quase respondeu antes de se lembrar de que não devia, e aquele quase, aquele instante em que a boca dele se abriu e depois se fechou de novo, ficou girando na cabeça de Kalan por horas, mais cruel do que qualquer negativa direta.
+Nenhuma resposta chegava. Passos no corredor de pedra faziam Kalan erguer a cabeça antes mesmo de decidir erguer, e quando um guarda enfiava a chave na porta errada, ou parava para falar com outro guarda sem entrar em lugar nenhum, ele perguntava de qualquer forma, pela irmã, pelo nome dela, por qualquer notícia de fora. Nunca recebia nada que valesse o esforço. Um "não sei de nada disso" dito sem olhar para ele. Um silêncio que doía mais do que qualquer recusa formal. Uma vez, só uma vez, um guarda mais jovem quase respondeu antes de se lembrar de que não devia, e aquele quase, o instante em que a boca dele se abriu e depois se fechou, ficou girando na cabeça de Kalan por horas, mais cruel do que qualquer negativa direta.
 
 O medo tinha a altura de Elis, o jeito como ela mordia o lábio quando mentia mal, a velocidade com que os pés encontravam qualquer fenda. Kalan passara a vida inteira colocando a proteção dela antes do resto. Se alguém quisesse quebrá-lo, bastava o nome dela.
 
-Orel piorava mais rápido do que os outros dois. Chorava até a voz virar um urro que enchia o corredor; às vezes, até os guardas mais endurecidos baixavam os olhos antes de fingir que não tinham ouvido. Batia na porta com as duas mãos até os punhos ficarem vermelhos. Quando alguém entrava para contê-lo, empurrava, se debatia, golpeava. Kalan conhecia aquele desespero; Orel já fora segurado à força vezes demais. Em determinados momentos, no meio de tudo isso, ele chamava por ela, a voz raspando nas consoantes que nunca conseguia formar direito.
+Orel piorava mais rápido do que os outros dois. Chorava até a voz virar um urro que enchia o corredor, e até os guardas mais endurecidos baixavam os olhos antes de fingir que não tinham ouvido. Batia na porta com as duas mãos até os punhos ficarem vermelhos. Quando alguém entrava para contê-lo, empurrava, se debatia, golpeava. Kalan conhecia aquele desespero, porque Orel já fora segurado à força vezes demais. Em determinados momentos, no meio de tudo isso, ele chamava por ela, a voz raspando nas consoantes que nunca conseguia formar direito.
 
 — E-is! — gritava, e depois de novo, mais alto, como se aumentar o volume pudesse compensar o que a boca não conseguia fazer. — E-is!
 
-Tair tentava. Sentava-se perto o bastante para que Orel sentisse a presença sem se sentir cercado, falava baixo, repetia o nome dele como quem repete uma corda que precisa ser puxada com muito cuidado para não arrebentar. Kalan também tentava, e em alguns dias funcionava: Orel aceitava a mão de um ou de outro no ombro, deixava o corpo relaxar um pouco contra a parede, parava de bater. Em outros dias não havia nada que servisse. Ele se encolhia no canto mais escuro que a cela oferecia e recusava qualquer aproximação, os olhos fixos em algum ponto que só ele conseguia ver, e Kalan aprendera a reconhecer, com um nó apertado na garganta, que aquele silêncio era mais assustador do que os gritos.
+Tair tentava. Sentava-se perto o bastante para que Orel sentisse a presença sem se sentir cercado, falava baixo, repetia o nome dele como quem puxa uma corda com cuidado para não arrebentar. Kalan também tentava, e em alguns dias funcionava: Orel aceitava a mão de um ou de outro no ombro, deixava o corpo relaxar um pouco contra a parede, parava de bater. Em outros dias não havia nada que servisse. Ele se encolhia no canto mais escuro da cela e recusava qualquer aproximação, os olhos fixos em algum ponto que só ele via, e Kalan aprendera a reconhecer, com um nó na garganta, que aquele silêncio era mais assustador do que os gritos.
 
 A culpa vinha sempre atrás disso, pesada e exata: tinha roubado os registros pensando em proteger Orel, e agora Orel estava pior do que jamais estivera antes, trancado, apavorado, chamando por uma menina que nem sabia se ainda tinha casa para onde voltar.
 
-Tair também carregava culpa, embora tentasse não deixar transparecer o quanto. Fora ele quem revelara o fundo falso àquela sala inteira, sem pensar duas vezes, confiando que dizer a verdade rápido e completa protegeria a todos como sempre tinha protegido antes. Continuava acreditando nisso, ou pelo menos continuava agindo como se acreditasse, e em mais de uma tarde tentou, com aquele jeito cauteloso de quem escolhe cada palavra antes de soltá-la, sugerir que Kalan estava escondendo alguma coisa que ainda podia esclarecer tudo.
+Tair também carregava culpa, embora tentasse não deixar transparecer. Fora ele quem revelara o fundo falso àquela sala inteira, confiando que dizer a verdade rápido e completa protegeria a todos como sempre tinha protegido antes. Continuava acreditando nisso, ou pelo menos agindo como se acreditasse, e em mais de uma tarde tentou, escolhendo cada palavra antes de soltá-la, sugerir que Kalan estava escondendo alguma coisa que ainda podia esclarecer tudo.
 
 — Se tem qualquer coisa que você não contou pra eles — disse uma vez, sem olhar direto, como fazia sempre que ia dizer algo que temia ouvir de volta —, é melhor contar antes que descubram por conta própria. Descobrem sempre.
 
-Kalan não respondeu àquilo do jeito que Tair provavelmente esperava. Só disse que não havia nada, e viu, no rosto do outro, a mesma dúvida de sempre, aquela suspeita gentil demais para virar acusação. Não queria que Tair soubesse que tinha, sim, roubado a caixa com as próprias mãos; não porque não confiasse nele, mas porque já tinha aprendido, do jeito mais duro possível, que uma informação a mais era sempre uma informação que podia ser usada contra alguém que ele amava. Tair acreditava que palavras bem colocadas abriam portas. Kalan tinha aprendido, na sala sem janelas onde conhecera Hadris pela primeira vez, que informação também podia ser a corda que amarrava todo mundo junto.
-
-*
+Kalan não respondeu àquilo do jeito que Tair provavelmente esperava. Só disse que não havia nada, e viu, no rosto do outro, a mesma dúvida de sempre, uma suspeita gentil demais para virar acusação. Não queria que Tair soubesse que tinha, sim, roubado a caixa com as próprias mãos. Não porque não confiasse nele, mas porque já tinha aprendido, do jeito mais duro, que uma informação a mais era sempre uma informação que podia ser usada contra alguém que ele amava. Tair acreditava que palavras bem colocadas abriam portas. Kalan tinha aprendido, na sala sem janelas onde conhecera Hadris, que informação também podia ser a corda que amarrava todo mundo junto.
 
 Vieram buscá-lo outra vez numa manhã que não parecia diferente de nenhuma outra, e Kalan perguntou antes mesmo de terminar de se levantar.
 
 — Minha irmã?
 
-O Filho da Raiz que abrira a porta não respondeu, e Kalan insistiu pelo corredor inteiro, repetindo a pergunta de formas ligeiramente diferentes a cada poucos passos, como se mudar as palavras pudesse forçar uma resposta que o silêncio recusava dar. Nada. Só o eco dos passos e o som de outra porta se abrindo mais adiante.
+O Filho da Raiz que abrira a porta não respondeu, e Kalan insistiu pelo corredor inteiro, repetindo a pergunta de formas ligeiramente diferentes a cada poucos passos, como se mudar as palavras pudesse forçar uma resposta que o silêncio recusava. Nada. Só o eco dos passos e o som de outra porta se abrindo mais adiante.
 
-Levaram-no à mesma sala comprida de antes, com a lamparina fraca sobre a mesa. Hadris corrigia anotações sem levantar a cabeça. Molhou a pena na tinta e alinhou duas folhas pelas bordas, enquanto Kalan esperava. O Sumo Vigia tinha apenas que entrar numa sala para que o obedecessem. Hadris demorava a reconhecer que ele estava ali.
+Levaram-no à mesma sala comprida de antes, com a lamparina fraca sobre a mesa. Hadris corrigia anotações sem levantar a cabeça. Molhou a pena na tinta e alinhou duas folhas pelas bordas, enquanto Kalan esperava. Hadris demorava a reconhecer que ele estava ali.
 
 Quando finalmente ergueu os olhos, não foi para perguntar nada sobre a caixa.
 
@@ -36,7 +34,7 @@ Não era pergunta, e Kalan sentiu o próprio corpo inclinar para a frente antes 
 
 — Onde ela está?
 
-Hadris não respondeu. Continuou olhando para ele com a mesma paciência absoluta de antes, como se a pergunta de Kalan fosse apenas um ruído que precisava se dissipar antes que a conversa pudesse continuar do jeito que ele tinha planejado.
+Hadris não respondeu. Continuou olhando para ele com a mesma paciência absoluta de antes, como se a pergunta fosse apenas um ruído que precisava se dissipar antes que a conversa continuasse do jeito que ele tinha planejado.
 
 — Vocês voltaram a Maruva depois que nos levaram — disse Kalan, a voz já mais alta do que pretendia. — Ela estava lá?
 
@@ -50,9 +48,9 @@ Uma mão pesada no ombro o empurrou de volta para o banco antes que conseguisse 
 
 — Sendo tratada conforme a situação exige — disse Hadris, sem se mexer, sem alterar o tom, como se estivesse simplesmente confirmando o clima do dia.
 
-Kalan queria perguntar o que aquilo significava, mas a pergunta já não cabia na garganta, engolida por tudo que a cabeça começava a construir sozinha, sem nenhuma ajuda de Hadris: Elis numa sala parecida com aquela, sentada onde ele estava sentado, sozinha, sem ninguém para explicar nada a ela. Hadris não precisava dizer que a tinham prendido. Bastava deixar aquele vazio ali, entre as palavras, e confiar que o próprio medo de Kalan ia preenchê-lo até a borda.
+Kalan queria perguntar o que aquilo significava, mas a pergunta já não cabia na garganta, engolida por tudo que a cabeça começava a construir sozinha: Elis numa sala parecida com aquela, sentada onde ele estava sentado, sozinha, sem ninguém para explicar nada. Hadris não precisava dizer que a tinham prendido. Bastava deixar aquele vazio ali, entre as palavras, e confiar que o próprio medo de Kalan ia preenchê-lo até a borda.
 
-— Ela é jovem — continuou Hadris, levantando-se, agora caminhando devagar pela sala, as mãos cruzadas nas costas do jeito de quem já fizera aquele mesmo percurso centenas de vezes com outras pessoas sentadas naquele mesmo banco. — Jovens se assustam com facilidade. Tentam fugir quando são seguradas. Gritam. Às vezes mordem quem tenta contê-las, sem saber, no momento, que estão piorando a própria situação.
+— Ela é jovem — continuou Hadris, levantando-se, caminhando devagar pela sala, as mãos cruzadas nas costas, de quem já fizera aquele percurso centenas de vezes com outras pessoas sentadas naquele banco. — Jovens se assustam com facilidade. Tentam fugir quando são seguradas. Gritam. Às vezes mordem quem tenta contê-las, sem saber que estão piorando a própria situação.
 
 Parou atrás de Kalan, perto o suficiente para que ele sentisse a proximidade sem precisar se virar para confirmar.
 
@@ -64,9 +62,9 @@ Parou atrás de Kalan, perto o suficiente para que ele sentisse a proximidade se
 
 Kalan sentiu o corpo tremer, não de frio.
 
-Hadris voltou para o outro lado da mesa e se sentou, pegando um dos registros que tinha ali, folheando algumas páginas sem pressa, como quem procura uma passagem específica dentro de uma história longa demais para contar do início.
+Hadris voltou para o outro lado da mesa e se sentou, folheando um dos registros sem pressa, como quem procura uma passagem dentro de uma história longa demais para contar do início.
 
-— Sabe o que eu aprendi, revisando casos como este há anos? — perguntou, sem esperar resposta de verdade. — Anos atrás, tive um caso de uma família que discutia a posse de uma criança. Um homem dizia ser o pai. Outro dizia que não era. Uma casa afirmava ter direito sobre determinada terra; outra apresentava uma história completamente diferente sobre a mesma terra. Durante meses, todo mundo jurou, com a mão sobre o próprio peito, estar dizendo a verdade absoluta.
+— Sabe o que eu aprendi, revisando casos como este há anos? — perguntou, sem esperar resposta. — Anos atrás, tive um caso de uma família que discutia a posse de uma criança. Um homem dizia ser o pai. Outro dizia que não era. Uma casa afirmava ter direito sobre determinada terra, e outra apresentava uma história completamente diferente sobre a mesma terra. Durante meses, todo mundo jurou, com a mão sobre o próprio peito, estar dizendo a verdade absoluta.
 
 Ele passou o dedo pela borda de uma página, o gesto quase carinhoso.
 
@@ -84,9 +82,7 @@ Aproximou o papel que tinha nas mãos, virando-o para que Kalan pudesse ver, sem
 
 — E eu preciso decidir qual delas merece continuar existindo.
 
-*
-
-Depois disso, Hadris explicou o resto sem nenhum calor na voz, como quem lê um inventário.
+Depois disso, Hadris explicou o resto sem calor na voz, como quem lê um inventário.
 
 A agressão original, disse, era pequena comparada ao que existia agora. Mesmo que Orel tivesse sido considerado culpado de atacar os quatro jovens, a punição provável seria administrável: uma multa, alguma forma de compensação, talvez uma reprimenda formal registrada contra a casa inteira. Nada que Maruva não tivesse sobrevivido antes.
 
@@ -96,9 +92,9 @@ Com o desaparecimento dos registros da Casa da Permanência, a investigação pa
 
 A frase pousou exatamente onde Hadris queria que pousasse.
 
-Kalan resistiu ainda por um tempo, embora já sentisse a resistência esvaziando por dentro, como areia escorrendo entre dedos que já não conseguiam se fechar de verdade em torno de nada. Perguntou de novo onde Elis estava. Hadris não respondeu de novo. E no silêncio que ficou entre uma pergunta sem resposta e a próxima, Kalan pensou nela sozinha, pensou na casa vazia, pensou em comida que talvez não existisse mais, pensou em Orel gritando o nome dela pelo corredor todas as noites como se gritar pudesse trazê-la até ali, pensou em Tair paralisado do outro lado de uma porta que Kalan não conseguia ver. Pensou, por fim, que todo o plano que tinha montado na própria cabeça, proteger todo mundo carregando o silêncio sozinho, tinha falhado de um jeito tão completo que já não sobrava nada para proteger, só gente que sofria de qualquer forma, com ou sem a mentira dele no meio.
+Kalan resistiu ainda por um tempo, embora já sentisse a resistência esvaziando por dentro, como areia escorrendo entre dedos que já não conseguiam se fechar. Perguntou de novo onde Elis estava. Hadris não respondeu de novo. E no silêncio entre uma pergunta sem resposta e a próxima, Kalan pensou nela sozinha, pensou na casa vazia, pensou em comida que talvez não existisse mais, pensou em Orel gritando o nome dela pelo corredor todas as noites, pensou em Tair paralisado do outro lado de uma porta que Kalan não conseguia ver. Pensou, por fim, que todo o plano que tinha montado, proteger todo mundo carregando o silêncio sozinho, tinha falhado de um jeito tão completo que já não sobrava nada para proteger, só gente que sofria de qualquer forma, com ou sem a mentira dele no meio.
 
-Hadris não precisou pressionar mais. Só esperou, com a paciência de quem já sabia reconhecer o momento exato em que a ideia certa tinha se instalado dentro da cabeça de alguém.
+Hadris não precisou pressionar mais. Só esperou, com a paciência de quem sabia reconhecer o momento exato em que a ideia certa tinha se instalado dentro da cabeça de alguém.
 
 — Fui eu — disse Kalan, por fim.
 
@@ -138,21 +134,19 @@ Alguma coisa na postura de Hadris se alterou, um endurecimento pequeno nos ombro
 
 — É a verdade.
 
-— É a pior mentira que já ouvi neste ano, e ouço muitas — respondeu Hadris, quase sem fôlego, antes de se recompor, respirar, deixar a voz baixar de volta ao registro limpo e absoluto de sempre, como quem enrola de volta uma corda que escapara por um instante das próprias mãos.
+— É a pior mentira que já ouvi neste ano, e ouço muitas — respondeu Hadris, quase sem fôlego, antes de se recompor e deixar a voz baixar de volta ao registro limpo de sempre, como quem enrola de volta uma corda que escapara por um instante das próprias mãos.
 
 Kalan não disse mais nada. No momento em que finalmente parara de mentir, Hadris não tinha motivo para acreditar nele.
 
 A porta se abriu antes que Hadris pudesse continuar.
 
-O Sumo Vigia entrou devagar, como sempre entrava, sem pressa nenhuma, e Hadris se levantou por reflexo, um gesto quase automático de respeito que não combinava com a rigidez que ainda carregava nos ombros. O Sumo não olhou para Kalan. Chamou Hadris com um gesto pequeno da mão e os dois se afastaram alguns passos, perto o bastante da porta para que qualquer palavra dita baixo se perdesse antes de alcançar o banco onde Kalan estava sentado.
+O Sumo Vigia entrou devagar, como sempre entrava, e Hadris se levantou por reflexo, um gesto automático de respeito que não combinava com a rigidez que ainda carregava nos ombros. O Sumo não olhou para Kalan. Chamou Hadris com um gesto pequeno da mão e os dois se afastaram alguns passos, perto o bastante da porta para que qualquer palavra dita baixo se perdesse antes de alcançar o banco onde Kalan estava sentado.
 
-Kalan viu apenas fragmentos: a boca do Sumo Vigia se movendo devagar, perto do ouvido de Hadris; o corpo de Hadris ficando, por um instante, tão parado quanto uma pedra; os olhos dele se voltando para o Sumo por um segundo mais longo do que qualquer troca de informação simples exigiria; uma pergunta baixa demais para ouvir, e uma resposta ainda mais baixa. Não conseguiu entender uma palavra do que diziam, e não tinha nenhum motivo, ali sentado, sozinho, exausto, para imaginar que aquilo tivesse qualquer relação com Elis, ou com qualquer coisa que tivesse acontecido fora daquelas paredes. Só sentiu, olhando o rosto de Hadris se fechar de um jeito novo, diferente de tudo que já tinha visto nele até então, que alguma notícia recém-chegada tinha mudado o humor da sala inteira, e que aquela mudança não parecia boa para ninguém.
-
-*
+Kalan viu apenas fragmentos: a boca do Sumo Vigia se movendo devagar, perto do ouvido de Hadris, o corpo de Hadris ficando, por um instante, tão parado quanto uma pedra, os olhos dele se voltando para o Sumo por um segundo mais longo do que qualquer troca simples exigiria, uma pergunta baixa demais para ouvir, e uma resposta ainda mais baixa. Não conseguiu entender uma palavra, e não tinha motivo, ali sentado, exausto, para imaginar que aquilo tivesse relação com Elis. Só sentiu, olhando o rosto de Hadris se fechar de um jeito novo, que alguma notícia recém-chegada tinha mudado o humor da sala inteira, e que aquela mudança não parecia boa para ninguém.
 
 Levaram-no de volta pelo mesmo corredor, mas não até a cela: pararam num ponto onde ele conseguia ver, através de uma grade lateral, o pátio onde Tair e Orel eram conduzidos por outros dois Filhos da Raiz.
 
-Tair caminhava entre os guardas com a cabeça baixa, os ombros curvados de um jeito que Kalan nunca tinha visto antes, nem nos piores turnos no cais. Orel não caminhava. Resistia, o corpo inteiro rígido contra as mãos que tentavam guiá-lo, e quando um dos guardas apertou o braço dele com mais força, Orel gritou, um som que não tinha nada de palavra, só puro pavor, e se debateu com uma força que Kalan sabia reconhecer, porque já tinha visto aquele mesmo corpo se contorcer daquele mesmo jeito antes, na primeira noite, quando quatro rapazes o tinham derrubado no chão de Maruva.
+Tair caminhava entre os guardas com a cabeça baixa, os ombros curvados de um jeito que Kalan nunca tinha visto antes, nem nos piores turnos no cais. Orel não caminhava. Resistia, o corpo inteiro rígido contra as mãos que tentavam guiá-lo, e quando um dos guardas apertou o braço dele com mais força, Orel gritou, um som que não tinha nada de palavra, só puro pavor, e se debateu com uma força que Kalan reconhecia, porque já tinha visto aquele mesmo corpo se contorcer daquele jeito na primeira noite, quando quatro rapazes o tinham derrubado no chão de Maruva.
 
 — E-is! — gritou Orel, a voz se rasgando no meio do nome dela. — E-is!
 
@@ -180,13 +174,11 @@ Tair virou a cabeça na direção da voz dele, só por um instante, os olhos che
 
 E então eles desapareceram por uma porta ao fundo do pátio, e o silêncio que sobrou era pior do que qualquer grito.
 
-*
-
-Ficou sozinho na sala sem janelas por tempo suficiente para que a fúria começasse a se transformar em outra coisa, mais funda, mais parecida com medo puro. Tinha confessado esperando aliviar o peso que carregava sobre os outros, e o que tinha visto, imediatamente depois, era Tair e Orel sendo levados de qualquer forma, enquanto ele continuava ali, sozinho, ainda acreditando, porque nada tinha lhe dito o contrário, que Elis estava em algum lugar daquele mesmo prédio, sob o mesmo poder que acabara de levar os outros dois.
+Ficou sozinho na sala sem janelas por tempo suficiente para que a fúria começasse a se transformar em outra coisa, mais funda, mais parecida com medo puro. Tinha confessado esperando aliviar o peso que carregava sobre os outros, e o que tinha visto, logo depois, era Tair e Orel sendo levados de qualquer forma, enquanto ele continuava ali, ainda acreditando que Elis estava em algum lugar daquele mesmo prédio, sob o mesmo poder que acabara de levar os outros dois.
 
 Chorou ali, sem ninguém para ver, a raiva e o medo se misturando de um jeito que não deixava espaço para vergonha.
 
-O Sumo Vigia entrou sem pressa, como sempre. Diferente de Hadris, não circulou pela sala, não construiu vantagem tijolo por tijolo. Puxou um banco do canto, arrastando-o pelo chão de pedra com um ruído lento, e sentou-se diante de Kalan, as mãos apoiadas nos joelhos, e esperou, em silêncio absoluto, até que Kalan finalmente erguesse os olhos para encará-lo. De perto, a base branca do rosto rachava nas rugas, e a faixa escura sobre os olhos não era sombra: era tinta, a mesma tinta azul-escura, quase preta, com que a Casa da Permanência escrevia os seus registros.
+O Sumo Vigia entrou sem pressa, como sempre. Diferente de Hadris, não circulou pela sala, não construiu vantagem tijolo por tijolo. Puxou um banco do canto, arrastando-o pelo chão de pedra com um ruído lento, e sentou-se diante de Kalan, as mãos apoiadas nos joelhos, e esperou, em silêncio, até que Kalan erguesse os olhos para encará-lo. De perto, a base branca do rosto rachava nas rugas, e a faixa escura sobre os olhos não era sombra. Era tinta, a mesma tinta azul-escura, quase preta, com que a Casa da Permanência escrevia os seus registros.
 
 — Onde está minha irmã? — foi a primeira coisa que Kalan conseguiu dizer.
 
@@ -200,7 +192,7 @@ Kalan sentiu o corpo congelar por um instante longo demais.
 
 — Hadris disse...
 
-— Hadris permitiu que você acreditasse no que já temia — completou o Sumo, e não havia nenhuma culpa na voz dele ao dizer aquilo, nenhuma vergonha institucional, só a constatação simples de um método que funcionara exatamente como devia funcionar.
+— Hadris permitiu que você acreditasse no que já temia — completou o Sumo, sem culpa na voz, sem vergonha institucional, só a constatação simples de um método que funcionara como devia.
 
 — Vocês me fizeram confessar achando que estavam com ela.
 
@@ -236,7 +228,7 @@ Kalan sentiu aquilo como um golpe físico, mais forte do que qualquer mão que j
 
 — Liberdade da mentira não é liberdade da consequência.
 
-Kalan olhou para ele, tentando entender se havia ali algum resquício de crueldade deliberada, e não encontrou nenhum. Havia só convicção absoluta, do tipo que não precisava se justificar porque nunca tinha sido, em nenhum momento da vida daquele homem, seriamente questionada.
+Kalan olhou para ele, tentando entender se havia ali algum resquício de crueldade deliberada, e não encontrou nenhum. Havia só convicção absoluta, do tipo que nunca tinha sido seriamente questionada.
 
 — Vocês usaram minha irmã — disse Kalan, tentando ainda uma última vez encontrar algo que se parecesse com culpa no rosto do velho.
 
@@ -264,10 +256,10 @@ Kalan não teve resposta para aquilo, e o Sumo pareceu reconhecer o silêncio co
 
 — Você queria proteger todos assumindo, sozinho, aquilo que fez — disse, sem nenhum tom de deboche, só a constatação simples de um fato. — Agora vai ter essa oportunidade.
 
-Explicou o resto sem pressa, como quem lê um veredito que já conhecia de memória havia dias. Existia agora uma confissão registrada, e essa confissão mudava formalmente a natureza do caso inteiro. Kalan não seria julgado apenas pela agressão que envolvera a própria casa; seria julgado por retirada ilegal de registros de uma Casa da Permanência, por furto dentro de suas dependências, por ocultação deliberada de provas, pelo desaparecimento contínuo do material roubado, por mentiras sustentadas durante toda a investigação, e por crimes contra a autoridade legítima da Raiz e contra a própria Permanência que a sustentava.
+Explicou o resto sem pressa, como quem lê um veredito que já conhecia de memória. Existia agora uma confissão registrada, e essa confissão mudava a natureza do caso inteiro. Kalan não seria julgado apenas pela agressão que envolvera a própria casa. Seria julgado por retirada ilegal de registros de uma Casa da Permanência, por furto dentro de suas dependências, por ocultação deliberada de provas, pelo desaparecimento contínuo do material roubado, por mentiras sustentadas durante toda a investigação, e por crimes contra a autoridade legítima da Raiz e contra a própria Permanência que a sustentava.
 
 Terminou de falar e ficou olhando para Kalan. Ele não conseguiu perguntar o que aconteceria se fosse condenado.
 
-O Sumo Vigia continuou olhando para ele por alguns segundos mais, e então falou de novo, no mesmo tom calmo e rouco de sempre, como se estivesse apenas completando uma frase que já tinha começado havia muito tempo.
+O Sumo Vigia continuou olhando para ele por alguns segundos mais, e então falou de novo, no mesmo tom calmo e rouco, como se completasse uma frase que já tinha começado havia muito tempo.
 
 — Se for condenado pelas acusações que agora pesam sobre você, a pena será execução pública.

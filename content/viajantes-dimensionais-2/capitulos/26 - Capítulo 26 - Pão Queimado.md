@@ -232,7 +232,7 @@ Bruno abriu a boca. Banjo viu o irmão pensar numa piada, depois noutra, e desca
 
 — Guardei. — A tela demorou um segundo a mais do que o normal. — Probabilidade: cem por cento. Eu corrigi sozinha.
 
-Bruno riu, e a risada saiu quebrada, e ele passou o braço pela tela, que não era de abraçar e que não se mexeu. Era o mais perto que dava. Banjo olhou para o teto, para o relógio de estrelas, para qualquer lugar, e achou que a casa inteira estava prendendo a respiração.
+Bruno riu e tentou abraçar a imagem de Kali. O braço atravessou o brilho; ficou ali um instante, antes de cair ao lado do corpo. Banjo olhou para o teto, para o relógio de estrelas, para qualquer lugar, e achou que a casa inteira estava prendendo a respiração.
 
 Beatriz tinha sentado no chão da sala, com a bola amarela de BBBB nas duas mãos. A borracha estava gasta, a costura dourada brilhava no meio da marca preta do chamuscado, e ela olhava a bola com uma cara que Banjo conhecia muito bem. Átila foi até ela, sentou em cima do pé dela e ficou olhando a bola, com a cabeça inclinada e uma orelha levantada.
 

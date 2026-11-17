@@ -30,7 +30,7 @@ A varanda tinha um beiral largo, e Ferris estava debaixo dele, não porque tives
 
 — Que conta?
 
-— Tem versões do meu pai, e nenhuma bate com a outra. No Largo dos Ponteiros dizem que ele se cansou e foi embora. Na Central ninguém me diz nada, e ficam me olhando com cara de quem sabe. E a Shirley contou que a porta da sala do fundo se fechou atrás dele e não abriu mais. — Ferris olhou a chuva por um momento, em vez de olhar para Breno. — Eu vou ficar na frente do prédio de pesquisa até alguém me dizer qual delas é a verdadeira. Se for preciso, durmo no degrau.
+— Tem versões do meu pai, e nenhuma bate com a outra. No Largo dos Ponteiros dizem que ele se cansou e foi embora. Pedi os relatórios na Central e no prédio de pesquisa; um manda procurar o outro, e nenhum deixa ver os cadernos. E a Shirley contou que a porta da sala do fundo se fechou atrás dele e não abriu mais. — Ferris olhou a chuva por um momento, em vez de olhar para Breno. — Eu vou ficar na frente do prédio de pesquisa até alguém me dizer qual delas é a verdadeira. Se for preciso, durmo no degrau.
 
 — Eles não vão te deixar entrar.
 

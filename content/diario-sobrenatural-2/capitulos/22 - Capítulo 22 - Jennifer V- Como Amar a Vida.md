@@ -1,4 +1,4 @@
-O silêncio da casa da Sra. Olívia era denso. A chuva tamborilava contra as janelas e o som constante fazia o tempo se arrastar. Sem luz elétrica, a escuridão ali não era a de uma casa à noite: era a de um lugar que tinha todo o tempo do mundo. A vela do criado-mudo tinha derretido até o toco, e a sombra dela tremia na parede, mesmo sem vento. Eu estava deitada, inquieta, no quarto envolto em sombras, com a sensação de algo iminente. Em algum ponto do forro, um peso leve rolou de uma ponta à outra e parou.
+A chuva batia nas janelas da casa da Sra. Olívia havia horas. A vela do criado-mudo já estava quase no fim, e eu não conseguia dormir. Tinha medo de sonhar de novo com o Cara-de-Larva. Fiquei olhando para o teto até ouvir alguma coisa rolar por cima do forro. Parou junto à parede. Esperei, mas não ouvi mais nada.
 
 Levantei e saí do quarto, obedecendo à minha bexiga. Mas o corredor da casa tinha mudado: era estreito, cercado por grades enferrujadas que se estendiam até onde a vista alcançava. O chão estava coberto por um líquido viscoso e frio que engolia meus passos, e o ar tinha cheiro de carne queimada e decomposição.
 
@@ -46,35 +46,37 @@ Contei o que Filipo me disse e o que sonhei. A Sra. Olívia não demonstrou rea�
 
 Terminado o chá, a Sra. Olívia me levou para a sala, acendeu uma vela em cada canto, mesmo de manhã, e me sentou no sofá. O salão cheirava a cera e a terra molhada, e os espelhos cobertos de preto pareciam escutar.
 
-— Escute — começou ela, baixando a voz até a chuva quase cobri-la. — Vitalidade é, como o nome diz, o que é vital para a vida. Sem ela não podemos viver. 
+A Sra. Olívia pousou na minha frente um vaso escuro, colocou um pouco de pó dentro e ateou fogo. Uma chama azul subiu pelo gargalo. Não senti calor.
 
-A Sra. Olívia abriu um armário que rangeu como gente, tirou de dentro um vaso escuro e o pousou na mesa à minha frente. Despejou um pó dentro e ateou fogo. Chamas azuis se ergueram no ar.
+— Reconhece? — perguntou.
 
-— O termo vitalidade era usado para pessoas vivas até os primeiros estudos espirituais começarem a compreender as forças sobrenaturais da forma que elas funcionam. Quando você morre, sua alma carrega sua vitalidade consigo. Isso significa que espíritos também possuem essa força de vida. E é dessa força que os demônios se alimentam. Se você consegue controlar sua vitalidade, bloquear, transformá-la... você se torna impenetrável. O que eu vou te passar aqui, é apenas teórico para mim. Eu não tenho forças o suficiente para controlar a minha vitalidade, mas você sendo uma selifa, com certeza consegue. 
+— As cinzas do Agouro queimavam dessa cor.
 
-— Sua vitalidade costuma estar sempre dentro de si. Mas há a possibilidade de transferi-la para algo. Um objeto por exemplo. 
+Ela assentiu. Pediu que eu aproximasse a mão, mas não tocasse na chama. O frio aumentou perto do vaso. Afastei os dedos.
 
-— Um elo — compreendi. 
+— Uma pessoa viva tem vitalidade — ela explicou. — Quando morre, a alma leva essa força consigo. Os demônios conseguem roubá-la. É por isso que aparecem perto de pessoas e espíritos. Não basta ter um corpo para estar em perigo.
 
-Sra. Olívia assentiu. 
+— E eu posso impedir?
 
-— Espíritos fazem isso com mais facilidade, alguns porque possuem uma ligação especial com o objeto, outros porque é um pertence que remetia muito a ele quando era vivo. Espíritos podem transferir sua vitalidade total ou parcial para algum objeto, ou até mesmo para alguém. 
+— Você pode aprender a usar a sua. Não sei até onde. Nunca tive a força de uma selifa para experimentar.
 
-— Como numa possessão — assimilei. 
+Pensei nos Elos da casa dos Marques. Nos objetos que prendiam aqueles espíritos.
 
-— Exatamente. Está entendendo bem. 
+— Então um espírito pode deixar uma parte dessa força num objeto? Foi o que aconteceu com os Elos?
 
-— Espere um pouco... se uma selifa também consegue fazer isso... significa que eu posso... possuir alguém? 
+— Pode. E, em certas condições, transferi-la até para outra pessoa.
 
-— Não só uma pessoa, como também um espírito — respondeu a Sra. Olívia.
+— Possuir alguém — respondi, lembrando do que tínhamos visto.
 
-— O que tem dentro desse vaso? — perguntei, encarando as chamas azuis. 
+— É uma possibilidade. Mas primeiro você precisa aprender a sentir o que é seu e o que pertence aos outros. Não vamos começar por possuir ninguém, menina.
 
-Sra. Olívia olhou para mim e sorriu. 
+Olhei de novo para o vaso. A chama azul continuava acesa, imóvel.
 
-— Cinzas de demônio — disse ela. — Não sei se são como as que vocês encontraram em Vila Velha. Mas você já deve estar acostumada com essas chamas. 
+— Isso também é vitalidade?
 
-— Sim — falei — usamos as cinzas do Agouro para matá-lo, ano passado.
+— Não. O que resta de um demônio não funciona da mesma maneira. São cinzas de uma forma que ele assumiu. Queimar o corpo não significa destruir tudo o que ele é.
+
+Senti o estômago apertar. Eu conhecia bem aquela cor.
 
 — O Varkhel não morreu, Jennifer — disse a Sra. Olívia. — Vocês destruíram a forma que ele tinha assumido. 
 
@@ -104,9 +106,9 @@ Sra. Olívia pareceu perceber meu desconforto e se levantou, apagando as chamas 
 
 — Você precisa aprender a ter um apego forte à sua vida. Tão forte a ponto de que você consiga transferir este apego a algum outro objeto ou outra pessoa. Você precisa amar a vida. 
 
-Aquela lição seria a mais difícil para mim. Eu estava aproveitando a vida mais do que aproveitei nos últimos 17 anos, mas amar a vida? Não sei se eu tinha todo esse amor por viver. Às vezes ainda me perguntava se morta não seria mais útil para a sociedade. 
+Fiquei olhando para as mãos. Durante anos eu tinha desejado desaparecer, ou pelo menos acordar num mundo em que nada me alcançasse. Mas agora queria voltar a Vila Velha. Queria ouvir meu pai reclamar do trabalho, ver Pedro entrar na cozinha atrás de comida, conversar com Junior sem que ele fugisse de mim. Eram coisas pequenas. Eu tinha começado a fazer planos sem perceber.
 
-— Ok, entendi — falei, me levantando — então vou tentar amar a vida. 
+— Eu não sei fazer isso ainda — admiti. — Mas quero aprender. Não estou pronta para abrir mão da minha vida. 
 
 Sra. Olívia sorriu para mim e também se levantou. 
 
@@ -144,7 +146,7 @@ Soltei um risinho em resposta. Filipo então começou a saborear a fruta.
 
 Ele tinha dito “era” do pai. Depois ficou calado, e os dedos dele abriam e fechavam em torno de uma navalha que não estava ali.
 
-Olhei para a estrada. Filipo se deitou, de olhos no céu. Como eu queria ficar sozinha, subi ao quarto, onde Pedro dormia no sofá, e digitei uma mensagem para Glenda.
+Olhei para a estrada. Filipo se deitou, de olhos no céu. Como eu queria ficar sozinha, voltei à sala, onde Pedro agora dormia no sofá, e digitei uma mensagem para Glenda.
 
 Fechei os olhos um segundo e vi cinza caindo como neve sobre uma estrada de terra, e um livro grande ardendo sem fazer fumaça. Abri os olhos: era só o sol por entre as folhas.
 
@@ -156,7 +158,7 @@ Não demorou para que eu recebesse a resposta:
 
 Guardei o celular e me deitei. Às 19 horas desci para a janta e depois subimos de volta. A Sra. Olívia perguntou se eu queria treinar mais um pouco, e recusei. Quando todos já estavam na cama, desci à cozinha e acompanhei o relógio. 20 horas. 20 e meia. Por fim, 21 horas.
 
-Em situações normais, eu voltaria para a cama. Mas abri a porta e comecei a correr pelo terreno da Sra. Olívia, em linha reta até a estrada nos fundos, sem me importar com o que encontraria. Eu estava cansada de ficar presa. Se o Cara-de-Larva surgisse, que me levasse, que acabasse comigo logo. Eu precisava fazer algo que eu realmente quisesse.
+Em situações normais, eu voltaria para a cama. Mas naquela noite abri a porta e corri pelo terreno da Sra. Olívia até a estrada dos fundos. Sabia que era perigoso. O Cara-de-Larva ainda podia nos encontrar. Mesmo assim, depois de tantos dias me escondendo, eu queria escolher uma coisa por vontade própria. Não queria que a minha vida se resumisse a esperar pelo próximo ataque.
 
 Vi uma luz se aproximando. Parei no instante em que um carro freou a poucos metros, protegi os olhos com as mãos e fui devagar até a lateral. O vidro escuro desceu e um homem moreno de cavanhaque olhou para mim.
 
@@ -166,15 +168,15 @@ Hesitei antes de respondê-lo.
 
 — Q-quem é você? Como sabe meu nome? — perguntei. 
 
-— Por favor diga que foi você quem pediu um taxi para a cidade? Já é o terceiro golpe que recebo este mês. Se não foi, me diga, que eu volto — disse o homem. 
+— Por favor diga que foi você quem pediu um táxi para a cidade? Já é o terceiro golpe que recebo este mês. Se não foi, me diga, que eu volto — disse o homem. 
 
 — Não, não... digo, sim. Fui eu — gaguejei. 
 
 — Ótimo, pode entrar, e coloque os cintos. Não quero ninguém sem cintos no meu carro. Depois quem responde sou eu — disse-me o taxista. 
 
-Só então vi a placa “Taxi” sobre o veículo. Entrei e me ajeitei no banco de trás.
+Só então vi a placa “Táxi” sobre o veículo. Entrei e me ajeitei no banco de trás.
 
-O taxista deu meia volta e partiu pela estrada. Quase dez minutos pela serra, e saímos nos bairros nortenhos de São Paulo. Eu não fazia ideia de onde estava indo, nem se deveria estar fazendo aquilo. O taxista, Romario, era um tagarela: reclamava dos clientes mal-educados e, embora eu apenas concordasse, repetia que eu era uma ótima pessoa e que me adorava. Estranho. Os rostos mortos me seguiam no caminho, e Romario gritaria em desespero se visse aquelas almas. Cruzamos uma ponte sobre um rio sujo e seguimos para o centro da cidade que nunca dorme.
+O taxista deu meia volta e partiu pela estrada. Quase dez minutos pela serra, e chegamos aos bairros da zona norte de São Paulo. Eu não fazia ideia de onde estava indo, nem se deveria estar fazendo aquilo. O taxista, Romario, era um tagarela: reclamava dos clientes mal-educados e, embora eu apenas concordasse, repetia que eu era uma ótima pessoa e que me adorava. Estranho. Os rostos mortos me seguiam no caminho, e Romario gritaria em desespero se visse aquelas almas. Cruzamos uma ponte sobre um rio sujo e seguimos para o centro da cidade que nunca dorme.
 
 Romario disse que o endereço era o número 531, mas que não conseguia chegar pela quantidade de gente na rua. A corrida estava paga no cartão, então ele me deixou no início da rua, se despedindo com beijos e dizendo que eu era uma das melhores clientes que já tinha levado. Curioso.
 
@@ -238,7 +240,7 @@ Eu não soube como reagir, apenas desviei o olhar e pensei no que falar.
 
 — Você não veio aqui para conversar sobre Vila Velha? — perguntou Glenda rindo para mim. 
 
-— Não sei — respondi, forçando um sorriso — ei. Eu conheço essa música. Liz Vitali, não é? 
+— Não sei — respondi, forçando um sorriso. — Ei, eu conheço essa música. Liz Vitali, não é? 
 
 — Olha só, então ela conhece um bom rock — Glenda me disse. 
 
@@ -340,7 +342,7 @@ Calling me where I belong.”
 
 Mantive os olhos fechados o tempo todo, e quando terminei e os abri, vi emoção, aplausos, gritos, sorrisos, tudo que jamais imaginei ver sobre mim. Sorri e enxuguei as lágrimas. Não acreditava que tinha tido coragem.
 
-— Vem cá — disse Glenda me tomando o microfone — pessoal, essa aqui é a Jennifer. Ela é uma pessoa incrível e eu trouxe ela aqui hoje porque ela precisa saber o que é viver. Vamos mostrar para ela o que é viver? 
+— Vem cá — disse Glenda, tomando o microfone da minha mão. — Pessoal, essa aqui é a Jennifer. Ela é uma pessoa incrível e eu trouxe ela aqui hoje porque ela precisa saber o que é viver. Vamos mostrar para ela o que é viver? 
 
 O público gritou em resposta e eu sorri. Meu coração quase saltou pela boca quando fui empurrada do palco para cima das pessoas. Não alcancei o chão: a multidão me levantou, em êxtase, enquanto a vocalista continuava cantando Into the Dark. Vi Glenda sendo levada também. Vi as luzes piscando, a fumaça subindo, as pessoas eufóricas. Que sensação era aquela? Cada flash aumentava meu sorriso, até que me vi gargalhando sozinha enquanto me carregavam.
 
@@ -448,5 +450,7 @@ Hesitei antes de me expressar.
 
 — Então deixa essa chama queimar, garota — Glenda me disse, segurando minha mão. 
 
-Ela se aproximou de mim e me beijou mais uma vez. Mas dessa vez, diferente da loucura de antes, tivemos todo o tempo do mundo para saborear o momento. Minha respiração era diferente ali, meu coração batia diferente, eu nunca tinha sentido aquilo antes. A única coisa que eu queria era passar o resto da minha vida debaixo daquela ponte sentindo aquilo.
+Glenda se aproximou e me beijou de novo. Desta vez não havia ninguém a gritar nem a correr atrás de nós. Só o barulho da rua lá em cima e a mão dela na minha.
+
+Pensei no meu pai e na cara que faria se soubesse que eu tinha cantado num palco, fugido de uma briga e acabado de beijar uma garota debaixo de uma ponte. Ia ficar desesperado com a parte da briga. Com o resto, talvez sorrisse. Eu queria muito estar lá para lhe contar.
 

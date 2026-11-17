@@ -4,7 +4,7 @@ Vesna apareceu na porta antes do sol terminar de nascer de verdade, um embrulho 
 
 Não precisou dizer onde era lá. As duas sabiam.
 
-Entregou o embrulho, e Elis o abriu ali mesmo, sentindo o peso diferente do tecido antes mesmo de ver o que havia dentro. Uma sobrevestimenta azul-acinzentada, de corte bom o bastante para não precisar de remendo em lugar nenhum. Uma peça inferior sem um único ponto de conserto. Uma capa curta. Um par de sapatos melhor feitos do que qualquer coisa que Elis já tivesse calçado na vida. Nenhuma insígnia de família, nenhuma marca da Raiz, nada que a ligasse a alguém específico. Só roupa suficiente para passar por uma menina Polar de casa intermediária, ou talvez alguém a serviço de gente rica.
+Entregou o embrulho, e Elis o abriu ali mesmo, sentindo o peso diferente do tecido antes de ver o que havia dentro. Uma sobrevestimenta azul-acinzentada, de corte bom o bastante para não precisar de remendo em lugar nenhum. Uma peça inferior sem um único ponto de conserto. Uma capa curta. Um par de sapatos melhor feitos do que qualquer coisa que Elis já calçara. Nenhuma insígnia de família, nenhuma marca da Raiz, nada que a ligasse a alguém. Só roupa suficiente para passar por uma menina Polar de casa intermediária, ou alguém a serviço de gente rica.
 
 Elis passou os dedos pelo tecido, reconhecendo o peso de algo que valia mais do que ela sabia calcular.
 
@@ -18,17 +18,15 @@ Vesna já estava ocupada guardando o resto das ervas no avental, sem erguer os o
 
 — As minhas.
 
-Piscou para ela, um gesto rápido e deliberadamente incompleto, e não disse mais nada sobre o assunto, como se a resposta já bastasse. Elis quis insistir, mas alguma coisa no jeito como Vesna voltou a arrumar o embrulho, rápido e prático demais para quem só tinha recebido uma doação de caridade, fez com que a pergunta morresse antes de sair pela segunda vez.
+Piscou para ela, um gesto rápido e deliberadamente incompleto, e não disse mais nada. Elis quis insistir, mas alguma coisa no jeito como Vesna voltou a arrumar o embrulho, rápido e prático demais para quem só recebera uma doação de caridade, fez a pergunta morrer antes de sair pela segunda vez.
 
 — Veste — disse Vesna, já virando para ir embora. — E não pisa em nenhuma poça no caminho até lá.
 
-*
-
 Na manhã seguinte, vestida daquele jeito, Elis passou por um vidro empoeirado de uma loja fechada e precisou olhar duas vezes antes de reconhecer o próprio reflexo.
 
-O efeito da roupa a acompanhou dentro dos portões da Cidade Interna de um jeito que nenhuma explicação teria preparado. Um funcionário que noutro dia teria perguntado o que ela fazia ali simplesmente abriu espaço na passagem sem erguer os olhos do próprio trabalho. Ninguém a mandou voltar. Ninguém pediu documento na primeira vez, nem na segunda. Elis avançou pelas ruas largas, incomodada com a facilidade com que a deixavam passar. Alisou a gola da roupa emprestada.
+O efeito da roupa a acompanhou dentro dos portões da Cidade Interna. Um funcionário que noutro dia teria perguntado o que ela fazia ali simplesmente abriu espaço na passagem sem erguer os olhos do trabalho. Ninguém a mandou voltar. Ninguém pediu documento na primeira vez, nem na segunda. Elis avançou pelas ruas largas, incomodada com a facilidade com que a deixavam passar, e alisou a gola da roupa emprestada.
 
-Seguiu as indicações de Vesna sem precisar parar para perguntar a ninguém. A avenida reta. O cruzamento. E então, erguendo-se sobre uma base tão larga que sozinha parecia maior do que qualquer casa que Elis já tivesse visto de dentro, a estátua armada que agora sabia se chamar Teryon.
+Seguiu as indicações de Vesna sem precisar perguntar a ninguém. A avenida reta. O cruzamento. E então, erguendo-se sobre uma base tão larga que sozinha parecia maior do que qualquer casa que Elis já vira por dentro, a estátua armada que agora sabia se chamar Teryon.
 
 A casa ficava algumas ruas depois do monumento, um portão baixo de ferro trabalhado entre dois muros altos, e Elis ficou parada diante dele por mais tempo do que devia, o coração batendo alto o bastante para doer.
 
@@ -36,27 +34,25 @@ Não bateu.
 
 No segundo dia, viu Ladira.
 
-Uma mulher alta, larga e pesada, os cabelos brancos trançados numa espécie de coroa em que Elis não conseguiu encontrar um único fio fora do lugar. Vestido pesado azul-negro, bordados discretos na gola alta, luvas finas mesmo para atravessar o próprio jardim, joias antigas de dravenito escuro no pescoço e nos dedos. Usava pigmento escuro ao redor dos olhos, azul profundo nas pálpebras, vermelho-terra na boca e pó perfumado sobre o rosto. Elis jamais vira alguém se arrumar daquela maneira para falar com um jardineiro.
+Uma mulher alta, larga e pesada, os cabelos brancos trançados numa coroa em que Elis não encontrou um único fio fora do lugar. Vestido pesado azul-negro, bordados discretos na gola alta, luvas finas mesmo para atravessar o próprio jardim, joias antigas de dravenito escuro no pescoço e nos dedos. Pigmento escuro ao redor dos olhos, azul profundo nas pálpebras, vermelho-terra na boca, pó perfumado sobre o rosto. Elis jamais vira alguém se arrumar assim para falar com um jardineiro.
 
 Não a reconheceu, claro, até que um criado, segurando a porta, disse baixinho:
 
 — Senhoria Ladira.
 
-Chamava-se Joren. Elis já o tinha visto entrar e sair pelo portão durante os dias em que rondara a casa. No pulso esquerdo, usava um cordão cinza com dois pequenos nós de metal, marca de conta de serviço ainda aberta. Era uma forma comum de dívida entre casas ricas: alojamento, tratamento, ferramentas, comida ou obrigações antigas eram registrados como valor a devolver, e o devedor trabalhava até a conta ser encerrada. Às vezes levava ciclos. Às vezes a conta sobrevivia a quem a tinha começado.
+O criado se chamava Joren. Elis já o vira entrar e sair pelo portão nos dias em que rondara a casa. No pulso esquerdo, usava um cordão cinza com dois pequenos nós de metal, marca de conta de serviço ainda aberta. Era uma forma comum de dívida entre casas ricas: alojamento, tratamento, ferramentas, comida ou obrigações antigas eram registrados como valor a devolver, e o devedor trabalhava até a conta ser encerrada. Às vezes levava ciclos. Às vezes a conta sobrevivia a quem a começara.
 
-Na Cidade Interna ninguém chamava aquilo de escravidão. Joren era um criado por dívida, recebia comida, cama e uma pequena parte em moeda, e podia aparecer nos registros como trabalhador da casa. Isso não tornava o portão menos pertencente a Ladira do que a ele.
+Na Cidade Interna ninguém chamava aquilo de escravidão. Joren recebia comida, cama e uma pequena parte em moeda, e podia aparecer nos registros como trabalhador da casa. Isso não tornava o portão menos pertencente a Ladira do que a ele.
 
 O peito de Elis disparou tão de repente que ela precisou se apoiar na parede atrás da qual estava escondida.
 
 Era ela. A mãe da mãe dela. Sua avó.
 
-Deixou Ladira entrar sem conseguir dizer uma palavra, sem se mover do lugar até muito depois de a porta se fechar, e voltou para Maruva furiosa consigo mesma, repetindo baixinho o próprio nome como se isso fosse ajudar a próxima vez.
+Deixou Ladira entrar sem conseguir dizer uma palavra, sem se mover até muito depois de a porta se fechar, e voltou para Maruva furiosa consigo mesma, repetindo baixinho o próprio nome como se isso fosse ajudar na próxima vez.
 
 No terceiro dia, tentou de novo.
 
-*
-
-Viu Ladira chegando de longe, o mesmo vestido pesado, a mesma coluna reta demais, e soube, no instante em que reconheceu a silhueta, que ia perder a coragem outra vez se esperasse um segundo mais do que precisava.
+Viu Ladira chegando de longe, o mesmo vestido pesado, a mesma coluna reta demais, e soube que ia perder a coragem outra vez se esperasse um segundo.
 
 Falou antes de pensar.
 
@@ -64,7 +60,7 @@ Falou antes de pensar.
 
 Ladira parou.
 
-Virou-se devagar, como quem não tem certeza de ter ouvido o próprio nome de outra pessoa sendo chamado, e olhou primeiro para a roupa de Elis, avaliando o corte e o tecido do jeito rápido de quem passara a vida inteira medindo gente por aquilo que vestia. Só depois olhou para o rosto.
+Virou-se devagar, como quem não tem certeza de que o nome chamado era o de outra pessoa, e olhou primeiro para a roupa de Elis, avaliando corte e tecido como quem passara a vida medindo gente pelo que vestia. Só depois olhou para o rosto.
 
 — O que disse?
 
@@ -76,15 +72,15 @@ Ladira a observou em silêncio. Deu um passo, depois outro, procurando no rosto 
 
 — Elis.
 
-Ladira olhou de novo. Mais longamente ainda, como se pudesse decompor o rosto de Elis em partes menores e comparar cada parte com uma memória guardada há muito tempo.
+Ladira olhou de novo, mais longamente, como se decompusesse o rosto de Elis em partes para comparar cada uma com uma memória guardada havia muito tempo.
 
 — Entre.
 
 E Elis atravessou a porta da frente.
 
-A casa a engoliu de um jeito que nenhum dia de espera do lado de fora tinha preparado. Joren recebeu o xale de Ladira sem que ela precisasse olhar para ele e desapareceu por um corredor lateral. Mais tarde, Elis ouviria Ladira chamá-lo pelo nome outra vez para trazer água quente, e a naturalidade com que os dois repetiam aquela rotina fez a dívida no pulso dele parecer parte da arquitetura da casa.
+A casa a engoliu de um jeito que nenhum dia de espera do lado de fora preparara. Joren recebeu o xale de Ladira sem que ela precisasse olhar para ele e desapareceu por um corredor lateral. Mais tarde, Elis ouviria Ladira chamá-lo pelo nome para trazer água quente, e a naturalidade da rotina fez a dívida no pulso dele parecer parte da arquitetura da casa.
 
-Havia cômodos inteiros reservados a receber visitas, a comer ou simplesmente a permanecer vazios, todos limpos e iluminados. Escadas largas, sem um degrau torto. Piso nivelado sob os pés, sem uma única tábua solta para avisar de longe que alguém estava chegando. Portas que fechavam sem raspar. Vidro em janelas que não precisavam de pano por dentro para segurar o frio. Água correndo de algum lugar sem um único balde à vista. Tecidos inteiros, sem remendo tapando buraco nenhum.
+Havia cômodos inteiros reservados a receber visitas, a comer ou simplesmente a permanecer vazios, todos limpos e iluminados. Escadas largas, sem um degrau torto. Piso nivelado, sem uma tábua solta para avisar de longe que alguém chegava. Portas que fechavam sem raspar. Vidro em janelas que não precisavam de pano por dentro para segurar o frio. Água correndo de algum lugar sem um único balde à vista. Tecidos inteiros, sem remendo tapando buraco nenhum.
 
 E comida.
 
@@ -98,11 +94,11 @@ Elis só assentiu.
 
 — Pegue o que quiser.
 
-Foi, literalmente. Pegou mais de uma coisa ao mesmo tempo, as duas mãos ocupadas, e comeu rápido demais no começo, antes de lembrar onde estava e forçar o ritmo a diminuir.
+Foi, literalmente. Pegou mais de uma coisa ao mesmo tempo, as duas mãos ocupadas, e comeu rápido demais no começo, até lembrar onde estava e forçar o ritmo a diminuir.
 
 — Obrigada.
 
-Um cátilo pequeno, de pelo cinza-amarelado e orelhas eretas, apareceu vindo do jardim interno logo que Elis atravessou o portão de entrada, farejando o ar na direção dela com o corpo baixo e as patas prontas para decidir se aquilo era ameaça ou visita. Elis ficou completamente imóvel, sem saber se devia recuar.
+Um cátilo pequeno, de pelo cinza-amarelado e orelhas eretas, vinha do jardim interno desde que Elis atravessara o portão, farejando o ar na direção dela com o corpo baixo e as patas prontas para decidir se aquilo era ameaça ou visita. Elis ficou imóvel, sem saber se devia recuar.
 
 — Mero — disse Ladira, uma única palavra, sem erguer a voz.
 
@@ -110,13 +106,13 @@ O cátilo parou.
 
 — Em Maruva tem vários desses sem dono — comentou Elis, ainda de olho no animal. — Às vezes alguém começa a dar comida e depois eles ficam plantados na porta. Aí pronto. Viraram daquela casa.
 
-Ladira riu de leve, um som curto que pareceu genuinamente achar graça no jeito como ela contava aquilo.
+Ladira riu de leve, um som curto de quem achou graça de verdade no jeito como ela contava aquilo.
 
 — Curioso, o jeito que você fala.
 
-Havia mais dois, Suri e Vala, deitados entre o jardim e o corredor inferior, e nenhum dos três se moveu de novo depois daquilo, como se a permissão de Mero valesse para todos.
+Havia mais dois, Suri e Vala, deitados entre o jardim e o corredor inferior, e nenhum dos três se moveu depois daquilo, como se a permissão de Mero valesse para todos.
 
-Mais tarde, depois de Ladira dizer alguma coisa sobre como Elis tinha as mãos parecidas com as de alguém, veio sem que Elis planejasse:
+Mais tarde, depois de Ladira comentar que Elis tinha mãos parecidas com as de alguém, veio sem que ela planejasse:
 
 — Obrigada, vó.
 
@@ -126,7 +122,7 @@ Ladira forçou um pequeno riso e piscou duas vezes, pega de surpresa apesar do e
 
 Para Elis, aquilo era lindo.
 
-Ladira fez perguntas. Idade. Onde morava. Quem tinha cuidado dela. E, em algum ponto no meio das respostas, Elis apertou os olhos para uma pergunta que não entendeu bem, tentando decifrar o que exatamente estava sendo pedido.
+Ladira fez perguntas. Idade. Onde morava. Quem cuidara dela. E, em algum ponto no meio das respostas, Elis apertou os olhos para uma pergunta que não entendeu bem, tentando decifrar o que se pedia.
 
 Ladira sorriu.
 
@@ -138,7 +134,7 @@ Elis parou.
 
 — Essa cara. Quando achava que alguém não estava contando tudo.
 
-Ladira começou a contar histórias. Neiva lia tudo que encontrava, abria armários trancados e discutia com adultos até cansar as governantas. Nunca aceitava o argumento de que alguma regra devia ser obedecida apenas porque sempre fora assim. Ladira contou, com um meio sorriso que parecia custar mais do que aparentava, uma história pequena de Neiva ainda menina forçando um armário fechado para ler um documento que não devia nem saber que existia.
+Ladira começou a contar histórias. Neiva lia tudo que encontrava, abria armários trancados e discutia com adultos até cansar as governantas. Nunca aceitava que uma regra devesse ser obedecida só porque sempre fora assim. Ladira contou, com um meio sorriso que parecia custar mais do que aparentava, de Neiva ainda menina forçando um armário fechado para ler um documento que não devia nem saber que existia.
 
 Elis riu ao se reconhecer naquela descrição.
 
@@ -158,13 +154,13 @@ Elis confirmou com a cabeça.
 
 — Eu era pequena. Já faz muitos anos.
 
-Uma umidade apareceu nos olhos de Ladira, real o bastante para que Elis percebesse, num canto, um pequeno traço escuro da maquiagem começar a se desfazer. Ladira pegou um tecido fino da manga e tocou o olho rapidamente, sem deixar que aquilo crescesse mais do que já tinha crescido.
+Uma umidade apareceu nos olhos de Ladira, real o bastante para que Elis percebesse um traço escuro da maquiagem começar a se desfazer. Ladira tirou um tecido fino da manga e tocou o olho rapidamente, sem deixar aquilo crescer.
 
 — E ninguém me disse.
 
 — Ela nunca falou de você.
 
-Isso machucou. Elis viu no rosto dela, viu de verdade, o tipo de dor que não se finge.
+Isso machucou. Elis viu no rosto dela, viu de verdade, a dor que não se finge.
 
 Ladira olhou para outro lugar, para a parede, para qualquer coisa que não fosse o rosto de Elis.
 
@@ -172,7 +168,7 @@ Ladira olhou para outro lugar, para a parede, para qualquer coisa que não fosse
 
 — Por que ela foi embora? — perguntou Elis, quando o silêncio já tinha durado o suficiente para pesar.
 
-Ladira contou a própria versão, devagar, escolhendo cada palavra como quem já tinha contado aquilo para si mesma tantas vezes que a história saía pronta. Neiva tinha se apaixonado por um homem que servia às forças de Kaeliran, provavelmente como batedor ou arqueiro auxiliar, e Ladira jamais tivera nada contra o fato de ele ser soldado. A questão, segundo ela, era que Neiva estava destruindo o próprio futuro.
+Ladira contou a própria versão, devagar, escolhendo cada palavra como quem já a contara para si mesma tantas vezes que a história saía pronta. Neiva se apaixonara por um homem que servia às forças de Kaeliran, provavelmente batedor ou arqueiro auxiliar, e Ladira jamais tivera nada contra ele ser soldado. A questão, segundo ela, era que Neiva estava destruindo o próprio futuro.
 
 — Aquele homem não prestava — disse, a voz ficando mais dura por um instante. — Eu disse que aquele homem não entraria nesta casa.
 
@@ -184,7 +180,7 @@ No dia seguinte, contou Ladira, Neiva pedira formalmente a desvinculação.
 
 — Foi escolha dela, Elis.
 
-Mas não era tão simples, e Elis sentiu isso mesmo sem conseguir nomear exatamente onde a versão rachava. Neiva tinha deixado a casa para viver com o homem, o pai de Elis, e depois ele tinha ido embora.
+Mas não era tão simples, e Elis sentiu isso mesmo sem conseguir nomear onde a versão rachava. Neiva deixara a casa para viver com o homem, o pai de Elis, e depois ele fora embora.
 
 — Eu avisei que aconteceria — disse Ladira, e pareceu perceber a própria crueldade quase no mesmo instante em que a frase saiu, porque baixou um pouco a voz para completar. — Eu não queria estar certa.
 
@@ -192,7 +188,7 @@ E então, mais baixo ainda:
 
 — Depois disso ela nunca tentou voltar.
 
-Não disse o nome do homem. Não disse onde ele tinha servido exatamente, nem o que tinha acontecido com ele depois de desaparecer, nem se Neiva chegara a tentar mandar notícia alguma vez. Elis quis perguntar tudo aquilo de uma vez, mas alguma coisa maior interrompeu o pensamento antes que ela conseguisse escolher por onde começar.
+Não disse o nome do homem. Não disse onde ele servira, nem o que acontecera com ele depois de desaparecer, nem se Neiva chegara a mandar notícia alguma vez. Elis quis perguntar tudo de uma vez, mas alguma coisa maior interrompeu o pensamento antes que escolhesse por onde começar.
 
 — Tenho um irmão — disse, em vez disso.
 
@@ -210,7 +206,7 @@ Ladira quase sorriu, um sorriso que pareceu genuíno e cansado ao mesmo tempo.
 
 — Então eu tenho dois netinhos.
 
-Elis sentiu alguma coisa dentro do peito ceder por completo. Era uma palavra banal, do tipo que qualquer criança com família ouvia sem nem prestar atenção. Para ela era nova, e o peso dela quase a fez chorar ali mesmo, sentada naquela cadeira boa demais.
+Elis sentiu alguma coisa no peito ceder por completo. Era uma palavra banal, que qualquer criança com família ouvia sem prestar atenção. Para ela era nova, e o peso quase a fez chorar ali, sentada naquela cadeira boa demais.
 
 Explicou o resto sem mencionar a caixa. Disse que Kalan tinha sido preso pelo Culto, que seria julgado na semana seguinte, e que, se fosse condenado, morreria. Disse que existiam registros provando que Neiva tinha nascido Polar.
 
@@ -224,7 +220,7 @@ Ladira olhou para ela por um instante que pareceu durar mais do que qualquer res
 
 — Mesmo. — Segurou a mão de Elis por um momento breve. — Não vou deixar que matem meu neto.
 
-Elis quase chorou ali mesmo, de alívio, e Ladira, entendendo exatamente como falar com alguém daquela idade, não prometeu apenas conversar com alguém. Prometeu um futuro inteiro.
+Elis quase chorou de alívio, e Ladira, entendendo como falar com alguém daquela idade, não prometeu apenas conversar com alguém. Prometeu um futuro inteiro.
 
 — Quando Kalan sair — disse, e não “se” —, vocês não precisam continuar morando daquele jeito. Há espaço aqui. Quartos vazios. Ele pode aprender um trabalho melhor. Você pode aprender a ler direito, com professor de verdade, sem precisar entrar escondida na Cidade Interna nunca mais. — Fez uma pausa. — Você pertence aqui tanto quanto sua mãe pertencia.
 
@@ -234,11 +230,11 @@ Levou Elis para o andar de cima, abriu uma porta no fim de um corredor estreito.
 
 — Este era o quarto dela.
 
-Não estava intacto como um relicário. Os móveis pareciam ter sido trocados havia anos, o cômodo claramente usado para outra coisa na maior parte do tempo, mas alguma coisa ainda sobrava: uma pequena marca antiga na madeira do batente, uma prateleira baixa demais para adulto, um desenho apagado riscado a carvão num canto da parede, uma janela de onde, segundo Ladira, Neiva gostava de olhar a rua lá embaixo. Uma gaveta que Ladira admitiu nunca ter esvaziado por completo.
+Não estava intacto como um relicário. Os móveis pareciam trocados havia anos, o cômodo usado para outra coisa na maior parte do tempo, mas alguma coisa sobrava: uma marca antiga na madeira do batente, uma prateleira baixa demais para adulto, um desenho apagado a carvão num canto da parede, uma janela de onde, segundo Ladira, Neiva gostava de olhar a rua. Uma gaveta que Ladira admitiu nunca ter esvaziado por completo.
 
-Elis andou por ali quase sem respirar, tocando a parede com a ponta dos dedos, perguntando onde exatamente a mãe dormia. Ladira mostrou. Foi, provavelmente, o momento de maior felicidade de todo aquele dia: um lugar onde a própria mãe tinha sido criança, encontrado sem que Elis precisasse ir procurar.
+Elis andou por ali quase sem respirar, tocando a parede com a ponta dos dedos, perguntando onde a mãe dormia. Ladira mostrou. Foi, provavelmente, o momento de maior felicidade daquele dia: um lugar onde a própria mãe fora criança, encontrado sem que Elis precisasse procurar.
 
-Antes de descerem de novo, Ladira reparou que Elis estava com frio, ou talvez só que a roupa de Vesna fosse mais fina do que devia. Tirou o xale dos ombros, lã fina, azul profunda, borda trabalhada em fio mais claro, e colocou sobre Elis.
+Antes de descerem, Ladira reparou que Elis estava com frio, ou que a roupa de Vesna era mais fina do que devia. Tirou o xale dos ombros, lã fina, azul profunda, borda trabalhada em fio mais claro, e colocou sobre Elis.
 
 — Posso mesmo ficar com ele?
 
@@ -246,7 +242,7 @@ Antes de descerem de novo, Ladira reparou que Elis estava com frio, ou talvez s�
 
 Elis tocou o tecido com as duas mãos. Nunca tinha tido nada parecido.
 
-Ladira ajeitou o mesmo anel duas ou três vezes. Olhou para o corredor mais de uma vez, breve, como quem espera alguém sem admitir que espera. Chamou uma criada com um gesto pequeno, escreveu alguma coisa curta num papel, dobrou-o e entregou.
+Ladira ajeitou o mesmo anel duas ou três vezes. Olhou para o corredor mais de uma vez, breve, como quem espera alguém sem admitir. Chamou uma criada com um gesto pequeno, escreveu alguma coisa curta num papel, dobrou-o e entregou.
 
 — Leve. Diga que é urgente.
 
@@ -260,7 +256,7 @@ Ladira saiu por alguns minutos e voltou trazendo ela mesma uma bebida quente par
 
 Foi Mero quem ergueu a cabeça primeiro.
 
-Suri levantou-se logo depois. Vala saiu de debaixo de um móvel e ficou olhando fixo para a entrada, o corpo tenso de um jeito que Elis reconheceu de imediato, porque tinha crescido perto de animais parecidos e sabia exatamente o que aquela postura significava.
+Suri levantou-se logo depois. Vala saiu de debaixo de um móvel e ficou olhando fixo para a entrada, o corpo tenso de um jeito que Elis reconheceu de imediato, porque crescera perto de animais parecidos e sabia o que aquela postura significava.
 
 — Tem alguém chegando — disse.
 
@@ -268,7 +264,7 @@ Suri levantou-se logo depois. Vala saiu de debaixo de um móvel e ficou olhando 
 
 Não faziam. Elis sabia que não faziam.
 
-Passos no corredor externo. Vozes, mais de uma. Um criado atravessou o corredor principal rápido demais para ser rotina, e Ladira colocou a xícara na mesa com um cuidado excessivo, como quem já esperava aquele som.
+Passos no corredor externo. Vozes, mais de uma. Um criado atravessou o corredor principal rápido demais para ser rotina, e Ladira pousou a xícara na mesa com um cuidado excessivo, como quem já esperava aquele som.
 
 Elis viu azul-negro na entrada. Faixa de raiz.
 
@@ -300,17 +296,17 @@ Elis sentiu o sangue gelar.
 
 Nunca tinha mencionado caixa alguma durante toda a tarde.
 
-A porta principal já não servia mais para nada. Elis olhou para os corredores, contou homens, calculou distância até a escada, até outra porta, até qualquer coisa. Correu.
+A porta principal já não servia para nada. Elis olhou para os corredores, contou homens, calculou distância até a escada, até outra porta, até qualquer coisa. Correu.
 
-— Elis! — chamou Ladira, e não peguem ela, ainda tentando, mesmo naquele instante, manter a aparência de uma avó só tentando impedir uma criança de fazer besteira na frente de estranhos.
+— Elis! — chamou Ladira, sem gritar peguem ela, ainda tentando, mesmo naquele instante, manter a aparência de uma avó só impedindo uma criança de fazer besteira na frente de estranhos.
 
-Um dos Filhos se moveu na direção dela. Elis subiu num móvel baixo perto da janela, forçou o batente com as duas mãos e passou pelo vão antes que ele conseguisse alcançá-la, o corpo pequeno demais para dar aos adultos qualquer vantagem naquele espaço estreito.
+Um dos Filhos se moveu na direção dela. Elis subiu num móvel baixo perto da janela, forçou o batente com as duas mãos e passou pelo vão antes que ele a alcançasse, o corpo pequeno demais para dar aos adultos vantagem naquele espaço estreito.
 
-Caiu sobre uma cobertura lateral, quase escorregou porque a chuva dos últimos dias ainda não tinha secado de vez, agarrou a borda com as duas mãos, subiu, e correu.
+Caiu sobre uma cobertura lateral, quase escorregou porque a chuva dos últimos dias ainda não secara, agarrou a borda com as duas mãos, subiu e correu.
 
 A Cidade Interna virou uma coisa completamente diferente atrás dela.
 
-Corria por telhados baixos, descia numa sacada, pulava para uma escada externa presa mal demais à parede, atravessava um quintal alheio sem tempo de pedir desculpa a ninguém. Alguém gritou, atrás, uma palavra só.
+Corria por telhados baixos, descia numa sacada, pulava para uma escada externa presa mal à parede, atravessava um quintal alheio sem tempo de pedir desculpa. Alguém gritou, atrás, uma palavra só.
 
 — NULAR!
 
@@ -320,17 +316,17 @@ Outro gritou mais.
 
 — Raiz-de-barro nojenta!
 
-A palavra se espalhou mais rápido do que qualquer um dos homens correndo. Algumas pessoas nem sabiam por quê. Só sabiam que Filhos da Raiz estavam correndo detrás de alguém, e isso já era motivo suficiente para apontar.
+A palavra se espalhou mais rápido do que os homens que corriam. Algumas pessoas nem sabiam por quê. Só sabiam que Filhos da Raiz corriam atrás de alguém, e isso bastava para apontar.
 
 — Ali!
 
-Uma mulher fechou a porta quando Elis tentou se aproximar. Um homem estendeu o braço para barrar a passagem, e ela passou por baixo, sentindo o ombro raspar contra o cotovelo dele. Outro conseguiu agarrar o tecido da capa nova, e ela girou o corpo com força suficiente para se soltar, ouvindo o pano rasgar e sentindo as unhas dele arranharem o braço no processo.
+Uma mulher fechou a porta quando Elis tentou se aproximar. Um homem estendeu o braço para barrar a passagem, e ela passou por baixo, o ombro raspando no cotovelo dele. Outro agarrou o tecido da capa nova, e ela girou o corpo com força suficiente para se soltar, ouvindo o pano rasgar e sentindo as unhas dele arranharem o braço.
 
-Não derrubava adultos com força, porque não tinha força para isso. Usava o que existia ao redor. Chutou um banquinho de madeira para trás e ouviu alguém tropeçar. Passou entre dois carregadores movendo uma peça grande demais para desviar rápido, forçando o Filho da Raiz mais próximo a contornar. Puxou sem querer a alça de uma cesta e viu frutas rolarem pela rua inteira atrás de si, transformando o caminho em obstáculo para quem viesse depois.
+Não derrubava adultos, porque não tinha força para isso. Usava o que existia ao redor. Chutou um banquinho para trás e ouviu alguém tropeçar. Passou entre dois carregadores movendo uma peça grande demais para desviar rápido, forçando o Filho da Raiz mais próximo a contornar. Puxou sem querer a alça de uma cesta e viu frutas rolarem pela rua atrás de si, transformando o caminho em obstáculo.
 
 Entrou numa loja porque viu, pelo canto do olho, outra saída no fundo. Não para se esconder. Para atravessar.
 
-O lugar cheirava a fibra seca e tinta fresca, prateleiras cheias de pacotes marcados como papel de Seykar, folhas finas de acabamento caro ao lado de rolos comuns de produção em massa, cadernos, potes de tinta, pequenas prensas de mão encostadas num canto.
+O lugar cheirava a fibra seca e tinta fresca, prateleiras cheias de pacotes marcados como papel de Seykar, folhas finas de acabamento caro ao lado de rolos comuns, cadernos, potes de tinta, pequenas prensas de mão num canto.
 
 — Ei! Menina!
 
@@ -348,13 +344,13 @@ Os funcionários olharam para a porta, depois para Elis, e alguma coisa no rosto
 
 Por um instante, quase deu certo.
 
-Perdeu os perseguidores por tempo suficiente para encostar numa parede e respirar com dificuldade, o peito subindo e descendo rápido demais, o braço arranhado, a roupa cara rasgada num ombro, a perna manchada de tinta azul, o xale de Ladira ainda preso aos ombros, torto, mas ainda ali.
+Perdeu os perseguidores por tempo suficiente para encostar numa parede e respirar com dificuldade, o braço arranhado, a roupa cara rasgada num ombro, a perna manchada de tinta azul, o xale de Ladira ainda preso aos ombros, torto, mas ali.
 
 Entre dois prédios, à distância, viu Teryon.
 
 A estátua. Sua referência.
 
-Se chegasse até ali, sabia qual rua seguir depois, qual cruzamento tomar, qual caminho a levaria de volta para baixo, para fora dos muros altos, de volta ao mundo que conhecia de verdade.
+Se chegasse até ali, sabia qual rua seguir, qual cruzamento tomar, qual caminho a levaria de volta para baixo, para fora dos muros altos, ao mundo que conhecia de verdade.
 
 Ia conseguir.
 
@@ -362,17 +358,17 @@ Foi então que ouviu o rosnado.
 
 Não vinha de Mero, nem de Suri, nem de Vala. Vinha de outro lugar, mais perto, um som grave e treinado demais para ser qualquer cátilo perdido de rua.
 
-Correu de novo, e agora já sentia o corpo cansado de um jeito diferente, as pernas pesando mais do que deviam a cada passo.
+Correu de novo, o corpo cansado de um jeito diferente, as pernas mais pesadas a cada passo.
 
-Tentou ganhar altura de novo, subindo numa estrutura de madeira encostada num muro, passando por uma cobertura inclinada, saltando para o telhado seguinte. O pé pegou mal na borda, ainda molhada da chuva, e ela caiu.
+Tentou ganhar altura, subindo numa estrutura de madeira encostada num muro, passando por uma cobertura inclinada, saltando para o telhado seguinte. O pé pegou mal na borda molhada, e ela caiu.
 
-Primeiro sobre um toldo de tecido grosso, que rasgou com um som seco sob o peso dela. Depois no chão de uma passagem lateral, onde a água e a lama dos últimos dias ainda não tinham secado de vez. O joelho bateu na pedra e abriu, uma dor aguda subindo pela perna inteira, sangue se misturando à lama.
+Primeiro sobre um toldo de tecido grosso, que rasgou com um som seco sob o peso dela. Depois no chão de uma passagem lateral, onde a lama dos últimos dias ainda não secara. O joelho bateu na pedra e abriu, uma dor aguda subindo pela perna inteira, sangue se misturando à lama.
 
 Não torceu o tornozelo. Conseguiu se levantar, mancando só nos primeiros passos, e correu mesmo assim, o joelho gritando a cada impacto contra o chão.
 
 Atrás, os gritos reapareceram, mais perto do que antes.
 
-Reconheceu a região. Mais um trecho, talvez dois, e a estátua estaria perto o bastante para servir de guia até a avenida principal, até o portão que separava a Cidade Interna da Intermediária. Ia conseguir.
+Reconheceu a região. Mais um trecho, talvez dois, e a estátua serviria de guia até a avenida principal, até o portão que separava a Cidade Interna da Intermediária.
 
 Elis virou uma passagem estreita entre dois muros altos, os pulmões ardendo, e parou.
 
@@ -384,7 +380,7 @@ Procurou qualquer coisa. Uma janela. Uma escada. Um buraco na parede. Qualquer e
 
 Não havia nada.
 
-Hadris a observou por um instante mais longo do que precisava, os olhos passando pelo xale caro e rasgado, pela mancha de tinta azul na perna, pela lama, pelo sangue escurecido no joelho, pelo braço arranhado, pelo peito subindo e descendo como se fosse se partir a qualquer momento.
+Hadris a observou por um instante mais longo do que precisava, os olhos passando pelo xale caro e rasgado, pela tinta azul na perna, pela lama, pelo sangue escurecido no joelho, pelo peito subindo e descendo como se fosse se partir.
 
 Aproximou-se apenas o suficiente.
 

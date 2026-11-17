@@ -162,7 +162,7 @@ Maelis olhou de novo para a tábua.
 
 — Para alguém pequeno, bastava. Para alguém que depois se tornou grande... bastava ainda mais, porque ninguém queria ser o primeiro a admitir que não verificou antes.
 
-Kaelina ficou em silêncio. Ylvena e Daryon vinham de Noreval, e os anexos que impediram a execução dela tinham sido apresentados por ele.
+Kaelina ficou em silêncio.
 
 — Noreval — disse Kaelina.
 
@@ -212,7 +212,7 @@ A chuva engrossou quando ela deixou Kaendar pela rota noroeste. A Ramagem, refei
 
 Dois guardas vinham atrás, longe o suficiente para não ouvir. Eram homens que Edran teria escolhido, e o espaço vazio à direita de Kaelina ainda doía.
 
-A rota cruzava aldeias dependentes, currais, zonas de lenha e depósitos menores. Pessoas tocavam testa e peito ao vê-la; algumas mães puxavam as crianças para dentro de casa.
+A rota cruzava aldeias dependentes, currais, zonas de lenha e depósitos menores. Pessoas tocavam testa e peito ao vê-la, e algumas mães puxavam as crianças para dentro de casa.
 
 Noreval apareceu depois de uma curva baixa entre colinas úmidas.
 
@@ -236,7 +236,7 @@ O homem demorou um instante além do aceitável. Mas Kaelina viu.
 
 Kaelina olhou para a ponte, o poço e a mulher velha que mantinha os olhos no chão.
 
-— Noreval não fica em nosso limite. A cidade foi atacada?
+— Noreval não fica em nosso limite. A aldeia foi atacada?
 
 — Não.
 
@@ -252,7 +252,7 @@ O homem pareceu aliviado.
 
 Moradores baixavam a cabeça quando Kaelina passava, mas ninguém parecia feliz em vê-la.
 
-Ela passou pelo poço, por uma oficina onde um rapaz remendava sela de tarrak, por uma barraca que vendia pão de raiz escura endurecido em folhas de vedação, e parou diante de uma casa baixa de porta larga. Lá dentro havia vozes, cheiro de caldo, fumaça úmida e bebida fermentada de grão-de-caule. A casa de medida pouco lembrava as tavernas do anel baixo. Ali, homens bebiam pouco para falar muito; combinavam contratos pequenos, transformavam lenha em promessa e promessa em briga.
+Ela passou pelo poço, por uma oficina onde um rapaz remendava sela de tarrak, por uma barraca que vendia pão de raiz escura endurecido em folhas de vedação, e parou diante de uma casa baixa de porta larga. Lá dentro havia vozes, cheiro de caldo, fumaça úmida e bebida fermentada de grão-de-caule. O lugar pouco lembrava as tavernas do anel baixo. Ali, homens bebiam pouco para falar muito. Combinavam contratos pequenos e transformavam lenha em promessa e promessa em briga.
 
 A placa dizia Casa de Bofgro. Quando Kaelina entrou, as conversas diminuíram e o dono tocou testa e peito.
 
@@ -544,13 +544,13 @@ Savel demorou a responder.
 
 Savel apontou para a metade escurecida sobre a mesa.
 
-— Uma vez, tinha uns oito ciclos, convenceu três crianças a trocarem pedaços de maçã-de-barro entre si até uma delas achar que tinha ganhado mais. No fim, ele ficou com a parte doce e ainda fez o outro agradecer. Quando perguntei como, disse que ninguém quer a fruta; querem sentir que escolheram melhor.
+— Uma vez, tinha uns oito ciclos, convenceu três crianças a trocarem pedaços de maçã-de-barro entre si até uma delas achar que tinha ganhado mais. No fim, ele ficou com a parte doce e ainda fez o outro agradecer. Quando perguntei como, disse que ninguém quer a fruta. Querem sentir que escolheram melhor.
 
 Kaelina ficou quieta.
 
 — Isso parece Daryon.
 
-Kaelina olhou para a chuva na janela.
+Ela olhou para a chuva na janela.
 
 — Ylvena foi acusada pela morte do meu pai — disse Kaelina.
 
@@ -584,7 +584,7 @@ Kaelina lembrou das outras provas convenientes que vinham cercando a guerra.
 
 A chuva bateu mais forte no telhado.
 
-— Ouvi homens dizer que ela tinha ido para terras Tondrar. Há uma vila na garganta, nem tondrar nem Polar. Onde dizem que vivem pessoas sem nome.
+— Ouvi homens dizer que ela tinha ido para terras Tondrar. Há uma vila na garganta, nem Tondrar nem Polar. Onde dizem que vivem pessoas sem nome.
 
 Savel tossiu. Kaelina encheu o copo de água apesar do gesto irritado dele.
 
@@ -672,7 +672,7 @@ Ele não respondeu. Kaelina abriu a porta. A chuva entrou com força, trazendo c
 
 Kaelina virou-se. Savel estava de pé junto à mesa, mais curvado do que antes. A luz da lamparina deixava seu rosto quase transparente, os ossos marcados, os olhos fundos brilhando com uma tristeza antiga que ele parecia odiar exibir.
 
-— Se falar com ele — disse o velho — Diga ao meu filho que uma raiz arrancada ainda sabe de que terra veio. E diga que eu vi quando ele olhou para trás.
+— Se falar com ele — disse o velho —, diga ao meu filho que uma raiz arrancada ainda sabe de que terra veio. E diga que eu vi quando ele olhou para trás.
 
 Kaelina saiu e fechou a porta.
 

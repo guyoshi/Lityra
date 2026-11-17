@@ -128,7 +128,7 @@ Por que ela apareceu? Nenhum espírito nunca me atacara antes.
 
 Levantei, abri a porta e fui à cozinha, correndo ao telefone para ligar para o meu pai, mas um gemido agonizante, bem perto, me fez parar. Olhei em volta, nada, o coração disparado e o suor frio. Peguei o telefone e um pó escuro caiu no meu ombro. Olhei para cima. Ela estava presa ao teto, como uma aranha, e não parecia ter notado a minha presença, virando a cabeça devagar como quem tenta ouvir algo. Recuei, controlando a respiração, e ela continuou imóvel.
 
-Foi aí que o telefone tocou. O barulho cortou o silêncio como um grito, ela virou na mesma hora, e num segundo saltava em minha direção. Desviei por pouco, mas senti as unhas rasgando meu braço, gritei de dor, corri até a porta e saí para a rua, ofegante, com o sangue escorrendo pelo rosto e pelo braço. Atravessei sem olhar para os lados e trombei com alguém. Nós dois caímos, e meu joelho raspou no chão. Levantei meio tonta.
+Foi aí que o telefone tocou. O barulho cortou o silêncio como um grito, ela virou na mesma hora, e num segundo saltava em minha direção. Desviei por pouco, mas senti as unhas rasgando meu braço, gritei de dor, corri até a porta e saí para a rua, ofegante, com o sangue escorrendo pelo rosto e pelo braço. Atravessei sem olhar para os lados e trombei com alguém. Nós dois caímos, e meu joelho raspou no chão. Tentei me levantar, tonta, mas fiquei apoiada num joelho.
 
 — Ô, jamanta, olha por onde anda… Ei, Jennifer? — a voz mudou de tom. — O que aconteceu com você?
 

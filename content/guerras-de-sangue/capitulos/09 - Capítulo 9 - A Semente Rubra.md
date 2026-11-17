@@ -20,7 +20,9 @@ Nynestra Buldar observava tudo da sombra de um velho poste de irrigação. Não 
 
 A Mão da Colheita só conduzia o rito em casos especiais. Aquele jovem vinha de uma família de canais menores, e Nynestra preferia observar.
 
-Nynestra usava apenas um Nó de Semente escuro no pulso. Cabelos presos sob uma faixa de pano, roupas em vermelho-terra e castanho, olhos atentos. Mesmo fora do centro, todos sabiam onde ela estava. O jovem colocou as sementes manchadas de sangue na cova: grão-de-caule da família, três raízes vermelhas jovens e um punhado de sementes antigas que a avó dele provavelmente contara mais vezes do que beijara os próprios netos. Cobriu tudo com terra comum. Depois, obedecendo ao rito, pressionou a palma ferida sobre o chão. O Guardião de Semente falou:
+Nynestra usava apenas um Nó de Semente escuro no pulso. Cabelos presos sob uma faixa de pano, roupas em vermelho-terra e castanho, olhos atentos. Mesmo fora do centro, todos sabiam onde ela estava.
+
+O jovem colocou as sementes manchadas de sangue na cova: grão-de-caule da família, três raízes vermelhas jovens e um punhado de sementes antigas que a avó dele provavelmente contara mais vezes do que beijara os próprios netos. Cobriu tudo com terra comum. Depois, obedecendo ao rito, pressionou a palma ferida sobre o chão. O Guardião de Semente falou:
 
 — Recebeu pão antes de saber plantar. Recebeu nome antes de saber responder. Recebeu campo antes de saber defender. Agora teu sangue sabe o caminho da semente.
 
@@ -332,7 +334,7 @@ Ele respirou devagar.
 
 — Ele ignorou.
 
-Nynestra olhou outra vez para a fivela. Rendar apontou agora para a flecha partida e para a haste de estandarte.
+Nynestra olhou outra vez para a fivela. O homem apontou agora para a flecha partida e para a haste de estandarte.
 
 — Segui o rastro depois do massacre. Encontrei sinais de luta no caminho proibido. Flechas Polar. Pedaço de estandarte. Couro rasgado. Sangue antigo. Marcas de botas de gente treinada. E marcas de Raukhar.
 
@@ -348,7 +350,7 @@ Ele fechou os dedos em volta da fivela.
 
 — Então transformaram a morte dele em acusação contra nós.
 
-Nynestra não respondeu. Rendar apontou para o tecido escuro.
+Nynestra não respondeu. Ele apontou para o tecido escuro.
 
 — Os homens que destruíram Velarim não eram Tondrar. Não tinham tinta, nem cheiro de fortaleza. Não traziam tambor, marca, osso, nem fome Tondrar. Eram homens sem rosto. Couro seco, lâmina boa, passos medidos. Sabiam onde cortar, onde ficavam as cordas de fuga, como travar ponte falsa, como fazer armadilha Fendelar matar Fendelar.
 
@@ -364,7 +366,7 @@ A voz dele não subiu. Isso a tornou pior. Nynestra estudou-o por alguns instant
 
 — Então está trazendo suspeita, não prova.
 
-Rendar ergueu os olhos para ela.
+O homem ergueu os olhos para ela.
 
 — Estou trazendo rastro.
 
@@ -484,13 +486,13 @@ Nynestra por fim riu. Foi curto. Seco. Sem alegria.
 
 Rendar levantou-se devagar. A luz mostrou a fitinha escura, pequena demais para seu pulso e marcada de sangue velho. Nynestra viu e não perguntou.
 
-— Quero que vocês chamem outros clãs — disse Rendar. — Por todas as razões possíveis. Chamem por interesse, por medo, por fome — chamem porque, se os Polar engolirem um por um, todos acabarão pagando taxa para respirar.
+— Quero que vocês chamem outros clãs — disse Rendar. — Por todas as razões possíveis. Chamem por interesse, por medo, por fome. Chamem porque, se os Polar engolirem um por um, todos acabarão pagando taxa para respirar.
 
 — Quais clãs? — perguntou Orven, antes de se conter.
 
 Rendar olhou para ele.
 
-— Vendrar. Urtistar. Cendar. Glydar. Os próprios Tondrar. Qualquer povo que tenha motivo para desconfiar de Kaendar. Qualquer clã que saiba que os Polar não querem aliados; querem dependentes.
+— Vendrar. Urtistar. Cendar. Glydar. Os próprios Tondrar. Qualquer povo que tenha motivo para desconfiar de Kaendar. Qualquer clã que saiba que os Polar não querem aliados. Querem dependentes.
 
 Nynestra cruzou os braços.
 
@@ -526,7 +528,7 @@ Nynestra ergueu uma sobrancelha.
 
 Rendar ligou Buldar e Tondrar no desenho.
 
-— Se aparecem juntos, Kaendar sente. Buldar alimentam o suficiente para os Tondrar não cederem; Tondrar oferecem passagem e proteção onde campo aberto não protege.
+— Se aparecem juntos, Kaendar sente. Buldar alimentam o suficiente para os Tondrar não cederem. Tondrar oferecem passagem e proteção onde campo aberto não protege.
 
 — Jamais nos uniríamos com nossos inimigos — disse um Mestre de Celeiro.
 
@@ -598,4 +600,4 @@ Por fim, se virou mais uma vez para Rendar e apontou para o desenho no chão.
 
 Olhou para a terra marcada de carvão.
 
-—...veremos que tipo de raiz nasce.
+— ...veremos que tipo de raiz nasce.

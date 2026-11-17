@@ -1,132 +1,82 @@
-Banjo demorou para entender que estava de cabeça para baixo, porque o céu embaixo era tão bonito quanto o de cima. O roxo ia virando rosa mais para o fundo e depois verde-água, e no meio dessas cores as pedras subiam e desciam sem pressa, e nenhuma delas fazia questão de saber onde ficava o chão. Ele esticou um dedo e tocou a mais próxima. Era morna, lisa, do tamanho de um ovo de codorna, e quando o dedo encostou ela deu uma nota só, clara e redonda, igual à de um copo de água quando alguém passa o dedo molhado na borda. A luz de dentro cresceu um instante, depois voltou a respirar devagar.
+Banjo demorou para entender que estava de cabeça para baixo, porque o céu embaixo era tão bonito quanto o de cima. O roxo ia ficando rosa e depois verde-água, e pedras de todos os tamanhos flutuavam entre um céu e outro. Ele tocou uma do tamanho de um ovo; era morna, lisa, e respondeu com uma nota tão clara que as pedras próximas acenderam.
 
-— Ela cantou — disse, tão baixinho que nem ele ouviu direito.
+— Ela cantou — sussurrou.
 
-Ninguém respondeu. Bruno continuava de boca aberta no meio do ar, com a lanterna esquecida na mão, e Banjo achou aquele silêncio do irmão a coisa mais esquisita do lugar inteiro, mais esquisita que as pedras e que o rio de luz dourada. Sentiu uma vontade de rir que não era de graça. Era uma coisa maior, que enchia o peito e não tinha por onde sair.
+Farol saiu da mochila e começou a nadar no vazio, de patinhas abertas, deixando uma espiral dourada com a cauda. Bruno estava com a boca aberta e a lanterna esquecida na mão.
 
-Farol se desenrolou da mochila e saiu flutuando de barriga para cima, de patinhas abertas, com a cauda acesa desenhando um círculo dourado atrás dele. Parou no ar, surpreso, e mexeu as patas como quem nada. Um calor bom subiu pelo peito de Banjo, que era o jeito de Farol contar as coisas, e dizia, sem palavra nenhuma, que aquilo era a melhor ideia que alguém já tivera.
+— Eu tô boiando!
 
-— Gente — disse Shirley, e a voz dela veio sem a risada de sempre, só um pouco rouca. — A gente está dentro de um globo de neve. Só que sem neve e sem vidro.
+— E para onde vai cair? — perguntou Ferris, sério demais para não estar brincando.
 
-— Não tem chão — disse Ferris.
+Bruno riu, e três pedras giraram, soltando notas distintas. O acorde permaneceu no ar.
 
-— Tá, tá, tá. — Bruno enfim fechou a boca, abriu de novo e olhou para as botas, que balançavam no vazio a um metro e meio de qualquer coisa. — Eu vou cair?
+— A Bia ia amar isso — disse, de repente. — Ia dar nome pra cada pedra.
 
-— Para onde? — perguntou Ferris, com a cara muito séria, e foi a primeira vez que Banjo o viu quase sorrir.
+— Aquela grandona seria Carlinhos — respondeu Banjo.
 
-Bruno soltou uma gargalhada tão alta que três pedras grandes giraram assustadas e cantaram em notas diferentes, uma grave, uma média e uma fina, e as três juntas fizeram um acorde que ficou no ar mais tempo do que devia. Ele tapou a própria boca com as duas mãos e riu por entre os dedos, de olhos arregalados.
+— Carlinhos — repetiu Bruno, sorrindo.
 
-— Mano, eu tô boiando! Eu tô boiando e nem fiz nada! Eu só pulei lá da Central e agora tô aqui, e o Breno ia dizer que isso é impossível, e a Bia ia... — Parou. A risada foi ficando fina e acabou num pigarro. — A Bia ia querer girar até vomitar. Ia dar nome pra cada pedra.
+Aprenderam a se mover empurrando as pedras com os pés. Bruno saiu rodando no ar, e Banjo puxou o cinto dele por telecinese, primeiro com cuidado, depois com força demais. O irmão bateu as costas numa pedra maior; o impacto fez o chão inexistente vibrar numa nota grave.
 
-Ninguém disse nada, e as pedras cantaram mais um pouco por conta própria, e foi Banjo quem respondeu, em voz baixa:
+Shirley encostou os dedos numa pedra próxima. Uma faísca correu de uma para outra, cruzando o horizonte em linhas amarelas. Cada luz nova acrescentou uma nota à anterior, e a música se espalhou pelo céu de pedra em pedra, atravessando até o rio de luz dourada. Os quatro ficaram imóveis no ar, ouvindo. Banjo só reparou nas lágrimas quando os óculos embaçaram.
 
-— Ia chamar aquela de Carlinhos. Aquela ali, a grandona.
+— Eu só encostei — disse Shirley, admirada.
 
-— Carlinhos — disse Bruno, e riu de novo, sem som, com os ombros balançando. — Ia ser o Carlinhos.
+— Faz de novo — pediu Bruno.
 
-Aprenderam a se mexer do pior jeito possível, que é errando. Bruno empurrou uma pedra com o pé para ir até Shirley, e a pedra foi para um lado e ele para o outro, rodando devagar como um peru no espeto, enquanto gritava que não estava gostando e ria ao mesmo tempo. Banjo estendeu a mão e usou a telecinese, só um puxão curto no cinto do irmão, e Bruno parou de rodar e começou a flutuar na direção dele, de braços e pernas abertos.
+Ela fez. Até Farol parou de nadar para escutar.
 
-— Isso foi mágica? — perguntou Bruno, olhando a própria barriga.
+Depois descobriram que naquele lugar qualquer brincadeira podia virar uma viagem. Ferris partiu de uma pedra do tamanho de um armário e voltou de cabeça para baixo, com a capa batendo, depois de ricochetear por uma fileira inteira.
 
-— Foi. — Banjo sentiu o rosto esquentar. — Tipo puxar uma pipa.
+— Dois a zero — disse, ajeitando o capacete.
 
-— Então me puxa de novo, que eu tô gostando.
+— Dois a zero em quê? — perguntou Bruno.
 
-Banjo puxou, devagar, e depois sem querer puxou rápido demais, e Bruno bateu de costas numa pedra grande, que cantou fundo, uma nota que ele sentiu até nos dentes e que fez as pedras pequenas em volta acenderem uma a uma, como as janelas de uma rua quando anoitece. Shirley passou a mão no ar e as faíscas dos dedos dela correram para a pedra mais próxima. O que aconteceu em seguida durou poucos segundos e Banjo ia lembrar dele por muito tempo. A luz das faíscas pulou de pedra em pedra, uma depois da outra, afastando-se em linhas finas até o horizonte, e cada pedra que acendia soltava uma nota, e as notas viraram uma melodia sem dono, que começou grave, subiu devagar e terminou numa ponta de sino quase invisível, lá longe, onde o rio de luz dava a volta.
+— Você está perdendo. É o que importa.
 
-Ninguém se mexeu. Até Farol parou de nadar e ficou com a cabeça inclinada, as orelhas de lado, ouvindo.
+Bruno criou uma escada de gelo, degrau por degrau, que subia para lugar nenhum. Shirley e Banjo subiram rindo; como não havia cima, a escada os levou de lado. Bruno amarrou uma corda à própria cintura e à de Banjo, «para ninguém boiar pro espaço», e os dois acabaram enroscados na escada, numa pedra e na lanterna de Farol. Ferris os desatou rindo.
 
-— Eu não queria fazer isso — sussurrou Shirley, e olhava os dedos como se não fossem dela. — Foi só encostar.
+Foi Farol quem encontrou os peixes. Um cardume de corpos prateados, finos como folhas, nadava pelo ar ao lado do rio luminoso. Tinham olhos grandes e barbatanas compridas. Aproximaram-se de Banjo e tocaram-lhe o dedo com os focinhos, curiosos.
 
-— Faz de novo — disse Bruno, tão baixo que quase não saiu.
+— Eles não têm medo — disse Banjo.
 
-Ela fez de novo, mais devagar, e a melodia desceu outra vez por outro caminho, e os quatro ficaram no meio do ar com os rostos virados para cima e para os lados, cada um olhando uma ponta do céu, e Banjo só percebeu que estava chorando um pouquinho quando a lente dos óculos embaçou. Ele limpou com a manga, depressa, e ninguém reparou, ou fingiu que não.
+— Nem de você? — perguntou Bruno, ainda com a corda em volta do pescoço.
 
-Depois da melodia, o resto do dia foi de brincadeira, e Banjo achou que a palavra dia nem cabia, porque ali não havia sol nem sombra para dizer a hora. Ferris foi o primeiro a descobrir como se faz. Agachou numa pedra do tamanho de um armário, empurrou com as duas botas e partiu como uma bala de borracha, ricocheteando de pedra em pedra, de capacete e capa batendo, deixando atrás de si uma linha fina de poeira de luz. Ele desceu, subiu, fez uma curva que não devia ser possível e voltou de ponta-cabeça, e quando passou por Bruno pegou o casaco dele de raspão, e os dois rodaram juntos, gritando, até baterem numa pedra cantora que soltou uma nota tão feia que Farol rosnou de nojo.
+— De nada. Nunca conheceram alguém que quisesse machucá-los. — Banjo acompanhou o cardume com os olhos. — A Bia era assim quando era bebê.
 
-— Dois a zero — disse Ferris, ajeitando o capacete torto, com a respiração curta e um sorriso enorme que ele não conseguiu esconder. — Pra mim.
+Bruno não fez piada. Os peixes passaram entre eles e seguiram para o rio.
 
-— Que dois a zero? — Bruno esfregou a cabeça. — A gente nem tava jogando!
+Quando Banjo se virou, Shirley havia sumido.
 
-— A gente estava, sim. Você é que ainda não sabia.
+— Cadê ela? — chamou.
 
-Bruno olhou para Ferris com a boca meio aberta. Depois levantou o dedo, mordeu o lábio e estendeu as duas mãos. Do ar nasceu um fio de gelo, claro como um fio de pesca, que se esticou até o fim da vista sem curvar nem cair, porque não havia nada que o fizesse cair, e brilhou como uma linha de vidro. Em cima dele, Bruno fez outra, e outra, e em pouco tempo tinha uma escada de gelo que subia para lugar nenhum, degrau por degrau, com a luz das pedras passando pelos degraus em fatias coloridas.
+Ferris olhou atrás das pedras; Bruno começou a girar no ar, procurando-a e batendo o cotovelo numa rocha cantora.
 
-— Uma escada pro nada — disse, orgulhoso. — Quem quer ser o primeiro?
+— Shirley!
 
-Shirley subiu rindo, e depois de três degraus percebeu que não ia mais alto, que só ia para o lado, e o riso virou uma gargalhada de verdade, aquela de balançar a cabeça. Banjo subiu atrás dela, empurrado pelo vento da própria telecinese, e Ferris passou por cima dos dois como um relâmpago, e Bruno ficou embaixo gritando que o gelo era dele e que ninguém tinha pedido licença.
+— Pra que tanto grito? — veio a resposta, logo atrás.
 
-Foi por causa da escada que Bruno teve a ideia da corda. Ele a tirou da mochila, sacudiu, passou uma ponta pela cintura de Banjo, outra pela própria, e deu um nó que já nasceu torto.
+Ela segurava uma flor branca de pétalas de vidro e sorria, com os cabelos ruivos flutuando à volta da cabeça.
 
-— Pra ninguém boiar pro espaço — explicou. — Se um sair rodando, o outro puxa.
+— Estava presa naquela pedra. Achei bonita. É pra Beatriz, quando a gente encontrar.
 
-— Tem espaço? — perguntou Banjo, olhando em volta.
+Banjo pegou a flor. Girou-a entre os dedos e ouviu uma nota fina, quase tímida. Guardou-a no bolso, e Ferris os chamou de perto do rio.
 
-— Sei lá. Tem tudo, né? Então tem espaço também.
+Numa pedra oca, os riscos de uma faca retinham a luz: seis traços e um laço.
 
-Banjo achou a lógica boa e não discutiu. Ficaram presos um no outro por dois metros de corda grossa, e dez minutos depois estavam atados também às próprias pernas, a uma pedra e a uma lanterna que Farol tinha arrancado da mochila, e Ferris e Shirley tiveram de desamarrar os dois com muita paciência, parando para rir a cada nó.
+— Um a menos do que na Central — disse Ferris.
 
-Foi Farol quem achou os peixes. Banjo viu primeiro um brilho prateado na ponta de uma pedra e depois outro, e quando se virou, havia um cardume inteiro passando bem devagar pela borda do rio de luz. Eram finos como folhas, do comprimento de um braço, com nadadeiras compridas feito penas e olhos grandes e calmos, e nadavam no ar como se o ar fosse água, sem pressa nenhuma. Farol chiou de contente e foi atrás deles, de cauda acesa, rodando, e os peixes não fugiram. Os primeiros chegaram a virar o corpo para ver quem era, e Banjo sentiu deles uma coisa leve e redonda, que era curiosidade e mais nada.
+— Seu pai passou por aqui — respondeu Bruno.
 
-Ele ficou parado, com o coração batendo estranho. Sentir bicho era a única coisa que ele sabia fazer sem pensar, desde pequeno, e em todos os bichos que já tinha sentido havia um fundinho de medo, nem que fosse do vento ou de uma folha seca que se mexesse. Ali, não. Aqueles peixes nunca tinham aprendido o que era ter medo de nada. Chegaram perto, tocaram o dedo dele com o focinho, e foram embora.
+Ferris assentiu. Apontou a fileira de pedras para onde os riscos levavam, e foi quando uma sombra atravessou o céu. Larga como uma casa, negra e sem forma, escureceu o rio. As pedras apagaram-se uma a uma, até a mancha passar e a música regressar.
 
-— Eles não têm medo — disse, para ninguém.
+Farol estremeceu dentro da gola de Banjo.
 
-— Tem uma coisa que não tem medo? — Bruno apareceu de cabeça para baixo na frente dele, com a corda enrolada no pescoço. — Que bicho é esse? Eu tenho medo até de barata.
+— Viram aquilo? — murmurou Bruno.
 
-— Tem medo da barata porque ela voa. — Banjo olhou os peixes sumindo. — Eles nunca viram uma coisa que quisesse machucar. É isso que eu senti. Tipo... — Tentou achar a comparação. — Tipo a Bia quando era bebê, que ria de todo mundo porque ninguém tinha feito nada de mau pra ela ainda.
+— Eu estava vendo os riscos — disse Shirley. — Talvez fosse uma pedra enorme tapando a luz. Vamos antes que a próxima faça o mesmo.
 
-Bruno abriu a boca para dizer alguma coisa, e fechou, e coçou a orelha. Depois enfiou as mãos nos bolsos e ficou flutuando sem dizer nada, olhando os peixes, e nos olhos dele Banjo viu a mesma coisa que sentia no próprio peito, o jeito de ser feliz bem em cima de um buraco.
-
-Foi só depois de algum tempo que Banjo percebeu que não via Shirley.
-
-Olhou à direita, onde ela estava rindo da escada, e não havia ninguém. Olhou para as pedras grandes, e para a escada de gelo, e para o rio.
-
-— Cadê a Shirley? — perguntou.
-
-Bruno girou no ar, depressa demais, e bateu com o cotovelo numa pedra cantora.
-
-— Ela tava aqui agorinha! Eu tava olhando pra ela!
-
-— Eu olhei em volta inteira — disse Ferris, que tinha parado, com uma das mãos no capacete. — Duas vezes. Não estava.
-
-— Shirley! — chamou Banjo, e o grito dele voltou em notas, pedra por pedra, até se perder no fundo roxo. — Shirley!
-
-— Pra que tanto grito? — disse a voz dela, atrás deles, bem perto, calma.
-
-Os três se viraram juntos. Shirley estava ali, encostada numa pedra do tamanho de uma carroça, com uma flor branca de pétalas de vidro entre os dedos e os cabelos subindo em volta da cabeça. Sorria do jeito de sempre.
-
-— Eu fui buscar isto — disse, mostrando a flor. — Estava presa na pedra grande, e eu achei bonita. Vocês estavam olhando para o outro lado.
-
-— Eu olhei atrás da pedra grande — disse Banjo, devagar. — Tinha só a pedra.
-
-— Então você olhou rápido, Banjo. — Ela inclinou a cabeça e estendeu a flor para ele, sorrindo mais. — É para a Beatriz. Quando a gente achar.
-
-Banjo pegou a flor sem saber direito se queria, e a flor era leve e fria e dava uma nota fininha quando ele a girava. Bruno tinha parado de olhar para ela e já estava de novo nas escadas. Ferris continuava olhando o lugar onde ela estivera, com o rosto fechado, e Banjo não sabia dizer se ele achava esquisito ou só estava calculando alguma coisa. Guardou a flor no bolso e esqueceu dela.
-
-Ferris achou a marca perto do rio, numa pedra oca do tamanho de uma casinha de cachorro, com a boca virada para uma fileira de pedras cheias de luz, e chamou os outros sem levantar a voz. Estava agachado na entrada, passando o polegar numa borda lisa. Banjo se aproximou e viu os riscos, feitos com a ponta de uma faca, tão fundos que a luz ficava presa dentro deles. Seis traços curtos, de lado, e depois uma volta em laço.
-
-— Seis — disse Ferris. — Um a menos do que na Central.
-
-— Então a gente tá indo certo — disse Bruno, e a voz tinha um alívio que ele não ia admitir. — Seu pai tava aqui!
-
-— Estava. — Ferris olhou a fila de pedras para onde a pedra oca apontava. — E foi por ali.
-
-Foi quando uma sombra passou.
-
-Banjo sentiu antes de ver. Farol, que dançava sobre o ombro dele, ficou duro de repente e a cauda foi apagando, do dourado ao cinza, e do peito do bichinho subiu uma coisa fria e apertada, o primeiro medo verdadeiro que Banjo sentia naquele mundo. Ele levantou o rosto. Atravessando o céu colorido, devagar e de ponta a ponta, havia uma mancha escura, larga como uma casa, sem forma, sem asa, sem nada que a fizesse existir. Passou por cima do rio de luz e as pedras se apagaram uma a uma, nota por nota, e depois a mancha foi embora para o fundo roxo e as pedras voltaram a acender, como se alguém tivesse tirado a mão de cima delas.
-
-— Vocês viram isso? — Bruno tinha baixado a voz, e estava de olhos fixos no lugar onde a coisa sumira. — Aquilo era grande demais pra ser pedra.
-
-— Vi — disse Ferris.
-
-— Senti — disse Banjo, e abraçou Farol, que tremia.
-
-— Eu estava olhando a pedra oca — disse Shirley, atrás deles, com a voz meio fina. — Não vi nada. Deve ter sido uma pedra enorme passando na frente da luz, não acham? Isso aqui tem muita pedra.
-
-— Pedra não apaga as outras — disse Bruno.
-
-— Pedra apaga, sim, quando passa na frente. — Ela deu um sorriso rápido. — Vamos? Eu acho que o caminho é por ali.
+Ferris recolheu a lanterna e seguiram a fileira luminosa.
 
 Havia uma costura no ar.
 

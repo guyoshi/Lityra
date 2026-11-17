@@ -1,6 +1,6 @@
 — Comece a se explicar — ordenei assim que ficamos a sós numa das salas do hospital.
 
-O pânico tinha um som próprio ali dentro. Não era grito, nem choro. Era o barulho do ar condicionado insistindo num frio artificial, as lâmpadas brancas vibrando, e o meu coração tentando acompanhar o que já tinha acontecido.
+O pânico tinha um som próprio ali dentro: o barulho do ar condicionado insistindo num frio artificial, as lâmpadas brancas vibrando, e o meu coração tentando acompanhar o que já tinha acontecido.
 
 Filipo permaneceu de pé, a alguns passos de mim, com os olhos vermelhos, horas sem piscar.
 
@@ -86,7 +86,11 @@ O médico segurou o meu olhar por um segundo a mais do que precisava. Depois olh
 
 — Não — Filipo respondeu antes de mim, sem levantar o rosto. — Eu… não sei o número do meu pai.
 
-— Quando os policiais chegarem, vocês explicam. Eles vão poder ajudar. — então se virou para Filipo, com uma gentileza cansada. — Rapaz, o seu amigo está bem. E você também. Fique tranquilo.
+— Quando os policiais chegarem, vocês explicam. Eles vão poder ajudar.
+
+Então se virou para Filipo, com uma gentileza cansada.
+
+— Rapaz, o seu amigo está bem. E você também. Fique tranquilo.
 
 Filipo não respondeu. O médico saiu, e o corredor voltou a ter aquele silêncio errado.
 
@@ -148,7 +152,7 @@ Me aproximei e parei ao lado dele.
 
 — Nada que não seja da minha conta, ou nada com que eu deva me preocupar?
 
-— Eu… nunca tive amigos. Nunca soube o que era me importar com alguém que não fosse os meus pais. Mas quando te vi ali no chão, sem ar… eu achei que… — parei; eu não queria que ele me visse chorar. — Há poucas pessoas que tentaram me entender neste mundo, Pedro. E você é… o que eu quero dizer é que eu me importo muito com você.
+— Eu passei anos achando que não precisava de amigos. Tinha meus pais, tinha meus livros e os espíritos, que apareciam mesmo quando eu não queria. Só que hoje, quando te vi ali sem conseguir respirar… — parei, tentando disfarçar as lágrimas. — Fiquei com medo de nunca mais ouvir uma das suas piadas idiotas, Pedro. Não quero perder mais ninguém. Eu gosto de ter vocês na minha vida. Gosto mesmo.
 
 Pedro sorriu.
 
@@ -186,7 +190,7 @@ Pedro olhou para mim e não respondeu. O silêncio dele tinha raízes.
 
 — O Junior não ama ninguém. Ele só pensa nele. Ele não pensou em mim quando beijou a Kelly, nem pensou nela quando puxou o gatilho…
 
-— Ele tentou se matar, Pedro. E eu sei que, pra alguém chegar nesse ponto, ela já deixou de se importar com tudo. Ele era seu amigo. Você era tudo o que ele tinha. A força que ele podia ter depois de tudo o que houve.
+— Ele tentou se matar, Pedro. E eu sei que, pra alguém chegar nesse ponto, ele já deixou de se importar com tudo. Ele era seu amigo. Você era tudo o que ele tinha. A força que ele podia ter depois de tudo o que houve.
 
 Pedro não respondeu, mas eu vi a frase atravessar algo nele. Não como perdão, ainda não, mas como dúvida.
 
@@ -254,7 +258,7 @@ Pedro não respondeu. Virou o rosto para a janela.
 
 — Quer sobreviver? Então temos que nos proteger enquanto você aprende a controlar as suas habilidades como selifa. Quando estiver pronta, enfrentamos o monstro. Por agora, temos que nos esconder.
 
-Eu e Pedro corremos até Filipo e saímos pela porta. O corredor estava escuro e silencioso, e havia pessoas paralisadas por toda a extensão, como num museu de corpos vivos.
+Peguei a mochila que estava ao lado da cadeira. A filmadora continuava lá no fundo, embrulhada no casaco. Eu e Pedro corremos até Filipo e saímos pela porta. O corredor estava escuro e silencioso, e havia pessoas paralisadas por toda a extensão, como num museu de corpos vivos.
 
 — Eu ainda acho isso assustadoramente sinistro — Pedro murmurou. — O que será que essas pessoas sentem quando ficam assim?
 
@@ -288,7 +292,7 @@ Subi os degraus e puxei Filipo com força. Quando ele se soltou, caímos juntos 
 
 Corremos. Pedro quase caiu ao escorregar nas larvas espalhadas no chão.
 
-O chão mudou. Se tornou gradeado. Portas fechadas. No fim do corredor havia uma porta aberta, com a luz morna de um abajur, e do outro lado uma voz de mulher disse o meu nome do jeito que só uma pessoa dizia. "Jen. Vem." A minha vontade foi a de quem tem sono há muito tempo. Os meus pés viraram para lá antes de mim. O Pedro segurou o meu pulso.
+O chão mudou. Se tornou gradeado. Portas fechadas. No fim do corredor havia uma porta aberta, com a luz morna de um abajur, e do outro lado uma voz de mulher disse o meu nome do jeito que só uma pessoa dizia. “Jen. Vem.” A minha vontade foi a de quem tem sono há muito tempo. Os meus pés viraram para lá antes de mim. O Pedro segurou o meu pulso.
 
 — Pra lá não — ele disse, e percebi que ele não via porta nenhuma.
 
@@ -314,6 +318,8 @@ Eu senti a palavra antes de dizê-la.
 
 — São Paulo.
 
+Pensei no meu pai. Se eu contasse que ia para outra cidade porque um monstro estava atrás de mim, ele largaria o trabalho e viria me buscar. Se não contasse nada, ficaria preocupado do mesmo jeito. Prometi a mim mesma que ligaria assim que estivéssemos num lugar seguro. Não podia protegê-lo desaparecendo sem uma palavra.
+
 — Eu tive um sonho. E nele eu vi uma casa com um muro vermelho, numa rua que eu nunca estive antes. Era num morro, e no horizonte tinha casas e prédios enormes até onde dava pra ver. Tenho certeza de que aquilo era São Paulo. De alguma forma, parece que eu sonho com lugares onde ainda vou estar.
 
 — Selifas fazem isso — Filipo disse. — Elas sonham muito. Mas nem sempre os sonhos mostram um bom destino.
@@ -327,5 +333,3 @@ Pedro fez a pergunta que eu já ouvia na minha própria cabeça.
 — Rua Jonas Eudoque dos Santos — eu disse. — Era o que dizia a placa da rua. Com isso, a gente consegue achar o lugar.
 
 — Então vamos de ônibus pra São Paulo e lá pegamos um táxi até esse endereço? — Pedro perguntou.
-
-E eu só consegui pensar numa coisa: se o sonho me mostrou o caminho, não foi para me salvar. Foi porque alguém queria que eu chegasse lá.

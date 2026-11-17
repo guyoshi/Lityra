@@ -1,18 +1,20 @@
-Saí da igreja como quem atravessa uma linha desenhada a giz no chão. A soleira fechou atrás de mim com o som de madeira encaixando e ferro cedendo.
+Saí da igreja e parei na calçada. Alvorada Alegre parecia uma cidade normal outra vez. O sol iluminava os telhados, as janelas estavam abertas, havia pessoas andando com sacolas de compras. Se alguém me deixasse ali sem explicar nada, eu até poderia acreditar que era um sábado tranquilo.
 
-A manhã falsa de Alvorada Alegre tinha uma claridade limpa demais, como fotografia revelada com excesso de produto, sem sombras suficientes para convencer. As casas estavam inteiras, os muros sem manchas, as cortinas alinhadas como se alguém tivesse passado a noite endireitando tecido com paciência de monge.
+Até olhar direito para as pessoas.
 
-As pessoas andavam com sacos nas mãos, bolsa nos ombros, os olhos apontados para a frente, no mesmo ritmo exato de passos, como se seguissem uma música que eu não ouvia. Uma senhora passou a poucos centímetros, o rosto perfeito, a boca ensaiando um sorriso que nunca chegava a acontecer: só a intenção dele, congelada no meio do caminho. Um homem carregava um pão debaixo do braço, mas o pão não tinha cheiro e o braço não tinha calor. Duas crianças corriam brincando de pega-pega, sem risadas; tinham trajetórias, como carrinhos de fricção.
+Uma senhora passou perto de mim sem desviar, olhando sempre para a frente. Um homem carregava um pão que não tinha cheiro nenhum. Duas crianças corriam em círculos perto de um poste, mas não riam. Era como ver um filme em que todos os figurantes tinham recebido a mesma ordem: continuem fazendo o que estavam fazendo.
 
-Eu tentei não olhar para eles. Tinham me dito que se eu olhasse de um jeito errado, alguma coisa olharia de volta. Eu não sabia se era regra, ameaça ou superstição, mas também não queria tirar essa dúvida. 
+Tive vontade de segurar o braço daquela senhora e perguntar o que estava acontecendo. Não fiz isso. Já tinha aprendido que olhar para as coisas erradas naquela cidade podia atrair a atenção de alguém muito pior.
 
-Minha mente parecia uma névoa. As ruas pareciam todas iguais, cada esquina exatamente como a outra. Forcei a mente a escolher uma única coisa para segurar, porque se eu deixasse tudo entrar de uma vez começaria a desmanchar por dentro. Escola. Preciso chegar na escola.
+Precisava chegar à escola. Sala 66, sexto andar. Repeti o endereço mentalmente para não me esquecer. As ruas pareciam todas iguais, mas havia placas a cada esquina apontando para a ESCOLA MUNICIPAL. Placas novas demais. Parecia até que alguém as tinha colocado ali só para mim.
 
-A rua parecia desenhada para me conduzir. Havia placas a cada esquina, com setas demasiado claras: ESCOLA MUNICIPAL. A pintura branca era recente demais, como se tivesse sido retocada ontem, e isso me incomodou mais do que se estivesse velha.
+Isso me irritou. Eu estava cansado de seguir pistas deixadas por monstros, de correr quando mandavam e de nunca saber quem estava no comando. Por um segundo tive vontade de chutar uma daquelas placas. Respirei fundo e continuei. Se o Agouro ainda tinha alguma influência sobre a minha cabeça, perder o controle ali seria exatamente o que ele queria.
 
-Segui as setas, recitando o trajeto para não pensar no resto. A cada quarteirão confirmava que ainda sabia meu nome e o porquê de estar ali. Às vezes, entre uma respiração e outra, a cabeça puxava imagens de Vila Velha: a casa, o peso da arma, a sombra escura de olhos vermelhos. Eu as empurrava de volta, como quem fecha gavetas num armário cheio demais.
+No fim da rua encontrei a escola. O muro alto e o portão de ferro estavam enferrujados de verdade, bem diferentes das fachadas impecáveis da cidade. Pelo menos aquele prédio parecia velho como deveria.
 
-No fim da rua, vi finalmente a escola, com um muro alto e um portão de ferro que parecia mais antigo do que o resto da cidade. O ferro tinha ferrugem real, não a ferrugem bonita de cinema. Era o primeiro lugar de Alvorada Alegre que não parecia montado para me enganar; parecia esquecido, com a teimosia de um prédio que sobreviveu a todas as versões da cidade.
+Não me animei. Em filme de terror, escola abandonada quase nunca é um bom sinal.
+
+Pensei na minha mãe outra vez. A essa altura, talvez estivesse no meu quarto, encontrando os desenhos da Kelly, o toca-fitas quebrado e a cama vazia. Eu queria voltar e dizer que tinha sido um idiota. Mas primeiro precisava sair de Alvorada Alegre com vida.
 
 O portão estava entreaberto. 
 
@@ -22,19 +24,17 @@ Foquei. Escola. Encontrar sala 66. Sexto andar.
 
 A primeira coisa que procurei foi a numeração. No corredor lateral, acima das portas, placas metálicas com números grandes. As primeiras salas iam de 1 a 10.
 
-Entrei no corredor, e o ar ficou mais frio com um único passo, como se eu tivesse atravessado uma cortina invisível. As lâmpadas longas no teto piscavam em intervalos regulares, não por falha elétrica, mas obedecendo a um padrão. Contei sem querer: três segundos acesas, um de sombra. Três e um. Três e um.
+Entrei no corredor e senti o ar gelar. As lâmpadas piscavam num ritmo estranho. Contei sem querer: três segundos acesas, um apagadas. Três e um. Três e um. Tentei parar de contar, mas a minha cabeça continuou sozinha.
 
 As paredes exibiam trabalhos escolares em molduras improvisadas: poemas sobre a pátria, desenhos de família, contas de matemática com caneta azul. Uma parte de mim quis rir, porque era o cenário mais banal do mundo, e era justamente isso que o tornava um insulto. Se a cidade queria ser maldosa, não precisava de monstros naquele momento; bastava fingir que nada tinha acontecido.
 
-Passei pelas portas fechadas. Algumas tinham vidro, e no vidro eu via o reflexo de um corredor vazio, ainda que eu estivesse ali. O meu reflexo, às vezes, atrasava um milésimo, como se eu mesmo fosse uma imagem a caminho de acontecer.
+Passei por várias salas fechadas. Algumas portas tinham vidro, mas quando olhava para elas não via o meu reflexo direito. Uma vez me virei e tive a impressão de que o garoto no vidro continuou olhando para a frente. Não quis conferir de novo.
 
-Encontrei as escadas no fim do corredor: um lance largo, degraus de pedra com o centro gasto, corrimão de metal frio, e uma placa indicando os pisos, de “1” até ao “6”. O sexto parecia mais escuro na placa, como se a tinta tivesse sido escolhida para absorver luz.
+Encontrei a escada no fim do corredor. Havia uma placa indicando os andares, do primeiro ao sexto. Passei a mão no corrimão gelado e comecei a subir.
 
-Subi.
+Subi as escadas devagar. A cada andar parava para escutar. No primeiro, ouvia o eco dos meus passos. No terceiro, já parecia haver alguém andando atrás de mim. No quinto, um ruído de giz arranhando o quadro veio de algum lugar acima. Eu devia ter voltado. Continuei.
 
-Subi pensando em não pensar no coração. O meu corpo guardava aquele cansaço que não é físico; é o de ter sobrevivido a coisas que não cabiam dentro de mim. A cada piso eu parava um segundo para me certificar de que o mundo ainda obedecia. Os sons mudavam subtilmente: no primeiro andar o silêncio tinha uma distância normal; no terceiro parecia mais perto do ouvido; no quinto já tinha textura, como espuma densa.
-
-Quando cheguei ao sexto, as pernas estavam pesadas e a garganta seca. O corredor era mais estreito e o ar tinha um cheiro entre papel velho e terra molhada. Duas lâmpadas falhavam, e o padrão de piscar agora parecia irregular, como se perdesse a paciência de manter a ordem.
+Quando cheguei ao sexto andar, as pernas doíam. O corredor era estreito e cheirava a papel velho e terra molhada. Duas lâmpadas piscavam sem parar. Encostei na parede e esperei o coração desacelerar.
 
 Eu ouvi uma voz.
 
@@ -46,7 +46,7 @@ Me aproximei e empurrei a porta com cuidado.
 
 A sala estava iluminada. Crianças sentadas, cadernos abertos, lápis nas mãos, mochilas penduradas nas cadeiras. Ao fundo um quadro verde com giz branco, e um professor em pé, camisa social clara, mangas arregaçadas, como numa terça-feira comum no meio do ano. Falava naturalmente, apontando para o quadro, caminhando entre as carteiras com a autoridade tranquila de quem sabe que, mesmo quando ninguém entende, todos fingem entender.
 
-Entrei como se tivesse entrado num sonho que não me reconhecia.
+Entrei devagar. Se aquilo fosse um dos meus livros, eu já estaria gritando para o personagem dar meia-volta. O problema era que, daquela vez, o idiota que continuava andando era eu.
 
 Caminhei entre as carteiras e nenhuma criança virou o rosto. Ninguém piscou para me acompanhar. Um menino passou a borracha no papel com força, fazendo farelos de borracha caírem no chão. 
 
@@ -70,11 +70,11 @@ Ele escreveu no canto: J, P, K, V, P, J.
 
 Eu senti o mundo ficar um pouco mais inclinado. Aquelas iniciais… Junior, Priscila, Kelly, Vini, Pedro e Jennifer. 
 
-Não era possível. Era só coincidência, só letras, só um exercício, só uma aula. E, ainda assim, o meu peito apertou como se alguém tivesse agarrado os meus pulmões com a mão.
+Não era possível. Devia ser coincidência. Eram só letras escritas num quadro. Repeti isso para mim mesmo até quase acreditar. E, ainda assim, o meu peito apertou como se alguém tivesse agarrado os meus pulmões com a mão.
 
 — A personagem de inicial K escolheu o caminho errado, por isso, foi cortada fora. Os outros estão todos sendo caçados por um monstro. Agora, imaginem que esse “J” tem uma tarefa — ele continuou, num tom tão normal que parecia ensaiado para doer. — Uma tarefa que pertence apenas a ele. E que ele deve realizar. Porque se não o fizer… os outros personagens irão todos… se encontrados. 
 
-As crianças copiavam. Copiavam como se estivessem copiando um texto qualquer de português. Nenhuma expressão mudou.
+As crianças copiavam tudo sem olhar para mim. Nenhuma parecia achar aquela aula estranha. Nenhuma expressão mudou.
 
 — J entra numa cidade. E nessa cidade tem a única coisa que pode parar este monstro… — o professor deixou a frase no ar, como se não precisasse terminar. — Então, o “J” precisa subir seis andares e encontrar uma porta específica. Uma porta com dois algarismos iguais. E dentro da porta… ele deve encontrar aquilo que pode matar o monstro e salvar os outros personagens. 
 
@@ -84,7 +84,7 @@ Ele se virou para a turma e sorriu de um jeito correto demais.
 
 — E agora a pergunta final: se o “J” tem uma missão que é destruir o monstro… o que acontece quando ele decide que não ouviu o chamado?
 
-O silêncio não veio de imediato. Primeiro as páginas pararam de virar. Depois os lápis pararam no papel. Depois a sala inteira ficou imóvel, como se alguém tivesse apertado um botão.
+O silêncio não veio de imediato. Primeiro as páginas pararam de virar. Depois os lápis pararam no papel. Depois a sala inteira ficou imóvel. Nem o professor se mexeu.
 
 E então os pescoços viraram para mim.
 
@@ -102,7 +102,7 @@ O meu pé esmagou outra larva, e o estalo foi o único som na sala. As crianças
 
 Eu saí.
 
-Saí sem correr, mas apressado. Fechei a porta atrás de mim com cuidado, como se a delicadeza pudesse apagar o que aconteceu, e me vi de volta ao corredor do sexto andar, o coração querendo arrebentar as costelas.
+Saí depressa, mas sem correr. Fechei a porta e tentei não fazer barulho, e me vi de volta ao corredor do sexto andar, o coração querendo arrebentar as costelas.
 
 A luz piscou.
 
@@ -130,9 +130,9 @@ Apanhei uma barra de metal encostada ao canto, provavelmente parte de uma cadeir
 
 A luz piscou.
 
-Foi rápido, mas a sala pareceu mudar de temperatura, como se alguém tivesse aberto um freezer em plena cara. No segundo seguinte, quando a lâmpada estabilizou, ela estava lá.
+A temperatura caiu de repente. Senti o rosto gelar. No segundo seguinte, quando a lâmpada estabilizou, ela estava lá.
 
-Manu surgiu num canto, encostada na parede como se sempre tivesse estado ali. O meu corpo reagiu antes de mim; eu dei um salto curto para trás, e o coração deu um soco seco no peito. Ela não se mexeu. Só me olhou, o mesmo olhar vazio que eu já tinha visto em Suéten ou Ingrid, no ano anterior.
+Manu estava encostada num canto onde segundos antes não havia ninguém. O meu corpo reagiu antes de mim; eu dei um salto curto para trás, e o coração deu um soco seco no peito. Ela não se mexeu. Só me olhou, o mesmo olhar vazio que eu já tinha visto em Suéten ou Ingrid, no ano anterior.
 
 — O que… — a minha voz falhou por falta de ar e eu recomecei, tentando não dar a ela o luxo de me ver quebrar. — O que é que você tá fazendo aqui?
 
@@ -142,7 +142,7 @@ Caminhei até o móvel, sentindo a textura do silêncio ficar mais grossa. A poe
 
 Aproximei as mãos do puxador da primeira gaveta e hesitei. Pousei a barra que segurava ao meu lado, olhei para Manu, então puxei.
 
-A gaveta abriu com dificuldade, madeira raspando em madeira, e o cheiro me atingiu em onda. Lá dentro havia milhares de larvas, enroladas umas nas outras, uma massa branca e úmida se mexendo em ondas lentas. Recuei, a bile subindo, e virei o rosto, como se isso pudesse desmentir o que os olhos tinham acabado de receber.
+A gaveta abriu com dificuldade e um cheiro horrível saiu lá de dentro. Lá dentro havia milhares de larvas, enroladas umas nas outras, uma massa branca e úmida se mexendo em ondas lentas. Recuei, a bile subindo, e virei o rosto, como se isso pudesse desmentir o que os olhos tinham acabado de receber.
 
 Quando virei de novo, Manu estava ao meu lado, próxima demais, inclinada sobre a gaveta, olhando para dentro com uma atenção quase reverente.
 
@@ -184,7 +184,7 @@ Virei mais algumas páginas e vi um desenho que me prendeu o fôlego. Um esboço
 
 Manu moveu a mão.
 
-O gesto foi pequeno, quase casual. Mas o livro… o livro respondeu. As páginas começaram a correr sozinhas, uma após outra, como se um vento invisível as folheasse com pressa. Eu senti os dedos gelarem na capa. A folha parou numa página específica.
+O gesto foi pequeno, quase casual. Mas o livro… o livro respondeu. As páginas começaram a virar sozinhas, cada vez mais depressa. Eu senti os dedos gelarem na capa. A folha parou numa página específica.
 
 No centro, escrito em letras grandes, como ordem e sentença ao mesmo tempo, havia uma frase:
 
@@ -230,9 +230,7 @@ Eu não parei.
 
 — Ele tá com seus amigos! — ela insistiu, agora com urgência real demais, como se a verdade fosse um último recurso. — Tá com todos eles. Ele quer trocar… ele quer trocar eles pelo livro. Você precisa destruir! Senão todos vão morrer.
 
-Eu passei pela soleira. E todas as luzes se apagaram.
-
-O corredor mergulhou num breu instantâneo, sem transição, como se a escola tivesse fechado os olhos. E então eu ouvi.
+Eu passei pela soleira. Todas as luzes se apagaram, deixando o corredor inteiro no escuro. E então eu ouvi.
 
 Duas batidas graves, secas e consecutivas.
 
@@ -240,7 +238,7 @@ Não era som no ouvido. Era som dentro da cabeça, como se alguém tivesse batid
 
 Tum. Tum.
 
-Do lado de fora, através das janelas altas do corredor, o céu escureceu com uma velocidade impossível, como se a noite estivesse esperando um sinal para cair.
+Pelas janelas altas, vi o céu escurecer numa velocidade impossível. Em segundos já era noite.
 
 Manu falou atrás de mim, mas não era mais a voz dela. Era uma voz carregada de desapontamento, quase irritada, como se eu tivesse estragado uma cena que deveria sair perfeita.
 

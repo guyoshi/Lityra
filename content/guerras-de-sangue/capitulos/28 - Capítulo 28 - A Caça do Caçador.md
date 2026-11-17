@@ -222,7 +222,7 @@ Ele não soltou imediatamente. O olho restante buscou no rosto de Kaelina algum 
 
 A tranca foi retirada.
 
-A porta menor gemeu. Do lado de fora, a barba-de-tronco pendia das árvores sem esconder pássaros ou pequenos animais; a guerra já expulsara quase tudo que sabia fugir. Um filete de ar frio entrou primeiro, trazendo cheiro de suor, madeira quebrada, barro e sangue. Depois apareceu o espaço do lado de fora, iluminado por fogueiras e pelo início pálido da madrugada que ainda não chegara.
+A porta menor gemeu. Do lado de fora, a barba-de-tronco pendia das árvores sem esconder pássaros ou pequenos animais. A guerra já expulsara quase tudo que sabia fugir. Um filete de ar frio entrou primeiro, trazendo cheiro de suor, madeira quebrada, barro e sangue. Depois apareceu o espaço do lado de fora, iluminado por fogueiras e pelo início pálido da madrugada que ainda não chegara.
 
 Kaelina atravessou. A passagem fechou atrás dela. O som da tranca voltando ao lugar pareceu maior do lado de fora.
 
@@ -340,7 +340,7 @@ Kharvok riu.
 
 — Não estou oferecendo amizade, perdão ou confiança. Estou oferecendo uma escolha que ainda preserva alguma coisa. Retire os Buldar, e levarei diante da Mesa da Raiz os nomes de quem fabricou esta guerra. Os acordos impostos aos seus campos serão revistos diante de testemunhas de outros clãs.
 
-— Não acredito em você Polar — disse Nynestra.
+— Não acredito em você, Polar — disse Nynestra.
 
 — Então me capture. E me use como refém até que cumpramos o acordo.
 
@@ -470,7 +470,7 @@ A porta bateu. As travas voltaram ao lugar segundos antes do primeiro impacto ex
 
 Sarkan limpou a lâmina nas próprias vestes. O sorriso dele não trazia alegria. Trazia cálculo satisfeito.
 
-— Que sorte estar viva, não é soberana?
+— Que sorte estar viva, não é, soberana?
 
 Kaelina ergueu o rosto.
 
@@ -528,7 +528,7 @@ Varron fechou o rosto. Sarkan passou por ele.
 
 — É brincadeira, Meio-Olho.
 
-— Posso ter um olho, mas vejo bem tua mentira Boca-Rasgada.
+— Posso ter um olho, mas vejo bem tua mentira, Boca-Rasgada.
 
 — Melhor usar para garantir que o portão continue de pé.
 
@@ -544,7 +544,7 @@ Kaelina olhou para as colunas de fumaça acima dos telhados.
 
 — Alyra não estará lá.
 
-Varron olhou pra ela, confuso.
+Varron olhou para ela, confuso.
 
 — Conheço minha irmã.
 
@@ -588,7 +588,7 @@ Havia queimaduras em parte da roupa, sangue no ombro e uma ferida profunda junto
 
 Rendar recebeu o golpe, desviou e buscou a lateral da armadura. Kadrir girou, bateu a guarda contra seu rosto e o empurrou para longe.
 
-— Aqui você não tem vantagem Fendelar — disse Kadrir, ofegante. — Não há mata, trilha falsa ou armadilha escondida. Estas paredes são nossas.
+— Aqui você não tem vantagem, Fendelar — disse Kadrir, ofegante. — Não há mata, trilha falsa ou armadilha escondida. Estas paredes são nossas.
 
 Rendar passou o polegar pelo sangue na boca e Kadrir avançou com raiva. A espada desceu pesada. Rendar desviou por pouco, mas o golpe seguinte o atingiu no braço. O corte abriu tecido e pele. Rendar recuou. Os homens de Varron entraram no pátio. Rendar e Kadrir viram. Kaelina ergueu a voz:
 
@@ -814,7 +814,7 @@ Alyra sabia que não era verdade. Não tinha como Daryon saber disso. Daryon rec
 
 Atrás dele, Alyra apoiou um joelho no chão. Rendar não viu. Estava olhando para Daryon.
 
-— E por que implantar o talismã? Queria incrimar Tondrar? Queria que os culpassem.
+— E por que implantar o talismã? Queria incriminar os Tondrar? Queria que os culpassem.
 
 — Eu queria encerrar o que Ylvena começou.
 
@@ -834,7 +834,7 @@ A confissão era a última carta de um homem que contava havia muito quanto temp
 
 Rendar cruzou a distância e prendeu Daryon pelo colarinho, erguendo-o contra o trono.
 
-— Meus filhos eram crianças — A voz saiu rasgada.
+— Meus filhos eram crianças. — A voz saiu rasgada.
 
 Bateu a cabeça de Daryon contra a pedra do trono, uma vez, só para ouvir o som. Daryon deixou o corpo ceder. A mão foi ao lado ferido. Os joelhos dobraram. Rendar soltou o colarinho e abaixou a espada apenas um pouco. Daryon puxou uma lâmina escondida por dentro da roupa e atacou.
 

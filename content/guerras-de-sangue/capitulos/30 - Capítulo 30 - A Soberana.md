@@ -8,7 +8,7 @@ Duas cadeiras permaneciam vazias diante da Mesa da Raiz.
 
 A de Yvenn Raiz-Branca ainda trazia um pequeno entalhe feito por ele junto ao apoio da mão, quatro linhas curvas que ninguém tivera coragem de lixar. A cadeira de Daryon estava limpa demais. Maelis ordenara que retirassem o sangue de seus documentos e objetos, mas não autorizara ninguém a sentar-se ali. Kaelina ainda procurava Daryon com os olhos quando uma discussão se prolongava.
 
-Kaelina sentava-se sozinha na extremidade destinada à soberania. O ombro permanecia enfaixado. Um corte atravessava a testa, desaparecendo sob o cabelo preso; o pintor refizera a Ramagem ao redor da ferida, e o tronco agora começava logo abaixo da cicatriz. A perna ferida obrigava-a a distribuir o peso com cuidado. Não vestia armadura nem manto cerimonial. Usava roupa escura, simples, ajustada o suficiente para não tocar as queimaduras menores no pescoço e nos braços.
+Kaelina sentava-se sozinha na extremidade destinada à soberania. O ombro permanecia enfaixado. Um corte atravessava a testa, desaparecendo sob o cabelo preso. O pintor refizera a Ramagem ao redor da ferida, e o tronco agora começava logo abaixo da cicatriz. A perna ferida obrigava-a a distribuir o peso com cuidado. Não vestia armadura nem manto cerimonial. Usava roupa escura, simples, ajustada o suficiente para não tocar as queimaduras menores no pescoço e nos braços.
 
 Cal Kadrir permanecia junto à porta. O Primeiro Kae tinha o rosto marcado pela luta contra Rendar, a raiz de Calandrir refeita por cima de um corte ainda fresco, e um dos joelhos preso por faixas. Atrás dele, do lado de fora da Câmara, guardas ocupavam o corredor. Não eram visíveis da Mesa, mas todos haviam escutado o metal antes que as portas se fechassem.
 
@@ -68,7 +68,7 @@ Iressa bateu a palma sobre a mesa.
 
 Brokan fechou a boca. Lurok apoiou-se na cadeira.
 
-— Boca-rasgada confirmou que Alyra estava presente quando os Homens das Areias foram contratados. E que prometeu a eles regresso. Mas isso nunca foi discutido aqui, certo, senhores?
+— Boca-Rasgada confirmou que Alyra estava presente quando os Homens das Areias foram contratados. E que prometeu a eles regresso. Mas isso nunca foi discutido aqui, certo, senhores?
 
 Maelis encontrou a tábua correspondente.
 
@@ -226,7 +226,7 @@ Brokan riu.
 
 Kaelina pegou a tira. A mensagem era conveniente demais. Ainda assim, lembrava-se da resposta incompleta de Tavra a Rendar, relatada por um Vendrar capturado, e da ausência de ordens formais encontradas entre os homens.
 
-— Registe como declaração Vendrar — ordenou. — Não como verdade confirmada.
+— Registre como declaração Vendrar — ordenou. — Não como verdade confirmada.
 
 — Pretende aceitar? — perguntou Brokan.
 
@@ -250,7 +250,7 @@ Maelis começou a enumerar:
 
 — Participação no massacre de Velarim. Conspiração para fabricar provas contra os Tondrar. Uso de exilados em operação não autorizada. Participação na ocultação de informação do Conselho. Tentativa de tomar autoridade soberana sem consentimento da co-soberana. Responsabilidade política pela guerra. Assassinato do último Fendelar sob palavra de passagem. Ataque armado contra Kaelina Polar.
 
-— E violação da Lei do Portão — acrescentou Seron — Alyra repetiu o crime de Lirron.
+— E violação da Lei do Portão — acrescentou Seron. — Alyra repetiu o crime de Lirron.
 
 A menção ao nome antigo fez a Câmara mudar. Lurok foi quem disse:
 
@@ -320,7 +320,7 @@ Lurok virou-se para Kaelina.
 
 — Soberana. Seu pai provou que a lei estava acima do amor. Prove o mesmo.
 
-Kaelina sentiu o nome do pai pousar sobre seus ombros outra vez. Era sempre assim. Quando hesitava, perguntavam o que Orionus faria; quando agia, comparavam a firmeza; quando oferecia paz, lembravam que ele soubera punir; quando pensava em punir, lembravam que ele mantivera quarenta ciclos sem guerra. Orionus estava morto, mas continuava votando em todas as reuniões.
+Kaelina sentiu o nome do pai pousar sobre seus ombros outra vez. Era sempre assim. Quando hesitava, perguntavam o que Orionus faria. Quando agia, comparavam a firmeza. Quando oferecia paz, lembravam que ele soubera punir. Quando pensava em punir, lembravam que ele mantivera quarenta ciclos sem guerra. Orionus estava morto, mas continuava votando em todas as reuniões.
 
 Maelis organizou duas tábuas diante de si.
 
@@ -380,7 +380,7 @@ Maelis registrou. Sete votos pela morte. Dois pelo exílio. Kaelina ainda possu�
 
 Maelis marcou os votos.
 
-— Resultado: Sete pela execução. Cinco pelo exílio.
+— Resultado: sete pela execução. Cinco pelo exílio.
 
 A decisão estava tomada. A Mesa da Raiz havia escolhido a morte de Alyra Polar. Por alguns instantes, ninguém falou. O procedimento fizera aquilo que procedimentos faziam melhor: transformara medo, vingança, tradição, justiça e cálculo em duas colunas limpas. Maelis colocou a tábua no centro.
 
@@ -426,7 +426,7 @@ Ele tentou responder.
 
 Lurok fechou a boca. Kaelina levantou-se. A dor na perna atravessou o corpo, mas ela não se apoiou na cadeira.
 
-— Passei ciclos perguntando o que Orionus faria. Vocês passaram os mesmos ciclos usando a resposta que mais servia ao medo do momento. Quando queriam guerra, lembravam que ele fazia exemplos; quando queriam paz, que vencia condições; quando queriam me diminuir, diziam que eu não possuía a firmeza dele; quando queriam controlar Alyra, diziam que ela possuía força demais e paciência de menos.
+— Passei ciclos perguntando o que Orionus faria. Vocês passaram os mesmos ciclos usando a resposta que mais servia ao medo do momento. Quando queriam guerra, lembravam que ele fazia exemplos. Quando queriam paz, que vencia condições. Quando queriam me diminuir, diziam que eu não possuía a firmeza dele. Quando queriam controlar Alyra, diziam que ela possuía força demais e paciência de menos.
 
 Ninguém a interrompeu.
 
@@ -502,9 +502,9 @@ Kadrir ergueu dois dedos, num gesto curto. Dois guardas deixaram a parede e se p
 
 Seron levantou-se também.
 
-— A mesa existe para balancear suas decisões, soberana.
+— A Mesa existe para balancear suas decisões, soberana.
 
-— A partir de agora a mesa existe para aconselhar. As decisões partem de mim.
+— A partir de agora a Mesa existe para aconselhar. As decisões partem de mim.
 
 Iressa ficou pálida.
 
@@ -514,9 +514,9 @@ A forma como disse o nome não tinha título. Era pedido e advertência. Kaelina
 
 — Você me ensinou que uma cidade cai por dentro antes que o inimigo atravesse o portão. Não permitirei que matem minha irmã, matem uma criança e chamem isso de estabilidade.
 
-Iressa fechou os olhos. A palavra era perigosa. Todas as atrocidades do livro haviam passado por alguma versão dela. Quando voltou a olhar, não havia aprovação em seu rosto. Também não havia recuo.
+Iressa fechou os olhos. A palavra era perigosa. Todas as atrocidades da história de Kaendar haviam passado por alguma versão dela. Quando voltou a olhar, não havia aprovação em seu rosto. Também não havia recuo.
 
-— Registe — disse a Maelis. — Registe tudo. Cada guarda, cada ordem e cada ameaça. Se ela quer quebrar a Mesa, que a quebra permaneça inteira na história.
+— Registre — disse a Maelis. — Registre tudo. Cada guarda, cada ordem e cada ameaça. Se ela quer quebrar a Mesa, que a quebra permaneça inteira na história.
 
 Maelis olhou para Kaelina. A soberana assentiu. O estilete voltou a mover-se. Lurok foi o primeiro a sentar. Não porque aceitasse moralmente o golpe. Porque os guardas estavam dentro, Kaelina permanecia de pé e o poder da sala mudara de lado. Varron observou Cal Kadrir.
 
@@ -628,7 +628,9 @@ Iressa aproximou o rosto, falando baixo o suficiente para que os outros não esc
 
 Kaelina sustentou o olhar. Iressa saiu sem se curvar. Lurok curvou-se o dobro do necessário.
 
-Kaelina percebeu que golpes não escolhiam apenas inimigos. Também atraíam homens que gostavam de sobreviver perto de quem vencia. Alyra estava acordada quando Kaelina entrou.
+Kaelina percebeu que golpes não escolhiam apenas inimigos. Também atraíam homens que gostavam de sobreviver perto de quem vencia.
+
+Alyra estava acordada quando Kaelina entrou.
 
 Os aposentos de cura cheiravam a sal, óleo, ervas queimadas e carne tratada. Panos cobriam uma mesa inteira. Bacias com água avermelhada esperavam ser levadas. Uma curandeira mantinha instrumentos pequenos sobre o fogo, enquanto outra trocava as faixas da mão destruída.
 
@@ -768,7 +770,7 @@ Ninguém recebeu permissão para lançar pedras, tocar em Alyra ou atravessar a 
 
 Usava a armadura de Primeiro Kae e a raiz de Calandrir na têmpora, mas o título parecia diferente sobre ele. Alyra o escolhera. Kaelina o mantivera. Entre uma soberana caída e outra erguida, Kadrir aprendera que um homem de guarda quase nunca protegia apenas pessoas. Protegia a continuidade do lugar que sobreviveria a elas. A carroça saiu da fortaleza e atravessou os anéis.
 
-Alyra permanecia sentada, apoiada por almofadas duras. O rosto estava coberto por um véu escuro que não escondia completamente as faixas. Por baixo dele, o lado direito, o único que o fogo deixara, fora lavado na véspera diante de Maelis e de dois Guardiões de Costumes. Alyra não deixara que a criada fizesse; esfregara a pasta branca ela mesma, com a mão boa, até a pele arder. A mão ferida repousava junto ao corpo. A outra segurava a borda da carroça sempre que uma roda encontrava pedra irregular. O povo abriu caminho. Não houve reverência. Alguns viraram as costas.
+Alyra permanecia sentada, apoiada por almofadas duras. O rosto estava coberto por um véu escuro que não escondia completamente as faixas. Por baixo dele, o lado direito, o único que o fogo deixara, fora lavado na véspera diante de Maelis e de dois Guardiões de Costumes. Alyra não deixara que a criada fizesse. Esfregara a pasta branca ela mesma, com a mão boa, até a pele arder. A mão ferida repousava junto ao corpo. A outra segurava a borda da carroça sempre que uma roda encontrava pedra irregular. O povo abriu caminho. Não houve reverência. Alguns viraram as costas.
 
 Uma mulher do Anel Baixo segurou o filho junto ao peito e recusou-se a olhar. Um ferreiro ergueu a mão queimada, mostrando o que o fogo Vendrar deixara. Um velho tocou dois dedos na testa e no peito, mas fez o gesto da Raiz para os mortos, não para a antiga soberana. Alguém gritou:
 

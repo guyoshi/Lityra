@@ -8,27 +8,19 @@ A gente também conheceu duas meninas novas que chegaram juntas: uma parecia a l
 
 Coisas ruins começaram a acontecer. Todos nós perdemos algo. Lunaris… teve de voltar ao céu… tudo por culpa do Skyboy.”
 
-Eu reli o parágrafo e quase ri sozinho, porque era muito ridículo… e muito verdadeiro. Eu não me chamava Starman em lugar nenhum. Não na chamada da escola, onde eu era “Souza, Pedro”, não nos bilhetes da minha mãe, não no “Pedro, vai tomar banho” que eu ouvia desde que me entendo por gente.
+Reli o post e fiz uma careta. “Starman”. Pelo amor de Deus. Imagina a professora fazendo a chamada: “Starman Souza, presente?” Eu ia virar piada até me formar. E olha que a concorrência nessa categoria já era forte.
 
-Mas na internet eu podia ser outra versão de mim. Uma versão que não parecia prestes a desmontar por dentro.
+Mas no blog ninguém precisava saber que eu era o Pedro, o gordinho que corria cem metros e precisava de férias. Podia ser um herói espacial. Sem uniforme, porque lycra em mim devia ser proibida pelo governo.
 
-Além disso, ter um blog era tipo ter um palco secreto. Você escrevia no Blogger, colocava um template feio com estrela no fundo, e de repente tinha gente desconhecida comentando “caraca, mano” como se você fosse alguém. E eu precisava ser alguém em algum lugar.
+O meu último texto tinha recebido um monte de comentários. Tinha gente perguntando se a história era verdadeira, uns mandando eu procurar um padre e um sujeito chamado AnjoSombrio_666 que escreveu “isso é coisa do capeta”. Obrigado, Anjo Sombrio. Sem você eu jamais teria pensado nessa possibilidade.
 
-O meu último post tinha explodido. Comentário aparecendo em cascata, gente perguntando “isso aconteceu mesmo?”, uns jurando que era mentira, outros mandando “credoooo”. Teve até um cara com nick “AnjoSombrio_666” falando “isso é coisa do capeta”.
+Escolhi os codinomes porque pareciam nomes de super-heróis e porque não conseguia escrever “Kelly” sem ficar olhando para a palavra durante um tempão. Nem “Junior”. Eu ainda estava bravo com ele. Muito. Às vezes começava a digitar um insulto, apagava e voltava à história. Transformar tudo numa aventura era bem mais fácil do que contar a verdade.
 
-Obrigado pela contribuição, Anjo Sombrio.
+Jaguariúna era uma cidade nova, com uma escola nova e um monte de gente que não sabia nada de Vila Velha. Isso tinha suas vantagens. Ninguém me olhava com pena. Em compensação, eu precisava aprender onde ficava a cantina, que, convenhamos, era uma questão de sobrevivência.
 
-Eu tinha trocado os nomes por codinomes não só porque era mais “legal”, mas porque escrever “Junior”, “Kelly”, “Jennifer” em letra preta numa tela branca parecia chamar de volta um peso que eu não queria carregar de novo. Eu queria transformar tudo em história, em exagero. Queria que parecesse uma lenda urbana, daquelas que você lê e depois vai alugar Winning Eleven na locadora como se nada tivesse acontecido.
-
-Só que a vida não vira ficção só porque você escreveu. 
-
-A vida continua. E a minha tinha continuado em Jaguariúna, com uma escola nova, um bairro novo e um passado que não cabia na mochila nem se eu arrancasse os livros de Matemática.
-
-Mesmo assim… ver as notificações piscando me fazia sentir alguma coisa boa. Era um negócio patético, eu sei. Mas era como se cada comentário dissesse: ok, então você não inventou tudo. Então você não tá totalmente sozinho.
+E os comentários faziam bem. Um completo desconhecido escrevia “continua, cara!”, e por alguns minutos eu tinha vontade de continuar mesmo. Não só a história. O resto também.
 
 Eu fechei o blog, peguei a mochila e fui ao banheiro escovar os dentes. Ao lado da lata de lixo, no chão, avistei uma dúzia de larvas, se mexendo, brilhando na luz fraca do corredor como se alguém tivesse derramado nojo vivo.
-
-Que coisa nojenta! 
 
 — Mãe! — eu gritei, com a escova na boca. — Tem larva no lixo!
 
@@ -48,27 +40,27 @@ No caminho, eu passei pela esquina do orelhão e olhei pra ele como se fosse um 
 
 Ridículo. Eu sei.
 
-Na escola, a manhã começou igual a todas: gente reclamando da aula, gente falando de Dragon Ball, gente discutindo se GTA Vice City era melhor que o III. O mundo adolescente a fingir que só existia o que dava pra tocar.
+Na escola, tudo parecia normal: o pessoal reclamando das aulas, discutindo Dragon Ball e quase saindo no soco para decidir se GTA Vice City era melhor que o III. Entrei na discussão, claro. Não existe tristeza no mundo que me faça aceitar uma opinião absurda sobre videogame.
 
-Eu tentei entrar nisso. Sério. Só que eu não tinha mais a mesma pele.
+Consegui até rir. Só que, quando o sinal tocou e todo mundo correu para a sala, me lembrei de como eu e o Junior disputávamos para ver quem chegava primeiro. A vontade de rir passou.
 
 Na aula de História, o professor Rui estava no modo palestra. Ele era um cara até ok, mas tinha aquela mania de falar de religião como se estivesse dando opinião no bar.
 
 Eu estava meio disperso, fingindo que anotava, até ele entrar no tema que me puxou pelo colarinho.
 
-— …e é curioso como várias culturas antigas construíram uma ideia de continuidade depois da morte — ele dizia, andando de um lado para o outro, o giz como se fosse microfone. — Os egípcios mumificavam porque acreditavam num tipo de retorno, numa preservação. A morte não era um fim, era uma fase. Eles enchiam túmulos com objetos porque, para eles, aquilo ainda tinha utilidade no “depois”.
+— …e é curioso como várias culturas antigas construíram uma ideia de continuidade depois da morte — ele dizia, andando de um lado para o outro, o giz como se fosse microfone. — Os egípcios mumificavam porque acreditavam num tipo de retorno, numa preservação. A morte não era um fim, era uma fase.
 
 Ele fez uma pausa curta, medindo se a turma acompanhava.
 
-— Em outras tradições, você encontra variações da mesma ansiedade humana. Há religiões com julgamento, com punição, com recompensa. Há crenças em reencarnação, há crenças em espíritos ancestrais. Mas o que nos interessa aqui é quando o cristianismo europeu, especialmente em certos períodos, organiza isso num sistema que serve também para controlar comportamento.
+— Em outras tradições, você encontra variações da mesma ansiedade humana. Mas o que nos interessa aqui é quando o cristianismo europeu, especialmente em certos períodos, organiza isso num sistema que serve também para controlar comportamento.
 
 A turma prestava atenção. Ou pelo menos fingia prestar. 
 
-— A ideia de purgatório, por exemplo, aparece como um conceito teológico de purificação… mas, socialmente, vira uma ferramenta poderosa. A noção de “alma inquieta”, “alma perdida”, “assombração”… tudo isso vai sendo moldado com o tempo. E, na Idade Média, muitas aparições eram interpretadas como demônios. Porque é uma explicação conveniente: qualquer coisa que te tire do caminho “certo” vira inimigo espiritual.
+— A noção de “alma inquieta”, “alma perdida”, “assombração”… tudo isso vai sendo moldado com o tempo. E, na Idade Média, muitas aparições eram interpretadas como demônios. Porque é uma explicação conveniente: qualquer coisa que te tire do caminho “certo” vira inimigo espiritual.
 
-Quando ele disse “alma perdida”, alguma coisa em mim gelou. Não foi medo de filme. Foi aquela sensação física, humilhante, de garganta fechando e o corpo decidindo antes da cabeça.
+Quando ele disse “alma perdida”, alguma coisa em mim gelou. Medo de filme é outra coisa: aquilo foi uma sensação física, humilhante, de garganta fechando e o corpo decidindo antes da cabeça.
 
-Eu não era aluno de levantar a mão. Eu era aluno de sobreviver. De dar risada quando precisava e sair de fininho quando o foco virava para mim. Mas a palavra tinha batido num lugar que eu não estava conseguindo esconder.
+Eu quase nunca levantava a mão. Nas minhas aulas, o truque era não chamar a atenção do professor, especialmente quando ele parecia disposto a falar até o próximo século. Só que aquela palavra me incomodou de verdade.
 
 Levantei a mão.
 
@@ -76,17 +68,15 @@ No mesmo segundo, arrependi. A sala tem um radar para detectar quando alguém va
 
 — Professor… — eu comecei, tentando dar um tom despreocupado, como se eu estivesse perguntando por curiosidade qualquer. — Tipo… existe como saber se um espírito… foi embora? Seguiu adiante. Hipoteticamente.
 
-Eu joguei “hipoteticamente” no final como se fosse uma piada. Como se eu não estivesse, por dentro, segurando uma coisa que eu nem queria nomear.
+Acrescentei “hipoteticamente” para parecer uma pergunta inteligente. Foi a primeira vez na vida que usei essa palavra sem precisar de um dicionário. Eu só não queria que ninguém percebesse em quem estava pensando.
 
-Profº Rui sorriu daquele jeito de quem adora quando um aluno dá a deixa certa.
+Prof. Rui sorriu daquele jeito de quem adora quando um aluno dá a deixa certa.
 
-— De acordo com a Igreja Católica, Pedro, todas as almas devem seguir adiante. A morte leva ao juízo particular e depois ao destino: céu, inferno ou purgatório. Repare no detalhe: purgatório não é “ficar por aí aparecendo em casa”, é um estado de purificação. A doutrina oficial não incentiva essa ideia pop de fantasma passeando pelo corredor.
+— De acordo com a Igreja Católica, Pedro, todas as almas devem seguir adiante. A morte leva ao juízo particular e depois ao destino: céu, inferno ou purgatório. Repare no detalhe: purgatório não é “ficar por aí aparecendo em casa”, é um estado de purificação.
 
-Ele disse “pop” como se fosse uma doença cultural.
+— O que acontece é que, historicamente, a mentalidade religiosa misturava muito as coisas. Aparições? Podiam ser “almas”, podiam ser “demônios”, podiam ser aviso divino… mas, na prática, a interpretação mais útil era: se você está vendo algo, cuidado, sua fé está fraca, sua mente está vulnerável.
 
-— O que acontece é que, historicamente, a mentalidade religiosa misturava muito as coisas. Aparições? Podiam ser “almas”, podiam ser “demônios”, podiam ser aviso divino… mas, na prática, a interpretação mais útil era: se você está vendo algo, cuidado, sua fé está fraca, sua mente está vulnerável. Percebe como é um discurso fechado? Você nunca ganha.
-
-Alguns alunos riram baixinho, não porque era engraçado, mas porque o Profº Rui tinha esse prazer de humilhar a ideia antes de humilhar a pessoa. E ele ainda nem tinha chegado em mim de verdade.
+Alguns alunos riram baixinho, não porque era engraçado, mas porque o Prof. Rui tinha esse prazer de humilhar a ideia antes de humilhar a pessoa. E ele ainda nem tinha chegado em mim de verdade.
 
 — Então não tem como saber? — eu insisti, e a minha voz saiu mais tensa do que eu queria. — Tipo… se alguém… se um ente querido ainda está por aqui.
 
@@ -98,7 +88,7 @@ O professor fez um barulhinho com a língua, como quem decide ser paciente com u
 
 Ele desenhou no ar uma linha imaginária, explicando um gráfico invisível.
 
-— Além disso, outras crenças têm outras soluções. Em alguns ramos espiritualistas, fala-se em espíritos apegados por culpa ou amor, em necessidade de orientação. Em tradições de reencarnação, fala-se em espíritos em trânsito, em aprendizagem. Mas tudo isso são interpretações culturais do mesmo fenômeno: medo do desconhecido e luto. E eu sei que vocês adoram o desconhecido.
+— Além disso, em outras crenças fala-se em espíritos apegados por culpa ou amor. Mas tudo isso são interpretações culturais do mesmo fenômeno: medo do desconhecido e luto. E eu sei que vocês adoram o desconhecido.
 
 A palavra “luto” passou rápido demais para ser só coincidência, e rápido demais para eu ter certeza se ele percebeu que estava acertando onde doía.
 
@@ -122,7 +112,7 @@ O garoto novo, que tinha chegado na semana anterior, duas fileiras atrás, falou
 
 — Às vezes tem alma que não segue porque… não teve tempo de se despedir. Fica presa. Até encontrar o caminho pela Colina.
 
-O Profº Rui cortou na hora, rápido demais para alguém que não liga.
+O Prof. Rui cortou na hora, rápido demais para alguém que não liga.
 
 — Filipo Brandolini. Aqui é História — ele disse, seco, sem o sorriso. — Nós não estamos discutindo crenças pessoais, nem folclore, nem “caminho”. Estamos discutindo como a Igreja, em certos períodos, moldava narrativas para manipular a sociedade. Voltemos ao conteúdo.
 
@@ -130,7 +120,7 @@ O Profº Rui cortou na hora, rápido demais para alguém que não liga.
 
 Então o nome dele era Filipo.
 
-A aula continuou como se nada tivesse acontecido: datas, termos, o Profº Rui falando da Idade Média com aquela raiva fria de quem acha que está libertando o mundo. Os alunos voltaram a rabiscar e a bocejar. Eu voltei a fingir normalidade.
+A aula continuou como se nada tivesse acontecido: datas, termos, o Prof. Rui falando da Idade Média com aquela raiva fria de quem acha que está libertando o mundo. Os alunos voltaram a rabiscar e a bocejar. Eu voltei a fingir normalidade.
 
 Quando o sinal tocou, todo mundo levantou numa pressa automática. Eu vi o Filipo sair com a mochila nas costas, sem olhar para trás. Pensei em ir atrás. Perguntar. Fazer piada para disfarçar e, no meio da piada, arrancar a resposta que eu queria.
 
@@ -162,7 +152,7 @@ Eu aguentei o primeiro soco meio de lado. O segundo pegou no nariz e ardeu tanto
 
 Eu acertei um murro. Depois outro. Eu ouvi a galera gritar “porrada!” como se fosse entretenimento de intervalo. Eu derrubei ele, ele me puxou pela camisa, eu chutei o estômago dele e ele ficou enrolado, tentando respirar.
 
-Foi aí que apareceu inspetor. Claro. A escola sempre chega quando dá tempo de te ferrar, nunca quando dá tempo de te salvar.
+Foi aí que apareceu o inspetor. Claro. A escola sempre chega quando dá tempo de te ferrar, nunca quando dá tempo de te salvar.
 
 A multidão abriu, e eu saí no meio do povo, com o nariz ardendo e uma vontade absurda de desaparecer.
 
@@ -195,7 +185,7 @@ A questão era uma daquelas que parecem escrita por alguém que odeia adolescent
 
 Eu nem tive tempo de reclamar. Filipo já estava escrevendo a resposta com uma facilidade irritante, como se tivesse um mapa dentro da cabeça. Ele não hesitou, não apagou, não pediu.
 
-Quando ele terminou, entregou primeiro.
+Quando terminou, ele me passou a folha.
 
 — Você tem certeza? — eu perguntei, desconfiado.
 
@@ -225,7 +215,7 @@ Filipo abriu um sorriso.
 
 — Pedro — ele falou, baixo. — Eu li seu blog.
 
-Eu travei. Não por medo de “ser descoberto”. Por vergonha. Porque uma coisa é escrever na internet e fingir que ninguém que te vê na vida real vai ler. Outra coisa é alguém olhar na tua cara e dizer “eu li”.
+Eu travei. Não por medo de “ser descoberto”. Por vergonha. Porque uma coisa é escrever na internet e fingir que ninguém que te vê na vida real vai ler. Outra coisa é alguém olhar na sua cara e dizer “eu li”.
 
 — Leu? — eu disfarcei.
 
@@ -243,15 +233,15 @@ Ele não riu.
 
 Filipo inclinou um pouco a cabeça, como quem não cai em mentira.
 
-— Pedro… eu não to aqui pra te julgar. Nem pra rir de você.
+— Pedro… eu não tô aqui pra te julgar. Nem pra rir de você.
 
 Eu tentei manter a pose.
 
-— Tá. E você ta aqui pra quê?
+— Tá. E você tá aqui pra quê?
 
 Ele hesitou, escolhendo o quanto revelar sem se entregar.
 
-— Eu já vi coisa que não devia existir — ele disse. — Coisa que não dá pra explicar. E quando eu li teu blog… eu pensei: esse cara tá carregando o mesmo tipo de coisa.
+— Eu já vi coisa que não devia existir — ele disse. — Coisa que não dá pra explicar. E quando eu li o seu blog… eu pensei: esse cara tá carregando o mesmo tipo de coisa.
 
 Eu fiquei quieto. Porque senti uma vontade absurda de contar tudo. De tirar do peito. De dizer “você não faz ideia”.
 
@@ -259,7 +249,7 @@ Só que eu não podia. E nem queria.
 
 — Você tá exagerando — eu falei, com ironia. — Cê me conhece faz duas horas.
 
-— Eu conheço teu texto — ele respondeu. — E eu sei que o que posta no blog tem muita inspiração. 
+— Eu conheço o seu texto — ele respondeu. — E eu sei que o que posta no blog tem muita inspiração. 
 
 Os olhos dele não brilharam. Eles ficaram sérios. E isso me deu mais medo do que se ele tivesse empolgado.
 
@@ -283,7 +273,7 @@ Eu senti o estômago subir.
 
 — Cara…
 
-— Costuraram. Jogaram num caixão. E deixaram ele lá… vivo. Agonizando. Com as larvas comendo por dentro e a sair por tudo que é orifício. Quando acharam, ninguém sabia mais onde era olho, onde era boca. Só… havia larva.
+— Costuraram. Jogaram num caixão. E deixaram ele lá… vivo. Agonizando. Com as larvas comendo por dentro e saindo por todos os orifícios. Quando acharam, ninguém sabia mais onde era olho, onde era boca. Só… havia larva.
 
 Eu engoli seco. 
 
@@ -303,7 +293,7 @@ Filipo me olhou por um segundo longo demais.
 
 Eu forcei um sorriso.
 
-— Fala sério… — falei — está zombando comigo?
+— Fala sério… — falei. — Está zombando comigo?
 
 — Agora estou. Mas como disse que não estava aqui para te zoar, vou ser sincero — ele disse.
 
@@ -313,7 +303,7 @@ Respirei fundo.
 
 — Tá. Digamos que… uma parte seja real. E daí?
 
-— Tem uma personagem do teu blog — ele disse, como se fosse casual — a tal Nebula… ela é baseada em alguém?
+— Tem uma personagem do seu blog — ele disse, como se fosse casual — a tal Nebula… ela é baseada em alguém?
 
 — Bem… tem uma menina — eu admiti, rápido. — Uma amiga. Ela… ela vê espíritos mesmo. 
 
@@ -329,13 +319,13 @@ Ele fez um “hm” baixo.
 
 — E ela… consegue ver sempre?
 
-— Sempre — eu falei — Tipo… sempre mesmo.
+— Sempre — eu falei. — Tipo… sempre mesmo.
 
 Filipo encostou na cadeira como se tivesse relaxado, mas os olhos dele ficaram mais atentos.
 
 — Entendi.
 
-O sinal tocou, cortando a conversa no meio como faca. A sala levantou, barulho, cadeira, caderno.
+O sinal tocou e cortou a conversa no meio. A sala levantou, barulho, cadeira, caderno.
 
 Filipo pegou a mochila e ainda falou, como se fosse nada:
 
@@ -387,7 +377,7 @@ Eu fechei a cara na hora.
 
 — Eu falei pra não começar.
 
-Meu pai manteve o sarcasmo como escudo, do jeito que ele sempre fazia quando não queria mostrar que estava com medo.
+Meu pai usou o sarcasmo como escudo.
 
 — Tá. Então vamos falar de coisas leves — ele disse. — Como foi a merenda? Te deram alimento ou só isopor temperado?
 
@@ -395,7 +385,7 @@ Meu pai manteve o sarcasmo como escudo, do jeito que ele sempre fazia quando nã
 
 Minha mãe soltou um riso curto, quase involuntário.
 
-— Ta querendo agradecer a sopa por não te chamar de balofo — ela provocou. 
+— Tá querendo agradecer a sopa por não te chamar de balofo — ela provocou. 
 
 — Ainda — eu falei. — Amanhã ela me chama de “bolota” e eu viro vegetariano por vingança.
 
@@ -433,7 +423,7 @@ O computador novo era um portal. E, naquela época, MSN era portal mesmo: um bip
 
 Eu liguei. O barulho do Windows subindo foi quase reconfortante. Cliquei no ícone do MSN e ele abriu com aquela lista de contatos vazia e triste.
 
-Eu estava lendo qualquer coisa inútil — uma matéria sobre Luigi’s Mansion que eu tinha guardado — quando a janela piscou.
+Eu estava lendo qualquer coisa inútil, uma matéria sobre Luigi’s Mansion que eu tinha guardado, quando a janela piscou.
 
 Mensagem de desconhecido.
 

@@ -128,9 +128,9 @@ Acordei cedo com o despertador do rádio-relógio, tomei banho, me vesti e comi 
 
 Disse que estava vendo coisas estranhas em casa, algo mais assustador do que o ataque das aves, e isso, admito, acendeu minha curiosidade. Reconheci nos olhos dele o que tentava dizer sem dizer: fantasmas.
 
-— Garotos, se vocês virem qualquer coisa que os assuste, não vão pra cima. Se escondam.
+— Ok, entendi. Garotos, se virem qualquer coisa que os assuste, não vão pra cima. Se escondam, d’accord?
 
-Eles anotaram os números nos meus livretos, cada um competindo discretamente por um pedacinho de espaço na mesma página. Eu não tinha certeza se usaria aqueles contatos, mas era bom tê-los.
+Junior pediu que eu ligasse se visse alguma coisa estranha. Como ele não achou papel no bolso, estendi meu guia de Paris. Pedro ofereceu uma caneta e, depois que Junior escreveu o próprio número, pediu que anotasse o dele também. Guardei os dois contatos na mesma página. Eu não tinha certeza se usaria aqueles números, mas era bom tê-los.
 
 Em casa, fiz o que qualquer pessoa racional faria depois de juntar informação demais e provas de menos: liguei o computador. Enquanto ele demorava uma eternidade para iniciar, terminei mais um capítulo de Le Rouge et le Noir e abri um pacote de bolachas. Digitei o nome da cidade no Google. A princípio, nada de relevante; depois encontrei os relatos que já lera antes da mudança, os de Luiza Salomandra, a médium amiga da minha avó. Ela dizia que havia uma energia ruim na cidade e registrava tudo num diário. Li um trecho em voz baixa:
 

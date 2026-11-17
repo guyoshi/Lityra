@@ -1,70 +1,52 @@
-Bruno acordou com um sino batendo na cabeça, e demorou a entender que o sino era de verdade e que a cabeça era só a dele, de ressaca de sono ruim. Lá fora, no canal, um barco batia três badaladas lentas. Ele ficou deitado em cima do saco de sal grosso, olhando as vigas do barracão, e fez a conta que a barriga mandava: tinha comido meia broa, tinha dormido uma hora e meia, e tinha um irmão a menos em cada lado do corpo.
+Bruno acordou com o sino de um barco batendo três vezes no canal. Dormira sobre um saco de sal grosso no barracão de salga, com meia broa no estômago e um irmão a menos de cada lado.
 
-— Mano — disse, para o teto. — Que dia horrível.
+— Mano. Que dia horrível.
 
-— Ainda não é dia. — Banjo estava sentado junto da porta, de joelhos dobrados, e nem se virou. — Eu fiquei olhando a lua pequena. Ela já está quase na torre.
+— Ainda é noite — respondeu Banjo, sentado junto da porta. — A lua pequena está quase atrás da torre.
 
-— Você não dormiu.
+— Você não dormiu?
 
-— Dormi um pouquinho. — Banjo ajeitou os óculos com o dedo. — Eu sonhei que o Breno estava me ensinando a amarrar um nó e que eu errava de propósito para ele repetir. Aí eu acordei, e estava aqui.
+— Sonhei que o Breno me ensinava a dar nó. Eu errava de propósito para ele repetir.
 
-Bruno se sentou. A coluna estalou em três lugares. Ferris dormia encolhido junto do fogão de tijolo, com o capacete no peito, e Shirley estava com a cabeça apoiada na parede e os olhos fechados, mas a mão dela abria e fechava devagar sobre o joelho, soltando faíscas pequenas que morriam antes de tocar o chão. Farol roncava em cima da mochila de Banjo, com a cauda apagada, ao lado da tampinha de água que Banjo tinha enchido antes de se sentar, e que baixava, devagarinho, a cada vez que o bichinho acordava para beber.
+Ferris dormia perto do fogão, com o capacete no peito. Shirley estava encostada à parede, os olhos fechados, enquanto pequenas faíscas morriam nos dedos. Farol roncava sobre a mochila de Banjo.
 
-— Bora arrumar a mochila — disse Bruno. — Se eu ficar parado eu começo a pensar, e pensar é uma porcaria.
+Bruno guardou as broas, a lanterna de Bug, a corda e o tambor que trouxera de casa sem contar a ninguém. Quando terminou, Ferris já examinava os riscos na viga mais alta: cinco traços e um laço.
 
-Foi o que fez, e arrumou mal, porque as mãos não paravam. Enfiou a lanterna que o Bug tinha dado, a corda, as duas últimas broas embrulhadas no pano de Ivy, e o tambor curto de Jack, que ele tinha pegado da prateleira da sala antes de sair e não contado para ninguém. Ficava meio torto na mochila, com a pele esticada para fora, e ele deixou. Quando se virou, Ferris já estava de pé, de capacete na cabeça, parado diante da viga mais alta do barracão com a lanterna na mão.
+— Cinco passagens — disse Ferris. — Depois o lugar sem número.
 
-Eram os riscos da noite anterior. Cinco traços curtos, de lado, e depois uma volta em laço, tudo riscado com a ponta de uma faca.
+— Mas como você sabe que a máscara foi pra lá? Podia ter parado na Lua.
 
-— Cinco — disse Ferris, e passou o polegar no último traço. — Faltam cinco passagens. Depois o laço.
+— Meu pai a trouxe por sete passagens, e ela só conhece o caminho por onde veio. Deixou os riscos na Casa de Pesquisa porque sabia que alguém poderia precisar segui-los.
 
-— E aí a gente chega na máscara. — Bruno cruzou os braços. — Só que eu tenho uma dúvida que eu não consegui perguntar ontem, porque tava com a boca cheia e a cabeça pior ainda. Como é que a gente sabe que a máscara foi pra lá? Pro tal do laço, quero dizer. Tipo, o Breno e a Bia caíram num buraco no ar, e o buraco fechou. A máscara podia ter ido pra qualquer lugar do universo. Podia ter ido pra Lua.
+— Seu pai passou por aqui e voltou, então? — perguntou Bruno. — Cadê ele?
 
-— Não podia. — Ferris falava devagar, como quem escolhe cada palavra para não gastar. — O Velho-Sábio explicou na cozinha, na noite que eles sumiram. Meu pai trouxe a máscara de um lugar que ninguém conhece, por sete passagens, e foi a única rota que ela aprendeu. Uma coisa daquelas, quando leva alguém, só volta pelo caminho que já fez. Meu pai deixou o desenho no chão da sala porque sabia disso. Era um recado.
+Ferris não respondeu de imediato. Bruno baixou a cabeça.
 
-— Para quem?
+— Foi mal. Pergunta idiota.
 
-— Para quem fosse atrás. — Ele tirou o olho da viga e olhou para Bruno, e foi um olhar tão direto que Bruno quase desviou. — E ele mesmo passou por aqui faz sete semanas. Os traços do arco, esse da viga, são dele. Se ele fez a viagem inteira e voltou, a gente também faz.
+— Eu também faço essa pergunta — disse Ferris. — Todo dia.
 
-— Ele voltou, é? — Bruno levantou a sobrancelha. — Então onde ele tá?
+Shirley abriu os olhos.
 
-Silêncio. O barco lá fora bateu a terceira badalada, mais longe. Ferris voltou a olhar a viga, e Bruno sentiu o estômago ficar do tamanho de uma castanha.
+— A lua está descendo. Consigo sentir a passagem nos dentes.
 
-— Foi mal — falou. — Foi uma pergunta idiota. Eu sou idiota. Ignora.
+Saíram para o canal frio, onde os barcos balançavam sem luz. Quando a lua menor roçou a ponta da torre de salga, uma linha violeta apareceu no ar. Shirley passou eletricidade pelos dedos e a abriu como um zíper.
 
-— Não é idiota. — Ferris deu de ombros. — É uma pergunta que eu também faço. Só que eu não sei a resposta, e fico fazendo mesmo assim.
+— Ferris primeiro, Banjo depois. O Bruno fica por último, para derrubar qualquer coisa ruim que apareça.
 
-Shirley abriu os olhos nessa hora, sem se mexer, e Bruno teve a impressão estranha de que ela estava acordada fazia tempo. Levantou, esticou os braços, e tirou da capa a mão cheia de faíscas, que desenharam um arco curto no ar.
+— Obrigado pelo carinho — disse Bruno.
 
-— A lua pequena está descendo — disse. — Eu sinto no dente.
+Atravessaram. Bruno deu um passo e saltou cinco metros, sem querer, até pousar devagar numa pedra escura.
 
-— Você sente no dente? — Bruno abriu a boca, olhou para Banjo, e fechou de novo. — Tá bom. Eu não vou nem perguntar.
+— Quase morri! — gritou.
 
-Saíram pela porta dos fundos do barracão, no frio azul que vinha antes do dia, e pararam na beira de um depósito baixo, de onde se via o canal inteiro, escuro, com os barcos amarrados em fila e as luzes de bordo apagadas. Na ponta do cais, a torre de salga subia como um dedo comprido, e atrás dela a lua pequena descia devagar, branca, fininha, quase encostando na pedra. A outra, a grande, já tinha ido embora. Bruno olhou o espaço entre a lua e a torre, e olhou de novo, e viu o que Banjo já estava vendo: uma costura clara no ar, vertical, mais ou menos da altura de uma porta, que tremia como um fio de aranha ao vento.
+— Fala baixo — pediu Shirley.
 
-Shirley foi na frente. Estendeu os dedos, e as faíscas correram para a costura, que se abriu devagar, de baixo para cima, exatamente como um zíper. O que veio de dentro era uma luz roxa e fria, e um cheiro que Bruno conhecia de algum lugar e não conseguiu achar. Cheiro de gaveta velha.
+A cidade ao redor parecia ter desabado para dentro de si. Torres rachadas, pontes terminando no vazio e ruas quebradas afundavam num buraco coberto de névoa negra. O céu cinza prendia colunas de luz azul e violeta que tocavam o chão sem iluminar nada.
 
-— Primeiro o Ferris — disse Shirley. — Depois o Banjo. O Bruno por último, porque se tiver alguma coisa do lado de lá ele vai dar um jeito de derrubar.
+— É a parte alegre da viagem? — sussurrou Bruno.
 
-— Nossa, obrigado pela confiança.
-
-— De nada, amigo.
-
-Bruno ajeitou o tambor na mochila, olhou uma última vez para a lua e para a rua de pedra, onde um cachorro de rua, muito longe, farejava um cesto de peixe, e entrou na luz.
-
-A primeira coisa que sentiu foi que tinha pulado alto demais. Os pés largaram o chão, o corpo subiu, e ele continuou subindo, com os braços abertos, a mochila batendo nas costas, o tambor chocando contra a nuca, e o céu era uma coisa grande, escura e cheia de nuvens. Subiu uns cinco metros, ficou parado no alto como uma pergunta, e desceu devagar, tão devagar que deu tempo de sentir vergonha.
-
-— Mano do céu! — gritou, quando as botas tocaram uma pedra lisa. — Eu pulei sem querer! Eu só dei um passo! Eu pulei, véi, eu quase morri!
-
-— A gente viu — disse Shirley, sem rir, o que era sinal de que o lugar não era bom. — Fala baixo, Bruno.
-
-Ele falou baixo. Olhou em volta, e o resto da vontade de rir foi saindo do corpo como ar de pneu furado.
-
-Estavam no meio de uma ruína. Não era uma casa, nem uma cidade só, era uma cidade inteira que tinha caído para dentro. Havia torres rachadas, com os andares abertos como caixas de fósforo, pontes quebradas que acabavam no ar, ruas que desciam para um buraco largo e se perdiam na névoa. Tudo era cinza, cinza-chumbo, de uma cor sem vida, cor de coisa que foi queimada e depois esquecida. O céu estava coberto de nuvens escuras, baixas e pesadas, e entre as nuvens e o chão havia uma neblina negra, grossa, parada, que cobria os pés das torres e dava a elas um jeito de afundar. E por todo lado, riscando a neblina de cima a baixo, atravessavam feixes de luz, roxos e azuis, finos como agulhas e largos como colunas de igreja, que vinham do alto, de lugar nenhum, e tocavam o chão sem iluminar nada em volta.
-
-— É a parte alegre do passeio? — murmurou Bruno.
-
-Nenhuma resposta. Banjo estava de joelhos, com uma mão no chão e a outra apertada no peito, e Farol, de pé em cima do ombro dele, tinha o pelo arrepiado e a cauda apagada. Ferris olhava para um pedaço de muro caído. Bruno olhou também, e levou um segundo para entender o que estava vendo, e outro para desejar não ter entendido.
+Banjo estava de joelhos, com uma mão na pedra e Farol encolhido, a cauda apagada. Ferris apontava para um muro caído, e Bruno viu o que havia nele.
 
 Havia ossos. Estavam espalhados por baixo do muro, e entre as pedras, e na beira do buraco, e eram brancos, quebrados e muito grandes. Costelas do tamanho de remos. Um crânio comprido, de bicho, com a boca meio aberta e os dentes ainda no lugar. Outros menores, de forma de gente, que ele olhou rápido e desviou os olhos.
 

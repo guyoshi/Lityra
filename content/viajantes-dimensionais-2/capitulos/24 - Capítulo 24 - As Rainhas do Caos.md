@@ -178,7 +178,7 @@ Bruno e Banjo gritaram ao mesmo tempo. Breno só percebeu que gritava também qu
 
 Ela tinha mudado. O fogo de Beatriz tinha passado por ela e não queimado a pele, e mesmo assim a coisa que a usava estava com uma ruga no rosto, uma rachadura no sorriso, um gesto de quem leva um soco na barriga. Shirley arqueou as costas. A cabeça foi para trás, os braços abriram em cruz, a boca se escancarou até o limite, e Breno, que se arrependeu de olhar, viu uma coisa sair dela.
 
-Foi horrível e lento. Do peito, da garganta, dos olhos de leite, subiu uma fumaça pálida, uma mulher feita de vapor e de cabelo, alta, de pescoço comprido, o rosto meio de Shirley, meio de outra pessoa desconhecida, se desprendendo do corpo da menina como uma roupa que se tira de dentro para fora. O corpo de Shirley foi dobrado ao meio, torcido, esticado, e Breno ouviu estalos que o gelaram, mas a menina não gritou. Caiu de lado na borda da fonte, depois no chão, de olhos fechados, e ficou imóvel, de braços jogados, com o cabelo grudado no rosto.
+Foi horrível e lento. Do peito, da garganta e dos olhos de leite de Shirley subiu uma fumaça pálida que tomou a forma de uma mulher alta, de pescoço comprido e cabelos claros e soltos. Seu rosto, marcado por rugas muito finas, oscilava entre o de Shirley e o de uma senhora desconhecida. A figura se desprendeu do corpo da menina como uma roupa tirada de dentro para fora. Shirley dobrou-se ao meio, torceu-se, esticou-se; Breno ouviu estalos que o gelaram, mas ela não gritou. Caiu de lado na borda da fonte, depois no chão, de olhos fechados, e ficou imóvel, de braços jogados, com o cabelo grudado no rosto.
 
 — Shirley! — gritou Banjo, e deu três passos na direção dela, e Beatriz o segurou pelo ombro.
 
@@ -205,6 +205,8 @@ Ele não respondeu. Respirava. Breno encostou a orelha no peito dele e escutou o
 O capuz de Banjo se mexeu. Farol saiu de dentro, com o pelo todo arrepiado, subiu no peito dele e se deitou ali de bruços, de patinhas abertas, e a cauda acendeu num dourado devagar, um clarão e um descanso, um clarão e um descanso. Breno levou um tempo para entender que era a respiração. O bichinho estava marcando o compasso, e a cada vez que o peito de Banjo hesitava, o clarão esperava por ele.
 
 A voz da coisa de fumaça chegou a Beatriz muito baixa, e muito perto, como um sopro na orelha.
+
+Beatriz reconheceu o pescoço comprido, os cabelos claros e aquele olhar fixo. Era a senhora que julgara ver entre os aprendizes, nas pétalas da janela e à sombra da árvore. Agora flutuava diante dela, sem precisar esconder-se atrás de nada.
 
 — Você sabe o que acabou de fazer, né? — A figura pálida desceu, devagar, até pairar a poucos passos dela, com os braços compridos abertos e as bordas do corpo desfiando no vento. A voz já não era doce. Era cansada e certa. — Duzentos anos, flor. A máscara me teve por duzentos anos, e eu saí uma vez porque um homem de poder quis. Vocês vão guardar essa coisa num cofre, num porão, num lugar que o velho de bengala acha seguro. E daqui a trinta anos alguém vai bater na porta de novo, um menino que se oferece, um mago que acha que sabe, um homem de terno. Ela vai escolher e vai abrir. Ela sempre abre.
 
@@ -260,7 +262,7 @@ Beatriz sentiu primeiro no braço e depois no peito, uma coisa quente demais que
 
 — Para! — gritou ela, para si mesma. — Para, para, para!
 
-Não parava. A chama não obedecia, era dela e não era, era maior do que ela, como a Velha tinha dito. Beatriz caiu de joelhos, e o calor era tanto que ela sentiu os cílios encolherem, e viu Bruno arrastando Lioro para longe pelas axilas com o rosto vermelho, e Breno protegendo Banjo com o corpo de metal, e todos olhando para ela com uma expressão que ela conhecia. Era a da mulher na Central. Era um passo para trás.
+A chama continuou crescendo, maior do que Beatriz conseguia conter. Beatriz caiu de joelhos, e o calor era tanto que ela sentiu os cílios encolherem, e viu Bruno arrastando Lioro para longe pelas axilas com o rosto vermelho, e Breno protegendo Banjo com o corpo de metal, e todos olhando para ela com uma expressão que ela conhecia. Era a da mulher na Central. Era um passo para trás.
 
 *É isso. É isso que eles vão ver.*
 

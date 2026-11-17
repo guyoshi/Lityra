@@ -1,30 +1,20 @@
-Acordei antes do despertador, com a sensação irritante de que o corpo lembrou de algo que a cabeça ainda queria fingir que não aconteceu. A luz atravessava as frestas da cortina limpa demais, como se a manhã estivesse trabalhando para apagar a noite anterior. O cabelo cheirava a álcool barato e fumo de rua; a garganta arranhava, e havia um gosto doce de energia, daqueles que a cidade dá quando se troca o medo por barulho.
+Acordei antes do despertador, com a garganta arranhando e o cabelo ainda cheirando a fumaça. Doía a cabeça. Culpa da bebida, das horas de música e de ter corrido de uma garota enorme que quis nos matar por causa de uma confusão.
 
 Jennifer.
 
-O nome veio com a insistência de uma música que não sai da cabeça. Eu não me permiti sorrir de imediato, mas a memória fez o que quis: a voz dela no palco, vacilante no primeiro verso e depois firme; o jeito como ela riu quando errou a letra; os dedos dela agarrando o meu pulso numa rua do centro, quando um grupo de rapazes passou perto demais e eu a puxei para o lado sem pensar; o beijo, enfim, que não tinha nada de poético e por isso mesmo parecia verdadeiro.
+Lembrei dela no palco, errando o início da música e depois cantando mais alto do que eu esperava. Lembrei de como rimos na rua. E do beijo. Sorri antes mesmo de abrir os olhos.
 
-Eu tinha conseguido. Tirei aquela garota do modo fantasma e a fiz existir. Era tentador transformar isso numa vitória, mas eu conhecia a diferença entre conquista e responsabilidade. A noite tinha sido um incêndio controlado e, ainda assim, fogo controlado queimava.
+Peguei o celular para mandar uma mensagem. Escrevi «Acordou, cantora?» e apaguei. Ficou infantil. Escrevi outra coisa. Apaguei também. Acabei ligando. Chamou até cair na caixa postal.
 
-O problema real era que eu não tinha tocado no assunto que importava.
+Olhei para o notebook aberto na mesa. O artigo para a Paper continuava inacabado. Eu me aproximara de Jennifer por causa de Vila Velha, e na noite anterior sequer lembrara de lhe perguntar sobre aquilo. Não era um problema pequeno. O prazo terminava no sábado e eu ainda não tinha a matéria que prometera.
 
-Vila Velha.
+Tentei ligar outra vez. Nenhuma resposta.
 
-O prazo do Paper não era uma metáfora; era uma data. Eu tinha prometido a mim mesma que, até o fim do sábado, teria uma história grande o suficiente para arrancar uma oportunidade do jornal. E Jennifer era uma porta. Ela tinha estado no centro do massacre, tinha visto coisas que ninguém aceitaria em público, e isso estava nos olhos dela quando achava que eu não reparava.
-
-Eu virei de lado e encarei o teto alto do quarto. A mansão de Diego, principalmente, tinha uma quietude que me incomodava desde que cheguei. Era toda de vidro por fora, mas impossível de ver por dentro, exceto no segundo andar, onde a maior parte era coberta. Talvez fosse pra ninguém estranhar caso a cobra de Diego fosse vista solta.
-
-Peguei o celular na mesa de cabeceira e fiquei alguns segundos olhando a tela, como se ligar fosse admitir que eu tinha sentimentos. Eu não tinha.
-
-Abri o contato dela, respirei uma vez e carreguei.
-
-Chamou. Chamou de novo. Não atendeu.
-
-Tentei outra vez, com a paciência disciplinada de quem insiste não por carência, mas por método. Caiu na caixa postal. Eu desliguei antes do bip.
+Se ela decidisse nunca mais falar comigo depois daquela noite, eu sentiria falta da garota, não apenas da história. E isso me assustou mais do que eu queria admitir.
 
 Levantei para beber água e, ao passar diante da porta espelhada de um armário do corredor, desviei o olhar antes de me ver, como sempre. Não foi suficiente. No canto do vidro, por um segundo, dois pontos claros, altos demais. Eu não parei. Contei até dez com os olhos no chão e, quando voltei a olhar, havia só o corredor escuro e a minha sombra comprida. Ele nunca vinha de dia. Vinha quando eu cansava.
 
-“Hoje”, pensei, mais para me ordenar do que para me motivar. Hoje eu falaria com ela sobre Vila Velha. Hoje eu arrancaria o que fosse necessário. E se ela não quisesse falar… bem, as pessoas sempre querem alguma coisa. E eu tinha certeza que tinha o que ela queria. 
+Queria falar com ela sobre Vila Velha, sim. Também queria saber se tinha chegado em segurança, se estava bem e se ainda se lembrava do que dissera debaixo da ponte. Talvez fosse melhor começar por essa parte. 
 
 Levantei, lavei o rosto, prendi o cabelo com mais força do que o necessário e desci com o notebook debaixo do braço. A manhã passou num ritmo que eu gosto: tela, anotações, pesquisa, rascunho. Escrevi títulos possíveis, subtítulos, ganchos. “O massacre que a cidade esqueceu.” “A verdade que ninguém contou sobre Vila Velha.” “O diário de Vila Velha.” Montei versões como quem monta uma armadilha elegante, não para ferir, mas para capturar atenção.
 
@@ -42,7 +32,7 @@ Eu atendi antes do terceiro toque, já com a voz preparada — firme, levemente 
 
 Do outro lado, uma respiração curta, e uma voz de garoto, aguda de desespero.
 
-— É a Glenda?. 
+— É a Glenda? 
 
 A pergunta veio com urgência, mas também com medo, como se ele estivesse correndo enquanto falava.
 
@@ -50,7 +40,7 @@ A pergunta veio com urgência, mas também com medo, como se ele estivesse corre
 
 — Por favor Glenda… — ele engoliu em seco. — a Jennifer tá morrendo. A gente precisa de ajuda. 
 
-Por um instante, o meu corpo quis sentir. Quis gelar, quis entrar em pânico, quis correr sem pensar. Eu não deixei. Eu agarrei o impulso e transformei em perguntas.
+Por um instante, não entendi o que ele estava dizendo. Jennifer morrendo? A mesma garota que rira comigo na noite anterior? O celular quase escorregou da minha mão. Apertei-o contra a orelha.
 
 — Onde vocês estão?
 
@@ -68,7 +58,7 @@ Então outra voz falou:
 
 — Tem uma estrada logo a frente. Consigo ver um hotel — eles pareciam estar em movimento — Hotel Club A. 
 
-Pesquisei no meu notebook. Hotel clube A. Era perto do local onde enviei o taxi para buscar Jennifer na serra no dia anterior. 
+Pesquisei no meu notebook. Hotel clube A. Era perto do local onde enviei o táxi para buscar Jennifer na serra no dia anterior. 
 
 — Conseguem ir até o hotel?
 
@@ -80,7 +70,7 @@ Desci as escadas num ritmo controlado, peguei a chave de um dos carros no aparad
 
 O caminho foi um recorte de asfalto e barro, e eu conduzi com a cabeça limpa e o corpo tenso. Chovia forte, e eu perguntava o tempo todo como ela estava.
 
-Quando cheguei ao hotel, avistei um grupo próximo a um toldo. O garoto mais gordinho estava pálido, suado, além de estar coberto de barro; o outro tinha o rosto sujo, com os olhos arregalados de quem não dorme há dias, e Jennifer… Jennifer estava caída ao chão, os lábios secos, os olhos semicerrados. 
+Quando cheguei ao hotel, avistei um grupo próximo a um toldo. O garoto mais gordinho estava pálido, suado, além de estar coberto de barro, e o outro tinha o rosto sujo, com os olhos arregalados de quem não dorme há dias, e Jennifer… Jennifer estava caída ao chão, os lábios secos, os olhos semicerrados. 
 
 — Ela acordou — disse o garoto mais magro. 
 
@@ -88,21 +78,21 @@ Jennifer abriu a boca quando me viu e, mesmo delirante, foi direta.
 
 — Não… hospital… — a voz saiu em cacos. 
 
-O garoto magro tentou dizer alguma coisa, mas o som ficou preso. Ele parecia um menino a fingir que é homem. 
+O garoto magro tentou dizer alguma coisa, mas o som ficou preso. Ele parecia um menino tentando parecer homem. 
 
-Eu abri a porta de trás, segurei Jennifer com cuidado e senti a pele dela quente demais, o corpo leve demais, como se estivesse soltando do mundo. 
+Abri a porta de trás e ajudei a colocar Jennifer no banco. Ela estava quente demais e mal conseguia manter os olhos abertos. Segurei a mão dela até o carro arrancar. Nem me lembrei de perguntar se os rapazes tinham dinheiro para o hospital. 
 
-— Entrem no carro. Agora. — olhei para os garotos. 
+— Entrem no carro. Agora. — Olhei para os garotos. 
 
 Chegamos à mansão quando a tarde já começava a amolecer a luz. Levei os três pela entrada lateral, onde a Sra. Tereza não costumava ficar, e subi com eles quase sem respirar.
 
 No meu quarto, fechei a porta com cuidado e só então olhei ao redor: três pessoas que eu não devia ter ali, e uma delas desmaiada na minha cama. Limpei rapidamente os rastros de chuva e barro do caminho e voltei ao quarto.
 
-Jennifer tentou se erguer, mas o corpo não obedecia. Eu a deitei com firmeza, puxei o cobertor, e a minha mão, por instinto, foi até o cabelo dela e começou um carinho lento, repetitivo, como se eu pudesse organizar a respiração dela pelo toque.
+Jennifer tentou se erguer, mas o corpo não obedecia. Ajudei Jennifer a deitar, puxei o cobertor e afastei os cabelos grudados na testa dela. Minha mão ficou ali um pouco mais do que precisava.
 
-— Você vai ficar melhor — eu disse — Você só precisa descansar.
+— Você vai ficar melhor — eu disse. — Só precisa descansar.
 
-O garoto gordinho ficou parado ao lado da cama, com os olhos vermelhos, e eu vi no jeito dele a pergunta que ele não queria fazer: E se ela não melhorar?
+O garoto gordinho largou no chão a mochila encharcada de Jennifer e ficou parado ao lado da cama, com os olhos vermelhos, e eu vi no jeito dele a pergunta que ele não queria fazer: E se ela não melhorar?
 
 Eu me virei para ele:
 
@@ -142,7 +132,35 @@ Jennifer começou. Falou da mãe dela, do amigo Junior, de Priscila. Do garoto g
 
 — Eu sei… que parece idiotice. E não te julgo se não acreditar — ela completou, olhando para o lado, como se já estivesse habituada a não ser levada a sério. — Eu só… quero que você entenda que nós vivemos tudo isso.
 
-Eu não hesitei. 
+Ela hesitou, olhou para Pedro e depois para mim.
+
+— Eu… quero te mostrar uma coisa.
+
+Pedro entendeu antes de mim. Foi até a mochila encharcada que tinha largado ao lado da cama e tirou de dentro um casaco enrolado, ainda úmido.
+
+— Tem certeza? — ele perguntou.
+
+— Se eu falar de novo sem ter o que mostrar, ninguém vai acreditar de novo.
+
+Dentro do casaco havia uma filmadora pequena e preta, com a tela lateral dobrada e uma fita no compartimento. Jennifer a segurou com as duas mãos, como quem segura uma coisa quente demais, e apertou o botão. A bateria estava no fim. A tela acendeu fraca, esverdeada, com um REC vermelho piscando no canto.
+
+— A Priscila me pediu para guardar, no colégio, para o Vinícius. Depois eu a achei no chão da casa dos Marques, ainda gravando — ela disse, e me estendeu o aparelho. — Só olha. Não mexe no tempo.
+
+Olhei.
+
+A imagem tremia, verde e granulada, a noite lavada em ácido. Um corredor, uma escada. A lente passou por uma parede lisa e, na volta, havia nela uma porta aberta no andar de baixo, que não estava ali um segundo antes. Voltei a cena duas vezes procurando o corte. Não havia corte. Numa passagem, encostada na parede de um quarto, uma forma magra demais, a pele grudada no osso, que ninguém no quadro estava olhando. A câmera, sim.
+
+Depois vieram os corpos, no piso de uma cozinha, e uma fileira de facas penduradas na parede com um espaço vazio no meio. Um grito de menina fora de quadro, o som de alguém escorregando, a imagem girando de lado até parar no chão. No resto da fita aparecia o Vinícius, de facão na mão, e gente caindo. Eu não precisei ver tudo para saber o que aquilo valeria num tribunal.
+
+Pausei no quadro da porta aberta e olhei até os olhos doerem. Passei um ano treinada para desconfiar de qualquer imagem, e aquela não tinha emenda.
+
+— Isso prova que ele matou — eu disse. — Não que foi em defesa.
+
+— Eu sei — Jennifer respondeu. — Por isso nunca mostrei pra ninguém.
+
+Devolvi o aparelho com mais cuidado do que pretendia. Era a matéria com risco que o entrevistador tinha pedido, e eu a tinha na mão. Também era a prova que podia salvar ou enterrar um garoto, e eu ainda não sabia qual dos dois eu seria capaz de fazer com ela.
+
+Eu não precisei pensar no que dizer.
 
 — Eu acredito.
 
@@ -203,7 +221,7 @@ Desci antes que alguém pudesse me seguir. No saguão, Diego já estava tirando 
 
 — Glenda — disse, arrastando meu nome como se fosse um elogio. — Sempre tão elegante. Achei que estaria trabalhando em seu quarto. 
 
-— Boa noite — respondi, neutra. Nem fria, nem doce. O meio exato — vim apenas ver se tinha algo para comer. 
+— Boa noite — respondi, neutra. Nem fria, nem doce. O meio exato. — Vim apenas ver se tinha algo para comer. 
 
 Ele se aproximou um pouco mais do que o necessário. Eu não recuei. 
 
@@ -213,7 +231,7 @@ Ele se aproximou um pouco mais do que o necessário. Eu não recuei.
 
 Ele riu, curto, e apoiou a mão no encosto do sofá.
 
-— Cansada? Jason me disse que tece de sair com o carro hoje. — o olhar deslizou por mim, avaliador. — Para onde foi? Casa do namorado? 
+— Cansada? Jason me disse que você saiu com o carro hoje. — o olhar deslizou por mim, avaliador. — Para onde foi? Casa do namorado? 
 
 — Isso não é da sua conta.
 
@@ -251,7 +269,7 @@ Ele pareceu gostar disso. Gostou demais. Passou por mim, caminhando em direção
 
 Esperei. Contei o tempo pelos batimentos do pulso até ter certeza de que ele estava instalado onde quer que fosse o “trabalho” dele. Só então voltei para o quarto, fechando a porta com o cuidado de quem não quer acordar um predador.
 
-Jennifer e Pedro dormiam. Pedro respirava pesado, exausto; Jennifer se mexia de vez em quando, como se fugisse de algo mesmo dormindo. Filipo estava deitado de olhos abertos. Me sentei na cadeira, sem acender luz.
+Jennifer e Pedro dormiam. Pedro respirava pesado, exausto, e Jennifer se mexia de vez em quando, como se fugisse de algo mesmo dormindo. Filipo estava deitado de olhos abertos. Me sentei na cadeira, sem acender luz.
 
 — Quantos dias até ela estar pronta? — ele perguntou baixo, sem se virar. — A Jennifer. Quantos?
 
@@ -271,7 +289,7 @@ Levantei sem pensar e destranquei a porta. O corredor estava escuro, iluminado a
 
 Subi as escadas com passos contidos, contando cada degrau. O som vinha de uma das portas ao lado do salão de jogos. A porta que eu nunca tinha visto aberta. Parei a alguns metros, coração acelerado, e então a maçaneta girou lentamente.
 
-Não esperei ver o que havia do outro lado, porque eu sabia o que havia lá.
+Não esperei ver o que havia do outro lado. Diego me mandara ficar no quarto, e eu não pretendia ser encontrada naquele corredor.
 
 Virei e corri de volta para o quarto, fechando a porta com cuidado demais para quem estava fugindo. Me apoiei nela, o peito arfando.
 

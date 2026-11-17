@@ -136,7 +136,7 @@ Daryon não respondeu. Ylvena deu um passo na direção dele.
 
 — Porque Alyra não pode carregar o futuro de Kaendar com você presa debaixo dos pés dela.
 
-Daryon ficou imóvel por um instante depois da frase. Kaelina, de seu esconderijo, não entendeu completamente o que havia escapado. Ylvena, porém, parou de respirar por meio sopro. Um músculo se moveu perto dos olhos; a boca abriu num quase sorriso. Ela inclinou a cabeça e voltou a olhar para Daryon, agora com atenção diferente.
+Daryon ficou imóvel por um instante depois da frase. Kaelina, de seu esconderijo, não entendeu completamente o que havia escapado. Ylvena, porém, parou de respirar por meio sopro. Um músculo se moveu perto dos olhos. A boca abriu num quase sorriso. Ela inclinou a cabeça e voltou a olhar para Daryon, agora com atenção diferente.
 
 — Ela carrega algo teu…
 
@@ -158,7 +158,7 @@ Kaelina quase recuou. Marken não a segurou dessa vez. Apenas permaneceu ao lado
 
 — Você só precisa sair.
 
-— Eu precisei sair uma vez — disse ela — Eu fui expulsa com os olhos de Kaendar nas minhas costas. Fui cuspida para fora das terras Polar como se a dúvida fosse misericórdia. Lembra do que fiz por você? Por você e seu amor por Alyra?
+— Eu precisei sair uma vez — disse ela. — Eu fui expulsa com os olhos de Kaendar nas minhas costas. Fui cuspida para fora das terras Polar como se a dúvida fosse misericórdia. Lembra do que fiz por você? Por você e seu amor por Alyra?
 
 — Eu nunca pedi que você matasse ninguém.
 
@@ -216,7 +216,7 @@ Depois disso, nenhuma das duas falou por alguns instantes. Ylvena respirou devag
 
 Daryon não respondeu.
 
-— O bastante para me salvar — continuou ela — Mas nunca me amou. Porque amor é a palavra que gente fraca usa quando quer que o mundo respeite sua fome sem chamá-la pelo nome. Eu amei você de forma útil. Fiz o que o sentimento sozinho nunca faria. Entendi o que você queria antes que você tivesse coragem de pedir.
+— O bastante para me salvar — continuou ela. — Mas nunca me amou. Porque amor é a palavra que gente fraca usa quando quer que o mundo respeite sua fome sem chamá-la pelo nome. Eu amei você de forma útil. Fiz o que o sentimento sozinho nunca faria. Entendi o que você queria antes que você tivesse coragem de pedir.
 
 Kaelina ouviu a própria respiração ficar mais pesada. Quis tapar os ouvidos e, ao mesmo tempo, continuar ouvindo. Quis que Orionus entrasse pela parede e dissesse que tudo aquilo era uma mentira ridícula inventada por uma mulher quebrada. Mas Orionus estava morto. E aquela mulher acabara de dizer que sabia fazer mortes parecerem nomes de clã. Daryon respirou fundo.
 
@@ -286,7 +286,7 @@ Kaelina estava entendendo agora. A Lei do Portão. A morte durante a tentativa d
 
 — Se Alyra descobrisse que os Tondrar não mataram os garotos, iria desconfiar — disse ele. — Iria chegar até você.
 
-— Não Daryon. Você o matou pela mesma razão que matei os garotos. Quis dar o poder nas mãos de Alyra. Quis fazer com que ela tenha o que sempre quis. Ser uma líder forte.
+— Não, Daryon. Você o matou pela mesma razão que matei os garotos. Quis dar o poder nas mãos de Alyra. Quis fazer com que ela tenha o que sempre quis. Ser uma líder forte.
 
 Daryon podia dizer dez mil coisas, mas apenas uma palavra, pequena demais para o tamanho dela, saiu de sua boca:
 
@@ -308,7 +308,7 @@ Daryon atravessou o espaço e agarrou Ylvena pelo braço. A mesa rangeu quando e
 
 — Nunca mais diga isso — sussurrou Daryon.
 
-Ylvena transformou o medo depressa em crueldade. Um ruído distante atravessou a pedra: gritos, talvez, ou metal batendo em portão interno. A cidade continuava em guerra. O mundo não esperava que os culpados terminassem suas frases. Ele respirou fundo e recolocou no rosto o bastante da máscara.
+Ylvena transformou o medo depressa em crueldade. Um ruído distante atravessou a pedra: gritos, talvez, ou metal batendo em portão interno. A cidade continuava em guerra. O mundo não esperava que os culpados terminassem suas frases. Daryon respirou fundo e recolocou no rosto o bastante da máscara.
 
 — Você vai embora. E tem até os sinos cessarem — disse ele.
 
@@ -352,7 +352,7 @@ Kaelina avançou mais um pouco. A dor subiu pelas pernas como fogo frio, mas ela
 
 Ylvena ergueu o queixo.
 
-— Matou meu pai.
+— E matou meu pai.
 
 Algo cruzou o rosto de Ylvena. Não arrependimento. Incômodo, talvez, por ouvir a consequência sem os adornos que usava para si mesma.
 
@@ -370,7 +370,7 @@ Ylvena soltou um suspiro.
 
 Kaelina deu outro passo, e dessa vez Ylvena viu que havia algo mudando. Não coragem. Não autoridade. Algo mais baixo. Mais antigo. Algo que não precisava de trono.
 
-Ylvena olhou para a lamparina. Foi um movimento pequeno demais para ser casual. Ylvena agarrou a lamparina e a lançou contra ela.
+Ylvena olhou para a lamparina. Foi um movimento pequeno demais para ser casual. Então agarrou a lamparina e a lançou contra ela.
 
 Kaelina desviou por instinto, não por cálculo. O objeto passou raspando pelo ombro e bateu na parede atrás, espalhando óleo e chama pequena sobre a pedra úmida. O fogo não pegou forte, mas a luz saltou, e Ylvena avançou junto com ela, rápida demais para uma mulher que parecia tão gasta. O primeiro golpe acertou Kaelina no rosto.
 
@@ -424,7 +424,7 @@ Kaelina olhou para o corpo. O que ela tinha feito? Viva, Ylvena podia falar. Mor
 
 O pensamento veio tão claro que quase pareceu dito por outra pessoa. Ninguém nunca mais saberia a verdade como ela ouvira — Ylvena dizer que matou os garotos, confessar que Orionus bebera o Beijo-da-Noite destinado a Alyra, dizer que mandara um homem matar Kaelina. Tudo agora dependia de uma soberana coberta de sangue e de um homem que não pertencia a lugar nenhum.
 
-Kaelina olhou para Marken, imóvel no fundo do cômodo, meio tomado pela escuridão da passagem. Seu rosto não oferecia piedade clara; para Kaelina, parecia uma porta aberta para um lugar onde respostas nunca ficavam tempo suficiente para virar conforto.
+Kaelina olhou para Marken, imóvel no fundo do cômodo, meio tomado pela escuridão da passagem. Seu rosto não oferecia piedade clara. Para Kaelina, parecia uma porta aberta para um lugar onde respostas nunca ficavam tempo suficiente para virar conforto.
 
 Mas Marken apenas olhou para ela. Depois deu um passo para trás. Recuou mais, entrando na sombra da passagem estreita. A escuridão tomou primeiro o sangue seco em sua roupa, depois o braço ferido, depois metade do rosto. Por último, ficaram os olhos, calmos demais para uma noite como aquela. E então nem eles ficaram.
 

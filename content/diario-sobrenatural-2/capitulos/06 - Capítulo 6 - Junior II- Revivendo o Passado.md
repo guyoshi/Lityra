@@ -1,38 +1,38 @@
-Quando a gente atravessa um trauma, o cérebro vira um gravador defeituoso: repete o mesmo trecho, a mesma imagem, como se insistisse em procurar um ponto onde tudo poderia ter sido diferente. Às vezes isso vem em sonho por dias, meses, anos. Às vezes vem acordado, no meio de uma manhã comum, entre um gole de café e um pensamento qualquer. Eu queria dizer que o que aconteceu comigo naquele dia foi só isso: um reflexo atrasado, o meu corpo despejando lembrança.
+No começo achei que estava ficando maluco. Depois comecei a desconfiar de que seria até melhor se fosse isso.
 
-Mas não foi.
+Às vezes eu fechava os olhos e via a Kelly no chão da casa dos Marques. Outras vezes nem precisava fechar. A imagem aparecia enquanto eu fazia um exercício, escovava os dentes ou tentava escrever. Era a mesma cena, sempre, mas cada vez eu lembrava de um detalhe que preferia esquecer.
 
-Se foi um sonho, teve o peso de coisa real. E o pior: teve a mesma capacidade de me deixar sujo por dentro, como se eu tivesse encostado em algo podre e o cheiro não largasse a pele.
+O facão era um deles. Depois daquela noite, enrolei numa toalha e escondi no fundo do armário, e mesmo assim eu sabia exatamente onde ele estava.
 
-Acordei cedo com um barulho que não combinava com a rua: caminhão de mudança, batida seca de móveis, vozes dando ordens, metal arranhando metal. Por mais de um ano, a casa ao lado tinha ficado vazia, um buraco silencioso onde antes existia vida, gargalhada, discussão, passos de gente que eu conhecia. Eu já não conseguia imaginar outra pessoa morando ali.
+Naquela manhã acordei com barulho de mudança. Um caminhão estava parado na casa ao lado, a antiga casa da família da Kelly. Ouvi gente carregando móveis, discutindo onde pôr o sofá, batendo portas. Fiquei com raiva. Eu sei que não fazia sentido. A casa estava vazia havia quase um ano, não podia ficar assim para sempre. Mas ouvir desconhecidos conversando naquele quintal me deu vontade de fechar a janela com força.
 
-O café da manhã estava lá, como sempre. Minha mãe, não.
+Desci para tomar café. Minha mãe já tinha deixado tudo preparado, mas não estava na cozinha. Em geral eu a ouvia cantando junto com o rádio ou reclamando que eu tinha largado algum livro na mesa. Naquele dia só havia silêncio.
 
-Aquilo me pareceu estranho, porque ela era o tipo de presença que ocupava a casa mesmo calada: o ruído de panela, o rádio baixinho, uma tosse, qualquer coisa. Naquele dia, a cozinha estava quieta demais. Sentei, comecei a comer, e a minha cabeça já estava longe, na história que eu tentava escrever, na forma como eu poderia transformar caos em alguma coisa com começo, meio e fim. Como quem organiza uma gaveta cheia de vidro quebrado: se eu desse nome às peças, talvez elas parassem de me cortar.
+Sentei, peguei o pão e tentei pensar na história que vinha escrevendo. Estava preso num capítulo havia dias. Na ficção, quando um personagem fazia uma escolha errada, eu podia voltar algumas páginas e mudar tudo. Cheguei a rir sozinho da ideia. Seria ótimo se a vida tivesse borracha.
 
 Foi quando uma mosca pousou em cima do meu pão.
 
 Sacudi com impaciência, mais irritado do que deveria, e ela voou em direção ao corredor, até a porta do banheiro, que estava entreaberta. A luz lá dentro estava acesa.
 
-Fiquei parado com o pão na mão, sentindo um desconforto frio subindo pela nuca. Ou minha mãe estava lá escovando os dentes, ou tinha saído e deixado a luz acesa, o que não era comum. A luz acesa, a porta entreaberta, a ausência dela na cozinha: tudo se juntou como pequenos sinais de que algo tinha saído do padrão. E eu tinha virado uma pessoa que vivia farejando padrões.
+Fiquei olhando para a porta. Minha mãe podia estar lá dentro, claro. Mas, depois do que aconteceu na casa dos Marques, uma luz acesa num quarto vazio já era motivo suficiente para eu ficar nervoso. Larguei o pão e fui conferir.
 
 — Mãe? — chamei, já me aproximando.
 
 Empurrei a porta do banheiro e virei o rosto para dentro.
 
-O mundo perdeu o ar.
+Queria não ter aberto aquela porta.
 
-Caí de costas no chão como se alguém tivesse me empurrado, e o primeiro pensamento que eu tive foi ridículo: eu não vou conseguir gritar. Eu quis tanto que parecia que eu ia estourar. Mas o meu corpo falhou. O chão estava coberto de sangue e, no meio daquele vermelho impossível, estava o corpo da minha mãe. Os olhos abertos, a boca aberta, uma expressão de pavor tão absoluta que parecia ter sido congelada ali.
+Caí de costas no chão como se alguém tivesse me empurrado, e o primeiro pensamento que eu tive foi ridículo: eu não vou conseguir gritar. Quis tanto que achei que ia estourar, mas o meu corpo falhou. O chão estava coberto de sangue e, no meio daquele vermelho impossível, estava o corpo da minha mãe. Os olhos abertos, a boca aberta, uma expressão de pavor tão absoluta que parecia ter sido congelada ali.
 
 Tentei puxar o ar. Não veio.
 
-E, antes de qualquer som existir, num piscar de olhos, ela desapareceu.
+E, antes de qualquer som existir, ela desapareceu.
 
 A luz também não estava mais acesa. O banheiro estava normal. A porta continuava na mesma posição.
 
-Saí do transe como quem escapa de um afogamento. Encostei na parede, acendi a luz do corredor e olhei ao redor, esperando que o mundo me oferecesse uma explicação. Tudo normal. E mesmo assim a sensação não largou.
+Me arrastei para trás até encostar na parede. Fiquei olhando para o banheiro vazio. Segundos antes ela estava morta ali, eu tinha certeza. Agora nem sangue havia no chão.
 
-Não era medo comum.
+A raiva veio tão depressa quanto o medo. Dei um murro na parede e me arrependi na hora. Doeu. Pelo menos aquela dor era real.
 
 Corri para as escadas e gritei o nome dela, como se volume pudesse desfazer imagem.
 
@@ -64,9 +64,9 @@ Eu saía da escola às 12:30 nas segundas-feiras e, como morava perto, às 12:45
 
 Caminhei mais, passei reto pela minha rua e continuei. Quando parei, eu estava de frente para a casa onde tudo tinha acontecido.
 
-O mato tinha sido cortado. A casa estava ali, exposta, sem o disfarce verde que antes deixava tudo mais distante e mais fácil de negar. Parei a poucos metros da porta, exatamente no lugar onde a história tinha virado sentença.
+O mato tinha sido cortado. A casa estava ali, exposta, sem o disfarce verde que antes deixava tudo mais distante e mais fácil de negar. Parei a poucos metros da porta, bem no lugar onde a história tinha virado sentença.
 
-Havia um silêncio naquele pedaço da rua que não era natural; era silêncio de coisa enterrada.
+Havia um silêncio naquele pedaço da rua, silêncio de coisa enterrada.
 
 — Ei, garoto! — gritou alguém.
 
@@ -74,15 +74,17 @@ Virei e vi um policial numa motocicleta. Ele parou perto de mim e falou num tom 
 
 — Melhor sair de perto dessa casa. Ela corre risco de desabar.
 
-Levantou os óculos escuros e apertou os olhos, a minha cara parecia lembrá-la de alguma coisa.
+Levantou os óculos escuros e apertou os olhos, como se meu rosto lhe lembrasse alguma coisa.
 
 — Espera… você é um dos garotos do escândalo do ano passado. Você tava aqui no dia em que aquela menina foi assassinada.
+
+A palavra “assassinada” me atingiu pior do que qualquer acusação. Por um segundo tive vontade de mandar aquele policial calar a boca. Fechei as mãos, respirei e respondi antes que a raiva decidisse falar por mim.
 
 — Tava — respondi.
 
 Ele me analisou, ergueu uma sobrancelha.
 
-— Não pega bem você andar por aqui depois do que houve. 
+— Não pega bem você andar por aqui depois do que houve.
 
 Eu não respondi. Minha cara fechou sozinha. Virei para ir embora.
 
@@ -102,29 +104,29 @@ O cachorro veio na minha direção com aquela dificuldade clássica de respirar,
 
 Levantei a cabeça e vi uma senhora baixa e curvada, com o mesmo olhar carrancudo da última vez que a tinha visto.
 
-— Dona Esther? — perguntei. O nome saiu com um estranhamento que não era só surpresa; era o peso de lembrar que aquela casa tinha sido dela antes de tudo… antes de Kelly… antes de Agouro virar uma palavra que eu não queria ouvir nem dentro da minha cabeça.
+— Dona Esther? — perguntei. O nome saiu com estranhamento. Aquela casa tinha sido dela antes de tudo, antes da Kelly, antes de Agouro virar uma palavra que eu não queria ouvir nem dentro da minha cabeça.
 
-— Surpreso em me ver de novo, garoto? — ela perguntou ela, antes mesmo de eu fazer a minha pergunta. — E não faz essa cara de tacho. Eu não vim pedir permissão para adolescente nenhum.
+— Surpreso em me ver de novo, garoto? — perguntou ela, antes mesmo de eu fazer a minha pergunta. — E não faz essa cara de tacho. Eu não vim pedir permissão para adolescente nenhum.
 
 — Eu achei que… eu ouvi caminhão… pensei que fossem vizinhos novos. Quer dizer… novos no sentido de…
 
 — No sentido de que eu sou velha — completou, com uma impaciência que parecia vir de muito antes de mim. — Sim. Eu sou. E você continua sem jeito, do mesmo jeito que era. Você e aquele seu amigo gordinho. Essa geração fala demais e pensa de menos.
 
-Engoli a resposta fácil. 
+Engoli a resposta fácil.
 
-— Fui morar perto da minha filha — ela disse. — Achei que ia ser bom. Família. Companhia. Mas eu sentia que tava atrapalhando mais que ajudando. Tem lugar que a gente ocupa sem querer… e mesmo assim ocupa. 
+— Fui morar perto da minha filha — ela disse. — Achei que ia ser bom. Família. Companhia. Mas eu sentia que tava atrapalhando mais que ajudando. Tem lugar que a gente ocupa sem querer… e mesmo assim ocupa.
 
-— Às vezes é melhor termos nosso espaço mesmo. Escuta, D. Esther… posso conversar contigo… em particular? 
+— Às vezes é melhor termos nosso espaço mesmo. Escuta, D. Esther… posso conversar com a senhora… em particular?
 
-Depois soltou um suspiro que parecia antigo.
+Ela me avaliou por um instante. Depois soltou um suspiro que parecia antigo.
 
 — A cidade anda estranha — disse por fim, desviando o olhar para dentro da casa, como se conferisse se não havia mais ninguém ouvindo. — E você anda com cara de quem não dorme há um ano.
 
 A garganta apertou sozinha, reconhecendo a frase.
 
-— Andam falando muito de você, sabia? — disse. 
+— Andam falando muito de você, sabia? — disse.
 
-Hesitei. No passado a Sra. Esther me chamara diversas vezes para falar sobre a vida dela, e me ouvia quando eu falava dos meus romances. Era uma velhinha rabugenta, mas muito doce ao mesmo tempo. Talvez ela pudesse me ajudar.
+Hesitei. A última vez que me meti com a Dona Esther, ela estourou a minha bola e ainda ligou pra minha mãe fingindo que sentia muito. Era a vizinha mais insuportável da rua, e o Petrão, o motivo de toda a confusão. Mas ninguém conhecia aquela casa melhor do que ela. Talvez ela pudesse me ajudar.
 
 — Eu preciso conversar com a senhora — falei. — Eu não quero tomar seu tempo. Mas… eu preciso de ajuda. Ou de… sei lá. De uma resposta.
 
@@ -144,11 +146,11 @@ O portão tinha ficado fechado atrás de nós, e ninguém sabia que eu estava al
 
 Procurei uma forma de dizer sem dizer.
 
-— Eu perdi alguém — disse, e a frase saiu pequena demais para o peso que carregava. — E eu… eu não consigo seguir. E eu sei que… a senhora já perdeu pessoas… já me contou antes que conseguiu seguir, que superou… mas eu não sei como. 
+— Eu perdi alguém — disse, e a frase saiu pequena demais para o peso que carregava. — E eu… eu não consigo seguir. E eu sei que… a senhora já perdeu pessoas… já me contou antes que conseguiu seguir, que superou… mas eu não sei como.
 
 Dona Esther ficou um instante olhando para o nada, como se a palavra “perda” abrisse uma gaveta que ela tentava manter fechada.
 
-— O que aconteceu com aquela menina foi horrível… — ela disse. — Lá fora ninguém fica sabendo de nada. Eu só soube quando descobri semanas atrás que a casa daqui estava a venda mais uma vez. Comprei do mesmo casal que vendi… 
+— O que aconteceu com aquela menina foi horrível… — ela disse. — Lá fora ninguém fica sabendo de nada. Eu só soube quando descobri semanas atrás que a casa daqui estava à venda mais uma vez. Comprei do mesmo casal que vendi… 
 
 Engoli seco e falei:
 
@@ -158,7 +160,7 @@ Dona Esther me olhou com a paciência áspera de quem não gosta de gente, mas e
 
 — E o que tem a ver o tempo? — ela disse. — Experiência não se mede por tempo. Se mede por intensidade. Há minutos que marcam mais do que anos.
 
-— Não é só isso… eu errei… e sinto tanta culpa… e eu não sei o que fazer pra melhorar isso — perguntei, meus olhos marejando. 
+— Não é só isso… eu errei… e sinto tanta culpa… e eu não sei o que fazer pra melhorar isso — perguntei, meus olhos marejando.
 
 Dona Esther inclinou o corpo na cadeira, como se fosse falar algo que ela mesma detestava ouvir.
 
@@ -166,13 +168,9 @@ Dona Esther inclinou o corpo na cadeira, como se fosse falar algo que ela mesma 
 
 Ela se levantou e foi até uma cômoda. Abriu uma gaveta com cuidado, como se o som de dentro fosse sagrado.
 
-— Todo mundo acha que “seguir em frente” é esquecer — continuou, sem me olhar. — Não é. É carregar sem se deixar esmagar. É aprender a respirar mesmo com a pedra no peito. E é aprender a não tomar decisão com a cabeça enterrada no passado.
-
 Voltou com um porta-retrato virado para baixo e o apoiou no colo, sem me mostrar a foto.
 
 — Eu trouxe isso quando voltei — disse. — Achei que ia jogar fora. E não consegui. Está vendo? Eu sou a pessoa errada para dar lição de desapego.
-
-— Eu só quero que você entenda uma coisa — continuou. — Tem lembrança que vira armadilha. Tem lembrança que vira ferramenta. Se você usa para se punir, você morre em vida. Se você usa para mudar o jeito que vive, ela vira força.
 
 Engoli seco.
 
@@ -197,7 +195,7 @@ Peguei a mochila, uma garrafa de água e fui até o ponto de ônibus mais próxi
 Passei pelo vão e caminhei por entre túmulos, varrendo as lápides com os olhos até encontrar.
 
 “Kelly Lorraine Fontenelle
-19/03/1987 — 01/03/2002”
+1986 — 16/03/2002”
 
 Eu me ajoelhei diante do túmulo e fechei os olhos.
 
@@ -213,7 +211,7 @@ Funguei e limpei as lágrimas com o punho, sentindo vergonha de chorar em voz al
 
 — Eu sinto muito. Eu sinto muito mesmo.
 
-Fiquei ali por um tempo, com o sol batendo em cima de mim, e em algum momento apaguei. Não foi um sono de verdade; foi mais como desligar.
+Fiquei ali por um tempo, com o sol batendo em cima de mim, e em algum momento apaguei. Foi menos um sono do que um desligar.
 
 Quando abri os olhos, já era noite.
 
@@ -273,7 +271,7 @@ Quando olhei para trás, nada me perseguia.
 
 O cadáver tinha ficado no cemitério.
 
-Eu tinha dito antes que traumas fazem a gente sonhar. Aquilo foi mais do que sonho. Voltei para casa a passos largos, aflito, com a sensação de que o mundo estava brincando com as minhas lembranças.
+Aquilo tinha sido mais do que sonho. Voltei para casa a passos largos, aflito, com a sensação de que o mundo estava brincando com as minhas lembranças.
 
 E então eu vi uma garota parada em frente à minha porta.
 
@@ -303,7 +301,7 @@ Ela respirou, como se puxar memória doesse.
 
 — Não. Eu não lembro de como vim parar aqui.
 
-— Tudo bem… — eu disse — Você sabe seu nome?
+— Tudo bem… — eu disse. — Você sabe seu nome?
 
 Ela hesitou.
 

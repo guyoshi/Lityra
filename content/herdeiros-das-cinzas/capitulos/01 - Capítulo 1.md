@@ -280,6 +280,12 @@ Atrás deles, do fogo, a voz de Klafres alcançou a conversa sem esforço.
 
 — Eu odeio o homem do sal — disse Nefestra, e raspou a pele com mais força.
 
+— Quer um conselho de graça, rapaz? — disse Klafres. — O homem do sal pesa quem baixa os olhos. Na hora de vender, você diz que a pele é ruim, que quase a deixou na neve, que só trouxe por pena. Ele vai querer provar que você está errado e acaba pagando mais.
+
+— Klafres — disse Mentesra, do balde, sem se virar. — Não ensina a mentir ao menino.
+
+— Não estou ensinando a mentir. Estou ensinando a vender. — Ele piscou para Sefter, com o olho que a mulher não via. — A diferença é o olhar. Mente-se olhando a pessoa nos olhos. Quem olha o chão está contando o que fez.
+
 Nefestra cortou o último tendão da pele, puxou o couro inteiro para trás com um som úmido e olhou o primo com um sorriso torto, de quem ganhou e queria que ele percebesse. Sefter, que ia reclamar, descobriu que estava rindo. Do outro lado do abrigo, Mentesra olhava as mãos dele sobre a faca, perto do braço da filha, e o olhar durou só o tempo de uma respiração. Nefestra, sem erguer a cabeça, puxou a tábua para longe da faca dele, e a mãe voltou ao balde.
 
 Sefter esperou que os adultos se ocupassem do fogo e baixou a voz, sem tirar os olhos da faca.

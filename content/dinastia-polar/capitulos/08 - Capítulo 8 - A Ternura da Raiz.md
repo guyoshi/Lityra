@@ -2,21 +2,21 @@ Três dias tinham passado desde que Orel fora espancado, e nada acontecera.
 
 Kalan tinha aprendido, ao longo daqueles três dias, a desconfiar exatamente da forma como nada acontecia. Os guardas não voltaram. Ninguém apareceu perguntando pela caixa de Roven, nem por Darven, nem por Meral, nem por nenhum dos nomes que Tair inventara ou meio inventara na pressa daquela noite. Kalan continuara indo para o cais todas as manhãs, continuara carregando, pesando, empilhando, e o silêncio começara a parecer, se não seguro, ao menos suportável, do tipo de coisa que se aprende a carregar junto com o resto.
 
-O cais, esse sim, mudava todos os dias. O torneio ainda não tinha campeões, mas já tinha peso. Chegavam mais barcos do que Kalan conseguia contar numa manhã só, muitos deles com marcas de portos que ele nunca aprendera a reconhecer, e as pilhas de caixotes cresciam nos pátios mais rápido do que a Companhia conseguia registrar. Havia gente nova circulando entre os armazéns: homens que não cumprimentavam ninguém, que conheciam os caminhos entre os depósitos sem perguntar, que carregavam cargas seladas pela Raiz sem que qualquer inspetor parecesse interessado em abri-las. Kalan reparava nisso do mesmo jeito que reparava num peso errado ou numa corda gasta demais: um incômodo pequeno, sem forma clara, que ele guardava para pensar depois e nunca tinha tempo de pensar de fato. Um caixote marcado para Roven acabava no pátio errado. Um nome se repetia em dois registros de turnos diferentes no mesmo dia. Um selo da Raiz passava direto por uma inspeção que, semanas antes, teria parado a fila inteira. Nenhuma dessas coisas, isoladas, significava nada. Era só o jeito como uma cidade se comportava quando dez dinastias estavam vindo visitá-la ao mesmo tempo, ou era isso que Kalan preferia pensar enquanto empilhava mais uma fileira de caixas e seguia para a próxima.
+O cais, esse sim, mudava todos os dias. O torneio ainda não tinha campeões, mas já tinha peso. Chegavam mais barcos do que Kalan conseguia contar numa manhã, muitos com marcas de portos que ele nunca aprendera a reconhecer, e as pilhas de caixotes cresciam nos pátios mais rápido do que a Companhia conseguia registrar. Havia gente nova circulando entre os armazéns: homens que não cumprimentavam ninguém, que conheciam os caminhos entre os depósitos sem perguntar, que carregavam cargas seladas pela Raiz sem que qualquer inspetor parecesse interessado em abri-las. Kalan reparava nisso do mesmo jeito que reparava num peso errado ou numa corda gasta demais: um incômodo pequeno, que ele guardava para pensar depois e nunca tinha tempo. Um caixote marcado para Roven acabava no pátio errado. Um nome se repetia em dois registros de turnos diferentes no mesmo dia. Um selo da Raiz passava direto por uma inspeção que, semanas antes, teria parado a fila inteira. Nenhuma dessas coisas, isoladas, significava nada. Era só o jeito como uma cidade se comportava quando dez dinastias estavam vindo visitá-la, ou era isso que Kalan preferia pensar enquanto empilhava mais uma fileira de caixas.
 
 Estava assim, com os braços ainda doloridos de uma carga que pesara mais do que devia, quando Cairon apareceu ao lado da plataforma e disse seu nome baixo, como quem não quer que outras cabeças se virem.
 
 — Kalan.
 
-Havia algo errado na voz. Cairon nunca chamava ninguém daquele jeito; chamava por sobrenome de trabalho, por apelido de pátio, por gesto de cabeça. Kalan largou a caixa que carregava sobre a plataforma e se aproximou, e só então percebeu que Cairon não estava sozinho: dois homens de capa curta esperavam alguns passos atrás dele, parados com a paciência de quem já fizera aquilo antes muitas vezes.
+Havia algo errado na voz. Cairon nunca chamava ninguém daquele jeito. Chamava por sobrenome de trabalho, por apelido de pátio, por gesto de cabeça. Kalan largou a caixa sobre a plataforma e se aproximou, e só então percebeu que Cairon não estava sozinho: dois homens de capa curta esperavam alguns passos atrás dele, parados com a paciência de quem já fizera aquilo muitas vezes.
 
 — Filhos da Raiz vieram te buscar — disse Cairon, e a voz continuava baixa, mas não tinha nada de acusação nela. — Querem levar você para conversar.
 
 — Conversar sobre o quê?
 
-— Não disseram. — Cairon olhou rapidamente para os dois homens e voltou a olhar para Kalan, e havia nesse olhar uma preocupação que não combinava com o que geralmente se reservava a um ladrão, ou a um homem perigoso, ou a qualquer coisa que a Raiz pudesse estar pensando que Kalan era. — Vá com eles. Não dê motivo.
+— Não disseram. — Cairon olhou rapidamente para os dois homens e voltou a olhar para Kalan, com uma preocupação que não combinava com o que se reservava a um ladrão, ou a um homem perigoso. — Vá com eles. Não dê motivo.
 
-Kalan quis perguntar se devia se preocupar, mas a pergunta pareceu pequena diante do jeito como Cairon já tinha se virado, já estava dando instruções para Naro assumir a plataforma, já estava tratando aquilo como uma interrupção do turno e não como o fim de alguma coisa.
+Kalan quis perguntar se devia se preocupar, mas a pergunta pareceu pequena diante do jeito como Cairon já tinha se virado, já dava instruções para Naro assumir a plataforma, já tratava aquilo como uma interrupção do turno e não como o fim de alguma coisa.
 
 — Cairon.
 
@@ -28,11 +28,11 @@ Kalan guardou a frase de Cairon enquanto seguia os dois homens de capa curta par
 
 Levaram-no a pé, sem pressa e sem corda, através de ruas que iam se alargando e enchendo de tecido azul mais escuro à medida que se afastavam do cais. Kalan reconheceu o caminho antes de reconhecer o destino: saíram da Cidade Interna e seguiram pela parte alta da Intermediária, perto da subida para Namar e o Caminho da Permanência. O Santuário da Raiz Eterna se erguia ali, visível acima dos telhados próximos.
 
-O prédio era mais alto do que qualquer coisa que Kalan já tinha visto de perto, com duas torres afiladas erguendo-se sobre um corpo largo de pedra escura, e as raízes esculpidas na fachada pareciam menos decoração do que aviso: continuavam crescendo, entrelaçadas, até desaparecerem em algum ponto acima da porta que Kalan não conseguia mais enxergar sem inclinar a cabeça.
+O prédio era mais alto do que qualquer coisa que Kalan já tinha visto de perto, com duas torres afiladas sobre um corpo largo de pedra escura, e as raízes esculpidas na fachada pareciam menos decoração do que aviso: continuavam crescendo, entrelaçadas, até desaparecerem acima da porta.
 
-Não o levaram direto para dentro de nenhuma sala fechada. Atravessaram primeiro um pátio largo onde uma fila de gente esperava por mingau de grão e caldo de casca distribuídos em tigelas de barro, crianças e velhos na frente, alguém anotando nomes numa tábua para garantir que ninguém recebesse duas vezes. Mais adiante, sob uma cobertura de tecido grosso, outra fila esperava por atendimento de cura: Kalan viu um homem sendo enfaixado no braço, uma mulher recebendo um frasco pequeno com instruções repetidas duas vezes até ela concordar com a cabeça, uma criança sentada no colo de alguém, imóvel, sendo examinada por dedos cuidadosos. Um terceiro grupo esperava perto de uma mesa coberta de papéis, e Kalan ouviu um funcionário explicando com paciência a um velho como preencher um registro de transferência, repetindo cada palavra difícil até o velho conseguir repetir de volta.
+Não o levaram direto para nenhuma sala fechada. Atravessaram primeiro um pátio largo onde uma fila de gente esperava por mingau de grão e caldo de casca distribuídos em tigelas de barro, crianças e velhos na frente, alguém anotando nomes numa tábua para garantir que ninguém recebesse duas vezes. Mais adiante, sob uma cobertura de tecido grosso, outra fila esperava por atendimento de cura: um homem sendo enfaixado no braço, uma mulher recebendo um frasco pequeno com instruções repetidas duas vezes até ela concordar com a cabeça, uma criança no colo de alguém, imóvel, sendo examinada por dedos cuidadosos. Perto de uma mesa coberta de papéis, um funcionário explicava com paciência a um velho como preencher um registro de transferência, repetindo cada palavra difícil até o velho conseguir repetir de volta.
 
-Kalan conhecia a encenação dos discursos de Teral e dos gestos de Alveris, mas o que via ali o desconcertava. As pessoas na fila da comida pareciam cansadas, não amedrontadas. A mulher com o frasco parecia aliviada, não grata demais. Era, pensou Kalan enquanto os dois homens o conduziam por uma passagem lateral, o tipo de coisa que tornava tudo mais complicado, porque era muito mais fácil odiar uma instituição que só fazia mal do que uma que também alimentava crianças e ensinava velhos a preencher papéis que ninguém mais se dava ao trabalho de explicar.
+Kalan conhecia a encenação dos discursos de Teral e dos gestos de Alveris, mas o que via ali o desconcertava. As pessoas na fila da comida pareciam cansadas, não amedrontadas. A mulher com o frasco parecia aliviada. Era, pensou Kalan enquanto o conduziam por uma passagem lateral, o tipo de coisa que tornava tudo mais complicado, porque era muito mais fácil odiar uma instituição que só fazia mal do que uma que também alimentava crianças e ensinava velhos a preencher papéis que ninguém mais se dava ao trabalho de explicar.
 
 *
 
@@ -56,7 +56,7 @@ Ele fez um gesto pequeno e um dos guardas se adiantou.
 
 — E nós dissemos que confirmaríamos os registros antes do amanhecer — completou o segundo guarda.
 
-Hadris deixou o silêncio se assentar por um momento antes de continuar, e havia nesse silêncio uma qualidade deliberada, quase didática, como se ele estivesse ensinando Kalan a prestar atenção ao formato da própria armadilha.
+Hadris deixou o silêncio se assentar, deliberado, quase didático, como se ensinasse Kalan a prestar atenção ao formato da própria armadilha.
 
 — Vocês confirmaram?
 
@@ -68,7 +68,7 @@ Kalan manteve o rosto o mais quieto que conseguiu, mas sentiu o próprio pulso m
 
 Hadris apoiou as duas mãos sobre a mesa, dedos entrelaçados, e olhou para Kalan como quem já sabia a resposta e só queria ver quanto tempo o outro demoraria a admitir isso.
 
-— Você foi visto na Casa da Permanência naquela mesma manhã. Antes da hora normal de abertura de qualquer casa de Maruva, o que já é, por si só, um comportamento pouco comum para um trabalhador da Balança Azul. E pouco depois da sua visita, especificamente a caixa de Roven — não qualquer caixa, a caixa exata que continha os registros que provariam ou desmentiriam a acusação de Tair — desapareceu.
+— Você foi visto na Casa da Permanência naquela mesma manhã, antes da hora normal de abertura de qualquer casa de Maruva, o que já é pouco comum para um trabalhador da Balança Azul. E pouco depois da sua visita, a caixa de Roven, a exata que continha os registros que provariam ou desmentiriam a acusação de Tair, desapareceu.
 
 — Eu fui verificar uma coisa. — A voz de Kalan saiu mais firme do que ele esperava, embora o coração continuasse acelerado. — Isso não é roubar uma caixa.
 
@@ -80,19 +80,19 @@ Ouvindo o próprio caso ser narrado por outra pessoa, Kalan percebeu o rastro qu
 
 *
 
-O homem que entrou depois não se apresentou como autoridade, nem precisou. Kalan soube quem era antes mesmo de a porta se fechar de novo: a cabeça raspada, o rosto tão magro que os ossos pareciam mais próximos da pele do que deveriam, os olhos afundados num escuro que a lamparina não alcançava iluminar de verdade. O Sumo Vigia se movia devagar, sem pressa nenhuma, como um homem que já tinha decidido há muito tempo que o tempo lhe pertencia por completo.
+O homem que entrou depois não se apresentou como autoridade, nem precisou. Kalan soube quem era antes mesmo de a porta se fechar: a cabeça raspada, o rosto tão magro que os ossos pareciam mais próximos da pele do que deveriam, os olhos afundados num escuro que a lamparina não alcançava. O Sumo Vigia se movia devagar, como um homem que já tinha decidido há muito tempo que o tempo lhe pertencia.
 
-Não se sentou do outro lado da mesa. Atravessou a sala devagar e se ajoelhou diante de Kalan, os joelhos velhos assentando no chão de pedra sem nenhuma pressa, como se aquele gesto (um homem daquela idade, daquela posição, dobrando o corpo diante de um trabalhador do cais) não custasse nada, ou custasse tão pouco que valia a pena gastá-lo ali. Ficou perto o suficiente para que Kalan sentisse o cheiro de incenso preso nas dobras da roupa azul-negra.
+Não se sentou do outro lado da mesa. Atravessou a sala e se ajoelhou diante de Kalan, os joelhos velhos assentando no chão de pedra, como se aquele gesto (um homem daquela idade, daquela posição, dobrando o corpo diante de um trabalhador do cais) custasse tão pouco que valia a pena gastá-lo ali. Ficou perto o suficiente para que Kalan sentisse o cheiro de incenso preso nas dobras da roupa azul-negra.
 
 — Você deve estar com medo — disse, com uma voz rouca e lenta que parecia ter atravessado décadas antes de chegar até ali. — Isso é natural. O medo, em geral, é o primeiro sinal de que uma pessoa ainda não se perdeu por completo.
 
 — Eu não fiz nada.
 
-— Eu sei que é isso que você acredita neste momento. — O Sumo Vigia não discordou, exatamente; só deslocou a frase para um lugar onde discordar não era mais necessário. — E eu não penso, Kalan, que você seja um homem mau. Vejo isso claramente, sabe? Vejo um homem que carrega os outros nas costas desde muito jovem, que protege quem ama do jeito que sabe proteger, com as mãos que tem, com a força que tem. Isso não é maldade. É um coração perdido tentando fazer o que acha certo sem ninguém para lhe mostrar o caminho verdadeiro.
+— Eu sei que é isso que você acredita neste momento. — O Sumo Vigia não discordou, só deslocou a frase para um lugar onde discordar não era mais necessário. — E eu não penso, Kalan, que você seja um homem mau. Vejo um homem que carrega os outros nas costas desde muito jovem, que protege quem ama do jeito que sabe proteger, com as mãos que tem. Isso não é maldade. É um coração perdido tentando fazer o que acha certo sem ninguém para lhe mostrar o caminho verdadeiro.
 
 Ele estendeu a mão e Kalan se afastou por reflexo, mas o banco não deixava muito espaço, e os dedos do Sumo Vigia, frios mesmo através do couro das luvas pintadas, alcançaram seu rosto de qualquer forma, tocando de leve a lateral do maxilar, quase um carinho, quase o gesto que uma avó faria a uma criança que acabara de cair.
 
-— A mentira corrompe quem a sustenta, mesmo quando nasce de boa intenção — continuou ele, sem pressa, sem retirar a mão. — Cada dia que você carrega essa mentira, ela cresce um pouco mais dentro de você, até que um dia você não vai mais conseguir distinguir onde ela termina e onde você começa. Mas a confissão, Kalan... a confissão liberta. Eu vi isso muitas vezes. Homens que carregavam anos de peso e, ao dizer a verdade, pareciam nascer de novo diante dos meus olhos.
+— A mentira corrompe quem a sustenta, mesmo quando nasce de boa intenção — continuou ele, sem retirar a mão. — Cada dia que você carrega essa mentira, ela cresce um pouco mais dentro de você, até que você não consiga mais distinguir onde ela termina e onde você começa. Mas a confissão, Kalan... a confissão liberta. Eu vi homens que carregavam anos de peso e, ao dizer a verdade, pareciam nascer de novo diante dos meus olhos.
 
 — Eu já disse a verdade. Não sei onde está a caixa.
 
@@ -114,11 +114,11 @@ Ele caminhou até a porta e parou ali, sem se virar de novo.
 
 — Eu não vou até Maruva, Kalan. Não preciso. — Havia algo quase gentil ainda na voz, mas também, por baixo, uma certeza absoluta do próprio poder, do tipo que não precisa ser demonstrada porque nunca foi questionada. — Hadris vai. E o que Hadris encontrar lá vai chegar até mim de qualquer forma, esteja eu sentado aqui ou não.
 
-A porta se fechou. Kalan ficou sozinho por um tempo que não soube medir, tentando não pensar demais na sensação dos dedos frios ainda presos na própria pele, tentando, em vez disso, construir na cabeça a imagem de Karesis em casa, sóbrio o suficiente, disposto o suficiente, capaz de aparecer diante de qualquer autoridade e dizer as palavras certas pela primeira vez em muito tempo.
+A porta se fechou. Kalan ficou sozinho por um tempo que não soube medir, tentando não pensar na sensação dos dedos frios ainda presos na própria pele, tentando construir na cabeça a imagem de Karesis em casa, sóbrio o suficiente, capaz de aparecer diante de qualquer autoridade e dizer as palavras certas pela primeira vez em muito tempo.
 
 *
 
-O caminho de volta a Maruva pareceu mais curto do que o caminho de ida, talvez porque Kalan passara boa parte dele repetindo para si mesmo a mesma sequência de fatos, tentando transformá-la em plano: Karesis estava em casa. Karesis podia assumir a responsabilidade. Uma multa, um registro, alguma humilhação pequena e conhecida: nada daquilo era bom, mas era o tipo de coisa que a casa já tinha sobrevivido antes. Hadris caminhava alguns passos na frente, ao lado dos dois guardas, sem falar muito, e Kalan seguia entre eles com as mãos livres, sem corda, sem grilhão, o que de alguma forma tornava tudo mais estranho: ninguém o tratava como um homem perigoso, e ainda assim ele sabia, com uma certeza fria no fundo do estômago, que não estava livre para ir a lugar nenhum além daquele que estavam indo.
+O caminho de volta a Maruva pareceu mais curto, talvez porque Kalan passara boa parte dele repetindo a mesma sequência de fatos, tentando transformá-la em plano: Karesis estava em casa. Karesis podia assumir a responsabilidade. Uma multa, um registro, alguma humilhação pequena e conhecida: nada daquilo era bom, mas era o tipo de coisa que a casa já tinha sobrevivido antes. Hadris caminhava alguns passos na frente, ao lado dos dois guardas, e Kalan seguia entre eles com as mãos livres, sem corda, sem grilhão, o que tornava tudo mais estranho: ninguém o tratava como um homem perigoso, e ainda assim ele sabia, com uma certeza fria no estômago, que não estava livre para ir a lugar nenhum além daquele que estavam indo.
 
 Maruva os recebeu com o mesmo barulho de sempre: panelas, disputas por água, alguém chamando uma criança por um nome que não era exatamente um nome, só um som que só aquela família entendia. E por um instante aquilo pareceu tão normal que Kalan quase conseguiu acreditar que o resto do dia também seria normal.
 
@@ -130,7 +130,7 @@ Foi Tair quem abriu, e o rosto dele mudou de expressão três vezes em menos de 
 
 — Ele... — Tair olhou para dentro, como se esperasse encontrar a resposta ali, entre as paredes. — Ele estava aqui ontem à noite. Foi dormir. Eu não... não sei quando saiu.
 
-Kalan sentiu o chão do próprio plano rachar sob os pés antes mesmo de terminar de processar a frase. Empurrou a porta um pouco mais, como se um segundo olhar pudesse produzir Karesis sentado em algum canto que Tair tivesse esquecido de mencionar, mas a casa mostrava exatamente o que Tair estava dizendo: nenhum sinal dele, nenhuma bota úmida perto da porta, nenhuma garrafa deixada pela metade sobre a mesa. Era sempre assim. Karesis desaparecia sem aviso havia meses, cheirando a zírrio e bebida quando finalmente voltava, e nunca, nenhuma vez, escolhia ficar exatamente no dia em que ficar significava alguma coisa. Kalan pensou em Orel, em Tair, em Hadris. Karesis não estava ali quando mais precisavam dele.
+Kalan sentiu o chão do próprio plano rachar sob os pés. Empurrou a porta um pouco mais, como se um segundo olhar pudesse produzir Karesis sentado em algum canto, mas a casa mostrava exatamente o que Tair dizia: nenhum sinal dele, nenhuma bota úmida perto da porta, nenhuma garrafa pela metade sobre a mesa. Era sempre assim. Karesis desaparecia sem aviso havia meses, cheirando a zírrio e bebida quando voltava, e nunca escolhia ficar exatamente no dia em que ficar significava alguma coisa.
 
 — Ele estava aqui ontem à noite — repetiu Kalan, para Hadris, para si mesmo, como se repetir pudesse trazer Karesis de volta pela força da própria insistência. — Ele sempre volta. Talvez tenha ido para o rio, talvez...
 
@@ -138,7 +138,7 @@ Kalan sentiu o chão do próprio plano rachar sob os pés antes mesmo de termina
 
 A palavra pareceu maior do que o resto da frase, e Kalan viu, no rosto de Tair, que ele também tinha sentido o peso dela.
 
-Hadris entrou sem esperar convite, e os dois guardas o seguiram. Orel estava sentado perto da janela, e o corpo inteiro dele se enrijeceu ao ver os homens entrando, não pelo medo de não entender, Kalan sabia, mas justamente pelo contrário: Orel entendia perfeitamente bem o que uniforme e voz de autoridade geralmente significavam, e seu corpo já tinha aprendido essa lição da pior forma possível.
+Hadris entrou sem esperar convite, e os dois guardas o seguiram. Orel estava sentado perto da janela, e o corpo inteiro dele se enrijeceu ao ver os homens entrando, não por não entender, Kalan sabia, mas pelo contrário: Orel entendia perfeitamente o que uniforme e voz de autoridade significavam, e seu corpo já tinha aprendido essa lição da pior forma possível.
 
 — Você é o homem chamado Orel — disse Hadris, parando diante dele.
 
@@ -148,7 +148,7 @@ Orel não respondeu. Olhou para Tair, depois para Kalan, procurando alguma instr
 
 — Ele é parte de uma denúncia que se revelou falsa em pelo menos um detalhe, e agora está ligado ao desaparecimento de provas que poderiam esclarecer o resto — respondeu Hadris, sem se afastar. — E o homem que forneceu o nome falso está bem aqui, na mesma sala.
 
-Ele se voltou para Tair, e Kalan viu, pela primeira vez desde que a porta se abrira, o instante exato em que a situação deixou de ser sobre ele e passou a envolver toda a casa. Tinha protegido Orel naquela primeira noite escondendo a verdade sobre os quatro rapazes, tinha roubado uma caixa inteira para impedir que a mentira de Tair fosse descoberta rápido demais, e agora as duas coisas juntas (a mentira e o roubo) estavam trazendo Orel de volta para o mesmo perigo do início, só que maior, com mais gente dentro de casa, com menos lugar para correr.
+Ele se voltou para Tair, e Kalan viu o instante exato em que a situação deixou de ser sobre ele e passou a envolver toda a casa. Tinha protegido Orel naquela primeira noite escondendo a verdade sobre os quatro rapazes, tinha roubado uma caixa inteira para impedir que a mentira de Tair fosse descoberta rápido demais, e agora as duas coisas juntas, a mentira e o roubo, traziam Orel de volta para o mesmo perigo do início, só que maior, com mais gente dentro de casa, com menos lugar para correr.
 
 — O que aconteceu com os registros de Roven? — perguntou Hadris, virando-se de novo para Kalan.
 
@@ -158,32 +158,30 @@ Ele se voltou para Tair, e Kalan viu, pela primeira vez desde que a porta se abr
 
 — Fui verificar uma coisa. Fui embora. Não sei o que aconteceu depois disso.
 
-Era a mesma mentira de antes, mais gasta agora, mais fina, e Kalan sentia isso enquanto a dizia, sentia o quanto ela já não segurava peso nenhum. Tair, atrás dele, ficou em silêncio por um momento comprido, e Kalan quase permitiu-se pensar que aquele silêncio ia durar, mas então viu, pelo canto do olho, o exato instante em que o medo venceu.
+Era a mesma mentira de antes, mais gasta agora, mais fina, e Kalan sentia o quanto ela já não segurava peso nenhum. Tair, atrás dele, ficou em silêncio por um momento comprido, e Kalan quase se permitiu pensar que aquele silêncio ia durar, mas então viu, pelo canto do olho, o instante em que o medo venceu.
 
 — Eles vão levar a gente — disse Tair, a voz subindo, mais para si mesmo do que para qualquer outra pessoa na sala. — Vão levar Orel. Vão levar a mim.
 
-— Tair — avisou Kalan, mas já era tarde, porque Tair já tinha decidido, com aquela certeza rápida e desesperada de quem acredita que dizer a verdade tira o problema do caminho como quem tira uma pedra de dentro de um sapato, que a única saída possível era falar.
+— Tair — avisou Kalan, mas já era tarde, porque Tair já tinha decidido, com a certeza rápida e desesperada de quem acredita que dizer a verdade tira o problema do caminho como se tira uma pedra de dentro de um sapato.
 
 — Eu vi ele — disse Tair, olhando para Hadris, apontando sem querer apontar, a voz tremendo mas continuando. — Eu vi Kalan escondendo uma coisa. No caixote de grãos. Ele achou que eu estava dormindo.
 
-Silêncio. Kalan sentiu o próprio corpo ficar mais pesado, não de raiva exatamente (havia raiva ali, sim, mas afogada em outra coisa maior), uma compreensão cansada de que Tair não estava traindo por maldade, estava apenas fazendo a única coisa que sua cabeça honesta sabia fazer diante de autoridade: acreditar que a verdade, contada rápido e completa, protegeria quem ele amava.
+Silêncio. Kalan sentiu o corpo ficar mais pesado, não de raiva exatamente (havia raiva ali, mas afogada em outra coisa maior), mas de uma compreensão cansada de que Tair não estava traindo por maldade. Estava fazendo a única coisa que sua cabeça honesta sabia fazer diante de autoridade: acreditar que a verdade, contada rápido e completa, protegeria quem ele amava.
 
-Hadris olhou para o canto que Tair apontava, e depois para Kalan, e não precisou perguntar mais nada. Atravessou a sala até o caixote de grãos vazio, agachou-se diante dele, e passou os dedos pela madeira até encontrar a borda que Kalan conhecia bem demais, a tábua que ele mesmo reforçara com cuidado excessivo, como se cuidado excessivo pudesse compensar o resto de tudo o que tinha feito errado.
+Hadris olhou para o canto que Tair apontava, e depois para Kalan, e não precisou perguntar mais nada. Atravessou a sala até o caixote de grãos vazio, agachou-se diante dele e passou os dedos pela madeira até encontrar a tábua que Kalan mesmo reforçara com cuidado excessivo, como se cuidado excessivo pudesse compensar o resto de tudo o que tinha feito errado.
 
 Ergueu o fundo falso.
 
-Kalan já sabia o que devia estar ali. Sabia o peso da caixa, o formato dela, o jeito como as bordas raspavam a madeira ao entrar. Sabia, com uma certeza que não deixava espaço para dúvida, que aquele compartimento devia conter exatamente a coisa que ele escondera ali na última vez que a tocara.
+Kalan já sabia o que devia estar ali. Sabia o peso da caixa, o formato dela, o jeito como as bordas raspavam a madeira ao entrar.
 
 Estava vazio.
 
 Hadris passou a mão pelo fundo do compartimento e olhou para Kalan. Desde que haviam entrado na sala sem janelas, era a primeira vez que o homem parecia surpreso.
 
-Kalan sentiu a mesma surpresa subir pela própria garganta, tão real quanto a de Hadris, tão inútil quanto ela. Não havia explicação que pudesse dar, porque não tinha nenhuma. A caixa devia estar ali. Só ele sabia onde ela estava. Só ele, e agora, evidentemente, mais alguém.
+Kalan sentiu a mesma surpresa subir pela garganta, tão real quanto a de Hadris, tão inútil quanto ela. Não havia explicação que pudesse dar, porque não tinha nenhuma. A caixa devia estar ali. Só ele sabia onde ela estava. Só ele, e agora, evidentemente, mais alguém.
 
 — Onde está? — perguntou Hadris, e não havia mais nenhuma gentileza procedimental na voz.
 
-Kalan não respondeu, porque não tinha resposta, e porque a pergunta que realmente importava naquele momento já não cabia em palavras que pudesse dizer ali, diante de Hadris, diante dos guardas, diante de Tair paralisado perto da porta e de Orel encolhido junto à janela: se ele não tinha tocado naquela caixa desde a noite em que a escondera, e se ninguém além dele sabia que ela estava ali, então alguém tinha entrado naquela casa, encontrado o esconderijo que ele mesmo reforçara com as próprias mãos, e levado tudo embora sem que ninguém percebesse.
-
-Kalan encarou o compartimento vazio.
+Kalan não respondeu, porque não tinha resposta, e porque a pergunta que importava já não cabia em palavras que pudesse dizer ali: se ele não tinha tocado naquela caixa desde a noite em que a escondera, e se ninguém além dele sabia que ela estava ali, então alguém tinha entrado naquela casa, encontrado o esconderijo que ele mesmo reforçara e levado tudo embora sem que ninguém percebesse.
 
 Elis não estava em casa.

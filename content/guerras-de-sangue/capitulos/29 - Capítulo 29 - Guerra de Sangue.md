@@ -62,7 +62,7 @@ Daryon moveu-se junto ao trono. Foi um gesto pequeno, quase incapaz de vencer o 
 
 Alyra fechou os olhos por meio instante, como se a confissão pública fosse mais uma ferida aberta por alguém que dizia amá-la. Quando os abriu, já não havia espaço para vergonha. Apenas ódio.
 
-— Rendar, Alyra merece responder pelo que fez, mas matá-la não resolverá nada. Assim como você, ela também foi enganada. Daryon escondeu por anos a assassina de nosso pai e mentiu para ela. Ylvena plantou o ódio entre Polar, Tondrar e Buldar; por causa dela, os Fendelar estão mortos. Meu pai tentou conter a guerra por anos, mas ela veio mesmo assim. Tudo é mais complexo do que parece.
+— Rendar, Alyra merece responder pelo que fez, mas matá-la não resolverá nada. Assim como você, ela também foi enganada. Daryon escondeu por anos a assassina de nosso pai e mentiu para ela. Ylvena plantou o ódio entre Polar, Tondrar e Buldar. Por causa dela, os Fendelar estão mortos. Meu pai tentou conter a guerra por anos, mas ela veio mesmo assim. Tudo é mais complexo do que parece.
 
 Rendar olhou para Daryon, depois para a mulher que segurava.
 
@@ -158,7 +158,7 @@ A frase saiu tão baixa que os homens mais próximos precisaram inclinar-se para
 
 A primeira lágrima desceu pelo rosto dele. Rendar não tentou escondê-la, mas também não deixou que a dor o dobrasse. Apenas permaneceu ali, segurando a mulher que destruíra sua casa, enquanto o corpo finalmente compreendia que a vingança chegara tarde demais para encontrar qualquer coisa viva.
 
-— Eu disse à Vita que eu voltaria — disse. — Você não faz ideia de como dói... saber que minha menina... que meu Ilo... nunca mais os verei.
+— Eu disse à Vita que voltaria — murmurou. — Você não faz ideia de como dói... saber que minha menina... que meu Ilo... nunca mais os verei.
 
 Kaelina sentiu a própria garganta fechar.
 
@@ -182,7 +182,7 @@ Os homens se prepararam para prendê-lo, mas Kaelina levantou a mão e ergueu a 
 
 Os homens obedeceram. Rendar caminhou em direção à porta. Os guardas fecharam a passagem por instinto. Espadas e lanças formaram uma parede diante dele. Ninguém se moveu.
 
-— Foi ele. Quem matou Cal Edran — disse Kadrir.
+— Foi ele quem matou Cal Edran — disse Kadrir.
 
 — Eu sei — respondeu Kaelina. — E dei minha palavra assim mesmo. Chame de Lei do Portão, Kadrir. Ninguém perguntou onde ficava o portão antes de jurar lealdade a ela.
 
@@ -338,13 +338,13 @@ Rendar voltou o rosto para ela.
 
 — Prendam todos que conseguirem. Buldar, Tondrar, Glydar ou Vendrar. Quem largar a arma será levado vivo. Quem continuar atacando, será contido.
 
-Os Vendrar trocaram olhares. Um deles ergueu o tubo de fogo; os guardas responderam antes que a chama se firmasse. A luta durou pouco. Quando terminou, os sobreviventes foram desarmados e conduzidos para baixo.
+Os Vendrar trocaram olhares. Um deles ergueu o tubo de fogo. Os guardas responderam antes que a chama se firmasse. A luta durou pouco. Quando terminou, os sobreviventes foram desarmados e conduzidos para baixo.
 
 Rendar acompanhou tudo em silêncio. O maxilar endureceu, mas ele não discutiu a ordem.
 
 Homens vinham o tempo todo com novos prisioneiros. Mais abaixo, capturaram Glydars segurando uma passagem próxima aos depósitos de sal úmido. Haviam virado mesas e barris para formar proteção contra os guardas. Um deles usava uma faixa azul de margem no braço e parecia comandar os outros.
 
-Os Glydar que resistiam caíam, assim como alguns Vendrar perto do rio. Lorde Ossar não foi visto. Alguns disseram que fugira de volta para a Margem dos Zírrios; outros, que morrera na batalha. Naquele momento, não havia como saber.
+Os Glydar que resistiam caíam, assim como alguns Vendrar perto do rio. Lorde Ossar não foi visto. Alguns disseram que fugira de volta para a Margem dos Zírrios, outros que morrera na batalha. Naquele momento, não havia como saber.
 
 A cada rua atravessada, Rendar via Glydars serem levados, casas incendiadas, Vendrar lutando. Alguns Tondrar que haviam conseguido entrar pelo cais gritavam e tentavam lutar, alguns eram espetados por lanças compridas, às vezes mortalmente. Rendar não respondeu a nada. A madrugada clareava devagar.
 
@@ -406,7 +406,7 @@ Kaelina aceitou.
 
 — Mandarei madeira, sal, ferramentas e alimento até a borda. Você decide se recolhe.
 
-— Por que? Sente-se culpada?
+— Por quê? Sente-se culpada?
 
 — Não. Em dívida.
 
@@ -424,7 +424,7 @@ Os olhos dele ainda estavam abertos, mas já não procuravam Kaendar. A respira�
 
 — Quem atirou? — gritou Kaelina, virando-se de súbito.
 
-Assim como Kaelina, os guardas procuravam pelo executor. Sarkan desceu das caixas com a espada na mão. Kaelina pousou Rendar no chão e ao virar-se, viu Alyra na entrada da rua.
+Assim como Kaelina, os guardas procuravam pelo executor. Sarkan desceu das caixas com a espada na mão. Kaelina pousou Rendar no chão e, ao virar-se, viu Alyra na entrada da rua.
 
 O arco permanecia baixo em sua mão direita, a corda ainda vibrando. Na esquerda, carregava o mecanismo de fogo tomado de Tavra. O tubo estava preso por tiras rompidas enroladas em seu punho, pingando óleo sobre a pedra. A armadura continuava suja de sangue e fuligem.
 
@@ -502,9 +502,9 @@ O mundo ao redor pareceu diminuir. Até os homens no cais ficaram em silêncio, 
 
 — Daryon teria me contado.
 
-— Ele passou ciclos escondendo a mulher que matou nosso pai. Já parou pra pensar por que?
+— Ele passou ciclos escondendo a mulher que matou nosso pai. Já parou pra pensar por quê?
 
-Alyra olhou firmemente pra irmã e Kaelina sustentou o olhar.
+Alyra olhou firmemente para a irmã e Kaelina sustentou o olhar.
 
 — Porque Daryon a amava. Não como você. De uma forma diferente. Mas o suficiente pra fazer com que ele se arriscasse, e arriscasse tudo o que lutou para conquistar.
 
@@ -532,7 +532,7 @@ Alyra mirou o tubo de fogo nos soldados e em Kadrir. As chamas os obrigaram a re
 
 Kaelina recuou para perto de uma carroça quebrada. O segundo golpe atingiu a lateral da madeira e arrancou uma lasca. Kaelina respondeu com um corte baixo, mirando a perna, mas Alyra bloqueou.
 
-— Alyra! — gritou Cal.
+— Alyra! — gritou Kadrir.
 
 — Fique fora! — gritou ela para Kadrir. — Isso é entre soberanas.
 
@@ -552,7 +552,7 @@ O golpe veio contra o pescoço. Kaelina abaixou-se, desviou e acertou a guarda d
 
 — Você não pode lutar contra mim — Alyra a corrigiu.
 
-Kaelina bloqueou outro golpe. Alyra bateu a espada contra a de Kaelina repetidas vezes, obrigando-a a recuar por uma passagem coberta de cinza e água. O chão estava escorregadio. Uma bolsa de comida rasgada havia sido pisoteada junto à parede; ninguém parou para recolher o que restava. Corpos haviam sido retirados, mas manchas escuras permaneciam entre as pedras.
+Kaelina bloqueou outro golpe. Alyra bateu a espada contra a de Kaelina repetidas vezes, obrigando-a a recuar por uma passagem coberta de cinza e água. O chão estava escorregadio. Uma bolsa de comida rasgada havia sido pisoteada junto à parede. Ninguém parou para recolher o que restava. Corpos haviam sido retirados, mas manchas escuras permaneciam entre as pedras.
 
 — Ele escolheu você — continuou Alyra. — Todos sabiam. E você andava pelos corredores fingindo que não queria a cadeira, como se não querer tornasse você mais digna dela.
 
@@ -562,7 +562,7 @@ Kaelina bloqueou outro golpe. Alyra bateu a espada contra a de Kaelina repetidas
 
 Kaelina aparou um golpe e chutou a lateral do joelho da irmã. Alyra perdeu equilíbrio por um instante. Kaelina poderia ter atingido o espaço entre as placas. Não atingiu.
 
-Alyra percebeu a hesitação e golpeou o ombro de Kaelina. A lâmina abriu roupa e pele. Kaelina cambaleou. Cal Kadrir ameaçou intervir mais uma vez, mas Alyra mirou o tubo pra ele.
+Alyra percebeu a hesitação e golpeou o ombro de Kaelina. A lâmina abriu roupa e pele. Kaelina cambaleou. Cal Kadrir ameaçou intervir mais uma vez, mas Alyra mirou o tubo para ele.
 
 — Pare, Alyra — gritou Iressa. — Você está carregando uma criança.
 
@@ -620,7 +620,7 @@ Iressa chegou primeiro. Passou entre os guardas, ajoelhou-se ao lado de Kaelina 
 
 Kaelina olhou para Alyra.
 
-— Precisam levar ela à fortaleza.
+— Precisam levá-la à fortaleza.
 
 — Curandeiros! — gritou Iressa. — Agora!
 

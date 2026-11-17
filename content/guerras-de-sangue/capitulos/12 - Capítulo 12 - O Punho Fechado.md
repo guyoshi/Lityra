@@ -2,7 +2,7 @@ Alyra permaneceu de pé. Kaelina estava sentada, mas não parecia repousar. Dary
 
 — Sobre os homens que enviei às rotas externas — disse Alyra —, nem todos trouxeram respostas úteis. Os postos da Estrada dos Grãos dizem pouco. As margens Glydar respondem curto. Os vendedores de metal fingem atraso. Alguns clãs fingem não ouvir quando convém. Outros ouvem demais e falam de menos.
 
-Alyra resumiu as respostas, e por último, Daryon perguntou, afiado.
+Alyra resumiu as respostas. Por último, Daryon perguntou, afiado:
 
 — Houve resposta dos Fendelar?
 
@@ -26,7 +26,9 @@ Varron soltou um som baixo.
 
 — Tondrar.
 
-Alyra não confirmou nem negou. O nome Tondrar bastou para que a sala completasse a acusação. Nos dias seguintes, Marken falou ainda menos.
+Alyra não confirmou nem negou. O nome Tondrar bastou para que a sala completasse a acusação.
+
+Nos dias seguintes, Marken falou ainda menos.
 
 Desde a conversa com Kaelina e o fragmento de sino, Marken passara a ocupar o silêncio pintando.
 
@@ -36,7 +38,7 @@ Ele pintava à luz estreita da janela.
 
 Pintou uma terra partida contra um céu vazio. Depois pintou uma mulher de uma perna só diante de uma fogueira pequena, com folhas largas espalhadas ao redor. Noutra placa, pintou uma criança recém-nascida junto a uma mulher pálida, enquanto um homem ajoelhado apoiava as mãos na terra, de cabeça baixa. Em tecido escuro, desenhou uma torre caída entre poeira, quase engolida por um mundo coberto de areia. Por fim, numa madeira comprida, pintou um homem no chão diante de fumaça e fogo. O rosto não tinha detalhes. A mão, sim. Estava fechada. Como se segurasse algo que ninguém mais via.
 
-Marken não explicava as imagens. Maelis registrou todas; quando Kaelina foi vê-lo, ele continuou espalhando pigmento cinzento em torno do homem caído.
+Marken não explicava as imagens. Maelis registrou todas, e quando Kaelina foi vê-lo, ele continuou espalhando pigmento cinzento em torno do homem caído.
 
 — São lembranças? — perguntou ela.
 
@@ -82,7 +84,7 @@ Alyra levantou-se primeiro. Kaelina veio logo depois.
 
 Desceram pelos anéis com escolta curta, Nalia à frente, Maelis atrás tentando acompanhar sem deixar cair as tábuas. Varron juntou-se a eles no caminho, já com a mão no punho da espada. Iressa surgiu perto da escadaria do anel médio, depois de ouvir de algum servo que havia problema com água. Problema com água sempre virava problema com comida.
 
-Nas margens internas, o Rio Grande vinha coberto por faixas de óleo. Corvos-de-sal evitavam as pedras; peixes boiavam de lado, um zírrio morto prendeu-se numa comporta e uma ulmara tentou subir contra a corrente sob a película escura.
+Nas margens internas, o Rio Grande vinha coberto por faixas de óleo. Corvos-de-sal evitavam as pedras, peixes boiavam de lado, um zírrio morto prendeu-se numa comporta e uma ulmara tentou subir contra a corrente sob a película escura.
 
 Iressa levou a mão ao nariz.
 
@@ -172,7 +174,7 @@ O soldado ergueu os olhos.
 
 — Vimos a fumaça das torres. Parece ter se alastrado bem. Pode haver feridos.
 
-O Conselho reuniu-se pouco depois. Brokan pediu homens e ferramentas; Varron, patrulhas nas saídas orientais; Iressa queria saber se os depósitos de Alestir haviam queimado. Maelis tentava registrar informações que mudavam a cada momento.
+O Conselho reuniu-se pouco depois. Brokan pediu homens e ferramentas, Varron pediu patrulhas nas saídas orientais e Iressa queria saber se os depósitos de Alestir haviam queimado. Maelis tentava registrar informações que mudavam a cada momento.
 
 Alyra ficou sentada, rígida, com o olhar fixo adiante. Kaelina não se sentou.
 
@@ -244,7 +246,7 @@ Edran acompanhou-a pelo corredor.
 
 — Vou com eles.
 
-Edran não respondeu de imediato. Os corredores do anel alto pareciam estreitos demais para aquela pressa. Servos se afastavam. Guardas curvavam a cabeça. Kaelina descia como se cada degrau a ofendesse por ainda existir inteiro enquanto uma vila queimava.
+Edran não respondeu de imediato. Os corredores do anel alto pareciam estreitos demais para aquela pressa. Servos se afastavam e guardas curvavam a cabeça. Kaelina descia como se cada degrau a ofendesse por ainda existir inteiro enquanto uma vila queimava.
 
 — Minha soberana — disse Edran, um passo atrás. — Ainda não sabemos se o fogo terminou.
 
@@ -460,7 +462,7 @@ Ela olhou para ele com irritação. Daryon aproximou-se, observando o homem mori
 
 — Curioso. O velho Cal se preocupando com a soberana. O mesmo velho Cal que parece se preocupar mais com os mortos e enfermos do que com os vivos. Talvez o título antigo ainda sirva para consolar homens que já não podem dizer nada útil.
 
-O homem no chão, tentou mover os lábios. Ninguém além de Edran pareceu notar. Kadrir olhou para Daryon, depois para Edran. Não disse nada. Edran finalmente voltou os olhos para Daryon.
+O homem no chão tentou mover os lábios. Ninguém além de Edran pareceu notar. Kadrir olhou para Daryon, depois para Edran. Não disse nada. Edran finalmente voltou os olhos para Daryon.
 
 — Homens que nunca entram primeiro costumam ter muitas frases sobre coragem.
 
@@ -468,7 +470,7 @@ O sorriso de Daryon diminuiu. Alyra virou-se.
 
 — Basta.
 
-Alyra não defendia Edran; irritava-se porque a tensão não lhe pertencia. Ela apontou para as ruínas.
+Alyra não defendia Edran. Irritava-se porque a tensão não lhe pertencia. Ela apontou para as ruínas.
 
 — Vasculhem. Casa por casa. Depósito por depósito. Se houver um único inimigo escondido, quero-o vivo por tempo suficiente para se arrepender.
 
@@ -498,7 +500,7 @@ Edran não respondeu. O ruído veio de novo. Tac. Mais baixo. Um dos soldados er
 
 Edran sentiu o cheiro crescer. Não vinha do fogo aberto. Vinha de dentro. Bafo-de-fenda.
 
-Edran reconheceu Bafo-de-fenda, vapor oleoso das fendas quentes de Varkhama. Vendrar o guardavam em recipientes selados; em espaço fechado, bastava uma chama.
+Edran reconheceu Bafo-de-fenda, vapor oleoso das fendas quentes de Varkhama. Vendrar o guardavam em recipientes selados, e em espaço fechado bastava uma chama.
 
 Edran viu, perto da porta, uma pequena linha brilhante escorrendo da madeira para o chão. Quase invisível na fumaça. Um fio de óleo claro demais. Um convite.
 
@@ -508,13 +510,13 @@ O grito rasgou a vila. Tarde demais. A luz tocou o escuro. O galpão abriu-se em
 
 A explosão tomou o ar. Porta, telhado, pedra, viga, grão, metal e chama vieram de uma vez. O mundo ficou branco.
 
-Edran sentiu o impacto antes do som. Bravro empinou; o chão desapareceu; algo cortou seu rosto. Quando caiu, tudo parecia mudo.
+Edran sentiu o impacto antes do som. Bravro empinou, o chão desapareceu e algo cortou seu rosto. Quando caiu, tudo parecia mudo.
 
 Viu bocas abertas sem som. Homens correndo devagar demais. Fumaça dobrando-se sobre a rua. Um tarrak caído, as patas batendo no chão. Fogo preso numa poça de óleo. Uma mão sem corpo perto de uma roda partida. Grãos queimados espalhados no barro. Tentou levantar. O corpo demorou a aceitar a ideia. Então viu Alyra.
 
 Ela estava no chão, a poucos passos, sem arma, o rosto marcado por sangue. O braço esquerdo pendia de forma errada. O tarrak dela jazia perto, morto, atravessado por um estilhaço de madeira e metal que entrara pelo pescoço e saíra junto à sela. Se o animal não tivesse recebido aquilo, teria sido ela.
 
-Alyra tentou se erguer, mas cambaleou e precisou firmar a mão no chão. Olhou em volta, atordoada. Edran levantou-se e cambaleou até ela. Alyra ergueu os olhos, atordoada.
+Alyra tentou se erguer, mas cambaleou e precisou firmar a mão no chão. Edran levantou-se e cambaleou até ela. Alyra ergueu os olhos, atordoada.
 
 — O que...
 
@@ -528,7 +530,7 @@ Não vinha como soldado. Não tinha formação, nem escudo, nem grito. Vinha bai
 
 A soberana tentou levar a mão à lâmina, mas a arma já não estava na cintura. Talvez perdida na queda. Talvez debaixo do tarrak morto.
 
-O homem acelerou. Edran colocou-se diante dela, não como guerreiro, como uma muralha.
+O homem acelerou. Edran colocou-se diante dela, não como guerreiro, mas como muralha.
 
 A primeira pancada veio alta e feroz. Edran desviou por pouco, sentindo a lâmina raspar na proteção do ombro. Respondeu com golpe curto, preciso, mirando o pulso. O homem recuou. Era rápido. Mais rápido do que parecia. Então veio o segundo golpe, e o terceiro.
 

@@ -174,7 +174,7 @@ Ele assentiu, apressado.
 
 — Eu apago tudo. Todas as mensagens. Pra ninguém ver, pra ninguém descobrir. Eu sei que é errado. Eu sei. Só que… eu fiz isso porque… porque eu gosto dela. O nome dela é Mel Jones. 
 
-— Ta… isso não é nada demais, Pedro. É normal as pessoas gostarem de alguém. O seu pai um dia precisou gostar da sua mãe pra você existir.
+— Tá… isso não é nada demais, Pedro. É normal as pessoas gostarem de alguém. O seu pai um dia precisou gostar da sua mãe pra você existir.
 
 — Você não entende, Jen… — ele continuou, e a voz quebrou. — Acontece… que ela me disse algo… ela me disse que era de Alvorada Alegre… e me disse… que está morta. 
 
@@ -304,7 +304,7 @@ Diego colocou o copo na mesa com cuidado, mas aquele cuidado não era gentileza.
 
 — E eles aparecem pra você… onde? — ele perguntou. 
 
-Glenda continuava sorrindo, mas eu vi o pequeno ajuste no rosto dela, a atenção se afunilando. Ela já tinha percebido a tensão a tempo de preparar a intervenção.
+Glenda parou de sorrir quando Diego começou a me fazer perguntas. Mexeu no próprio copo, sem beber, e ficou de olho em nós.
 
 — Em todo lugar — eu respondi, e mantive o olhar nele. — Mas nem sempre do mesmo jeito.
 
@@ -318,7 +318,7 @@ O sorriso de Diego falhou por meio segundo. Foi rápido, quase imperceptível, m
 
 — “Carregada” de quê? — ele perguntou, e agora o tom era o mesmo de antes, só que com um fundo de ferro. — O que você quer dizer com isso?
 
-Pedro se mexeu na cadeira como quem tenta preparar uma piada para aliviar, mas desistiu antes de começar. Filipo continuou imóvel. Glenda se levantou antes que o clima rompesse, com uma velocidade suave demais para ser espontânea.
+Pedro se mexeu na cadeira como quem tenta preparar uma piada para aliviar, mas desistiu antes de começar. Filipo continuou imóvel. Glenda se levantou e deu a volta na mesa.
 
 Ela foi até Diego e colocou as mãos nos ombros dele, começando a massageá-lo. Os dedos dela se encaixaram ali como se soubessem o caminho de cor. Ela encostou o rosto perto do ouvido dele e sussurrou algo que eu não ouvi, mas eu vi a respiração dele mudar. Diego relaxou um pouco, mas não perdeu o brilho irritado nos olhos.
 
@@ -356,7 +356,7 @@ Continuei andando pelo gramado até perto dos portões. Pedro e Filipo me seguia
 
 Quando cheguei nos portões, eles se abriram. 
 
-— Jennifer — gritou Glenda — Dá pra me dizer logo que porra ta acontecendo? 
+— Jennifer! — gritou Glenda. — Dá pra me dizer logo que porra tá acontecendo? 
 
 Fechei os olhos. Não para pensar. Para tentar impedir.
 
@@ -374,7 +374,7 @@ As palavras finalmente saíram, baixas.
 
 Glenda piscou uma vez.
 
-E naquele intervalo mínimo, eu vi o rosto dela tentar escolher qual máscara vestir. Primeiro veio o choque, aquele abrir de olhos calculado, o corpo levemente recuando. Depois veio a indignação, pronta para ser usada como escudo. 
+Demorou um instante para reagir. Arregalou os olhos e recuou meio passo. 
 
 — O quê? — ela disse, alto demais. — Você tá louca?
 
@@ -382,7 +382,7 @@ Pedro deu um passo instintivo para trás, quase tropeçando no próprio pé.
 
 — Jennifer… o que você tá falando?
 
-Eu levantei o olhar pela primeira vez e encarei a Glenda de verdade. E foi ali que a coisa doeu mais, porque eu percebi que, até aquele momento, eu tinha querido acreditar nela. Queria acreditar que ela estava ajudando por alguma razão que não fosse interesse. Queria acreditar porque confiar cansa menos do que desconfiar.
+Eu levantei o olhar pela primeira vez e encarei a Glenda de verdade. Foi isso que mais doeu. Eu confiava nela. Talvez no começo Glenda só quisesse a história de Vila Velha. Mas eu me lembrava do jeito que segurara a minha mão debaixo da ponte, de como tinha ficado ao meu lado quando precisei de ajuda. Aquilo também podia ter sido mentira? Quase torci para ela me dar uma explicação convincente.
 
 — Eu vi — eu disse, e a minha voz saiu firme apesar do tremor no corpo. — Era o Diego no sonho. Ao seu lado. 
 
@@ -438,11 +438,11 @@ Ela enfiou a mão no bolso, tirou algumas notas dobradas e as empurrou contra o 
 
 — Faz o que quiser com isso. Tá aqui o dinheiro do táxi.
 
-Olhei para ela e, pela primeira vez, vi a voz dela falhar, tal como a máscara. Mesmo aquelas palavras me atingindo, era como se o rosto dela não confirmasse. 
+Olhei para Glenda. A voz dela falhou no final da frase. Conhecia aquele jeito orgulhoso de erguer o queixo, mas também me lembrava da garota que rira comigo debaixo da ponte. Por um instante tive vontade de perguntar qual das duas era a verdadeira. Não perguntei. 
 
 Eu me virei para frente e caminhei rápido, com Pedro e Filipo atrás, ainda olhando para trás como se esperassem Glenda mudar de ideia e pedir desculpas, mas Glenda não era esse tipo de pessoa.
 
-Nos afastamos dos portões enquanto eles se fechavam, e alcançamos a rua. Então de repente, senti as pernas falharem. Apoiei as mãos no muro mais próximo e comecei a chorar como se eu tivesse segurado aquilo por dias. Era a soma de tudo e a confirmação do que eu sempre soube: os vivos podiam ser piores do que os mortos.
+Nos afastamos dos portões e alcançamos a rua. Quando ouvi o ferro fechar atrás de nós, minhas pernas falharam. Apoiei as mãos num muro e chorei. Estava com raiva de Glenda, mas sentia falta dela ao mesmo tempo. Aquilo me deixou ainda mais furiosa. E, apesar de tudo, não me arrependia de ter saído de casa para conhecê-la.
 
 Filipo ficou do meu lado, sem saber o que fazer. Pedro começou a contar uma história boba, qualquer coisa sobre o blog dele, sobre como ia colocar Linkin Park no fundo da página pra ficar “mais emo”, rápido demais.
 
@@ -498,4 +498,4 @@ Filipo me olhava, assustado.
 
 Eu tentei respirar, mas parecia que eu tinha engolido as imagens e elas estavam presas no meu peito.
 
-— Eu vi o Junior — eu consegui dizer, e a minha voz saiu quebrada. Olhei para Filipo — Estava preso com a sua irmã. E eu vi o Vinícius… todos estão em perigo. 
+— Eu vi o Junior — consegui dizer, com a voz quebrada. Olhei para Filipo. — Estava preso com a sua irmã. E eu vi o Vinícius… todos estão em perigo. 

@@ -50,7 +50,7 @@ Ele disse "a sua" sem olhar, como quem aponta a direção de um lugar.
 
 — Nem a Brenda. — Tango balançou a cabeça. — O Dário leu a carta cinquenta vezes, eu contei. Prometeu ao pai e cumpriu, até quinta, quando você gritou o envelope pra uma encosta inteira.
 
-Bruno ficou olhando para o chão de pedra, para a linha entre duas lajes. Sentiu o rosto esquentar, e depois esfriar, e depois uma coisa que não era nenhuma das duas. Pensou no dedo de Dário passando duas vezes sobre o peito, na jaqueta, no cuidado com que dobrara o papel, e pensou que tinha visto tudo aquilo e entendido ao contrário.
+Bruno fixou os olhos na linha entre duas lajes. Lembrou-se de Dário alisando a jaqueta sobre o envelope e de como entendera tudo ao contrário.
 
 — O Garmande sabe — disse Tango, e Bruno levantou a cabeça. — Você reparou no olhar dele, eu reparei que você reparou. Sabe desde o começo e nunca disse uma palavra. Não conta pra ninguém e não faz teoria. Você já fez teoria demais essa semana.
 
@@ -67,7 +67,6 @@ Dário parou. Os olhos escuros subiram devagar até o rosto de Bruno e ficaram a
 — Eu estou atrasado — disse. E passou por ele pelo lado, de ombros retos, e continuou andando pelo corredor sem olhar para trás, até a esquina.
 
 Bruno ficou parado no meio da pedra fria. Em algum ponto da parede, o ar da manhã passou por uma frincha e fez um assobio fino. Banjo apareceu da escada, com Farol enrolado no pescoço e um seixo flutuando atrás da orelha, e parou a dois passos dele sem perguntar nada. Sentou-se no banco de pedra, e depois de um momento Bruno sentou-se também. O seixo ficou girando entre os dois, devagar, e eles ficaram vendo o seixo girar.
-
 
 Sábado, ao entardecer, o pátio de Lioro estava cheio de uma luz alaranjada que fazia o muro baixo parecer feito de brasa. Beatriz tinha terminado a tarefa de apagar a chama três vezes seguidas sem Breno olhar, e comemorava quicando contra o muro a bola amarela de BBBB quase apagados, com regras que mudavam a cada quique.
 
@@ -135,7 +134,7 @@ Mereditha abriu a boca, fechou e riu pelo nariz, com os olhos de novo molhados.
 
 — Deve.
 
-Beatriz levou a gaita à boca. Soprou, e saiu só ar, um fio fino e feio, como um assobio de quem não sabe assobiar. Tentou de novo e saiu um ronco. Franziu a testa. Fechou os olhos e pensou com força em uma coisa só, no calor da mão da mãe, e sentiu a palma esquentar e o anel esquentar, e o ar em volta da gaita estalou miúdo, como brasa de fogueira de acampamento. As mãos dela ficaram quentes de um jeito que ela conhecia bem. Parou na hora. Tirou a gaita da boca e olhou para as três caras que olhavam para ela.
+Beatriz levou a gaita à boca. Soprou, e saiu só ar, um fio fino e feio, como um assobio de quem não sabe assobiar. Tentou de novo e saiu um ronco. Franziu a testa. Fechou os olhos e pensou com força em uma coisa só, no calor da mão da mãe, e sentiu a palma esquentar e o anel esquentar, e o ar em volta da gaita estalou miúdo, como brasa de fogueira de acampamento. As mãos dela ficaram quentes de um jeito que ela conhecia bem. Parou na hora. Tirou a gaita da boca e olhou para as três caras que olhavam para ela. Por um instante, além do ombro de Mereditha, pareceu haver uma mulher velha junto à sombra da árvore, de rosto fino e pescoço comprido. Olhava diretamente para Beatriz. A menina piscou, e a sombra voltou a ser apenas a sombra da árvore.
 
 — Não consigo — disse, baixinho. — Fica tudo espalhado. Eu penso numa coisa e aparece o fogo, e o fogo eu não quero.
 

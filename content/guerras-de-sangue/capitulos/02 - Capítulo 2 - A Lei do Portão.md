@@ -8,9 +8,9 @@ Então seguiu para a porta e saiu com os homens.
 
 — Espere — disse Kaelina para o Vigia com o talismã. — Me entregue isso.
 
-O Vigia cuidadoso levantou a mão com cuidado, como quem oferece algo que pode morder. A madeira escura parecia absorver luz, e as marcas queimadas, linhas e pontos, eram negras demais para ser só carvão. Havia nelas uma precisão quase ritual, como pele marcada por alguém que queria ser reconhecido.
+O Vigia cuidadoso levantou a mão com cuidado, como quem oferece algo que pode morder. A madeira escura parecia absorver luz, e as marcas queimadas eram negras demais para ser só carvão. Havia nelas uma precisão quase ritual, como pele marcada por alguém que queria ser reconhecido.
 
-Kaelina segurou o talismã pelas bordas e examinou os nós, a madeira escurecida e a resina endurecida nos sulcos. Quando as portas se fecharam, aproximou-o do nariz. Havia cheiro de resina velha queimada, seca demais para ter vindo de alguém que acabara de correr pelo mato.
+Kaelina segurou o talismã pelas bordas e examinou os nós e a resina endurecida nos sulcos. Quando as portas se fecharam, aproximou-o do nariz. Cheiro de resina velha queimada, seco demais para ter vindo de alguém que acabara de correr pelo mato.
 
 — Eles sabiam que isso chegaria até nós — disse.
 
@@ -26,7 +26,7 @@ Kaelina pousou o talismã sobre o braço do trono, como se pousasse uma lâmina 
 
 — Não podemos tomar nenhuma decisão idiota. — Ela falou baixo.
 
-Alyra inclinou a cabeça, um sorriso pequeno, de canto, e os fios da Ramagem nas maçãs do rosto subiram junto com ele. Por um instante, o ar do salão ficou mais fino. Alyra bateu o dedo no apoio do trono, inquieta.
+Alyra inclinou a cabeça, um sorriso pequeno, de canto, e os fios da Ramagem nas maçãs do rosto subiram junto com ele. Por um instante, o ar do salão ficou mais fino. Bateu o dedo no apoio do trono, inquieta.
 
 — Dois dos nossos — ela disse. — Dois garotos foram mortos. Isso é um ataque. Não só ao nosso povo, como a nossa dinastia.
 
@@ -60,7 +60,7 @@ Kaelina levantou o olhar finalmente.
 
 — Porque não existe conflito. Só ataque unilateral. Eles mataram dois jovens nossos. E se esperarmos, vão acreditar que podem nos matar impunemente. Já pensou em como ficarão os pais e mães desses garotos ao saber que a Dinastia tem Vigias, muralhas e leis, mas não tem culpado nem condenado?
 
-O salão ficou tão quieto que dava para ouvir um pedaço de tecido roçando em outro. Foi aí que Daryon se mexeu, ocupando o espaço entre as duas sem parecer que estava se metendo. E então falou para Alyra.
+O salão ficou tão quieto que dava para ouvir um tecido roçando em outro. Daryon se mexeu, ocupando o espaço entre as duas sem parecer que se metia, e falou para Alyra.
 
 — Minhas soberanas… se me permitem. A prudência da soberana Kaelina é necessária — disse Daryon, e Alyra virou o rosto para ele, traída por um instante. — Mas prudência sem consequência é apenas um convite.
 
@@ -82,11 +82,11 @@ Então a porta se abriu e Edran voltou ao salão, e a presença dele empurrou o 
 
 — Já estão trazendo os corpos — ele disse.
 
-Kaelina se levantou e desceu as escadas rumo às áreas mais baixas da fortaleza. Os anéis inferiores, os corredores por onde entravam sal úmido, peixe do Cais dos Zírrios, couro de caça, ferramentas gastas e, naquela noite, corpos.
+Kaelina desceu as escadas rumo às áreas mais baixas da fortaleza, os anéis inferiores por onde entravam sal úmido, peixe do Cais dos Zírrios, couro de caça, ferramentas gastas e, naquela noite, corpos.
 
-Ela seguiu até uma das muralhas altas e observou abaixo. No pátio mais baixo, a luz estava suja. Fogueiras tinham sido acesas rápido demais, e a fumaça subia grossa, sem elegância. E pelos portões da fortaleza, ela viu entrar homens com duas macas improvisadas de varas e tecido.
+Foi até uma das muralhas altas e observou abaixo. No pátio, a luz estava suja. Fogueiras tinham sido acesas rápido demais, e a fumaça subia grossa, sem elegância. Pelos portões entravam homens com duas macas improvisadas de varas e tecido.
 
-Uma mulher do anel externo correu antes que alguém mandasse parar. Dois Vigias do pátio tentaram segurá-la, ainda com cheiro de fumaça e muralha na roupa, mas Edran fez um gesto curto e eles soltaram. A mulher caiu de joelhos na lama.
+Uma mulher do anel externo correu antes que alguém mandasse parar. Dois Vigias do pátio tentaram segurá-la, mas Edran fez um gesto curto e eles soltaram. A mulher caiu de joelhos na lama.
 
 A mulher tocou dois dedos na testa e depois no peito. Em seguida segurou o punho do garoto, encontrou a linha trançada de Kaendar e soltou um som quebrado, sem palavra.
 
@@ -96,19 +96,19 @@ Um homem veio atrás dela, mais lento, e pareceu envelhecer em três passos. Olh
 
 Outras pessoas se aproximaram. Uma irmã. Um tio. Dois amigos. Gente que reconheceu cicatriz, dente quebrado, a faca entalhada por ele mesmo e o nó errado na linha do punho.
 
-Kaelina permaneceu na muralha enquanto a mulher abraçava o corpo do filho. A discussão no salão encolheu diante daquela cena. Eram dois garotos mortos, e um deles ainda estava preso aos braços da mãe.
+Kaelina permaneceu na muralha enquanto a mulher abraçava o corpo do filho. A discussão no salão encolheu diante daquela cena.
 
 A frase de Alyra voltou como ferro quente: já pensou em como ficarão os pais e mães desses garotos? Kaelina pensou. E odiou a irmã por ter razão numa coisa tão cruel.
 
-Ao lado dela, Cal Edran Polar não disse nada. Ficou um passo atrás, como sempre fazia quando acompanhava uma soberana: perto o suficiente para protegê-la, longe o suficiente para não parecer que a guiava. Quando Kaelina se afastou da muralha, ele a seguiu sem perguntar.
+Ao lado dela, Cal Edran não disse nada. Ficou um passo atrás, como sempre fazia: perto o bastante para protegê-la, longe o bastante para não parecer que a guiava. Quando Kaelina se afastou da muralha, ele a seguiu sem perguntar.
 
-Nos anéis inferiores, famílias ainda se reuniam diante de tigelas de raiz amarela com sal negro, tentando jantar enquanto os mortos entravam pelos portões. A comida permanecia nas mãos, esquecida antes de chegar à boca. Os corredores do anel alto pareciam mais estreitos naquela noite. As tochas ardiam com uma inquietação diferente, estalando nas paredes de pedra. Até o cheiro era outro: menos pergaminho e pedra limpa, mais fumaça, couro molhado e medo trazido de baixo.
+Nos anéis inferiores, famílias ainda se reuniam diante de tigelas de raiz amarela com sal negro, tentando jantar enquanto os mortos entravam pelos portões. A comida permanecia nas mãos, esquecida antes de chegar à boca. Os corredores do anel alto pareciam mais estreitos naquela noite, e o cheiro era outro: menos pergaminho e pedra limpa, mais fumaça, couro molhado e medo trazido de baixo.
 
-Servos se afastavam ao vê-la passar. Alguns curvavam a cabeça. Outros apenas abaixavam os olhos, como se olhar diretamente para Kaelina fosse exigir dela uma resposta que ainda não existia.
+Servos se afastavam ao vê-la passar. Alguns curvavam a cabeça. Outros abaixavam os olhos, como se olhar para Kaelina fosse exigir dela uma resposta que ainda não existia.
 
 Só quando chegaram aos aposentos dela, atrás de uma porta dupla de madeira escura marcada pela Raiz em espiral, é que Kaelina respirou de verdade.
 
-Os aposentos de Kaelina eram sóbrios. Uma mesa comprida sustentava mapas de fronteira, tábuas de contagem, tinteiro e uma faca de cabo gasto para cartas e lacres. Pedras pequenas marcavam torres, depósitos, áreas de caça, o Rio Grande, a Estrada dos Grãos e as rotas de abastecimento de Kaendar. Perto da janela havia uma bacia de água; no canto, uma arca de roupas de cerimônia.
+Os aposentos de Kaelina eram sóbrios. Uma mesa comprida sustentava mapas de fronteira, tábuas de contagem, tinteiro e uma faca de cabo gasto para cartas e lacres. Pedras pequenas marcavam torres, depósitos, áreas de caça, o Rio Grande, a Estrada dos Grãos e as rotas de abastecimento. Perto da janela, uma bacia de água. No canto, uma arca de roupas de cerimônia.
 
 Sobre a lareira repousava a única coisa de Orionus que ela mantinha à vista: uma peça de jogo de osso polido, rachada ao meio.
 
@@ -132,7 +132,7 @@ Kaelina olhou para baixo, incomodada.
 
 Ela soltou um riso curto. Quase nada. Mas foi o suficiente para quebrar a pedra no peito por um instante.
 
-Edran retirou a segunda bota, pousou ambas junto à porta e pegou um pano para limpar o barro seco próximo à barra da túnica dela. Depois levantou-se, caminhou até a lareira e começou a preparar o fogo. Fez tudo sem pressa. Colocou lenha fina primeiro, depois dois pedaços maiores. Soprou uma vez, baixo, controlado. A chama nasceu pequena, desconfiada, e logo começou a morder a madeira.
+Edran retirou a segunda bota, pousou ambas junto à porta e limpou com um pano o barro seco perto da barra da túnica dela. Depois foi até a lareira e preparou o fogo sem pressa: lenha fina primeiro, depois dois pedaços maiores. Soprou uma vez, baixo. A chama nasceu pequena, desconfiada, e logo começou a morder a madeira.
 
 Kaelina observava o gesto como quem observa uma resposta possível.
 
@@ -264,7 +264,7 @@ Kaelina ergueu o olhar. Edran demorou um instante antes de falar.
 
 Edran olhou para a janela.
 
-— Teu pai ouviu todo mundo e depois desceu ao anel inferior. Foi parar numa fila de pão. Na época, os mais fortes chegavam primeiro; velhos e mães com crianças recebiam o que sobrava. Um menino tentou esconder dois pedaços para a irmã, e um guarda agarrou o braço dele.
+— Teu pai ouviu todo mundo e depois desceu ao anel inferior. Foi parar numa fila de pão. Na época, os mais fortes chegavam primeiro e velhos e mães com crianças recebiam o que sobrava. Um menino tentou esconder dois pedaços para a irmã, e um guarda agarrou o braço dele.
 
 Kaelina esperou.
 
@@ -330,7 +330,7 @@ Ela olhou para ele.
 
 — Não. Era para não desperdiçarmos tempo fingindo. Vosso pai errou. Muito. A diferença é que ele errava olhando para Kaendar, não para o próprio reflexo.
 
-Kaelina ficou muito quieta. Lá fora, alguém gritou uma ordem. Correntes se moveram em algum portão distante. A cidade continuava acordada.
+Kaelina ficou muito quieta. Lá fora, alguém gritou uma ordem. Correntes se moveram em algum portão distante.
 
 — Eu não sei se tenho isso — disse ela. — Essa… estabilidade dele.
 
@@ -360,7 +360,7 @@ Kaelina encostou as costas na cadeira. Pela primeira vez naquela noite, respirou
 
 — Querem que Alyra fale por mim.
 
-Edran ficou calado. Kaelina olhou para a peça de osso rachada sobre a lareira. O pai costumava movê-la nos jogos não para vencer rápido, mas para obrigar o adversário a revelar ansiedade. Ela sempre achara aquela peça fraca demais para o tabuleiro. Tornou a observar a rachadura.
+Edran ficou calado. Kaelina olhou para a peça de osso rachada sobre a lareira. O pai costumava movê-la nos jogos não para vencer rápido, mas para obrigar o adversário a revelar ansiedade. Ela sempre achara aquela peça fraca demais para o tabuleiro.
 
 — Aplicaremos a Lei do Portão — disse.
 
@@ -402,7 +402,7 @@ Edran a observou por um instante.
 
 — E sua irmã concordará com isso?
 
-Kaelina ficou em silêncio. Alyra não concordaria. Alyra iria rir. Iria chamar aquilo de covardia, de teatro de fracos, de carne jogada a varrens que já provaram sangue Polar. Kaelina olhou outra vez para o mapa.
+Kaelina ficou em silêncio. Alyra não concordaria. Iria rir. Iria chamar aquilo de covardia, de teatro de fracos, de carne jogada a varrens que já provaram sangue Polar. Kaelina olhou outra vez para o mapa.
 
 — É claro que não.
 

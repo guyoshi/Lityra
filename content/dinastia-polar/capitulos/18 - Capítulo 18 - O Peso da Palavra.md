@@ -1,6 +1,6 @@
-A mesa da sala de refeições sempre fora grande demais para uma pessoa só, mas foi só naquela manhã, ao descer e encontrar Amira já sentada na ponta mais próxima da cozinha, que Selina reparou nisso com uma clareza incômoda. A casa inteira tinha esse mesmo jeito. Madeira boa, escurecida pelo tempo e pelo cuidado, não pela pressa de impressionar ninguém. Pedra bem trabalhada nos vãos e nos degraus, sem nenhum entalhe que existisse só para ser admirado. Poucos objetos, e cada um deles ali por utilidade ou por herança, nunca por vaidade. Criados eficientes, que sabiam exatamente onde estar e onde não estar, e que raramente precisavam ser lembrados de nada duas vezes. Na residência de Alveris, poucos dias antes, cada objeto parecera exigir admiração. Ali tudo era útil, limpo, discreto. Selina pousou as mãos na mesa e notou quanto espaço sobrava entre ela e Amira.
+A mesa da sala de refeições sempre fora grande demais para uma pessoa só, mas foi só naquela manhã, ao descer e encontrar Amira já sentada na ponta mais próxima da cozinha, que Selina reparou nisso com uma clareza incômoda. A casa inteira tinha esse jeito. Madeira boa, escurecida pelo tempo e pelo cuidado, não pela pressa de impressionar. Pedra bem trabalhada nos vãos e nos degraus, sem entalhe que existisse só para ser admirado. Poucos objetos, cada um ali por utilidade ou por herança. Criados eficientes, que raramente precisavam ser lembrados de nada duas vezes. Na residência de Alveris, poucos dias antes, cada objeto parecera exigir admiração. Ali tudo era útil, limpo, discreto. Selina pousou as mãos na mesa e notou quanto espaço sobrava entre ela e Amira.
 
-Amira já estava comendo quando Selina entrou, os papéis do dia empilhados ao lado do prato de queijo envelhecido e pão escuro pela metade, do jeito de quem organiza a manhã antes mesmo de terminar de mastigar. Normalmente Selina pegaria alguma coisa rápida na bancada, diria o que precisava ser feito naquele dia e sairia antes mesmo de se sentar. Dessa vez puxou a cadeira e sentou-se de frente para ela, e viu, no instante de hesitação antes de Amira erguer os olhos, que o próprio gesto já era estranho o bastante para chamar atenção.
+Amira já comia quando Selina entrou, os papéis do dia empilhados ao lado do prato de queijo envelhecido e pão escuro pela metade, de quem organiza a manhã antes de terminar de mastigar. Normalmente Selina pegaria alguma coisa rápida na bancada, diria o que precisava ser feito e sairia antes de se sentar. Dessa vez puxou a cadeira e sentou-se de frente para ela, e viu, no instante de hesitação antes de Amira erguer os olhos, que o gesto já era estranho o bastante para chamar atenção.
 
 — Como você está? — perguntou Selina.
 
@@ -16,21 +16,21 @@ Amira pareceu, por alguns segundos, procurar alguma resposta diferente da de sem
 
 — Eu sei.
 
-Mesmo assim, Amira repetiu que estava bem, num tom baixo e cuidadoso. Selina esperou que ela acrescentasse alguma coisa. Amira não acrescentou. Durante anos, certas perguntas não tinham sido feitas naquela casa; agora, Selina não sabia como insistir.
+Mesmo assim, Amira repetiu que estava bem, num tom baixo e cuidadoso. Selina esperou que ela acrescentasse alguma coisa. Amira não acrescentou. Durante anos, certas perguntas não tinham sido feitas naquela casa, e agora Selina não sabia como insistir.
 
 Selina começou pelo que sabia fazer.
 
-— Fui à Balança. Falei com Cairon, depois com Neris. Cruzei os registros que você separou com o que os dois me contaram. — Fez uma pausa breve, do tipo que em qualquer outra conversa jamais precisaria fazer. — Você estava certa.
+— Fui à Balança. Falei com Cairon, depois com Neris. Cruzei os registros que você separou com o que os dois me contaram. — Fez uma pausa breve, do tipo que em outra conversa jamais precisaria fazer. — Você estava certa.
 
 Amira ergueu os olhos de novo, dessa vez sem baixar tão rápido.
 
-Selina explicou o resto: as rotas noturnas, os destinos que mudavam de nome sem que ninguém acompanhasse a mudança até o fim, as cargas cujo caminho se dissolvia em documentação legítima antes de chegar a lugar nenhum reconhecível. Amira escutou tudo sem interromper, os talheres parados sobre o prato, e só quando Selina terminou foi que falou.
+Selina explicou o resto: as rotas noturnas, os destinos que mudavam de nome sem que ninguém acompanhasse a mudança até o fim, as cargas cujo caminho se dissolvia em documentação legítima. Amira escutou sem interromper, os talheres parados sobre o prato, e só quando Selina terminou falou.
 
 — Eu disse isso há semanas.
 
-Não havia raiva na voz. Só um peso baixo, contido, do tipo que doía mais exatamente por não vir gritado.
+Não havia raiva na voz. Só um peso baixo, contido, que doía mais por não vir gritado.
 
-— Você tinha identificado repetições — disse Selina, escolhendo as palavras com o mesmo cuidado que usaria diante de um adversário político, sem perceber ainda o quanto aquilo soava errado ali, naquela mesa. — Mas não sabia o que significavam.
+— Você tinha identificado repetições — disse Selina, escolhendo as palavras como faria diante de um adversário político, sem perceber ainda o quanto aquilo soava errado naquela mesa. — Mas não sabia o que significavam.
 
 — Eu também não sei o que significam. — Amira segurou o olhar dela. — Só sei que existem.
 
@@ -46,13 +46,13 @@ Selina podia evitar citar Kalan diretamente, e evitou.
 
 — Recebi informação de alguém que trabalhava dentro da Companhia.
 
-Amira baixou os olhos para o prato, devagar, e quando voltou a falar sua voz tinha ficado ainda mais baixa.
+Amira baixou os olhos para o prato, devagar, e quando voltou a falar a voz estava ainda mais baixa.
 
 — Outra pessoa disse. Aí você ouviu.
 
 Não era pergunta.
 
-Selina sentiu a própria irritação subir antes mesmo de decidir se era justa, e a deixou sair pela boca antes de pensar demais nela.
+Selina sentiu a irritação subir antes de decidir se era justa, e a deixou sair antes de pensar demais nela.
 
 — Ele tinha informações que você não tinha.
 
@@ -70,9 +70,9 @@ Amira não explodiu. Não chorou.
 
 — Eu sei — disse apenas.
 
-Selina sentiu a irritação crescer diante daquela ausência de resistência, como se uma discussão fosse mais fácil de administrar do que aquilo.
+Selina sentiu a irritação crescer diante daquela ausência de resistência, como se uma discussão fosse mais fácil de administrar.
 
-— Seu pai fazia isso também — disse Selina, e se arrependeu no instante seguinte, sem conseguir identificar exatamente por quê.
+— Seu pai fazia isso também — disse Selina, e se arrependeu no instante seguinte.
 
 — O quê?
 
@@ -92,29 +92,25 @@ Amira abaixou os olhos.
 
 Selina quase perguntou o que Amira estava tentando fazer, se não ganhar. A pergunta chegou até a boca e parou ali.
 
-Terminou o que tinha ido comer sem realmente comer, entregou a Amira duas tarefas novas para o dia, revisar as autorizações do último trimestre ligadas aos depósitos do segundo distrito e preparar a convocação de um escrivão que Neris queria ouvir de novo, e Amira aceitou as duas sem hesitar, do jeito que sempre aceitava, recolhendo os papéis contra o peito com o mesmo braço dobrado de sempre.
-
-*
+Terminou o que tinha ido comer sem realmente comer e entregou a Amira duas tarefas novas, revisar as autorizações do último trimestre ligadas aos depósitos do segundo distrito e preparar a convocação de um escrivão que Neris queria ouvir de novo. Amira aceitou as duas sem hesitar, do jeito que sempre aceitava, recolhendo os papéis contra o peito com o mesmo braço dobrado de sempre.
 
 O resto do dia pertenceu outra vez à Balança.
 
-Amira encontrou mais três autorizações que se encaixavam no mesmo padrão, uma delas assinada por um funcionário que já tinha aparecido antes numa carga diferente, e Selina passou boa parte da tarde cruzando horários contra os registros de saída dos pátios, tentando fechar cada linha antes que a linha seguinte a distraísse. Havia cargas cujo caminho conseguia seguir com facilidade até determinado depósito e que, a partir dali, simplesmente se dissolviam em documentação legítima, sem nenhum ponto claro em que alguém pudesse dizer isso aqui prova alguma coisa. Nada provava crime. Nada provava conspiração. Mas tudo, insistentemente, apontava para o mesmo lugar, e Selina começava a se acostumar com a sensação de reconhecer um padrão antes de conseguir nomeá-lo por completo: se existia mesmo alguma coisa acontecendo por trás daquelas diferenças de peso e daquelas rotas noturnas, a Balança Azul era o centro operacional de tudo.
+Amira encontrou mais três autorizações que se encaixavam no mesmo padrão, uma delas assinada por um funcionário que já aparecera numa carga diferente, e Selina passou boa parte da tarde cruzando horários contra os registros de saída dos pátios, tentando fechar cada linha antes que a seguinte a distraísse. Havia cargas cujo caminho ela seguia com facilidade até determinado depósito e que dali em diante se dissolviam em documentação legítima, sem nenhum ponto em que alguém pudesse dizer isso aqui prova alguma coisa. Nada provava crime. Nada provava conspiração. Mas tudo apontava para o mesmo lugar, e Selina começava a se acostumar com a sensação de reconhecer um padrão antes de conseguir nomeá-lo: se algo acontecia por trás daquelas diferenças de peso e rotas noturnas, a Balança Azul era o centro operacional.
 
 Para ela, ainda era Alveris. Não havia, em nenhuma das linhas que cruzava, o menor indício de que outra dinastia estivesse envolvida em qualquer coisa além do próprio comércio de sempre.
 
-*
-
-No fim da tarde, Selina subiu ao terraço sul de Kaendar, mais para pensar em silêncio do que por qualquer outro motivo, e encontrou dali uma vista que não visitava havia tempo. O Rio Grande cortava a cidade em faixas de luz baixa e alaranjada, e ao longe, pequena o bastante para parecer inofensiva, via-se a mancha densa dos cais e da Balança Azul, os telhados apertados uns contra os outros, uma fumaça fina subindo de algum forno de oficina. Barcos pequenos deslizavam devagar sobre a água que já começava a escurecer. Carroças viravam pontos móveis nas ruas mais largas, indo e vindo sem pressa aparente. Estandartes azuis, ainda pendurados desde o Erguimento, tremulavam soltos aqui e ali entre os telhados. De longe, Kaeliran continuava bela. Selina permaneceu no terraço, olhando na direção dos cais por mais tempo do que pretendia.
+No fim da tarde, Selina subiu ao terraço sul de Kaendar, mais para pensar em silêncio do que por outro motivo, e encontrou uma vista que não visitava havia tempo. O Rio Grande cortava a cidade em faixas de luz baixa e alaranjada, e ao longe, pequena o bastante para parecer inofensiva, via-se a mancha densa dos cais e da Balança Azul, os telhados apertados uns contra os outros, uma fumaça fina subindo de algum forno de oficina. Barcos pequenos deslizavam devagar sobre a água que começava a escurecer. Estandartes azuis, ainda pendurados desde o Erguimento, tremulavam soltos entre os telhados. De longe, Kaeliran continuava bela. Selina permaneceu ali, olhando na direção dos cais por mais tempo do que pretendia.
 
 Foi ali que Dareth a encontrou.
 
 — Conseguiu alguma coisa sobre o jovem Nular? — perguntou, sem cerimônia, parando ao lado dela junto à mureta.
 
-Selina sabia exatamente de quem ele falava, e percebeu, antes mesmo de responder, que a resposta ia soar pior do que gostaria.
+Selina sabia de quem ele falava, e percebeu, antes de responder, que a resposta ia soar pior do que gostaria.
 
 — Ainda não.
 
-Não tinha abandonado o caso de Kalan. Mas nos últimos dias tinha concentrado quase toda a atenção na Balança, e dizer aquilo em voz alta, para Dareth, produziu um desconforto pequeno e nítido que ela não estava acostumada a sentir por negligenciar alguma coisa.
+Não abandonara o caso de Kalan. Mas nos últimos dias concentrara quase toda a atenção na Balança, e dizer aquilo em voz alta, para Dareth, produziu um desconforto pequeno e nítido que ela não estava acostumada a sentir por negligenciar alguma coisa.
 
 — A menina tem ou não tem a caixa? — perguntou ele.
 
@@ -128,7 +124,7 @@ Dareth ficou em silêncio por um instante longo demais para ser casual.
 
 — Dessa gente?
 
-Selina percebeu o que tinha dito no mesmo segundo em que a frase terminou de sair. Não pensara em Nular como um povo de mentirosos. Pensara naquela família específica, gente acostumada havia anos a esconder, improvisar e sobreviver com o que tinha, e a frase saíra maior do que a intenção que a formara. Não se corrigiu. O silêncio que deixou no lugar da correção pesou mais do que qualquer desculpa teria pesado, e ela soube, sem precisar olhar para Dareth, que ele também tinha percebido isso.
+Selina percebeu o que dissera no mesmo segundo em que a frase terminou de sair. Não pensara em Nular como um povo de mentirosos. Pensara naquela família específica, gente acostumada havia anos a esconder, improvisar e sobreviver com o que tinha, e a frase saíra maior do que a intenção. Não se corrigiu. O silêncio que deixou no lugar da correção pesou mais do que qualquer desculpa, e ela soube, sem olhar para Dareth, que ele também percebera.
 
 — Sabe que, se perder o julgamento, ele morre, certo? — perguntou Dareth, depois de um momento.
 
@@ -136,9 +132,9 @@ Selina virou-se para ele.
 
 — O quê?
 
-Dareth contou que, depois de não conseguir nenhuma resposta suficiente por conta própria, tinha ido falar diretamente com Hadris. Como campeão Polar, Hadris não podia simplesmente ignorá-lo, ainda mais depois do confronto público que os dois tinham tido durante o Erguimento. A conversa fora curta e desagradável. Hadris confirmara duas coisas: o julgamento de Kalan estava marcado para a semana seguinte, e se ele fosse considerado culpado pelas acusações atuais, a pena seria execução pública.
+Dareth contou que, depois de não conseguir resposta suficiente por conta própria, fora falar com Hadris. Como campeão Polar, Hadris não podia simplesmente ignorá-lo, ainda mais depois do confronto público que tiveram no Erguimento. A conversa fora curta e desagradável. Hadris confirmara duas coisas: o julgamento de Kalan estava marcado para a semana seguinte, e se ele fosse considerado culpado pelas acusações atuais, a pena seria execução pública.
 
-— E ele não perdeu a chance de tentar me atingir também — disse Dareth, a voz baixando um pouco. — Disse que espera, pelo bem da garota que o campeão achou necessário salvar, que ela realmente não saiba onde estão aqueles registros. Que, se ela estiver escondendo informação da Raiz, talvez o campeão descubra que não pode ficar entre ela e as consequências para sempre. E que seria lamentável descobrir que a menina salva pelo campeão também escolheu participar do crime do irmão.
+— E ele não perdeu a chance de tentar me atingir também — disse Dareth, a voz baixando um pouco. — Disse que espera, pelo bem da garota que o campeão achou necessário salvar, que ela realmente não saiba onde estão aqueles registros. Que, se ela estiver escondendo informação da Raiz, talvez o campeão descubra que não pode ficar entre ela e as consequências para sempre.
 
 — Ele queria que você levasse isso com você — disse Selina.
 
@@ -146,13 +142,13 @@ Dareth contou que, depois de não conseguir nenhuma resposta suficiente por cont
 
 O caso, até ali, era uma ameaça abstrata suspensa em algum ponto do futuro. Agora tinha um prazo. Uma semana.
 
-Selina olhou de volta para a mancha distante dos cais, e foi ela quem chegou, primeiro, à pergunta maior.
+Selina olhou de volta para a mancha distante dos cais, e foi ela quem chegou primeiro à pergunta maior.
 
 — O que eu mais acho estranho nisso tudo é a escala que está tomando.
 
 Dareth esperou, sem apressá-la.
 
-— Julgamento. Execução pública. Por roubar uma caixa de registros do Culto. — Falou devagar, ordenando o pensamento enquanto falava. — Eu entendo que ele entrou numa área sagrada, mentiu, retirou documentos de lá. Entendo a fé deles, entendo o que uma violação daquelas representa pra Raiz. Mas alguma punição proporcional, trabalho obrigatório, serventia forçada a uma Casa, isso seria compreensível. Execução é outra coisa.
+— Julgamento. Execução pública. Por roubar uma caixa de registros do Culto. — Falou devagar, ordenando o pensamento enquanto falava. — Eu entendo que ele entrou numa área sagrada, mentiu, retirou documentos de lá. Entendo a fé deles, entendo o que uma violação daquelas representa pra Raiz. Mas uma punição proporcional, trabalho obrigatório, serventia forçada a uma Casa, seria compreensível. Execução é outra coisa.
 
 — O que você quer dizer? Acha que a caixa que Kalan roubou contém alguma coisa importante pro Culto?
 
@@ -164,9 +160,9 @@ Dareth olhou na mesma direção que ela.
 
 — Acho que a Balança Azul está envolvida.
 
-Contou o resto. Kalan notara o peso errado numa carga e ouvira, dias antes da prisão, uma conversa sobre selos e reinspeções. Cairon falara do excesso de erros; Neris encontrara diferenças nos registros; Amira apontara autorizações noturnas. Cada etapa tinha um responsável, mas nenhuma pessoa acompanhava uma carga do início ao fim.
+Contou o resto. Kalan notara o peso errado numa carga e ouvira, dias antes da prisão, uma conversa sobre selos e reinspeções. Cairon falara do excesso de erros, Neris encontrara diferenças nos registros, Amira apontara autorizações noturnas. Cada etapa tinha um responsável, mas nenhuma pessoa acompanhava uma carga do início ao fim.
 
-Dareth ouviu sem tentar conduzir a investigação. Perguntava por rotas, depósitos e pelo ponto exato em que uma carga desaparecia da vista de quem deveria acompanhá-la. Selina reconheceu nas perguntas a experiência dele com linhas de abastecimento.
+Dareth ouviu sem tentar conduzir a investigação. Perguntava por rotas, depósitos e pelo ponto exato em que uma carga saía da vista de quem deveria acompanhá-la. Selina reconheceu nas perguntas a experiência dele com linhas de abastecimento.
 
 — Não seria melhor falar diretamente com Alveris? — perguntou Dareth.
 
@@ -190,7 +186,7 @@ Selina quase sorriu.
 
 — Seria estranho não estudar.
 
-— Você sabe o que está fazendo, não sabe? — Havia mais do que curiosidade na pergunta. Ela tinha visto os treinos, o cansaço que ele carregava nos ombros depois de cada um, e sabia, com uma clareza que preferia não ter, que ele estava velho demais para aquilo.
+— Você sabe o que está fazendo, não sabe? — Havia mais do que curiosidade na pergunta. Ela vira os treinos, o cansaço que ele carregava nos ombros depois de cada um, e sabia, com uma clareza que preferia não ter, que ele estava velho demais para aquilo.
 
 Dareth não se ofendeu. Só abriu as folhas.
 
@@ -222,7 +218,7 @@ Selina olhou para ele por um instante mais longo do que pretendia.
 
 — Eu só pretendo voltar vivo.
 
-Dali a conversa foi deslizando sozinha, sem que nenhum dos dois parecesse decidir para onde ir. Dareth reconheceu, sem precisar consultar as fichas de novo, que Talira vinha da guerra entre Leidar e Braedar, e sabia exatamente por que isso importava para o jeito como ela lutava. Lembrou que os Cendar nunca pensaram em terreno do mesmo jeito que os Polar, e comentou de passagem a fama antiga das Casas de Garantia Mardrar, do jeito de quem não estava dando aula, só lendo pessoas através da história que tinha formado cada uma delas. Selina começou a perceber, ouvindo-o, que Dareth não tinha sobrevivido décadas de guerra porque era o homem mais forte em qualquer sala em que entrasse. Tinha sobrevivido porque prestava atenção, e continuava prestando, muito depois de a maioria dos homens da idade dele já ter parado.
+Dali a conversa foi deslizando sozinha. Dareth reconheceu, sem consultar as fichas de novo, que Talira vinha da guerra entre Leidar e Braedar e sabia por que isso importava para o jeito como ela lutava. Lembrou que os Cendar nunca pensaram em terreno do mesmo jeito que os Polar, e comentou de passagem a fama antiga das Casas de Garantia Mardrar, não como quem dava aula, só lendo pessoas através da história que as formara. Selina começou a perceber que Dareth não sobrevivera a décadas de guerra por ser o homem mais forte em qualquer sala. Sobrevivera porque prestava atenção, e continuava prestando muito depois de a maioria dos homens da idade dele ter parado.
 
 — Você conhece Vetarius há muito tempo — comentou ela, mais afirmação do que pergunta.
 
@@ -234,7 +230,7 @@ Dali a conversa foi deslizando sozinha, sem que nenhum dos dois parecesse decidi
 
 Não continuou, e Selina não insistiu.
 
-Dareth tirou de dentro do casaco um cantil pequeno e ofereceu, e Selina, sem realmente pensar duas vezes, aceitou. O sol já estava baixo o bastante para pintar tudo de um dourado cansado, e por um instante aquela pareceu, para ela, uma das cenas mais tranquilas que já tinha vivido desde o começo daquele torneio inteiro.
+Dareth tirou de dentro do casaco um cantil pequeno e ofereceu, e Selina aceitou sem pensar duas vezes. O sol já estava baixo o bastante para pintar tudo de um dourado cansado, e por um instante aquela pareceu uma das cenas mais tranquilas que ela vivera desde o começo do torneio.
 
 — Então... quanto vale um dedo seu hoje? — provocou ela. — Vetarius já chegou a oitenta e cinco homens, da última vez que contou.
 
@@ -242,9 +238,9 @@ Dareth olhou para a própria mão, os dedos que restavam fechando-se devagar em 
 
 — Daqui a dez ciclos, esse dedo vai ter matado mais gente do que eu.
 
-Selina riu, um riso curto e genuíno que a pegou de surpresa mais do que a ele, e Dareth riu junto, baixo, o corpo inteiro relaxando por um instante que durou pouco, mas que ela reconheceu como raro. Não se lembrava de já tê-lo ouvido rir daquele jeito.
+Selina riu, um riso curto e genuíno que a pegou de surpresa mais do que a ele, e Dareth riu junto, baixo, o corpo inteiro relaxando por um instante raro. Ela não se lembrava de já tê-lo ouvido rir daquele jeito.
 
-Para manter o momento vivo mais um pouco, perguntou alguma coisa que normalmente não perguntaria.
+Para manter o momento vivo mais um pouco, perguntou o que normalmente não perguntaria.
 
 — Por que continuou morando naquela propriedade, depois?
 
@@ -252,17 +248,17 @@ Dareth não fingiu não entender a pergunta.
 
 — Porque era nossa antes de ser o lugar onde elas morreram.
 
-Respondeu isso primeiro, sobre a casa, e só depois a conversa foi deslizando para algo mais antigo. Admitiu que tinha passado tempo demais em Kaeliran naqueles anos. Serviço. Campanhas. Treinamento. Vetarius. Os Kaes. E via a família menos do que devia, mesmo quando não havia nenhuma guerra em curso obrigando-o a isso.
+Respondeu isso primeiro, sobre a casa, e só depois a conversa deslizou para algo mais antigo. Admitiu que passara tempo demais em Kaeliran naqueles anos. Serviço. Campanhas. Treinamento. Vetarius. Os Kaes. E via a família menos do que devia, mesmo quando não havia guerra obrigando-o a isso.
 
-A propriedade já era deles havia anos antes de qualquer coisa daquilo acontecer, um pedaço de terra a oeste que Dareth tinha escolhido cedo na carreira, longe o bastante dos olhos de Kaendar para que nenhum inimigo da cidade pensasse em usar a família dele como moeda. Foi ali que a filha nasceu. Foi ali que os dois viveram enquanto Dareth ia e voltava.
+A propriedade já era deles havia anos antes de qualquer daquilo acontecer, um pedaço de terra a oeste que Dareth escolhera cedo na carreira, longe o bastante dos olhos de Kaendar para que nenhum inimigo da cidade pensasse em usar a família dele como moeda. Foi ali que a filha nasceu. Foi ali que os dois viveram enquanto Dareth ia e voltava.
 
-Depois veio a Guerra dos Estandartes Partidos, nos primeiros anos em que ele já carregava arma de verdade. Casas importantes tinham desafiado decisões de Vetarius, disputando comando e território, e como os Kaes decidiam onde as tropas estavam e a quem obedeciam, as famílias dos oficiais se tornaram instrumento de pressão dos dois lados. Mulheres, filhos, parentes, todos viraram, por um tempo, uma forma de moeda que ninguém tinha coragem de chamar pelo nome certo.
+Depois veio a Guerra dos Estandartes Partidos, nos primeiros anos em que ele já carregava arma de verdade. Casas importantes desafiaram decisões de Vetarius, disputando comando e território, e como os Kaes decidiam onde as tropas estavam e a quem obedeciam, as famílias dos oficiais viraram instrumento de pressão dos dois lados. Mulheres, filhos, parentes, todos viraram, por um tempo, moeda que ninguém tinha coragem de chamar pelo nome certo.
 
-— Nunca pensei em trazê-las pra mais perto de Kaeliran depois disso — disse Dareth. — Se alguma coisa, a distância que já era escolha minha virou a única decisão da minha vida inteira de que eu tinha certeza absoluta que tinha acertado.
+— Nunca pensei em trazê-las pra mais perto de Kaeliran depois disso — disse Dareth. — A distância, que já era escolha minha, virou a única decisão da minha vida de que eu tinha certeza absoluta de ter acertado.
 
 A guerra acabou. Dareth continuou em Kaeliran.
 
-— Sempre havia outra campanha. Outra crise. Outro motivo pra voltar só no próximo ciclo da lua maior. — Bebeu um gole antes de continuar, e a pausa pesou mais do que qualquer palavra teria pesado. — Passei anos dizendo a mim mesmo que elas estavam mais seguras longe daqui.
+— Sempre havia outra campanha. Outra crise. Outro motivo pra voltar só no próximo ciclo da lua maior. — Bebeu um gole, e a pausa pesou mais do que qualquer palavra. — Passei anos dizendo a mim mesmo que elas estavam mais seguras longe daqui.
 
 Silêncio.
 
@@ -304,7 +300,7 @@ Dareth bebeu de novo, sem pressa.
 
 — Não foi isso que eu disse.
 
-Selina não respondeu, e ele não insistiu. Deixou a frase ali, entre os dois, sem tentar explicá-la melhor, e ela sentiu, sem saber ainda o motivo exato, que aquilo ia continuar pesando muito depois de o sol terminar de se pôr sobre a cidade.
+Selina não respondeu, e ele não insistiu. Deixou a frase ali, entre os dois, sem tentar explicá-la, e ela sentiu que aquilo ia continuar pesando muito depois de o sol terminar de se pôr sobre a cidade.
 
 Foi então que um grito cortou o silêncio de dentro de Kaendar.
 
@@ -314,9 +310,9 @@ Outro, mais alto, mais desesperado.
 
 — MEU PAI! ALGUÉM AJUDA! MEU PAI ESTÁ MORRENDO!
 
-Dareth já estava em movimento antes mesmo de Selina conseguir processar as palavras direito. A espada saiu da bainha num único gesto seco. Selina correu atrás dele, o coração disparado, os pés batendo na pedra fria dos corredores. Kerath surgiu de outra galeria quase no mesmo instante, alertada pelo grito, e alcançou os dois sem precisar perguntar por que estavam correndo.
+Dareth já estava em movimento antes de Selina processar as palavras. A espada saiu da bainha num único gesto seco. Selina correu atrás dele, o coração disparado, os pés batendo na pedra fria dos corredores. Kerath surgiu de outra galeria quase no mesmo instante e alcançou os dois sem precisar perguntar por que corriam.
 
-Encontraram Caeren no meio de um dos corredores internos, o rosto contorcido de um desespero real o bastante para enganar qualquer um.
+Encontraram Caeren no meio de um corredor interno, o rosto contorcido de um desespero real o bastante para enganar qualquer um.
 
 — Por aqui!
 
@@ -330,11 +326,11 @@ Um guarda estava sentado ali dentro, cuidando das próprias necessidades, e o si
 
 O guarda olhou para Dareth Quatro-Dedos, espada na mão. Dareth olhou para o guarda. Selina olhou para o guarda. Kerath parou no batente, ainda com a mão na própria arma. Caeren começou a rir.
 
-Tentou segurar primeiro, um som engasgado escapando entre os dentes fechados, mas perdeu completamente o controle logo em seguida, encostou-se na parede e quase dobrou o corpo ao meio de tanto rir. O pobre guarda parecia, naquele instante, capaz de qualquer coisa para deixar de existir ali mesmo, entre a espada e o riso.
+Tentou segurar primeiro, um som engasgado escapando entre os dentes, mas perdeu o controle em seguida, encostou-se na parede e quase dobrou o corpo ao meio de tanto rir. O pobre guarda parecia capaz de qualquer coisa para deixar de existir ali mesmo, entre a espada e o riso.
 
 Era realmente engraçado. Por alguns segundos. Dareth não achou tanta graça assim.
 
-Guardou a espada devagar, sem pressa, e foi até Caeren, que ainda ria quando percebeu o homem parado bem à sua frente. O riso foi morrendo aos poucos, do jeito de quem sente o próprio corpo entender antes da cabeça que a brincadeira tinha acabado.
+Guardou a espada devagar e foi até Caeren, que ainda ria quando percebeu o homem parado à sua frente. O riso foi morrendo aos poucos, de quem sente o corpo entender antes da cabeça que a brincadeira acabou.
 
 Dareth olhou nos olhos dele.
 

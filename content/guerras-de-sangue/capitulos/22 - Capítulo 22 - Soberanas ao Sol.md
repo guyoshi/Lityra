@@ -66,7 +66,7 @@ Entre todas as marcas negras do clã, a de Kharvok era a mais fechada: planos r�
 
 Gente ocupava as bordas, as passagens altas, os degraus de barro, os vãos entre pilares. Cabeças raspadas brilhavam de suor. Pinturas negras dividiam rostos em funções, lutos, guerras e cargos que Kaelina ainda não sabia ler. Crânios pendiam das estruturas laterais, batendo de leve quando o vento seco atravessava a cidade. Tec. Tec. Tec. O som era pequeno, mas insistente, como se os mortos também quisessem assistir.
 
-Kharvok estava de pé diante da Plataforma do Sol Alto. A Marca da Voz incorporava a mutilação do rosto de modo tão completo que a ausência do nariz já não parecia ferida; parecia centro. Ele respirava com aquele som áspero de pedra rachada, e a cada respiração o povo parecia lembrar que ele sobrevivera ao círculo para ocupar aquele lugar. Ao redor dele, o Círculo da Cabeça Nua mantinha posições medidas: a Senhora dos Tambores com as mãos sobre a pele esticada de um tambor pequeno; uma guardiã das Veias de Barro; um homem velho de braços finos marcados por riscos de contagem; e Eshvar, o Guardião da Boca Seca, alto, seco, com a pintura descendo pela garganta como uma rachadura. Eshvar observava mais do que falava. Isso, naquele pátio, era uma forma perigosa de poder.
+Kharvok estava de pé diante da Plataforma do Sol Alto. A Marca da Voz incorporava a mutilação do rosto de modo tão completo que a ausência do nariz já não parecia ferida. Parecia centro. Ele respirava com aquele som áspero de pedra rachada, e a cada respiração o povo parecia lembrar que ele sobrevivera ao círculo para ocupar aquele lugar. Ao redor dele, o Círculo da Cabeça Nua mantinha posições medidas: a Senhora dos Tambores com as mãos sobre a pele esticada de um tambor pequeno, uma guardiã das Veias de Barro, um homem velho de braços finos marcados por riscos de contagem, e Eshvar, o Guardião da Boca Seca, alto, seco, com a pintura descendo pela garganta como uma rachadura. Eshvar observava mais do que falava. Isso, naquele pátio, era uma forma perigosa de poder.
 
 Quando Kaelina e Nynestra foram trazidas à vista, o pátio reagiu de formas diferentes. O nome de Torgun passou por algumas bocas como brasa. O nome da antiga Voz veio em outras. Alguém gritou que matassem a Buldar primeiro. Outro respondeu que soberana Polar devia secar ao sol até a irmã pagar com portões abertos. Uma mulher velha cuspiu no chão e disse que ninguém ali comia orgulho. Kharvok deixou o tumulto crescer o suficiente para parecer que pertencia ao povo, depois ergueu a mão.
 
@@ -276,7 +276,7 @@ Um silêncio comprido. Depois, tão baixo que quase se perdeu no calor da cela:
 
 — Mentira minha, também — disse Nynestra, sem olhar para ela. — Mas fica com a versão que combinamos lá atrás.
 
-Kaelina não perguntou qual das duas era mentira. Fechou os olhos; a febre fazia as pedras luminosas parecerem mais distantes.
+Kaelina não perguntou qual das duas era mentira. Fechou os olhos. A febre fazia as pedras luminosas parecerem mais distantes.
 
 — Você acha que vamos conseguir sair?
 
@@ -286,7 +286,7 @@ Nynestra demorou.
 
 Os preparativos de Khar-Tondr subiam pelas paredes como outro tipo de tambor. De manhã, homens raspavam armas no pátio. À tarde, mulheres pintavam marcas de guerra em rostos que já pareciam feitos de sede. À noite, os crânios importantes eram tocados com dedos escuros de tinta, e as crianças recebiam ordens para não chorar quando os portões fechassem.
 
-Tentaram matar a soberana durante uma das noites. Nynestra gritou, e homens chegaram para impedir. O Círculo da Cabeça Nua discutiu a partida por mais de uma vez. Kaelina ouvia vozes altas acima das Veias de Barro: havia quem quisesse levar pouca gente, quem dissesse que pouca gente pareceria medo; quem quisesse matar Kaelina antes de sair, quem dissesse que matar refém era desperdiçar faca; quem lembrasse que os campos Buldar alimentavam filhos Tondrar quando a caça faltava, quem respondesse que depender de grão era a vergonha que os trouxera até ali.
+Tentaram matar a soberana durante uma das noites. Nynestra gritou, e homens chegaram para impedir. O Círculo da Cabeça Nua discutiu a partida por mais de uma vez. Kaelina ouvia vozes altas acima das Veias de Barro: havia quem quisesse levar pouca gente, quem dissesse que pouca gente pareceria medo. Quem quisesse matar Kaelina antes de sair, quem dissesse que matar refém era desperdiçar faca. Quem lembrasse que os campos Buldar alimentavam filhos Tondrar quando a caça faltava, quem respondesse que depender de grão era a vergonha que os trouxera até ali.
 
 Kharvok decidiu no fim, como Voz. Não explicou tudo. Voz que explicava demais parecia pedir permissão.
 
@@ -304,7 +304,7 @@ Os portões internos fecharam primeiro. Depois os externos. Barras de madeira es
 
 A Boca Seca abriu-se.
 
-Saíram pelo corredor de poeira e osso, com o sol já alto o bastante para transformar pedra em lâmina. Kaelina caminhou no meio do grupo, presa por dois guardas, o corpo balançando entre dor e febre. O calor entrou pelo couro da roupa, pelo cabelo sujo, pela ferida. Às vezes a visão manchava de branco; às vezes o mundo se estreitava no som dos próprios passos. Nynestra seguia adiante com a liberdade limitada de quem ainda era útil. Kaelina tinha a sobrevivência vigiada de quem ainda valia como ameaça.
+Saíram pelo corredor de poeira e osso, com o sol já alto o bastante para transformar pedra em lâmina. Kaelina caminhou no meio do grupo, presa por dois guardas, o corpo balançando entre dor e febre. O calor entrou pelo couro da roupa, pelo cabelo sujo, pela ferida. Às vezes a visão manchava de branco, às vezes o mundo se estreitava no som dos próprios passos. Nynestra seguia adiante com a liberdade limitada de quem ainda era útil. Kaelina tinha a sobrevivência vigiada de quem ainda valia como ameaça.
 
 O caminho pela Garganta Seca não era estrada. Era prova. A pedra estreitava a passagem, abria de repente, depois fechava outra vez. O chão mudava de barro duro para cascalho e de cascalho para lajes antigas partidas por raízes secas. Em certos pontos, marcas de luta ainda permaneciam. Uma lasca de lança entre pedras. Uma mancha escura que a chuva não lavara. Quando chegaram ao trecho onde a antiga Voz fora morta sob trégua, os Tondrar diminuíram o ritmo sem receber ordem.
 
@@ -322,7 +322,7 @@ Não foi longo. Não teve tempo de virar aviso. Surgiu entre as pedras à frente
 
 O vale acordou em lâminas.
 
-Homens saíram das pedras, dos arbustos baixos, das fendas secas onde Kaelina juraria que não cabia um corpo. Não eram muitos, talvez trinta ou quarenta, se a poeira estivesse mentindo. Os Tondrar estavam em um número talvez dez ou quinze vezes maior, mas os Urtistar não atacaram como grupo menor. Atacaram como se cada homem tivesse sido lançado para dentro de uma falha já aberta.
+Homens saíram das pedras, dos arbustos baixos, das fendas secas onde Kaelina juraria que não cabia um corpo. Não eram muitos, talvez trinta ou quarenta, se a poeira estivesse mentindo. Os Tondrar eram talvez dez ou quinze vezes mais numerosos, mas os Urtistar não atacaram como grupo menor. Atacaram como se cada homem tivesse sido lançado para dentro de uma falha já aberta.
 
 Tinham barbas presas com anéis pequenos, couro justo ao corpo, braços marcados por riscos de fé, lâminas curvas nas mãos e olhos de quem não perguntava ao medo onde pisar. Alguns usavam mantos curtos cor de pedra seca. Outros traziam colares de osso escurecido contra o peito. Moviam-se depressa demais para homens carregados de armas. Não entravam em linha. Entravam por cortes. Um para separar. Outro para derrubar. Um terceiro para terminar.
 

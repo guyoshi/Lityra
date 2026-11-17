@@ -1,12 +1,12 @@
-Eu acordei com aquela sensação chata de que o mundo ainda estava de pé quando, por algum motivo, eu queria que ele tivesse tirado um dia de folga.
+Eu queria dormir mais umas três horas. Não era pedir muito, depois de tudo o que a gente tinha passado. Mas naquela casa até o silêncio parecia ter despertador.
 
-O quarto da Sra. Olívia tinha cheiro de chá e madeira antiga. A luz da manhã entrava num ângulo tímido pela janela, cortando a poeira no ar. Jennifer dormia na outra cama, encolhida de lado, com uma mão perto do rosto e a outra largada como se tivesse desistido de segurar alguma coisa durante a noite. Ela parecia quieta demais. Não era paz. Era cansaço.
+Abri os olhos e vi Jennifer dormindo na outra cama. Estava com uma cara de cansada que me deu pena. Se a Sra. Olívia cobrasse diária pelos pesadelos, nós três já teríamos falido.
 
-E a cama do Filipo estava vazia.
+Foi quando percebi que a cama do Filipo estava vazia.
 
-No início eu pensei que ele tivesse ido ao banheiro, mas tinha uma espécie de silêncio na casa que denunciava quando alguém estava acordado sozinho. Um silêncio com intenção.
+Pensei que ele tivesse ido ao banheiro. Aí ouvi um barulho na entrada e fui conferir. Encontrei o sujeito de pé junto à porta, olhando para fora. Tinha aquela cara séria de sempre. Eu já estava começando a achar que ele dormia de testa franzida.
 
-A casa estava quase escura, mesmo de manhã. As cortinas grossas deixavam tudo amarelado e abafado. Eu vi Filipo na porta da frente, de pé, com a mão na tranca, olhando para fora como se estivesse a dois segundos de ir embora.
+Cheguei mais perto, ainda meio sonolento.
 
 — Ei — eu disse, ainda com a voz amassada de sono. — Tá tudo bem?
 
@@ -14,11 +14,11 @@ Ele não olhou de imediato. Continuou encarando o jardim e as árvores para alé
 
 — Quanto mais tempo a gente fica aqui… — ele começou, com a voz baixa, seca — menos chances eu tenho de encontrar minha irmã viva.
 
-Eu não soube o que dizer, porque esse tipo de frase não dá para responder com “calma” sem parecer idiota.
+Pensei em dizer que tudo ficaria bem. Desisti. Eu mesmo não acreditaria numa frase dessas.
 
 — Filipo… a Jennifer tá se esforçando. Ela tá treinando. Ela só precisa ficar mais forte, aí sim a gente vai atrás da tua irmã do jeito certo, sem fazer cagada.
 
-Ele virou para mim com um olhar que não era só raiva. Era desespero disfarçado de raiva, que é o tipo mais perigoso porque parece argumento quando é só dor.
+Ele virou tão depressa que achei que ia me empurrar. Estava com os olhos vermelhos, de quem não dormia direito havia dias. Mesmo assim, a maneira como falou me irritou.
 
 — “Se esforçando”. — Ele riu sem humor. — Cara, ela tá aqui há dias. E o quê? Ela aprende a respirar fundo e fazer cara de concentrada? A minha irmã tá presa numa cidade cheia de demônios. Tu acha que eu posso ficar esperando alguém “pegar o jeito”?
 
@@ -38,7 +38,7 @@ Ele apertou o maxilar.
 
 — E tu é o quê? — escapou de mim, mais alto do que eu queria. — Instrutor de Selifa agora? Tu decorou tabela periódica e acha que isso dá certificado pra julgar o trauma dos outros?
 
-Ele ficou parado, surpreso com a minha resposta, e eu senti aquela onda de calor subir pelo peito. Eu odeio quando a raiva toma emprestada a minha língua.
+Ele ficou me encarando. Eu tinha ido longe demais, mas estava tão irritado que não consegui pedir desculpa. Sempre fui bom em falar besteira. Infelizmente, algumas delas machucam de verdade.
 
 — Não vou esperar mais muito tempo — ele insistiu, mas a voz dele falhou um pouco. — Você viu o que o Cara-de-Larva é capaz de fazer. Não vou esperar enquanto ele mata minha irmã. 
 
@@ -136,9 +136,9 @@ Jennifer sentou ao meu lado, deixando uma distância pequena entre nós, do jeit
 
 — Eu também fiquei — ela admitiu.
 
-— E mesmo assim foi.
+— E mesmo assim você foi.
 
-— Mesmo assim eu fui. E nada aconteceu. Fui e voltei de taxi. Estava rodeada de pessoas… nada aconteceu. 
+— Mesmo assim eu fui. E nada aconteceu. Fui e voltei de táxi. Estava rodeada de pessoas… nada aconteceu. 
 
 — Rodeada de pessoas? Você? A tua coragem é muito problemática.
 
@@ -150,7 +150,7 @@ Jennifer sentou ao meu lado, deixando uma distância pequena entre nós, do jeit
 
 A pergunta me pegou no meio do peito. Não foi agressiva. Foi só… inusitada.
 
-Eu fiquei olhando pro jardim, pro portão, pro lugar por onde Filipo tinha saído, e senti aquela lembrança vindo com força: a casa, o barulho do tiro, a Kelly caindo, o Junior com a arma.
+Olhei para o jardim para não encarar Jennifer. Kelly. Bastou ouvir o nome e me lembrei do baile, de Junior correndo com ela e, depois, do tiro. Eu ainda não conseguia pensar naqueles momentos sem misturar saudade e raiva.
 
 — Eu amei — eu disse, por fim. A voz saiu mais rouca do que eu queria. — Eu amei pra caramba.
 
@@ -206,7 +206,7 @@ Ela soltou o ar devagar.
 
 — E eu não quero sentir isso de novo. — ela completou. — Não depois do que senti com minha mãe. 
 
-Eu fiquei olhando pra ela, e senti uma tristeza estranha. Não pena. Tristeza real. Porque Jennifer merecia muito mais do que viver com medo da própria humanidade.
+Olhei para ela. Jennifer tinha ajudado tanta gente naquele ano, inclusive a mim, e ainda achava que não podia se permitir gostar de alguém. Quis fazer uma piada para animá-la. Pela primeira vez, não encontrei nenhuma que prestasse.
 
 E eu, burro como sempre, tentei puxar uma piada pra não chorar.
 

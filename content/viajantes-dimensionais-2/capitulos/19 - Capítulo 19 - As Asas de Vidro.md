@@ -1,4 +1,4 @@
-Beatriz acordou com um grito. Não foi grito de sonho, desses que somem no segundo em que a pessoa abre os olhos. Foi grito de homem, comprido e rouco, que veio de fora, entrou pela chaminé e desceu pela casa inteira, e ficou na pele dela feito formiga.
+Um grito comprido e rouco acordou Beatriz. Veio de fora, entrou pela chaminé e desceu pela casa inteira. Ela se sentou na cama, arrepiada.
 
 Ela ficou parada debaixo da coberta, contando as vigas do teto, que continuavam no lugar. O fogão estava aceso no outro cômodo, com um estalo de lenha de vez em quando, e Breno dormia na cama ao lado, de botas, de boca aberta, com uma das mãos caída em cima do peito que subia e descia. Beatriz achou aquilo estranho. Breno acordava até com o barulho de Banjo virando a página de um livro, e agora um homem inteiro gritava no meio da neve e ele só franzia a testa, sem acordar.
 

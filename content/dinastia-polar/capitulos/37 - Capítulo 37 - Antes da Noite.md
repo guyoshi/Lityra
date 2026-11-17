@@ -2,9 +2,9 @@
 
 Dareth recuou até o corredor sem tirar os olhos do salão. Antes de alcançar o corredor, percebeu que alguns dos sobreviventes o observavam havia tempo demais.
 
-Saelira Buldar estava de pé junto à mesa da própria comitiva, tão imóvel que parecia não ouvir os pedidos de ajuda à sua volta. Não fizera menção de se aproximar de Alveris quando ele caíra. Agora encontrava os olhos de Dareth sem desviar, a mesma serenidade com que participara do jantar. Perto dela, um dos homens Buldar aguardava junto à porta; o outro deixou escapar um sorriso breve, que desapareceu assim que notou ter sido visto. Do lado oposto, o homem que propusera o brinde baixou a taça vazia e trocou um olhar com alguém que vestia as cores Vendrar.
+Saelira Buldar estava de pé junto à mesa da própria comitiva, tão imóvel que parecia não ouvir os pedidos de ajuda à sua volta. Não fizera menção de se aproximar de Alveris quando ele caíra. Agora encontrava os olhos de Dareth sem desviar, com a mesma serenidade com que participara do jantar. Perto dela, um dos homens Buldar aguardava junto à porta, e o outro deixou escapar um sorriso breve, que desapareceu assim que notou ter sido visto. Do lado oposto, o homem que propusera o brinde baixou a taça vazia e trocou um olhar com alguém que vestia as cores Vendrar.
 
-Dareth não conhecia o nome de todos eles. Lembrava dos lugares que tinham ocupado, das vozes misturadas às conversas de Vetarius poucos momentos antes. Havia sangue e vinho sobre as mesas. Servidores chamavam curadores. Uma mulher estrangeira tentava reanimar o servidor Polar caído a seus pés, e um homem de outra delegação examinava a própria taça com as mãos tão trêmulas que mal conseguia segurá-la. Dareth não tinha como separar, naquela hora, os que esperavam por aquilo dos que tinham sido apanhados no mesmo horror. Mas os rostos calmos continuavam voltados para ele, e nenhum dos seus donos parecia surpreso.
+Dareth não conhecia o nome de todos eles. Lembrava dos lugares que tinham ocupado, das vozes misturadas às conversas de Vetarius poucos momentos antes. Havia sangue e vinho sobre as mesas. Servidores chamavam curadores. Uma mulher estrangeira tentava reanimar o servidor Polar caído a seus pés, e um homem de outra delegação examinava a própria taça com as mãos tão trêmulas que mal conseguia segurá-la. Dareth não tinha como separar os que esperavam por aquilo dos que tinham sido apanhados no mesmo horror. Mas os rostos calmos continuavam voltados para ele, e nenhum dos seus donos parecia surpreso.
 
 Deu um passo para trás. Ainda sentia nos braços o corpo de Vetarius, a mudança súbita quando o amigo deixara de se mover. Um representante estrangeiro passou por ele pedindo ajuda. Dareth ouviu a voz sem entender as palavras. Havia muitas outras: acusações, nomes chamados por cima dos ombros, alguém insistindo que também bebera vinho e continuava de pé. O ruído chegava abafado, como se ele estivesse num aposento fechado e tudo aquilo acontecesse do lado de fora.
 
@@ -12,7 +12,7 @@ Recuou até o corredor e esbarrou numa armadura úmida.
 
 — Dareth.
 
-Kerath o segurou pelos braços. Tinha névoa presa aos cabelos e ao metal dos ombros; vinha da segurança externa, onde deveria estar. Olhou por cima dele para o salão, mas Dareth ainda bloqueava parte da entrada.
+Kerath o segurou pelos braços. Tinha névoa presa aos cabelos e ao metal dos ombros. Vinha da segurança externa, onde deveria estar. Olhou por cima dele para o salão, mas Dareth ainda bloqueava parte da entrada.
 
 — Dareth. Está tudo bem?
 
@@ -40,7 +40,7 @@ Ele riu. Havia gente gritando atrás deles, e mesmo assim pareceu divertir-se co
 
 — O soberano morreu.
 
-Kerath procurou Dareth com os olhos. Ele não encontrou forma de disfarçar o que tinha visto. Ela compreendeu antes que pudesse confirmar; sua expressão se alterou por um instante e logo voltou à escada.
+Kerath procurou Dareth com os olhos. Ele não encontrou forma de disfarçar o que tinha visto. Ela compreendeu antes que pudesse confirmar. Sua expressão se alterou por um instante e logo voltou à escada.
 
 — Caeren — disse.
 
@@ -52,9 +52,9 @@ Falava como se Alveris ainda estivesse em algum salão menor, à espera de notí
 
 — Kaeliran cai esta noite — acrescentou o homem.
 
-Kerath investiu. A lâmina dela prendeu a haste da arma contra a parede; Dareth alcançou o braço de outro homem que tentava passar. Estava desarmado, exausto da final e da viagem, e a força do primeiro golpe quase o pôs de joelhos. Bateu o agressor contra o batente até sentir a mão dele afrouxar. A espada que lhe tomou era pesada e mal equilibrada para sua mão, mas quando o terceiro homem veio por cima da escada já tinha uma ponta para manter entre os dois.
+Kerath investiu. A lâmina dela prendeu a haste da arma contra a parede. Dareth alcançou o braço de outro homem que tentava passar. Estava desarmado, exausto da final e da viagem, e a força do primeiro golpe quase o pôs de joelhos. Bateu o agressor contra o batente até sentir a mão dele afrouxar. A espada que lhe tomou era pesada e mal equilibrada para sua mão, mas quando o terceiro homem veio por cima da escada já tinha uma ponta para manter entre os dois.
 
-A luta durou menos do que pareceu. O espaço não permitia que os invasores o cercassem, e Kerath conhecia cada degrau. Dois caíram; os outros recuaram para o alto, arrastando consigo o som de botas e ordens curtas. O criado à parede ainda respirava. Kerath chamou dois guardas que vinham do pátio para que cuidassem dele e segurassem a escada.
+A luta durou menos do que pareceu. O espaço não permitia que os invasores o cercassem, e Kerath conhecia cada degrau. Dois caíram. Os outros recuaram para o alto, arrastando consigo o som de botas e ordens curtas. O criado à parede ainda respirava. Kerath chamou dois guardas que vinham do pátio para que cuidassem dele e segurassem a escada.
 
 Depois tentou voltar ao salão.
 
@@ -68,7 +68,7 @@ Ela olhou para a roupa dele, manchada de vinho e de sangue que não era seu.
 
 — Todos os que beberam naquela mesa foram envenenados. Vetarius morreu nos meus braços.
 
-Kerath fechou os olhos por uma respiração. Quando os abriu, já olhava para o corredor de Caeren. Dareth não tentou consolá-la; conhecia bem demais a obrigação que mudara de dono com a morte de Vetarius. Ela tocou a raiz da própria têmpora com dois dedos, gesto curto, de quem confere se uma coisa ainda está no lugar. Agora era o filho que ela precisava encontrar.
+Kerath fechou os olhos por uma respiração. Quando os abriu, já olhava para o corredor de Caeren. Dareth não tentou consolá-la. Conhecia bem demais a obrigação que mudara de dono com a morte de Vetarius. Ela tocou a raiz da própria têmpora com dois dedos, gesto curto, de quem confere se uma coisa ainda está no lugar. Agora era o filho que ela precisava encontrar.
 
 Passaram por portas abertas às pressas, por guardas que não sabiam a quem obedecer e por dois servidores escondidos sob uma escada. Dareth queria perguntar quem fora o primeiro a ouvir o grito, quando viram sangue no piso do setor de Caeren. Havia dois guardas Polar mortos perto da entrada e um invasor caído entre eles. Teral jazia junto ao batente do quarto, a roupa cerimonial rasgada, uma das mãos estendida na direção da maçaneta.
 
@@ -78,7 +78,7 @@ A cama estava intacta. A cadeira tinha sido arrastada até a janela e tombara de
 
 Kerath chegou primeiro ao parapeito.
 
-Os aposentos de Caeren ficavam apenas um andar acima de uma cobertura de serviço que acompanhava o pátio lateral. A queda até a cobertura seria dura, mas um garoto de quinze ciclos poderia arriscar. Poeira tinha sido raspada da borda externa. Uma marca de bota aparecia sobre as telhas logo abaixo; outra seguia até o ponto em que a cobertura encontrava uma escada estreita de manutenção.
+Os aposentos de Caeren ficavam apenas um andar acima de uma cobertura de serviço que acompanhava o pátio lateral. A queda até a cobertura seria dura, mas um garoto de quinze ciclos poderia arriscar. Poeira tinha sido raspada da borda externa. Uma marca de bota aparecia sobre as telhas logo abaixo. Outra seguia até o ponto em que a cobertura encontrava uma escada estreita de manutenção.
 
 A porta de serviço do quarto continuava travada pelo lado de dentro.
 
@@ -96,7 +96,7 @@ Desceram pelo acesso lateral seguindo a direção que Caeren provavelmente tomar
 
 Fumaça subia de três pontos diferentes de Kaeliran.
 
-Uma barreira Polar tinha sido virada contra os próprios guardas. Homens com peças de uniformes estrangeiros misturadas a equipamento Polar avançavam por uma rua enquanto moradores corriam na direção oposta. Mais abaixo, alguma coisa explodiu perto de um depósito e fez janelas tremerem em toda a encosta. Do lado dos cais veio um toque de alarme; quase ao mesmo tempo, outro respondeu perto do acesso oeste. Uma terceira chamada começou no Anel Intermediário e morreu no meio, como se a torre que devia repeti-la tivesse deixado de existir. Guardas corriam em direções opostas, cada grupo respondendo a uma emergência diferente.
+Uma barreira Polar tinha sido virada contra os próprios guardas. Homens com peças de uniformes estrangeiros misturadas a equipamento Polar avançavam por uma rua enquanto moradores corriam na direção oposta. Mais abaixo, alguma coisa explodiu perto de um depósito e fez janelas tremerem em toda a encosta. Do lado dos cais veio um toque de alarme. Quase ao mesmo tempo, outro respondeu perto do acesso oeste. Uma terceira chamada começou no Anel Intermediário e morreu no meio, como se a torre que devia repeti-la tivesse deixado de existir. Guardas corriam em direções opostas, cada grupo respondendo a uma emergência diferente.
 
 Kerath parou por menos de um segundo.
 
@@ -104,15 +104,13 @@ Kerath parou por menos de um segundo.
 
 — Não — Dareth respondeu.
 
-Ele também tinha acreditado, até ali, que o envenenamento e os homens nos corredores faziam parte de um golpe concentrado no governo. A cidade inteira diante deles corrigia a hipótese. A celebração espalhara guardas pelos portões, praças, alojamentos e corredores de visitantes; agora cada foco de ataque puxava uma parte dessa força para longe das outras.
+Ele também tinha acreditado, até ali, que o envenenamento e os homens nos corredores faziam parte de um golpe concentrado no governo. A cidade inteira diante deles corrigia a hipótese. A celebração espalhara guardas pelos portões, praças, alojamentos e corredores de visitantes. Agora cada foco de ataque puxava uma parte dessa força para longe das outras.
 
 Um grupo armado apareceu na esquina antes que pudessem decidir para onde seguir. Um deles apontou para Dareth e gritou alguma coisa que o barulho engoliu. Kerath puxou a espada.
 
 A luta foi curta e desorganizada. Não havia formação nem desafio, apenas gente tentando ocupar a mesma rua com intenções incompatíveis. Dareth derrubou o primeiro homem com a arma que tomara em Kaendar. Kerath interceptou outro que tentava passar por ele. Um terceiro recuou quando percebeu que não conseguiria cercá-los e desapareceu por uma viela marcada na parede.
 
-Dareth viu o sinal.
-
-Dareth já vira uma marca parecida na Cidade Exterior, sem entendê-la.
+Dareth viu a marca na parede da viela. Já vira uma igual na Cidade Exterior, de relance, sem nunca entender o que significava.
 
 — Eles conhecem as rotas.
 
@@ -124,7 +122,7 @@ Mais homens surgiam duas ruas abaixo. Kerath limpou a lâmina na própria capa s
 
 Dareth não respondeu. Não havia resposta útil.
 
-Passaram a procurar enquanto desciam, perguntando por um garoto de Kaendar sempre que encontravam alguém que ainda conseguia responder. Entre um quarteirão e outro precisavam se desviar de combate, ajudar a derrubar uma barricada ou simplesmente escolher uma rua onde não houvesse flechas.
+Passaram a procurar enquanto desciam, perguntando por um garoto de Kaendar a quem ainda conseguisse responder. Entre um quarteirão e outro precisavam se desviar de combate, derrubar uma barricada ou escolher uma rua onde não houvesse flechas.
 
 A busca já não cabia dentro de Kaendar.
 
@@ -136,9 +134,9 @@ Estava voltando a Kaeliran havia dias, desde que homens ligados a Alveris a tira
 
 Um dos homens dissera, ao discutir com outro a conveniência de mantê-la viva, que Selina conhecia contratos e alianças que não apareciam em inventário nenhum. Só então ela entendera o lugar reservado para si naquele plano: depois de derrubar Vetarius, Alveris precisaria de alguém capaz de fazer Kaeliran funcionar.
 
-Escapara quando a operação começou a acelerar. Ordens se contradiziam, escoltas trocavam de lugar, caixas chegavam tarde aos pontos de transferência. Numa parada, o guarda que lhe segurava o braço soltou-o para ajudar a levantar uma carga caída. Selina o atingiu com a corrente curta das algemas e se esgueirou sob a carruagem antes que o outro homem compreendesse o ruído. Tomou a chave do cinto do guarda caído, soltou os pulsos e roubou o disco de couro preso ao seu pescoço. A fuga lhe custara um corte profundo na perna; não sabia se o homem sobrevivera ao golpe e não tinha voltado para descobrir.
+Escapara quando a operação começou a acelerar. Ordens se contradiziam, escoltas trocavam de lugar, caixas chegavam tarde aos pontos de transferência. Numa parada, o guarda que lhe segurava o braço soltou-o para ajudar a levantar uma carga caída. Selina o atingiu com a corrente curta das algemas e se esgueirou sob a carruagem antes que o outro homem compreendesse o ruído. Tomou a chave do cinto do guarda caído, soltou os pulsos e roubou o disco de couro preso ao pescoço dele. A fuga lhe custara um corte profundo na perna, e ela não sabia se o homem sobrevivera ao golpe.
 
-No portão, trabalhadores comuns ainda mostravam licenças e abriam sacos. Dois homens de capa atravessaram a fila sem ser revistados. Um ergueu por um instante um disco semelhante ao dela. Selina vira o selo da Balança Azul numa das faces; na outra, três riscos feitos à mão, que não pertenciam a documento algum da cidade.
+No portão, trabalhadores comuns ainda mostravam licenças e abriam sacos. Dois homens de capa atravessaram a fila sem ser revistados. Um ergueu por um instante um disco semelhante ao dela. Selina vira o selo da Balança Azul numa das faces. Na outra, três riscos feitos à mão, que não pertenciam a documento algum da cidade.
 
 Tirou a identificação Polar de dentro da roupa. Em qualquer dia normal, bastaria dizer o nome para que um guarda a escoltasse até Kaendar. Naquele portão, os homens de Alveris chegariam a ela antes dos seus.
 
@@ -146,26 +144,27 @@ Guardou o documento.
 
 Apresentou o disco pelo lado dos riscos e recebeu uma passagem que nenhum título seu teria obtido. Só depois de caminhar alguns passos dentro da muralha sentiu o tamanho daquilo: não enganara Kaeliran. Entrara pela parte da cidade que já obedecia a outra gente.
 
-Atrás dela, os portões terrestres começaram a fechar. A fila protestou. Um guarda repetiu a palavra segurança como se ela tivesse, por si só, a força de uma ordem legítima. Um dos homens que supervisionavam a operação disse ao outro que Alveris estava entre os mortos do banquete; o segundo perguntou quem assumiria o comando, não recebeu resposta e mandou continuar. Selina parou o bastante para ouvir. Depois seguiu.
+Atrás dela, os portões terrestres começaram a fechar. A fila protestou. Um guarda repetiu a palavra segurança como se ela tivesse, por si só, a força de uma ordem legítima. Um dos homens que supervisionavam a operação disse ao outro que Alveris estava entre os mortos do banquete. O segundo perguntou quem assumiria o comando, não recebeu resposta e mandou continuar. Selina parou o bastante para ouvir. Depois seguiu.
 
-Numa rua de descida, dois guardas Polar retiraram uma barreira para permitir a passagem de estrangeiros armados. Um dos homens que entravam usava uma faixa Buldar no braço; os outros levavam capas sem marca sobre peças de equipamento diferentes. O mais velho dos guardas apontou para a própria insígnia.
+Numa rua de descida, dois guardas Polar retiraram uma barreira para permitir a passagem de estrangeiros armados. Um dos homens que entravam usava uma faixa Buldar no braço. Os outros levavam capas sem marca sobre peças de equipamento diferentes. O mais velho dos guardas apontou para a própria insígnia.
 
 — Fizemos o que Alveris pediu. Quando outro Polar assumisse, nossas patentes estariam garantidas.
 
-— O acordo era com ele — respondeu o homem à frente da coluna. Antes que o guarda pudesse falar, o estrangeiro o matou com um golpe só. O outro guarda tentou fugir; não alcançou a esquina.
+— O acordo era com ele — respondeu o homem à frente da coluna. Antes que o guarda pudesse falar, o estrangeiro o matou com um golpe só. O outro guarda tentou fugir. Não alcançou a esquina.
 
-Selina ficou encostada à parede até que a coluna passasse. Um dos homens arrancou a insígnia do guarda morto e a mostrou aos companheiros; mais adiante, eles procuravam outras iguais nos uniformes que atravessavam a névoa. Na mesma rua, Filhos da Raiz conduziam moradores para fora de uma Casa da Permanência. Dois ficaram na entrada para defender os feridos. Receberam os estrangeiros com as armas na mão.
+Selina ficou encostada à parede até que a coluna passasse. Um dos homens arrancou a insígnia do guarda morto e a mostrou aos companheiros. Mais adiante, eles procuravam outras iguais nos uniformes que atravessavam a névoa. Na mesma rua, Filhos da Raiz conduziam moradores para fora de uma Casa da Permanência. Dois ficaram na entrada para defender os feridos. Receberam os estrangeiros com as armas na mão.
 
 Alveris se servira de selos, pessoas e deveres da Raiz para alcançar seus fins. O que Selina via agora não se parecia com uma instituição inteira participando de sua vitória.
-Maruva recebera a notícia da vitória de Dareth como qualquer outro bairro, embora ali as faixas azuis fossem de tecido mais pobre e as flores, arrancadas de quintais. As ruas ainda guardavam mesas em que as pessoas tinham comido juntas naquela tarde. Sobre uma parede torta, alguém pintara QUATRO-DEDOS com letras altas; por baixo do nome, uma fileira de crianças deixara impressões de mãos. Selina passou por elas tentando não mancar.
 
-Uma porta se abriu à sua frente. Três homens entraram numa casa sem armas aparentes e saíram trazendo lanças. Um quarto levou capas de trabalhador para dentro e voltou com uma armadura escondida sob uma delas. Caixas com o símbolo da Balança Azul ocupavam o chão da sala; entre as tampas abertas, Selina reconheceu peças de ruptura que as listas de transporte chamavam de material de manutenção.
+Maruva recebera a notícia da vitória de Dareth como qualquer outro bairro, embora ali as faixas azuis fossem de tecido mais pobre e as flores, arrancadas de quintais. As ruas ainda guardavam mesas em que as pessoas tinham comido juntas naquela tarde. Sobre uma parede torta, alguém pintara QUATRO-DEDOS com letras altas. Por baixo do nome, uma fileira de crianças deixara impressões de mãos. Selina passou por elas tentando não mancar.
 
-Olhou o número apagado na parede. Constava no antigo cadastro de residência de Aleris, entre as anotações que fizera antes de ser capturada. Não era uma propriedade reconhecida, coisa que um Nular como ele nem poderia ter; era a indicação de onde morara antes de desaparecer dos registros. Agora havia caixas da Balança Azul ali.
+Uma porta se abriu à sua frente. Três homens entraram numa casa sem armas aparentes e saíram trazendo lanças. Um quarto levou capas de trabalhador para dentro e voltou com uma armadura escondida sob uma delas. Caixas com o símbolo da Balança Azul ocupavam o chão da sala. Entre as tampas abertas, Selina reconheceu peças de ruptura que as listas de transporte chamavam de material de manutenção.
+
+Olhou o número apagado na parede. Constava no antigo cadastro de residência de Aleris, entre as anotações que fizera antes de ser capturada. Não era uma propriedade reconhecida, coisa que um Nular como ele nem poderia ter. Era a indicação de onde morara antes de desaparecer dos registros. Agora havia caixas da Balança Azul ali.
 
 Mais adiante, um estrangeiro parou numa bifurcação, conferiu uma pequena marca perto da soleira de uma porta e escolheu a rua da esquerda. Havia outra marca adiante, no ponto exato em que seria fácil seguir pela via errada. Selina se lembrou de Elis dizendo que andavam riscando paredes de Maruva. A menina tivera razão em se inquietar.
 
-Um trabalhador apareceu correndo na direção contrária com as mãos vazias e erguidas. Disse que não era soldado. O homem que o perseguia não diminuiu o passo. O trabalhador caiu com as mãos ainda erguidas. A mulher atrás dele abriu a boca para dizer que também não era soldado; o invasor a atingiu antes que conseguisse falar. Outra moradora puxou Selina pelo braço antes que ela entrasse na rua aberta; largou-a assim que viu a mancha de sangue em sua roupa.
+Um trabalhador apareceu correndo na direção contrária com as mãos vazias e erguidas. Disse que não era soldado. O homem que o perseguia não diminuiu o passo. O trabalhador caiu com as mãos ainda erguidas. A mulher atrás dele abriu a boca para dizer que também não era soldado. O invasor a atingiu antes que conseguisse falar. Outra moradora puxou Selina pelo braço antes que ela entrasse na rua aberta. Largou-a assim que viu a mancha de sangue em sua roupa.
 
 Em Maruva, os cátilos perceberam os estrangeiros antes de muita gente.
 
@@ -193,7 +192,7 @@ Ouviu um ruído baixo atrás da divisória. Ia chamar outra vez quando a voz da 
 
 Elis apareceu primeiro. Tair estava junto dela, segurando uma lamparina apagada. Ambos olharam para a perna de Selina, depois para a rua. Não fizeram perguntas ali. Elis apontou a abertura por onde se descia aos túneis, e Tair recolocou uma tábua sobre ela depois que os três passaram.
 
-Karesis os esperava mais abaixo com Orel. Não se levantou ao ver Selina; avaliou o sangue, a respiração curta, a maneira como ela apoiava o peso na parede. Orel, ao contrário, ergueu-se de imediato. Por um instante ficou apenas olhando, como se a mulher que conhecia não pudesse estar naquele lugar.
+Karesis os esperava mais abaixo com Orel. Não se levantou ao ver Selina. Avaliou o sangue, a respiração curta, a maneira como ela apoiava o peso na parede. Orel, ao contrário, ergueu-se de imediato. Por um instante ficou apenas olhando, como se a mulher que conhecia não pudesse estar naquele lugar.
 
 — Se... i... na.
 
@@ -219,7 +218,7 @@ Elis descreveu a rua. Tair acrescentou o que a mãe lhe contava, havia muitos ci
 
 — Os registros mostram Aleris Buldar, depois Aleris Nular em Kaeliran. Pouco depois de seu nome desaparecer, surge Alveris Polar. Ainda falta o processo que ligaria os nomes.
 
-Ela precisou explicar devagar, porque mesmo Elis, que percebera a semelhança dos nomes, ainda não via todo o percurso. Aleris desaparecia dos documentos num ponto em que sua condição de Nular deveria continuar registrada. Meses depois, Alveris aparecia com sobrenome Polar, autorização para possuir terras e uma vida inteira que os arquivos pareciam dispostos a aceitar. Entre um homem e outro faltava o processo que justificasse o reconhecimento. Pela lei, aquela mudança teria de passar pelos registros ligados à Raiz; a lacuna não dizia quem a autorizara nem se os homens que hoje dirigiam o Culto sabiam dela.
+Ela precisou explicar devagar, porque mesmo Elis, que percebera a semelhança dos nomes, ainda não via o percurso inteiro. Aleris desaparecia dos documentos num ponto em que sua condição de Nular deveria continuar registrada. Meses depois, Alveris aparecia com sobrenome Polar, autorização para possuir terras e uma vida inteira que os arquivos pareciam dispostos a aceitar. Entre um homem e outro faltava o processo que justificasse o reconhecimento. Pela lei, aquela mudança teria de passar pelos registros ligados à Raiz, e a lacuna não dizia quem a autorizara nem se os homens que hoje dirigiam o Culto sabiam dela.
 
 — A casa era dele — Elis disse. — A casa onde estão juntando as armas.
 
@@ -235,7 +234,7 @@ Selina assentiu.
 
 — Foi por isso que correram tanto atrás dele? — Tair perguntou.
 
-— É uma possibilidade. O Sumo Vigia se recusara a explicar por que queria a caixa de volta. A acusação contra Kalan cresceu enquanto ela permanecia desaparecida; isso eu posso afirmar. Não tenho prova de que Alveris tenha pedido a execução. Teral tinha uma confissão, as regras da Raiz e um Nular diante dele. Foi o tribunal que o condenou, e o Culto reconheceu a sentença.
+— É uma possibilidade. O Sumo Vigia se recusara a explicar por que queria a caixa de volta. A acusação contra Kalan cresceu enquanto ela permanecia desaparecida. Isso eu posso afirmar. Não tenho prova de que Alveris tenha pedido a execução. Teral tinha uma confissão, as regras da Raiz e um Nular diante dele. Foi o tribunal que o condenou, e o Culto reconheceu a sentença.
 
 Elis pensou em Kalan aceitando sozinho a culpa para que Tair e Orel saíssem da prisão. Tinha revisto aquele momento tantas vezes que acreditara não ser mais capaz de encontrar nele uma dor nova. Encontrou. O irmão não roubara apenas uma caixa perigosa. Tocara, sem saber, no ponto em que a vida inteira de um homem poderoso poderia se desfazer.
 
@@ -247,7 +246,7 @@ Tair desviou o rosto. Orel se aproximou dele, atraído pelo nome de Kalan e pela
 
 Um estrondo veio de cima, ainda distante. Karesis esperou que a pedra parasse de vibrar antes de perguntar o que Selina sabia da entrada dos estrangeiros.
 
-Ela contou o que ouvira nas galerias do Altar: Saelira exigindo garantias, Alveris falando de acessos e de uma autoridade Polar endividada que ocuparia o lugar de Vetarius. Contou do campeão Quendrar, cuja coordenação piorara depois de aceitar água de um funcionário, e do invólucro com restos de uma planta que parecia Caule-de-Sono. Não sabia se algo fora posto no copo, nem quem conhecia o acordo. Tinha visto adversários de Dareth recuarem em momentos decisivos; tampouco podia afirmar por quê.
+Ela contou o que ouvira nas galerias do Altar: Saelira exigindo garantias, Alveris falando de acessos e de uma autoridade Polar endividada que ocuparia o lugar de Vetarius. Contou do campeão Quendrar, cuja coordenação piorara depois de aceitar água de um funcionário, e do invólucro com restos de uma planta que parecia Caule-de-Sono. Não sabia se algo fora posto no copo, nem quem conhecia o acordo. Tinha visto adversários de Dareth recuarem em momentos decisivos. Tampouco podia afirmar por quê.
 
 — Queriam que ele chegasse à final? — Elis perguntou.
 
@@ -308,21 +307,22 @@ Karesis olhou para Orel, que já recuava diante da ideia de ficar sozinho entre 
 — Vou ajudar a encontrá-las.
 
 Tair queria contestar. Elis conhecia aquela pausa: ele começava a calcular tudo que poderia acontecer com ela se a deixasse ir. Orel tocou seu braço. Tair fechou a mão sobre a dele e permaneceu onde estava, embora continuasse olhando para a saída até que os outros desaparecessem.
+
 Nas ruas baixas a névoa dava aos homens armados poucos passos para decidirem se quem surgia adiante era amigo ou inimigo. Elis reconhecia uma esquina pelo cheiro do forno fechado, outra pela inclinação irregular das pedras. Era pouco para Selina, que queria perguntar a cada curva para onde estavam indo. Karesis caminhava atrás, atento às entradas, sem fingir que conhecia os caminhos melhor do que a menina.
 
 A subida ao Anel Intermediário revelou uma cidade ainda decorada para receber seu campeão. Flores presas às grades, faixas azuis de janela a janela, desenhos de Dareth afixados a muros onde na véspera crianças tinham parado para contar os quatro dedos. Uma carroça de água bloqueava a rua, e duas pessoas tentavam mover o condutor ferido sem deixar que o animal se assustasse com os gritos vindos da praça. Do outro lado, soldados Polar haviam formado uma barreira de escudos e recuperavam uma passagem que parecia perdida. Arqueiros nas janelas obrigavam os invasores a recuar.
 
-Elis ouviu a comemoração dos moradores escondidos numa casa. Durou até uma porta lateral abrir atrás da barreira. Homens saíram de um depósito com armas retiradas de caixas que alguém devia ter inspecionado dias antes. Os soldados Polar se viraram para enfrentar a segunda frente; a primeira voltou a avançar. Havia coragem e treino na maneira como resistiam. Nenhuma das duas coisas lhes permitia estar ao mesmo tempo em todos os lugares para onde as marcas nas paredes conduziam os invasores.
+Elis ouviu a comemoração dos moradores escondidos numa casa. Durou até uma porta lateral abrir atrás da barreira. Homens saíram de um depósito com armas retiradas de caixas que alguém devia ter inspecionado dias antes. Os soldados Polar se viraram para enfrentar a segunda frente. A primeira voltou a avançar. Havia coragem e treino na maneira como resistiam. Nenhuma das duas coisas lhes permitia estar ao mesmo tempo em todos os lugares para onde as marcas nas paredes conduziam os invasores.
 
 Karesis parou diante de uma placa parcialmente coberta por tinta de festa. Limpou-a e examinou o nome da rua.
 
 — Havia uma ligação por trás destas casas — disse. — Aparecia numa planta antiga do Anel.
 
-— Ainda há — Elis respondeu. Conhecia a saída perto do Caminho da Permanência; nunca tivera razão para imaginar que alguém a desenhara num mapa. Passou primeiro pelo vão, verificou que não havia soldados do outro lado e chamou os dois.
+— Ainda há — Elis respondeu. Conhecia a saída perto do Caminho da Permanência. Nunca tivera razão para imaginar que alguém a desenhara num mapa. Passou primeiro pelo vão, verificou que não havia soldados do outro lado e chamou os dois.
 
 O Caminho surgiu acima deles largo e quase irreconhecível. Elis lembrava a primeira vez em que o vira cheio de gente para ouvir Vetarius anunciar o Torneio. A avenida fora feita para reduzir quem a percorria diante das estátuas de Kaelyr, Nerya, Alysen e Selyra, dos estandartes pendurados nas fachadas, de Kaendar erguida no alto. Agora uma carruagem tombara junto à base de Nerya. O tarrak preso ao arreio puxava em vão, fazendo a roda partida bater na pedra. Flores pisadas colavam-se aos sapatos dos que fugiam. Uma mulher chamava o filho entre corpos que ninguém ousava virar, enquanto sobre sua cabeça uma faixa ainda anunciava a vitória de Dareth.
 
-Selina quase não olhou para Kaendar. Procurava a lateral de uma Casa da Permanência onde Amira dissera que ajudaria. Conhecia o edifício pelos relatórios que chegavam à sua mesa; sabia que havia uma entrada de serviço e um pátio pequeno onde as carroças deixavam roupa e comida. Se estivesse cheio, talvez Amira tivesse sido mandada para outro abrigo. Era uma possibilidade que Selina tentava não transformar em certeza antes de chegar.
+Selina quase não olhou para Kaendar. Procurava a lateral de uma Casa da Permanência onde Amira dissera que ajudaria. Conhecia o edifício pelos relatórios que chegavam à sua mesa: uma entrada de serviço, um pátio pequeno onde as carroças deixavam roupa e comida. Se estivesse cheio, talvez Amira tivesse sido mandada para outro abrigo. Era uma possibilidade que Selina tentava não transformar em certeza antes de chegar.
 
 Na praça anterior, um homem de capa oficial orientava famílias para um mercado cercado.
 
@@ -330,26 +330,27 @@ Na praça anterior, um homem de capa oficial orientava famílias para um mercado
 
 As pessoas seguiam porque alguém parecia saber o que fazer. Elis viu três riscos baixos junto ao arco de entrada e segurou o braço de Selina. Antes que pudesse explicar, as folhas pesadas se fecharam atrás das últimas famílias. Um homem do lado de fora passou uma corrente pelo encaixe.
 
-Selina correu até ele. O primeiro recipiente caiu por cima do muro e se abriu contra os tecidos que tinham sido estendidos para a festa. O segundo espalhou um líquido escuro mais perto do portão. Uma tocha veio depois. Por um momento a chama pareceu pequena, presa à ponta de uma faixa azul; então atravessou o pano até as mesas sob ele.
+Selina correu até ele. O primeiro recipiente caiu por cima do muro e se abriu contra os tecidos que tinham sido estendidos para a festa. O segundo espalhou um líquido escuro mais perto do portão. Uma tocha veio depois. Por um momento a chama pareceu pequena, presa à ponta de uma faixa azul. Então atravessou o pano até as mesas sob ele.
 
-Lá dentro alguém começou a gritar para que abrissem. O som de muitas mãos batendo na madeira respondeu antes que Selina alcançasse a corrente. Dois moradores já tentavam forçá-la com uma barra de ferro. Selina se juntou a eles; Elis correu ao longo do muro procurando outra entrada e encontrou uma porta estreita trancada do lado de dentro, com pessoas batendo atrás dela. O calor crescia. Uma criança apareceu por cima das cabeças, erguida na direção do muro, e desceu outra vez sem que ninguém pudesse alcançá-la.
+Lá dentro alguém começou a gritar para que abrissem. O som de muitas mãos batendo na madeira respondeu antes que Selina alcançasse a corrente. Dois moradores já tentavam forçá-la com uma barra de ferro. Selina se juntou a eles. Elis correu ao longo do muro procurando outra entrada e encontrou uma porta estreita trancada do lado de dentro, com pessoas batendo atrás dela. O calor crescia. Uma criança apareceu por cima das cabeças, erguida na direção do muro, e desceu outra vez sem que ninguém pudesse alcançá-la.
 
-A corrente enfim cedeu de um lado. Quando o portão abriu espaço suficiente, quem estava mais perto saiu caindo sobre os que tentavam ajudar. Junto à abertura, Elis viu a mão da criança de antes bater na madeira, quase à altura de seus pés. Tentou alcançá-la, mas a multidão que saía a comprimiu contra o muro; quando pôde olhar de novo, só restava uma marca de sangue na folha do portão. Selina puxou um homem pela roupa em chamas; ele arrancou-lhe o tecido da mão e continuou correndo. Outras pessoas chegaram, muitas menos do que haviam entrado. Elis voltou a procurar a criança, sem saber sequer qual roupa usava. Não a encontrou.
+A corrente enfim cedeu de um lado. Quando o portão abriu espaço suficiente, quem estava mais perto saiu caindo sobre os que tentavam ajudar. Junto à abertura, Elis viu a mão da criança de antes bater na madeira, quase à altura de seus pés. Tentou alcançá-la, mas a multidão que saía a comprimiu contra o muro. Quando pôde olhar de novo, só restava uma marca de sangue na folha do portão. Selina puxou um homem pela roupa em chamas. Ele arrancou-lhe o tecido da mão e continuou correndo. Outras pessoas chegaram, muitas menos do que haviam entrado. Elis voltou a procurar a criança, sem saber sequer qual roupa usava. Não a encontrou.
 
-Uma faixa presa às vigas ardia com as palavras VIVA O CAMPEÃO POLAR ainda legíveis. Aquele homem de capa desaparecera antes que pudessem ver por onde. Selina tentava tirar mais gente, mas os gritos de outra rua já se aproximavam e o fogo tomara o espaço entre a entrada e o fundo do mercado. Elis puxou-a pelo braço; odiou o gesto, mesmo sabendo que ficar não abriria outra porta.
+Uma faixa presa às vigas ardia com as palavras VIVA O CAMPEÃO POLAR ainda legíveis. Aquele homem de capa desaparecera antes que pudessem ver por onde. Selina tentava tirar mais gente, mas os gritos de outra rua já se aproximavam e o fogo tomara o espaço entre a entrada e o fundo do mercado. Elis puxou-a pelo braço. Odiou o gesto, mesmo sabendo que ficar não abriria outra porta.
 
 Não tinham percorrido duas quadras quando uma mulher caiu à frente de Elis, atingida por uma flecha vinda da névoa. Elis se abaixou para ampará-la e quase apoiou a mão em outro corpo. Reconheceu o tecido antes do rosto.
 
-Ladira Polar jazia de lado. Um golpe abrira metade de sua boca e parte do pescoço; o sangue tornara indistinguível o desenho da roupa. Elis se deteve o tempo de reconhecê-la.
+Ladira Polar jazia de lado. Um golpe abrira metade de sua boca e parte do pescoço. O sangue tornara indistinguível o desenho da roupa. Elis se deteve o tempo de reconhecê-la.
 
 Outra flecha atingiu a parede. Selina chamou Elis. Ela se levantou e correu.
-Amira estava na Casa da Permanência. Selina a encontrou ajoelhada diante de um homem cujo tornozelo cedera ao tentar fugir. As mangas tinham sido rasgadas para fazer ataduras; a jovem segurava o pé dele enquanto outra pessoa prendia a faixa. Quando ouviu o próprio nome, ergueu o rosto e ficou olhando Selina por tempo suficiente para que ela se perguntasse se o sangue e a sujeira a tinham tornado irreconhecível.
+
+Amira estava na Casa da Permanência. Selina a encontrou ajoelhada diante de um homem cujo tornozelo cedera ao tentar fugir. As mangas tinham sido rasgadas para fazer ataduras. A jovem segurava o pé dele enquanto outra pessoa prendia a faixa. Quando ouviu o próprio nome, ergueu o rosto e ficou olhando Selina por tempo suficiente para que ela se perguntasse se o sangue e a sujeira a tinham tornado irreconhecível.
 
 — Amira!
 
 — O QUE ESTÁ ACONTECENDO?
 
-A pergunta saiu alta demais para o cômodo, mas ninguém ali pareceu estranhar. Amira deixara a casa de Selina antes do Torneio; tinha visto a chegada das comitivas, a celebração, talvez as primeiras corridas nas ruas. Não ouvira a conversa sob o Altar, não sabia o que se passara em Kaendar. Para ela os feridos haviam simplesmente começado a chegar.
+A pergunta saiu alta demais para o cômodo, mas ninguém ali estranhou. Amira deixara a casa de Selina antes do Torneio, vira a chegada das comitivas, a celebração, talvez as primeiras corridas nas ruas. Não ouvira a conversa sob o Altar, não sabia o que se passara em Kaendar. Para ela os feridos simplesmente tinham começado a chegar.
 
 — Atacaram a cidade. Vetarius morreu. Precisamos sair daqui.
 
@@ -365,9 +366,9 @@ Selina chegou a medir a distância até a porta e o tempo que levaria para atrav
 
 Amira passou um dos braços dele sobre seus ombros. Selina tomou o outro.
 
-Havia mais gente na sala: dois feridos que conseguiam levantar e uma mulher com uma criança adormecida de exaustão. Amira e os Filhos da Raiz tinham ajudado a puxá-los para dentro conforme chegavam feridos da rua; alguns tinham sido encontrados caídos perto da praça, outros simplesmente alcançaram a Casa antes de não conseguirem mais andar sozinhos.
+Havia mais gente na sala: dois feridos que conseguiam levantar e uma mulher com uma criança adormecida de exaustão. Amira e os Filhos da Raiz tinham ajudado a puxá-los para dentro conforme chegavam da rua, e alguns só alcançaram a Casa antes de não conseguirem mais andar sozinhos.
 
-Os Filhos da Raiz mantinham a porta principal fechada para impedir que a multidão esmagasse quem estava dentro. Um deles mostrou uma saída de serviço. Selina perguntou quem queria acompanhá-los; não prometeu segurança. As pessoas que podiam andar se levantaram. O pequeno grupo que deixou a Casa existia porque Amira e os outros tinham conseguido mantê-los vivos até ali.
+Os Filhos da Raiz mantinham a porta principal fechada para impedir que a multidão esmagasse quem estava dentro. Um deles mostrou uma saída de serviço. Selina perguntou quem queria acompanhá-los, sem prometer segurança. As pessoas que podiam andar se levantaram. O pequeno grupo que deixou a Casa existia porque Amira e os outros tinham conseguido mantê-los vivos até ali.
 
 — Não precisava ter voltado por mim — Amira disse no corredor, sob o peso do homem.
 
@@ -431,7 +432,7 @@ Pedra abriu no lado da construção. A base da torre pareceu afundar por um inst
 
 Elis ainda viu Karesis a poucos passos, virando o corpo na direção dela. Depois uma viga bateu contra o chão entre os dois e tudo desapareceu.
 
-Quando conseguiu respirar outra vez, estava de joelhos junto a uma parede que não lembrava ter alcançado. O mundo era cinza. O ouvido direito só devolvia um zumbido; no esquerdo chegavam gritos abafados, pedra cedendo e o sino terminando de cair em algum lugar que ela não conseguia ver.
+Quando conseguiu respirar outra vez, estava de joelhos junto a uma parede que não lembrava ter alcançado. O mundo era cinza. O ouvido direito só devolvia um zumbido. No esquerdo chegavam gritos abafados, pedra cedendo e o sino terminando de cair em algum lugar que ela não conseguia ver.
 
 — Karesis!
 
@@ -449,11 +450,11 @@ Elis tentou se soltar, mas outra pessoa já a segurava pelo ombro. Viu apenas ca
 
 — Pra baixo.
 
-Ela tropeçou numa escada curta e foi jogada para dentro de um pátio de serviço rebaixado, alguns metros abaixo do nível da rua. O espaço talvez tivesse servido para receber cargas do Santuário; naquele momento servia para prender gente. Havia dezenas de pessoas comprimidas entre paredes altas, sem espaço para sentar, algumas feridas, outras tentando subir de volta pela escada bloqueada por homens armados.
+Ela tropeçou numa escada curta e foi jogada para dentro de um pátio de serviço rebaixado, alguns metros abaixo do nível da rua. O espaço talvez tivesse servido para receber cargas do Santuário. Naquele momento servia para prender gente. Havia dezenas de pessoas comprimidas entre paredes altas, sem espaço para sentar, algumas feridas, outras tentando subir de volta pela escada bloqueada por homens armados.
 
 Elis caiu sobre alguém, pediu desculpa sem saber para quem e tentou ficar de pé. Conseguiu por alguns segundos. Depois mais gente foi jogada para dentro.
 
-O aperto piorou depressa. Um ombro pressionava seu peito pela frente; alguém atrás dela empurrava sem querer, esmagado por outra pessoa. Elis tentou erguer os braços e não conseguiu. O ar entrou curto.
+O aperto piorou depressa. Um ombro pressionava seu peito pela frente. Alguém atrás dela empurrava sem querer, esmagado por outra pessoa. Elis tentou erguer os braços e não conseguiu. O ar entrou curto.
 
 — Para! — gritou para ninguém em particular. — PARA! EU NÃO CONSIGO RESPIRAR!
 
@@ -483,7 +484,7 @@ Veio um som de cordas sendo soltas.
 
 As flechas caíram.
 
-O pátio inteiro gritou de uma vez. Uma mulher tombou por cima de Elis e foi sustentada pelos corpos ao redor sem chegar ao chão. Outra flecha bateu na pedra perto de sua mão. O garoto tentou levantar o braço para proteger a cabeça; uma haste entrou abaixo de seu ombro e o fez recuar contra as pernas de alguém.
+O pátio inteiro gritou de uma vez. Uma mulher tombou por cima de Elis e foi sustentada pelos corpos ao redor sem chegar ao chão. Outra flecha bateu na pedra perto de sua mão. O garoto tentou levantar o braço para proteger a cabeça. Uma haste entrou abaixo de seu ombro e o fez recuar contra as pernas de alguém.
 
 Elis prendeu a respiração.
 
@@ -531,7 +532,7 @@ Elis passou por baixo do braço dele.
 
 O homem segurou parte de sua roupa e o tecido rasgou. Ela não parou para recuperar nada. Correu pelo corredor de serviço, atravessou uma porta aberta e saiu para outra rua com sangue no rosto, nos cabelos, nas mãos e na frente da roupa, sem saber quanto daquilo era seu.
 
-Dois homens a seguiram. Elis entrou numa casa vazia, atravessou a cozinha e saiu por uma janela dos fundos. Desceu um muro onde as juntas de argamassa ofereciam apoio; conhecia a pedra frouxa e não a tocou. O primeiro perseguidor perdeu tempo nela. O segundo apareceu adiante, na boca de outra passagem, sem ter percorrido o mesmo caminho.
+Dois homens a seguiram. Elis entrou numa casa vazia, atravessou a cozinha e saiu por uma janela dos fundos. Desceu um muro onde as juntas de argamassa ofereciam apoio. Conhecia a pedra frouxa e não a tocou. O primeiro perseguidor perdeu tempo nela. O segundo apareceu adiante, na boca de outra passagem, sem ter percorrido o mesmo caminho.
 
 Elis viu a marca na parede ao lado dele. Tinham aprendido a andar por Kaeliran sem precisar conhecê-la.
 
@@ -543,7 +544,7 @@ Quando virou a última esquina, bateu contra alguém e ergueu os braços para se
 
 — Elis.
 
-Dareth. Ela o reconheceu sob o sangue e a roupa formal arruinada e, antes de perguntar como chegara ali, agarrou-se a ele. Dareth vacilou com o peso. Depois a abraçou de volta. O corpo doía-lhe por toda parte; não se importou.
+Dareth. Ela o reconheceu sob o sangue e a roupa formal arruinada e, antes de perguntar como chegara ali, agarrou-se a ele. Dareth vacilou com o peso. Depois a abraçou de volta. O corpo doía-lhe por toda parte. Não se importou.
 
 Foi só quando percebeu que ninguém estava tentando arrancá-la dali que Elis começou a tremer de verdade. O ar vinha rápido demais. Enterrou o rosto por um instante na roupa de Dareth, tentando respirar sem sentir outra vez o peso de dezenas de pessoas contra o peito.
 
@@ -569,7 +570,7 @@ A expressão de Kerath mudou antes que ela perguntasse qualquer coisa.
 
 — Por quê?
 
-Elis tentou responder e a primeira tentativa não produziu voz. Passou a mão pelo rosto; quando a afastou, havia sangue seco nos dedos e aquilo pareceu piorar tudo. Os olhos se encheram antes que ela conseguisse impedir.
+Elis tentou responder e a primeira tentativa não produziu voz. Passou a mão pelo rosto. Quando a afastou, havia sangue seco nos dedos e aquilo pareceu piorar tudo. Os olhos se encheram antes que ela conseguisse impedir.
 
 — Eu vi ele.
 
@@ -597,11 +598,11 @@ A voz quebrou na última palavra. Dareth colocou uma mão atrás da cabeça dela
 
 — Foi horrível — Elis disse contra a roupa dele. — Tinha gente gritando... pedindo ajuda... e depois parou.
 
-Kerath conhecia Caeren havia anos demais para precisar imaginar o garoto apenas como herdeiro. Já o tinha visto transformar medo em brincadeira, já correra por um perigo inventado por ele. Dessa vez ninguém inventara nada.
+Kerath conhecia Caeren havia anos demais para imaginá-lo apenas como herdeiro. Já o vira transformar medo em brincadeira, já correra por um perigo inventado por ele. Dessa vez ninguém inventara nada.
 
-Ela abaixou os olhos por uma respiração. Quando tornou a levantá-los, a dor não tinha desaparecido; só estava novamente atrás do dever.
+Ela abaixou os olhos por uma respiração. Quando tornou a levantá-los, a dor não tinha desaparecido. Só estava novamente atrás do dever.
 
-Dareth conhecia a escolha antes que ela a anunciasse. Tinham servido ao mesmo soberano, em tempos diferentes; ambos sabiam que o dever de uma Calandrir não terminava simplesmente porque não havia mais ninguém da família para proteger.
+Dareth conhecia a escolha antes que ela a anunciasse. Tinham servido ao mesmo soberano, em tempos diferentes. Ambos sabiam que o dever de uma Calandrir não terminava simplesmente porque não havia mais ninguém da família para proteger.
 
 — Há civis na subida — ele disse. — Seus homens ainda seguram aquela passagem.
 
@@ -611,10 +612,11 @@ Kerath chamou dois guardas. Deu-lhes ordens sobre os acessos que conhecia, sobre
 
 Não pediu que Dareth fosse com ela. Seguiu com os homens para a subida e desapareceu na névoa, deixando para trás apenas o som de botas e a possibilidade de que ainda houvesse gente viva onde estava indo.
 
-Elis apontou a direção do Pátio de Namar. Selina tentaria descer por lá com os feridos, se conhecesse a passagem. Dareth acompanhou-a. Numa rua paralela, soldados Polar retomaram um posto por alguns minutos e moradores celebraram de dentro das janelas; outra coluna surgia do cais antes que os vencedores tivessem tempo de beber água. Elis encontrou o primeiro sinal gravado na parede e escolheu a rua que ele não indicava.
-O Pátio de Namar guardava os furos deixados na pedra pela estrutura do julgamento de Kalan. Elis os viu ao entrar e só então percebeu que o reconhecera muito antes, pelo arco e pela curva estreita da rua. Uma bancada tombada ocupava o espaço onde as autoridades se haviam sentado. Feridos procuravam abrigo sob a sombra do muro; outros tentavam sair sem saber que a rua de baixo fora bloqueada.
+Elis apontou a direção do Pátio de Namar. Selina tentaria descer por lá com os feridos, se conhecesse a passagem. Dareth acompanhou-a. Numa rua paralela, soldados Polar retomaram um posto por alguns minutos e moradores celebraram de dentro das janelas. Outra coluna surgia do cais antes que os vencedores tivessem tempo de beber água. Elis encontrou o primeiro sinal gravado na parede e escolheu a rua que ele não indicava.
 
-Selina e Amira sustentavam o homem da Casa da Permanência pela parte ainda livre do pátio. Uma menina segurava a mão da mãe entre os feridos. Quando Elis chamou, Selina levantou o rosto. Examinou o sangue na roupa e no rosto de Elis, procurando um ferimento grave; só depois notou Dareth atrás dela.
+O Pátio de Namar guardava os furos deixados na pedra pela estrutura do julgamento de Kalan. Elis os viu ao entrar e só então percebeu que o reconhecera muito antes, pelo arco e pela curva estreita da rua. Uma bancada tombada ocupava o espaço onde as autoridades se haviam sentado. Feridos procuravam abrigo sob a sombra do muro. Outros tentavam sair sem saber que a rua de baixo fora bloqueada.
+
+Selina e Amira sustentavam o homem da Casa da Permanência pela parte ainda livre do pátio. Uma menina segurava a mão da mãe entre os feridos. Quando Elis chamou, Selina levantou o rosto. Examinou o sangue na roupa e no rosto de Elis, procurando um ferimento grave. Só depois notou Dareth atrás dela.
 
 Por um instante, ele e Selina ficaram sem nada para dizer. Ele ouvira seu nome repetido de acampamento em acampamento, entre notícias sempre iguais de que ninguém sabia onde procurá-la. Selina vira o campeão ser conduzido para uma final que agora entendia de outro modo. Ambos tinham atravessado tempo demais para que um simples alívio coubesse ali.
 
@@ -638,7 +640,7 @@ Dareth olhou para a fumaça acima das casas.
 
 — Ou muita gente diferente decidiu que estava cumprindo o mesmo plano.
 
-Nenhum dos dois tinha informação suficiente para dar um único nome ao exército espalhado pela cidade. Tinham, pelo menos, a forma do golpe: o Torneio trouxera gente e acesso; a Balança abrira caminhos; o governo fora atingido por dentro; e agora grupos que não pareciam responder todos à mesma autoridade exploravam a abertura.
+Nenhum dos dois tinha informação suficiente para dar um único nome ao exército espalhado pela cidade. Tinham, pelo menos, a forma do golpe: o Torneio trouxera gente e acesso. A Balança abrira caminhos. O governo fora atingido por dentro. E agora grupos que não pareciam responder todos à mesma autoridade exploravam a abertura.
 
 Quando Selina perguntou por Caeren, Elis respondeu:
 
@@ -658,13 +660,13 @@ Outra voz veio do arco.
 
 — É ela que está conduzindo vocês?
 
-Rovan Polar tinha a velha insígnia presa ao peito, torta e coberta de pó. Elis conhecia bem a maneira como aquele homem costumava olhar para ela e para a família. Procurou nela o desprezo habitual; encontrou um rosto cansado e uma pergunta que já não podia ser usada para humilhá-la.
+Rovan Polar tinha a velha insígnia presa ao peito, torta e coberta de pó. Elis conhecia bem a maneira como aquele homem costumava olhar para ela e para a família. Procurou nela o desprezo habitual. Encontrou um rosto cansado e uma pergunta que já não podia ser usada para humilhá-la.
 
 — Sou — respondeu.
 
 Rovan considerou a passagem. Depois virou de lado para que a mulher atrás dele entrasse primeiro e seguiu a menina sem acrescentar nada.
 
-Saíram numa rua mais baixa. As explosões continuavam em outros setores, algumas próximas o bastante para fazer pó cair das fachadas. Atrás deles, a torre do Santuário já não aparecia acima dos telhados; no lugar havia uma coluna espessa de fumaça e poeira.
+Saíram numa rua mais baixa. As explosões continuavam em outros setores, algumas próximas o bastante para fazer pó cair das fachadas. Atrás deles, a torre do Santuário já não aparecia acima dos telhados. No lugar havia uma coluna espessa de fumaça e poeira.
 
 Uma das estátuas do Caminho da Permanência inclinou-se enquanto desciam. Pareceu resistir ao próprio peso por alguns segundos e depois caiu atravessada sobre a avenida. Nas partes altas, Kaendar começava a arder, e um dos grandes estandartes da vitória soltou-se de uma torre com fogo nas bordas.
 
@@ -672,7 +674,7 @@ Os Polar ainda lutavam. Arqueiros recuperavam janelas, Filhos da Raiz retiravam 
 
 Elis conduziu o grupo pelas ruas que conhecia. Não tentou voltar ao Santuário. A cada esquina, porém, procurava entre a poeira um rosto que sabia que provavelmente não apareceria.
 
-O grupo já não era apenas o que saíra com Amira da Casa da Permanência. Rovan e a mulher que vinha com ele se juntaram no Pátio; em outra rua, um rapaz com o braço enrolado em pano abandonou uma porta onde esperava sozinho quando ouviu que havia uma saída por Maruva. Uma senhora que conhecia o caminho até o anel baixo acompanhou-os por três quarteirões e trouxe consigo uma criança que encontrara sem família perto de uma fonte.
+O grupo já não era apenas o que saíra com Amira da Casa da Permanência. Rovan e a mulher que vinha com ele se juntaram no Pátio. Em outra rua, um rapaz com o braço enrolado em pano abandonou uma porta onde esperava sozinho quando ouviu que havia uma saída por Maruva. Uma senhora que conhecia o caminho até o anel baixo acompanhou-os por três quarteirões e trouxe uma criança que encontrara sem família perto de uma fonte.
 
 Elis não perguntava sobrenomes. Se conseguiam andar e aceitavam seguir, mostrava onde pisar.
 
@@ -692,23 +694,23 @@ Tair continuou olhando para a passagem.
 
 Elis balançou a cabeça.
 
-A diferença entre perder alguém e saber que alguém morreu permaneceu ali sem servir de consolo a nenhum dos dois. Orel apertou a manga de Elis. Um tremor novo fez cair pó da madeira da porta; Tair recolocou a barra do lado de dentro e pegou a mão dele.
+A diferença entre perder alguém e saber que alguém morreu permaneceu ali sem servir de consolo a nenhum dos dois. Orel apertou a manga de Elis. Um tremor novo fez cair pó da madeira da porta. Tair recolocou a barra do lado de dentro e pegou a mão dele.
 
 Elis conduziu o grupo para as galerias antigas. Conhecia parte delas das vezes em que descera com Karesis: o apoio liso junto à primeira escada, o lugar onde o ar começava a correr vindo de fora, uma bifurcação marcada por um símbolo que só se via de perto. Não lembrava cada curva. Na primeira em que hesitou, deixou todos parados e tocou as paredes até reconhecer a abertura que procurava. Escolheu a direita. Ninguém se feriu por aqueles segundos de dúvida, mas ela sentiu a responsabilidade dos passos que recomeçaram atrás dos seus.
 
-Os tremores da superfície chegavam pelos vãos. A chama da lamparina oscilava mesmo onde não havia vento, e de vez em quando alguém precisava baixar a cabeça para passar sob pedras que antes não estiveram ali. Dareth caminhava perto do fim, ajudando a manter os mais lentos à frente dele. Tinha uma perna ferida; Elis ouvia o arrastar discreto de sua bota sempre que o túnel ficava silencioso.
+Os tremores da superfície chegavam pelos vãos. A chama da lamparina oscilava mesmo onde não havia vento, e de vez em quando alguém precisava baixar a cabeça para passar sob pedras que antes não estiveram ali. Dareth caminhava perto do fim, ajudando a manter os mais lentos à frente dele. Tinha uma perna ferida. Elis ouvia o arrastar discreto de sua bota sempre que o túnel ficava silencioso.
 
 Rovan perdeu terreno na terceira escada. A perna lhe falhava e ele insistira em não aceitar ajuda enquanto conseguira. Tair voltou, ofereceu-lhe o braço. O velho ergueu a mão para afastá-lo, reconheceu o rosto do rapaz e a deixou repousar sobre seu ombro.
 
 Atrás deles apareceu luz de tocha.
 
-Os perseguidores deviam ter entrado por um acesso lateral. Dareth mandou que todos avançassem, mas Rovan tropeçou antes da curva. O primeiro homem alcançou-o antes que Tair conseguisse puxá-lo. Rovan caiu sem completar o nome que começara a dizer; sua insígnia soltou-se da roupa e rolou sobre a pedra.
+Os perseguidores deviam ter entrado por um acesso lateral. Dareth mandou que todos avançassem, mas Rovan tropeçou antes da curva. O primeiro homem alcançou-o antes que Tair conseguisse puxá-lo. Rovan caiu sem completar o nome que começara a dizer. Sua insígnia soltou-se da roupa e rolou sobre a pedra.
 
 Tair voltou-se com a espada que um soldado Polar abandonara no caminho. Não sabia usá-la. Atacou com as duas mãos e foi facilmente desarmado. O invasor o empurrou contra a parede, derrubou-o e ergueu a própria lâmina.
 
 Orel atirou-se sobre ele.
 
-Os dois bateram no chão estreito; o elmo do homem se soltou. Orel apanhou uma pedra e golpeou com tudo que o medo lhe dava. Gritava o nome do amigo entre os golpes:
+Os dois bateram no chão estreito. O elmo do homem se soltou. Orel apanhou uma pedra e golpeou com tudo que o medo lhe dava. Gritava o nome do amigo entre os golpes:
 
 — TA-I! NÃO! TA-I, NÃO!
 
@@ -731,9 +733,10 @@ Os três se soltaram sem vontade. Orel ajudou Tair a levantar e não largou sua 
 Dareth e um soldado Polar tinham impedido os outros homens de passar pela curva. Não havia como levar Rovan. Elis olhou para a insígnia que ele sempre polira, agora presa entre duas pedras, e lembrou que o velho passara a última hora seguindo suas indicações sem questioná-las. Não conseguiu voltar para apanhá-la.
 
 Seguiram adiante com os perseguidores ainda no túnel.
+
 Elis reconheceu a parede curva da última passagem pelo vento frio que costumava vir da saída. O ar continuava ali, mas uma das explosões abrira uma fissura no teto e derrubara pedras sobre quase toda a abertura. Restava espaço para uma pessoa atravessar de lado. A passagem não podia ser alargada sem arriscar que o restante cedesse.
 
-Selina foi primeiro para receber os feridos. Amira ajudou o homem da Casa da Permanência a encontrar apoio entre as pedras, falando com ele para que mantivesse o rosto voltado para ela. Passaram a menina, a mãe e mais dois sobreviventes. Cada corpo exigia tempo; atrás, as vozes dos perseguidores ficavam mais próximas.
+Selina foi primeiro para receber os feridos. Amira ajudou o homem da Casa da Permanência a encontrar apoio entre as pedras, falando com ele para que mantivesse o rosto voltado para ela. Passaram a menina, a mãe e mais dois sobreviventes. Cada corpo exigia tempo. Atrás, as vozes dos perseguidores ficavam mais próximas.
 
 Dareth avaliou a fenda. Depois olhou o corredor estreito por onde os homens teriam de alcançá-los. Elis viu a decisão antes que ele se afastasse da fila.
 
@@ -741,9 +744,9 @@ Dareth avaliou a fenda. Depois olhou o corredor estreito por onde os homens teri
 
 — Continuem levando os outros.
 
-O primeiro invasor surgiu ao fim do corredor. Dareth o derrubou antes que chegasse ao espaço mais largo; o segundo teve de vir por cima do corpo. Ali não podiam atacá-lo ao mesmo tempo. Era pouca vantagem para alguém ferido e exausto, mas bastava para obrigá-los a pagar por cada passo.
+O primeiro invasor surgiu ao fim do corredor. Dareth o derrubou antes que chegasse ao espaço mais largo. O segundo teve de vir por cima do corpo. Ali não podiam atacá-lo ao mesmo tempo. Era pouca vantagem para alguém ferido e exausto, mas bastava para obrigá-los a pagar por cada passo.
 
-Tair passou com Orel. Elis tentou tomar seu lugar na saída da fenda; Selina segurou-a.
+Tair passou com Orel. Elis tentou tomar seu lugar na saída da fenda. Selina segurou-a.
 
 — Ele ainda consegue vir.
 
@@ -763,23 +766,25 @@ Dareth olhou para ela.
 
 — Fica perto dela. Não deixa ela sozinha.
 
-Selina assentiu. A resposta quase não passou pela garganta. Amira apareceu do outro lado e ajudou a puxar Elis pela fenda quando houve espaço. A pedra raspou-lhe as costas; ela ainda chamou Dareth uma vez, mas já não conseguia vê-lo além do ombro de Selina e das pessoas que avançavam.
+Selina assentiu. A resposta quase não passou pela garganta. Amira apareceu do outro lado e ajudou a puxar Elis pela fenda quando houve espaço. A pedra raspou-lhe as costas. Ela ainda chamou Dareth uma vez, mas já não conseguia vê-lo além do ombro de Selina e das pessoas que avançavam.
+
 Dareth ouviu a voz de Elis afastar-se.
 
-O corte na perna atrapalhava cada mudança de apoio. Seu braço ainda levantava a espada, mas devolvia o movimento um instante tarde demais. O primeiro homem que veio depois da voz de Elis escorregou no sangue junto aos corpos e recebeu o golpe antes de recuperar o equilíbrio. Dareth precisou apoiar a bota na parede para retirar a lâmina. Outro avançou com um escudo curto; ele prendeu a borda do escudo contra a pedra, atingiu a coxa exposta e empurrou o homem contra os que vinham atrás.
+O corte na perna atrapalhava cada mudança de apoio. Seu braço ainda levantava a espada, mas devolvia o movimento um instante tarde demais. O primeiro homem que veio depois da voz de Elis escorregou no sangue junto aos corpos e recebeu o golpe antes de recuperar o equilíbrio. Dareth precisou apoiar a bota na parede para retirar a lâmina. Outro avançou com um escudo curto. Ele prendeu a borda do escudo contra a pedra, atingiu a coxa exposta e empurrou o homem contra os que vinham atrás.
 
-Ainda se ouviam vozes do lado da abertura, tecido raspando na fenda, alguém pedindo que o próximo se abaixasse. Dareth permaneceu onde o corredor se estreitava. Um homem alcançou-o com uma lâmina curta por baixo do braço de outro e a enterrou entre suas costelas. Dareth segurou-lhe o pulso, puxou-o para perto e o matou com um golpe curto. A arma caiu entre os corpos. Quando tentou mudar de apoio, a perna quase cedeu; encostou-se à pedra e ergueu a espada de novo antes que o seguinte alcançasse a passagem.
+Ainda se ouviam vozes do lado da abertura, tecido raspando na fenda, alguém pedindo que o próximo se abaixasse. Dareth permaneceu onde o corredor se estreitava. Um homem alcançou-o com uma lâmina curta por baixo do braço de outro e a enterrou entre suas costelas. Dareth segurou-lhe o pulso, puxou-o para perto e o matou com um golpe curto. A arma caiu entre os corpos. Quando tentou mudar de apoio, a perna quase cedeu. Encostou-se à pedra e ergueu a espada de novo antes que o seguinte alcançasse a passagem.
 
-Eles continuaram vindo. Um conseguiu abrir-lhe o ombro quando o braço da espada demorou a subir. Dareth atingiu-o no rosto com o punho da arma e acabou o golpe com a lâmina, sem espaço para afastar o braço. O homem caiu sobre outro, mas nem aquele obstáculo durou. Mãos puxaram os mortos para trás, botas encontraram apoio onde antes não havia, e mais um invasor apareceu. Dareth já não conseguia recuperar o fôlego entre um e outro. O cabo escorregava na sua mão molhada de sangue; teve de fechá-la duas vezes para não perder a espada.
+Eles continuaram vindo. Um conseguiu abrir-lhe o ombro quando o braço da espada demorou a subir. Dareth atingiu-o no rosto com o punho da arma e acabou o golpe com a lâmina, sem espaço para afastar o braço. O homem caiu sobre outro, mas nem aquele obstáculo durou. Mãos puxaram os mortos para trás, botas encontraram apoio onde antes não havia, e mais um invasor apareceu. Dareth já não conseguia recuperar o fôlego entre um e outro. O cabo escorregava na sua mão molhada de sangue. Teve de fechá-la duas vezes para não perder a espada.
 
 Olhou para a abertura. A última pessoa tinha desaparecido do outro lado. Não via mais Elis. Não via Selina. Os passos prosseguiam, cada vez mais distantes, na direção da terra aberta.
 
 Lembrou da Passagem de Arven, vinte anos antes. Pensou em Kalan e no selo de Vetarius chegando ao Pátio depois das três flechas. Atrás de si havia apenas a fenda vazia e o som dos passos que seguiam para fora da cidade.
 
-O próximo homem avançou por cima de um companheiro caído. Dareth o deteve, mas a perna ferida dobrou e o invasor conseguiu se apertar contra a parede, ao seu lado. A lâmina curta entrou-lhe pelas costas, alta, junto ao ombro. Dareth agarrou o homem pela roupa, puxou-o de volta para o centro do corredor e o feriu antes que pudesse passar. Outra arma veio por cima deles. Seu braço tentou acompanhar; dessa vez a espada não chegou a tempo. Dareth permaneceu de pé ainda por um instante, sustentado pela parede e pelo peso dos homens à sua frente. Quando caiu, os últimos passos dos sobreviventes já não podiam ser ouvidos.
-Elis correu porque Selina a puxou; depois continuou sozinha, sem precisar que ninguém lhe dissesse para mover as pernas. As galerias perderam o cheiro de pedra e ganharam o de terra fria. Passaram por raízes que entravam pelo teto, por uma porta antiga quase engolida pelo chão, por um último lance de escada onde a lamparina já não parecia necessária.
+O próximo homem avançou por cima de um companheiro caído. Dareth o deteve, mas a perna ferida dobrou e o invasor conseguiu se apertar contra a parede, ao seu lado. A lâmina curta entrou-lhe pelas costas, alta, junto ao ombro. Dareth agarrou o homem pela roupa, puxou-o de volta para o centro do corredor e o feriu antes que pudesse passar. Outra arma veio por cima deles. Seu braço tentou acompanhar. Dessa vez a espada não chegou a tempo. Dareth permaneceu de pé ainda por um instante, sustentado pela parede e pelo peso dos homens à sua frente. Quando caiu, os últimos passos dos sobreviventes já não podiam ser ouvidos.
 
-Saíram fora das muralhas quando a luz tinha quase desaparecido. As nuvens baixas e a fumaça de Kaeliran escondiam as duas luas; em vez da claridade cruzada que normalmente recortava caminhos e árvores àquela hora, o céu devolvia apenas um brilho difuso, avermelhado pelo fogo atrás das muralhas.
+Elis correu porque Selina a puxou. Depois continuou sozinha, sem precisar que ninguém lhe dissesse para mover as pernas. As galerias perderam o cheiro de pedra e ganharam o de terra fria. Passaram por raízes que entravam pelo teto, por uma porta antiga quase engolida pelo chão, por um último lance de escada onde a lamparina já não parecia necessária.
+
+Saíram fora das muralhas quando a luz tinha quase desaparecido. As nuvens baixas e a fumaça de Kaeliran escondiam as duas luas. Em vez da claridade cruzada que normalmente recortava caminhos e árvores àquela hora, o céu devolvia apenas um brilho difuso, avermelhado pelo fogo atrás das muralhas.
 
 Os tarraks estavam à espera num trecho protegido pela encosta. Tinham selas simples e cantis presos aos arreios. Elis parou ao vê-los e olhou dos animais para as pessoas que haviam saído do túnel. Havia exatamente um para cada sobrevivente, inclusive os feridos que precisariam de ajuda para montar. Karesis era a única outra pessoa da casa que conhecia aquela saída, e ela não o vira entre os sobreviventes nem perto dos animais. Não sabia quando alguém tivera tempo de prepará-los, menos ainda como acertara o número dos que chegariam ali.
 
@@ -787,7 +792,7 @@ Uma gota tocou seu rosto. Ela ergueu a mão, sem entender de imediato. Outra cai
 
 Selina ajudou Amira a acomodar o velho. Quando voltou, Elis ainda olhava para a cidade.
 
-Parte do Caminho da Permanência aparecia entre a névoa e a fumaça, a estátua caída dividindo a avenida. Outra continuava em pé diante de Kaendar em chamas. Uma das torres cedeu enquanto observavam; o som chegou depois, abafado pela distância. Havia gente lutando sob aquele céu sem cor. Havia pessoas vivas nos lugares onde o fogo não alcançara. Vetarius, Caeren, Amaric e quase todo o governo que decidira o destino delas já não existiam.
+Parte do Caminho da Permanência aparecia entre a névoa e a fumaça, a estátua caída dividindo a avenida. Outra continuava em pé diante de Kaendar em chamas. Uma das torres cedeu enquanto observavam, e o som chegou depois, abafado pela distância. Havia gente lutando sob aquele céu sem cor. Havia pessoas vivas nos lugares onde o fogo não alcançara.
 
 Um grande símbolo azul se desprendeu da fachada de Kaendar e desceu em chamas atrás dos telhados. Outras faixas Polar ardiam presas às muralhas, molhadas pela garoa fina demais para apagá-las.
 

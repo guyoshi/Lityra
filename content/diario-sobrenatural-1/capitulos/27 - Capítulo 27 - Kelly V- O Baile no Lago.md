@@ -8,13 +8,15 @@ Quando descemos do carro do meu pai, a multidão já se espalhava pelo pátio, d
 
 Vi Pedro num canto, olhando o relógio como se pudesse fazer o tempo andar mais devagar. Não fui até ele; meu coração já carregava culpa suficiente por aquele rapaz. Foi então que vi Ingrid, no meio de um grupo de alunos, me encarando com olhos que atravessavam qualquer fachada. Fez um aceno quase imperceptível, e desviei o rosto fingindo não tê-la visto. Quando ergui o olhar para o topo da arquibancada, lá estava ele, de branco, com a cara perdida de sempre, descendo os degraus aos tropeços. Ri sozinha. Aquele cacatua desajeitado era fiel à própria natureza.
 
-— Achei que não fosse me encontrar — falei quando ele parou à minha frente. — Estava aqui observando o príncipe dos anos 80 desesperado, convencido de que tinha levado um bolo.
+Ele parou à minha frente e segurou as mãos que estendi.
 
-— Você tá parecendo a Cinderela de vermelho — ele disse, e havia algo mais suave no tom, mais vulnerável.
+— Achei que não fosse me encontrar. Tava aqui, observando o príncipe dos anos 80 desesperado, achando que tinha levado um bolo.
+
+— Você tá… parecendo a Cinderela. De vermelho. — Havia algo mais suave no tom dele, mais vulnerável.
 
 Senti o rosto esquentar e mexi no cabelo num gesto automático.
 
-— A Cinderela não usa vermelho, cacatua, e eu não estou de sapatinho de cristal. Mas você está um gato, viu? Preparado para se mexer um pouco?
+— Ao menos não tô usando sapatinho de cristal, cacatua — ri. — Você também tá um gato. Preparado pra se mexer um pouco?
 
 Ele sorriu, sem jeito, até olhar por cima do meu ombro. Pedro. Claro.
 

@@ -2,13 +2,13 @@ A Câmara dos Onze tinha apenas fendas estreitas no alto das paredes. Orionus di
 
 No centro ficava a Mesa da Raiz, feita de madeira antiga e marcada por ciclos de mapas, lâminas e tábuas de contagem. Onze cadeiras diferentes a cercavam, uma para cada função do Conselho. Orionus recusara assentos iguais porque, segundo ele, homens com ofícios diferentes não deviam fingir que temiam as mesmas coisas.
 
-Nas extremidades da mesa, duas cadeiras mais altas, mas não tronos. Kaelina estava sentada numa delas, a Ramagem refeita ao amanhecer pelo pintor de Kaendar, os traços ainda frescos e mais grossos do que o costume, porque dia de Conselho pedia que ninguém precisasse se aproximar para saber quem governava. A outra permanecia vazia.
+Nas extremidades da mesa, duas cadeiras mais altas, mas não tronos. Kaelina ocupava uma delas, com a Ramagem refeita ao amanhecer pelo pintor de Kaendar, os traços frescos e mais grossos do que o costume, porque dia de Conselho pedia que ninguém precisasse se aproximar para saber quem governava. A outra permanecia vazia.
 
-Cal Edran Polar ficava de pé junto à porta, sem cadeira na Mesa. Observava os conselheiros e não perdia uma palavra. Tinha as mãos unidas à frente do corpo, a raiz branca da mão da espada por cima da outra, os ombros largos imóveis e os olhos numa espécie de repouso vigilante. A soberana passou os olhos pelo conselho.
+Cal Edran Polar ficava de pé junto à porta, sem cadeira na Mesa. Tinha as mãos unidas à frente do corpo, a raiz branca da mão da espada por cima da outra, os ombros largos imóveis, os olhos num repouso vigilante que não perdia uma palavra.
 
 Daryon estava sentado à direita da cadeira vazia de Alyra, com os dedos longos repousados sobre a mesa.
 
-Brokan das Forjas mantinha os braços cruzados, as mãos deformadas por anos de martelo escondidas sob os cotovelos e cinza presa na barba espessa. Iressa Mão-de-Sal, seca e de unhas curtas, já fazia contas numa tábua. Varron Meio-Olho observava a sala com a cavidade esquerda descoberta, a cicatriz descendo até a maçã do rosto; Nalia do Rio permanecia calada, os punhos da roupa escura arrematados em corda trançada; Thoren dos Grãos tossia de tempos em tempos, farinha presa nas dobras da túnica; Odran Porta-Baixa, compacto, de cabeça raspada e pescoço grosso, vigiava a porta com as chaves quietas no cinto. Maelis preparava os registros, Yvenn Raiz-Branca murmurava entre os dedos longos, Lurok, de barba aparada e anéis discretos, acompanhava quem parecia vencer e Seron, com fios grisalhos no cabelo escuro, batia dois dedos na madeira.
+Brokan das Forjas mantinha os braços cruzados, as mãos deformadas por anos de martelo escondidas sob os cotovelos e cinza presa na barba espessa. Iressa Mão-de-Sal, seca e de unhas curtas, já fazia contas numa tábua. Varron Meio-Olho observava a sala com a cavidade esquerda descoberta, a cicatriz descendo até a maçã do rosto. Nalia do Rio permanecia calada, os punhos da roupa escura arrematados em corda trançada. Thoren dos Grãos tossia de tempos em tempos, farinha presa nas dobras da túnica. Odran Porta-Baixa, compacto, de cabeça raspada e pescoço grosso, vigiava a porta com as chaves quietas no cinto. Maelis preparava os registros, Yvenn Raiz-Branca murmurava entre os dedos longos, Lurok, de barba aparada e anéis discretos, acompanhava quem parecia vencer e Seron, com fios grisalhos no cabelo escuro, batia dois dedos na madeira.
 
 Kaelina olhou de novo para a cadeira vazia.
 
@@ -38,9 +38,9 @@ Ninguém riu. Alyra sorriu mesmo assim.
 
 — Sempre admirei esta câmara. Onze pessoas numa mesa para tomar as mais mundanas decisões. Se haverá pesca amanhã, se minha irmã irá convidar um inimigo para viver conosco… se o mestre Brokan deve ou não fazer armas de ferro bruto ou continuar fingindo que martelo resolve falta de imaginação.
 
-Brokan soltou uma risada curta, abafada na barba. Kaelina não mudou a expressão. Alyra caminhou devagar até a cadeira oposta à irmã. Ao passar por Daryon, ele se inclinou quase nada. Um gesto pequeno. Quase invisível.
+Brokan soltou uma risada curta, abafada na barba. Kaelina não mudou a expressão. Alyra caminhou devagar até a cadeira oposta à da irmã. Ao passar por Daryon, ele se inclinou quase nada, um gesto pequeno, quase invisível.
 
-Alyra sentou-se e a cadeira rangeu. Então apoiou os cotovelos na mesa e olhou em volta com interesse fingido.
+Alyra sentou-se, a cadeira rangeu, e ela apoiou os cotovelos na mesa, olhando em volta com interesse fingido.
 
 — Então? — perguntou. — Já decidiram como iremos eliminar os Tondrar, ou ainda estamos contando cadeiras?
 
@@ -110,7 +110,7 @@ Maelis pigarreou.
 
 — Lei do Portão — confirmou Yvenn.
 
-Pão, água, sal, testemunha e palavra pública formavam o costume antigo.
+Pão, água, sal, testemunha e palavra pública: o costume antigo.
 
 Varron Meio-Olho inclinou a cabeça, o olho bom parado no mapa como se já visse Vigias mortos em cada trilha.
 
@@ -150,7 +150,7 @@ Alguns assentiram. Kaelina sentiu o Conselho a afastar-se dela, um rosto de cada
 
 — Peço licença aos membros da Mesa.
 
-Todos se voltaram. Edran não se moveu do lugar. Kaelina não o autorizou de imediato. Queria que a sala sentisse o peso daquela interrupção. Depois assentiu.
+Todos se voltaram. Edran não se moveu do lugar. Kaelina não o autorizou de imediato, porque queria que a sala sentisse o peso daquela interrupção. Depois assentiu.
 
 — Fale.
 
@@ -158,7 +158,7 @@ Edran inclinou a cabeça.
 
 — Os métodos de Orionus mantiveram Kaendar fora de guerra aberta por quarenta ciclos do sol. Não por sorte. Não por covardia. Por repetição de princípios que os inimigos aprenderam a prever e temer. Não há razão para abandonar uma muralha só porque alguém pintou sangue do lado de fora.
 
-Varron Meio-Olho grunhiu. Odran não gostou disso. Brokan menos ainda. Mas foi Daryon quem sorriu. Devagar.
+Varron Meio-Olho grunhiu. Odran não gostou disso, Brokan menos ainda. Mas foi Daryon quem sorriu, devagar.
 
 — Bonito ouvir Cal Edran falar de muralhas. Principalmente porque muralhas, como guardas, existem para impedir que certas coisas cheguem perto demais. Flechas. Feras. Inimigos. Veneno. Morte.
 
@@ -212,7 +212,7 @@ Kaelina olhou para ela. Havia algo no modo como Alyra disse aquilo. Não era sim
 
 — Enquanto esta mesa esperava horário para reunir, meus homens já estavam nas trilhas. Mandei alguns homens a alguns clãs. A mensagem é simples: Kaendar oferece proteção, desde que reconheçam a primazia Polar nas rotas.
 
-Daryon baixou os olhos para a mesa. Por um instante ninguém falou; depois, as vozes se sobrepuseram.
+Daryon baixou os olhos para a mesa. Por um instante ninguém falou. Depois as vozes se sobrepuseram.
 
 Por fim, Kaelina levantou-se. Não rápido. Isso teria dado gosto a Alyra. Levantou-se devagar, e isso foi pior.
 
@@ -490,7 +490,7 @@ Alyra passou os dedos pelo risco que desenhara na mesa, borrando a fronteira dos
 
 — Porque minha irmã quer provar que Orionus ainda governa através dela.
 
-Kaelina apertou a mandíbula. Yvenn pareceu incomodado. Iressa murmurou algo que talvez fosse uma prece ou insulto. Alyra deu a volta na cadeira e caminhou até a porta. Ao passar por Edran, parou. Os dois se olharam.
+Kaelina apertou a mandíbula. Yvenn pareceu incomodado. Iressa murmurou algo que talvez fosse uma prece ou um insulto. Alyra deu a volta na cadeira e foi até a porta. Ao passar por Edran, parou. Os dois se olharam.
 
 — Calandrir — disse ela.
 
@@ -510,7 +510,7 @@ E saiu. Daryon levantou-se pouco depois, recolhendo as próprias tábuas com cal
 
 — A mesa decidiu, minha soberana.
 
-Kaelina não lhe respondeu. Ele saiu atrás de Alyra. Um a um, os conselheiros deixaram a câmara. Alguns falavam baixo. Outros não falavam nada. Varron Meio-Olho passou por Edran sem olhar para ele. Iressa, ao contrário, parou diante de Kaelina e deixou sobre a mesa uma pequena tábua.
+Kaelina não lhe respondeu. Ele saiu atrás de Alyra. Um a um, os conselheiros deixaram a câmara, alguns falando baixo, outros calados. Varron Meio-Olho passou por Edran sem olhar para ele. Iressa, ao contrário, parou diante de Kaelina e deixou sobre a mesa uma pequena tábua.
 
 — Lista de sal, grão-de-caule e couro que pode ser oferecida sem ferir os anéis externos — disse. — Não ofereça mais do que isto. Generosidade mal medida vira fome dentro de casa.
 
@@ -532,7 +532,7 @@ Nalia não sorriu.
 
 — Onde de um lado há fartura, do outro há fome. Enquanto os Polar forem a Dinastia dominante, os clãs sempre desejarão o que temos. E, se estivéssemos do lado de fora das nossas muralhas, talvez fizéssemos o mesmo.
 
-Depois saiu. A porta fechou-se deixando apenas Kaelina e Edran. A câmara parecia maior vazia.
+Depois saiu. A porta se fechou e restaram apenas Kaelina e Edran. A câmara parecia maior vazia.
 
 A Mesa da Raiz mantinha os riscos de Alyra na superfície. Linhas de carvão atravessando clãs, rotas, fronteiras, depósitos e passagens. Kaelina passou a mão por cima, mas o carvão manchou-lhe os dedos em vez de desaparecer.
 

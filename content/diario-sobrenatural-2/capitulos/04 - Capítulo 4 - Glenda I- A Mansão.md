@@ -1,16 +1,26 @@
-Existe uma ordem natural nas coisas, e eu a respeito: primeiro o cabelo, depois a bolsa, depois o resto do mundo. Quem inverte a sequência chega atrasado e ainda reclama da fila. Minha mãe diz que eu sou “exigente”. Meu pai diz que eu sou “um investimento”. Nenhum dos dois sabe bem o que quer dizer com isso, mas os dois pagam a fatura sem ler.
+A mala não fechava. Tirei dois pares de sapatos, tentei outra vez e consegui prender o zíper com tanta força que quase arrancou a alça.
+
+Minha mãe entrou no quarto e viu as roupas espalhadas.
+
+— Glenda, pelo amor de Deus. Você sempre deixa tudo para a última hora.
+
+— Não deixei. Estou decidindo qual versão de mim vai morar na casa do Diego.
+
+Ela revirou os olhos. Minha mãe tinha esse talento para ignorar uma piada quando não gostava da resposta.
+
+Eu estava de mudança para o Morumbi por algum tempo. Não era bem o tipo de aventura que as minhas amigas imaginavam para mim, mas a casa era enorme, eu conhecia Jason desde criança e, pelo menos, estaria perto da Paper. O jornal era a única coisa naquela cidade que me interessava de verdade.
 
 Meus pais resolveram “aproveitar a vida” e viajar pela Europa no começo do ano. Do jeito que anunciaram, parecia mais um comunicado do que um convite. Perguntaram se eu queria ir, com o tom educado de quem já conta com a recusa para não ter de lidar com a culpa.
 
 Eu recusei.
 
-Não foi birra. Foi fome. Fome de casa vazia, de rotina sem interferência, de silêncio que obedecia. Dois meses em que eu decidia o que entrava e o que saía da minha vida.
+Eu queria ficar sozinha em casa, sair com minhas amigas e não prestar contas de cada passo. Dois meses sem ouvir minha mãe perguntar aonde eu ia já seria uma viagem maravilhosa.
 
 A minha mãe, claro, achou isso “perigoso”. Duas palavras que ela usa para tudo: perigoso e sensato. O sensato, para ela, era eu não ficar sozinha. Então ela teve a sua ideia sensata: me mandar para a casa do “tio” Diego, marido da minha tia Muriel.
 
-Eu nunca fui muito com a cara do Diego. Não é antipatia de adolescente. É aquela sensação antiga que vem antes do pensamento, como quando a nuca avisa sem explicação. Mesmo assim, eu aceitei, porque, quando percebi onde a casa dele ficava, deixei de brigar com o destino.
+Nunca gostei muito de Diego, embora não soubesse explicar aquilo aos meus pais sem começar uma discussão inútil. Mas aceitei. A localização da casa era boa e Jason estaria lá. Eu podia aguentar o resto.
 
-A mansão dele ficava no Morumbi, a poucos minutos da Paper — o jornal que eu leio como se fosse mapa e religião desde que eu era um filhote de gente. A Paper não era só um lugar onde se escreve. Era uma porta. E eu estava cansada de viver do lado de fora.
+A mansão dele ficava no Morumbi, a poucos minutos da Paper, o jornal que eu leio como se fosse mapa e religião desde que eu era um filhote de gente. Para mim, a Paper era uma porta. E eu estava cansada de viver do lado de fora.
 
 Eu cresci praticamente dentro da casa do Diego e da tia Muriel no Rio, em grande parte por causa do Jason. Naquela época, era como se nós dois estivéssemos sempre “sobrando” na casa dos adultos: ele porque precisava de alguém da idade dele por perto, eu porque meus pais achavam mais fácil delegar a minha presença do que lidar com ela. Criança é isso: é alguém que os outros estacionam.
 
@@ -22,7 +32,7 @@ Aos meus quinze anos, as coisas mudaram. Quinze anos é uma idade curiosa: é qu
 
 Foi mais ou menos nessa época que eu simplesmente parei de ver meu primo.
 
-Não foi briga. Foi decisão. Eu disse para os meus pais que estava ocupada, inventei desculpas, evitei visitas. Jason sentiu minha falta, eu senti a dele, mas eu sabia que seria melhor assim. E às vezes “melhor” não tem explicação bonita; só tem instinto.
+Eu decidi. Disse para os meus pais que estava ocupada, inventei desculpas, evitei visitas. Jason sentiu minha falta, eu senti a dele, mas eu sabia que seria melhor assim. E às vezes “melhor” não tem explicação bonita, só tem instinto.
 
 Depois disso, tudo mudou rápido. Tia Muriel se separou do Diego quando o Lucas, irmão mais novo de Jason, ainda era pequeno. Jason foi morar com a mãe em Vila Velha, e eu nunca mais o vi direito. A distância virou hábito, e hábito vira silêncio sem a gente perceber.
 
@@ -33,8 +43,6 @@ Até então, o Jason era um rapaz feliz, que sonhava alto. Mas, depois do Lucas,
 Desde então, eu e Jason quase não nos falávamos. Não por falta de assunto. Por falta de espaço.
 
 Quando meus pais anunciaram que eu ficaria com o Diego, eu relutei, claro. Mas o Morumbi e a Paper fizeram a decisão ficar mais simples. Contei ao Jason sobre a vaga que eu poderia ter, e ele disse que também iria passar um tempo com o pai. “Uns dias.” O suficiente para ele não parecer abandonado, e o suficiente para eu não parecer sozinha.
-
-Quando meus pais anunciaram que eu ficaria com o Diego, eu relutei, claro. Mas o Morumbi, e a Paper, fizeram a decisão ficar mais simples. Contei ao Jason sobre a vaga que eu poderia ter, e ele disse que também iria passar um tempo com o pai. “Uns dias.” O suficiente para ele não parecer abandonado, e o suficiente para eu não parecer sozinha.
 
 No táxi, eu gravei um diário em vídeo no meu estilo. Um tipo de registro que parece espontâneo para quem assiste e calculado para quem faz. 
 
@@ -48,7 +56,7 @@ Eu finalizei com um beijo rápido e desliguei.
 
 O taxista me olhou pelo retrovisor como se eu tivesse acabado de confessar um crime. Deixei que achasse. Pessoas relaxam quando te colocam numa caixinha simples: “menina dramática”, “metida a jornalista”.
 
-Quando desci do táxi e fiquei em frente à mansão do Diego, algo em mim recuou. Não era nervosismo romântico. Era aviso. A ideia de voltar para o Rio veio clara e prática, como uma porta ainda destrancada: eu posso ir embora agora e ninguém vai me impedir.
+Quando desci do táxi e fiquei em frente à mansão do Diego, algo em mim recuou. Veio com a clareza seca de um aviso. A ideia de voltar para o Rio veio clara e prática, como uma porta ainda destrancada: eu posso ir embora agora e ninguém vai me impedir.
 
 Só que então eu o vi vindo na minha direção.
 
@@ -68,13 +76,13 @@ Ele riu, mas o riso dele não ficou inteiro. Veio com um fundo de coisa não dit
 
 — Cara… você não faz ideia de como é bom te ver de novo. Aconteceram tantas coisas.
 
-— Eu sei — eu disse, e apertei os olhos contra o sol. — Não tive tempo de falar isso pessoalmente antes, mas… sinto muito pelo Lucas. Queria muito estar perto de ti quando aconteceu. 
+— Eu sei — eu disse, e apertei os olhos contra o sol. — Não tive tempo de falar isso pessoalmente antes, mas… sinto muito pelo Lucas. Queria muito estar perto de você quando aconteceu. 
 
-O sorriso dele caiu. Não caiu devagar, caiu como se alguém tivesse puxado um tapete invisível.
+O sorriso dele caiu. Caiu de uma vez, como se alguém tivesse puxado um tapete invisível.
 
 — Não vamos falar do Lucas, tá bom?
 
-— Desculpa — falei, forçando um suspiro — Como sua mãe está?
+— Desculpa — falei, forçando um suspiro. — Como sua mãe está?
 
 — Melhor… quer dizer, do jeito dela. Está trabalhando, vivendo do jeito dela — Jason fez uma pausa mínima antes de completar: — E eu… eu só estou tentando não deixar isso me comer por dentro. Minha mãe culpa meu pai… culpa o mundo… 
 
@@ -96,7 +104,7 @@ Jason assentiu e olhou para o portão como se o metal fosse mais fácil de encar
 
 Jason trancou o portão. Aquele som devia significar segurança. Para mim, era o sinal de que não havia volta. 
 
-A mansão era impecável. Piscina enorme à frente, jardim podado com uma precisão quase ofensiva. Três andares sem contar a cobertura, paredes brancas, sacadas com vidro, tudo limpo, caro, organizado demais. Casas assim não são feitas para serem vividas; são feitas para serem mostradas.
+A mansão era impecável. Piscina enorme à frente, jardim podado com uma precisão quase ofensiva. Três andares sem contar a cobertura, paredes brancas, sacadas com vidro, tudo limpo, caro, organizado demais. Casa assim é feita para ser mostrada, não vivida.
 
 O lugar parecia seguro até demais. Cercas elétricas, alarmes, mas, curiosamente, nenhuma câmera.
 
@@ -104,7 +112,7 @@ Pelo caminho até a entrada havia um chafariz e uma árvore alta que fazia sombr
 
 Entramos. Jason pendurou a chave na entrada e seguiu até a sala à esquerda. Um projetor no teto exibia um filme na parede. 
 
-— Que dia ótimo para assistir O Iluminado.
+— Que dia ótimo para assistir O Iluminado — comentei.
 
 Jason olhou para a parede como se só então tivesse notado.
 
@@ -128,13 +136,13 @@ Eu peguei uma champagne que parecia cara demais para ficar parada.
 
 — Vou pegar taças — ele disse, indo para a cozinha.
 
-Enquanto ele se afastava, o filme gritou. Wendy subia a escada com a faca; Jack avançava como uma coisa inevitável. Uma lembrança ruim veio em flash, rápida demais para eu segurar, forte o bastante para me deslocar do presente.
+Enquanto ele se afastava, o filme gritou. Wendy subia a escada com a faca. Jack avançava como uma coisa inevitável. Uma lembrança ruim veio em flash, rápida demais para eu segurar, forte o bastante para me deslocar do presente.
 
 Jason estalou os dedos na minha frente.
 
 — Ei. Volta do país das maravilhas, Alice.
 
-Eu sorri numa medida segura. Sorriso demais chama pergunta; sorriso de menos chama atenção.
+Eu sorri numa medida segura. Sorriso demais chama pergunta. Sorriso de menos chama atenção.
 
 — Quer que eu abra pra você? — ele perguntou, oferecendo duas taças.
 
@@ -146,7 +154,7 @@ Examinei o estrago sem pressa.
 
 — Espero que seu pai não tenha ataque.
 
-— Por que eu teria ataque? — uma voz veio atrás de mim, tão casual quanto uma mão no ombro… e ainda assim gelada na coluna.
+— Por que eu teria ataque? — disse uma voz atrás de mim, casual como uma mão no ombro e gelada na coluna.
 
 Eu me virei.
 
@@ -170,7 +178,7 @@ Eu não ri.
 
 — Você tem uma cobra…
 
-— Uma anaconda. — Ele disse como se estivesse falando de um cachorro velho que dorme no sofá. — É menos assustadora quando se acostuma com sua presença.
+— Uma anaconda — ele disse, como se falasse de um cachorro velho que dorme no sofá. — É menos assustadora quando se acostuma com sua presença.
 
 Jason voltou com a taça.
 
@@ -270,7 +278,7 @@ Então respirei, como quem decide se vai entrar numa água fria.
 
 — A ambulância demorou. Minha mãe queria gritar com o mundo. Eu fiquei no telefone, ligando e repetindo endereço, porque alguém precisava ser uma coisa firme ali. No hospital, eu reconheci o médico que atendeu meu pai. Eu já o tinha visto antes… num jantar de família.
 
-— Ele disse para minha mãe que fez tudo o que pôde. Ela acreditou. Eu não. O jeito como ele olhou para ela não era o jeito de um médico a dar notícia. Era… íntimo. Como se já se conhecessem.
+— Ele disse para minha mãe que fez tudo o que pôde. Ela acreditou. Eu não. O jeito como ele olhou para ela não era o jeito de um médico dando uma notícia. Era… íntimo. Como se já se conhecessem.
 
 Dei um sorriso curto, quase sem querer.
 
@@ -280,13 +288,13 @@ Dei um sorriso curto, quase sem querer.
 
 Eu deixei um segundo de silêncio. Um segundo a mais. E então dei o golpe que faz a história virar.
 
-— Eu voltei para casa e abri o computador. Entrei no e-mail da minha mãe. Não era bonito, mas era possível. E eu encontrei mensagens. Não eram declaradas, não eram explícitas — o que torna tudo pior. Eram frases pequenas, íntimas, combinando “encontros” com termos que parecem inocentes para quem não sabe ler subtexto.
+— Eu voltei para casa e abri o computador. Entrei no e-mail da minha mãe. Não era bonito, mas era possível. E eu encontrei mensagens. Não eram declaradas, não eram explícitas, o que torna tudo pior. Eram frases pequenas, íntimas, combinando “encontros” com termos que parecem inocentes para quem não sabe ler subtexto.
 
-— Eu não chorei. Eu imprimi. Porque eu entendi ali, com doze anos, que a verdade não se sustenta por si. A verdade precisa ser segura por alguma coisa. Por papel, por tinta, por prova. Senão ela vira boato… e boato morre.
+— Eu não chorei. Eu imprimi. Porque eu entendi ali, com doze anos, que a verdade não se sustenta por si. A verdade precisa ser segurada por alguma coisa. Por papel, por tinta, por prova. Senão ela vira boato… e boato morre.
 
 Minha voz não tremeu. Ela só baixou.
 
-— Eu levei aquelas folhas para a sala e coloquei na mesa. Minha mãe leu e não falou nada. Só sentou, sem força nos joelhos. O médico apareceu em casa dois dias depois — porque era isso que ele fazia. Ele entrava nas casas dos outros como se tivesse chave.
+— Eu levei aquelas folhas para a sala e coloquei na mesa. Minha mãe leu e não falou nada. Só sentou, sem força nos joelhos. O médico apareceu em casa dois dias depois, porque era isso que ele fazia. Ele entrava nas casas dos outros como se tivesse chave.
 
 — E foi ali que eu aprendi o que eu aprendi. Existem pessoas que fazem coisas horríveis e conseguem continuar sendo respeitadas, porque ninguém narra a história direito. Porque ninguém conecta os pontos. Porque ninguém tem coragem de pôr o nome do monstro na boca.
 
@@ -306,7 +314,7 @@ O olhar dele mudou. Primeiro choque. Depois defesa. Depois curiosidade.
 
 — Eu sei fazer alguém acreditar numa história — eu disse. — E jornalismo, no fim, é isso. Não é inventar. É contar a verdade de um jeito que ela não consiga ser ignorada. Se eu consigo prender sua atenção em uma mentira que eu criei em dois minutos… imagine o que eu faço com um fato real, com prova, com nome, com foto.
 
-Ele ficou em silêncio de novo, olhando para as minhas matérias como se elas tivessem mudado de forma.
+Ele ficou em silêncio de novo, olhando para as minhas matérias como se tivessem mudado de forma.
 
 — Talvez você tenha uma chance, Glenda — ele disse, por fim.
 
@@ -344,13 +352,13 @@ Uma “amiga” de Jason. Trabalhava lá.
 
 Eu não conhecia o rosto dela, mas reconheci na hora o tipo de tensão que aparece quando alguém tenta agir normal e falha. O jeito como ele ajustou a postura, como ela segurou o olhar meio segundo a mais do que o necessário, como o nome “Jason” saiu da boca dela com um cuidado que não era casual.
 
-Foi ali, observando os dois, que uma matéria começou a se formar. Matéria boa não cai do céu. Ela aparece nas reações das pessoas ao próprio passado.
+Ali, observando os dois, uma matéria começou a se formar. Matéria boa não cai do céu. Ela aparece nas reações das pessoas ao próprio passado.
 
 Voltamos para a mansão. Subi e usei o computador do quarto para pesquisar sobre a morte da irmã da Priscila. Precisava haver alguma coisa. Uma notícia. Um registro policial. Cidades pequenas adoram transformar tragédias em sussurros organizados.
 
 Demorei alguns minutos até encontrar algo concreto: fóruns antigos, um recorte digitalizado de jornal local. Vila Velha. O nome da cidade aparecia repetido, sempre acompanhado das mesmas palavras: tragédia, crime passional, jovens envolvidos.
 
-Kelly. Dezessete anos. Morta com um tiro.
+Kelly. Quinze anos. Morta com um tiro.
 
 O caso tinha acontecido à noite, numa casa antiga nos arredores da cidade. A versão oficial era que houve uma confusão, uma arma, e um disparo. A polícia agiu rápido o suficiente para dar uma resposta. O acusado tinha nome, sobrenome e endereço conhecido. Vinícius Silva. Namorado da irmã mais velha da vítima.
 
@@ -380,11 +388,11 @@ Quando abri, Diego estava encostado no batente, ocupando a entrada com o corpo. 
 
 — Eu gosto de trabalhar no silêncio. Ajuda a pensar.
 
-Ele entrou um passo, sem pedir licença. Não foi agressivo. Foi natural, o que é pior em certas pessoas.
+Ele entrou um passo, sem pedir licença. Entrou sem agressividade, com naturalidade, o que é pior em certas pessoas.
 
-— Queria lhe dar os parabéns por ter ido bem na entrevista. Jason me contou. — ele disse. 
+— Queria lhe dar os parabéns por ter ido bem na entrevista. Jason me contou — disse ele. 
 
-— Ah, obrigado! — falei, simples. 
+— Ah, obrigada! — falei, simples. 
 
 Diego olhou de relance para o quarto como quem faz inventário.
 
@@ -400,7 +408,7 @@ Ele sorriu, como se eu tivesse dito algo fofo.
 
 — Que pena. Você combinaria com as unhas vermelhas — ele comentou, com a mesma naturalidade de quem sugere um filme. — Vermelho é uma cor… forte.
 
-A voz do Jason apareceu na porta um alívio que não demonstrei.
+A voz do Jason apareceu na porta, um alívio que não demonstrei.
 
 — Pai? Estão conversando?
 
@@ -436,9 +444,9 @@ Ele se irritou.
 
 — Jason Douglas. Eu sou praticamente sua irmã — eu disse, sem mudar o volume. — E eu vou te aconselhar mesmo que você odeie. Só abre os olhos, tá?
 
-Ele soltou um ar pelo nariz, irritado, mas a raiva dele não era contra mim. Era contra a vulnerabilidade de gostar de alguém.
+Ele soltou um ar pelo nariz, irritado, mas a raiva dele apontava para dentro: era contra a vulnerabilidade de gostar de alguém.
 
-— Obrigado Glenda, mas não preciso de seus conselhos — ele disse, já perto da porta.
+— Obrigado, Glenda, mas não preciso de seus conselhos — ele disse, já perto da porta.
 
 Eu podia deixar ele ir. Mas eu precisava de uma peça.
 
@@ -456,12 +464,10 @@ Jason parou. O corpo dele fez um micro-ajuste, como quem engole algo que não go
 
 — Está preso na penitenciária estadual D. Edileno, nos arredores de Vila Velha.
 
-O cérebro fez aquele clique que não pede autorização. Um assassino preso é um começo perfeito porque ele não foge, e o passado dele costuma estar cheio de buracos.
-
-Eu mantive o rosto neutro, mas por dentro a decisão já estava tomada.
+Demorei um instante a responder. O acusado estava preso, o que tornava mais fácil encontrá-lo do que qualquer outra pessoa envolvida naquela história. Peguei o telefone para anotar o nome da penitenciária.
 
 — Você conhecia o acusado? — eu perguntei.
 
 Jason respirou como quem não gosta de dizer certos nomes.
 
-— Não… Mas ele é o ex-namorado da Priscila 
+— Não… Mas ele é o ex-namorado da Priscila.

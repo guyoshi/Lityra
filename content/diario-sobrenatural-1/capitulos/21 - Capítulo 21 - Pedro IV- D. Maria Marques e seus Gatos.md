@@ -4,7 +4,7 @@
 
 Quando olhei para ver quem tinha me atropelado, quase soltei um palavrão.
 
-— Jennifer? O que aconteceu com você?
+— Ei, Jennifer? O que aconteceu com você?
 
 Ela estava caída, o cabelo bagunçado, o braço sangrando muito e o pescoço todo vermelho, como se alguém tivesse tentado apertar a garganta dela. Congelei por um segundo e no outro já estava de pé.
 

@@ -1,38 +1,38 @@
-“Olá. Glenda aqui. Em mais um diário em vídeo.” Mantive o sorriso leve, o tom de quem grava por hábito, como se a vida fosse um corredor bem iluminado e eu só estivesse caminhando por ele com uma câmera na mão. “Descobri algumas coisas sobre o Vinícius. Estou curiosa para saber mais sobre esse caso e espero que isso me ajude com o meu novo trabalho. Por ora, nada mais a declarar.”
+— Olá. Glenda aqui. Mais um diário em vídeo. Hoje consegui conversar com Vinícius sobre o caso de Vila Velha. Continuo com mais perguntas do que respostas, mas pelo menos tenho um nome e algumas pistas para seguir. Por enquanto é isso.
 
-Desliguei a câmera do lado de fora do presídio e, no instante em que o clique final aconteceu, o mundo voltou a ser aquilo que realmente era: concreto quente, grades frias e histórias mal contadas. Fiquei olhando para a entrada como quem mede um prédio antes de entrar. Vinícius e Jennifer. Os dois nomes giravam na minha cabeça como peças que não encaixavam ainda, mas que claramente pertenciam ao mesmo quebra-cabeça.
+Desliguei a filmadora do lado de fora do presídio. O sol estava forte, e a roupa grudava nas costas. Eu tinha passado horas entre perguntas, documentos e gente que me olhava atravessado. Vinícius contara uma história difícil de acreditar. Jennifer, a garota que conheci ali, parecera acreditar em cada palavra.
 
-Eu nunca fui totalmente cética. O que eu era, acima de qualquer coisa, era desconfiada. Pessoas mentem por vaidade, por medo, por prazer. Mas aquela história tinha textura, tinha detalhe demais, tinha um tipo de absurdo que não parecia inventado para impressionar. Parecia inventado para sobreviver. E quando alguém cria uma narrativa para sobreviver, é aí que eu começo a prestar atenção.
+Queria encontrar Jennifer outra vez. Ela tinha visto coisas que o rapaz não podia explicar. Além disso, havia alguma coisa nela que não combinava com aquele ambiente, uma tristeza quieta que me deixou curiosa mesmo depois de sair.
 
-Consegui uma carona de volta para São Paulo com um casal simpático, simpático demais, talvez. Disseram que vinham do Acre e que estavam chegando por Campinas. O plano era seguir para o sul e talvez descer até a Argentina e o Chile. Eu ouvi, assenti, perguntei pouco. Gente que viaja assim costuma ser útil por um motivo simples: não quer saber da tua vida.
+Consegui uma carona de volta para São Paulo com um casal simpático, simpático demais, talvez. Disseram que vinham do Acre e que estavam chegando por Campinas. O plano era seguir para o sul e talvez descer até a Argentina e o Chile. Eu ouvi, assenti, perguntei pouco. Gente que viaja assim costuma ser útil por um motivo simples: não quer saber da sua vida.
 
 Desci perto do terminal da Barra Funda e peguei um ônibus até a casa do pai do Jason. O céu já tinha aquela cor de latinha amassada quando eu cheguei. Abri o portão com a chave que Jason tinha me dado e entrei como se a casa também me pertencesse, não por arrogância, mas por postura. Quem entra como visita vira alvo mais rápido.
 
-Fui direto para a cozinha beber alguma coisa. Peguei suco de laranja natural da geladeira, misturei com um pouco de vodca. Já eram dezenove horas e Jason ainda não tinha chegado. Eu sabia onde ele deveria estar: com Jason, o roteiro era sempre o mesmo quando ele achava que ninguém estava olhando. E eu sempre olho.
+Fui direto para a cozinha beber alguma coisa. Peguei suco de laranja natural da geladeira, misturei com um pouco de vodca. Já eram dezenove horas e Jason ainda não tinha chegado. Jason devia estar por aí com Priscila. Desde que se reaproximaram, os dois pareciam incapazes de passar uma noite longe um do outro. Eu não ia reclamar: a casa ficava mais tranquila.
 
 O quarto era organizado de um jeito quase ofensivo. Claro, limpo, com pôsteres alinhados como se existisse alguém ali dentro que acreditasse que ordem fosse uma forma de proteção. Nas prateleiras, mini modelos de carros, bem cuidados. Próximo à cama, a mesa com o desktop montado: preto, com aquele ar de máquina cara para quem quer parecer adulto. Vi um adesivo no gabinete: “256MB / 80GB / XP”. Para mim, podia ser uma oração em latim. Só precisava que funcionasse.
 
-Liguei a máquina e conectei à internet. O barulho da conexão discada começou a cantar aquela música irritante, como se o computador estivesse arrancando a própria garganta para puxar um fio invisível até o mundo. Enquanto a conexão negociava com a linha telefônica, observei os pôsteres: cantoras favoritas, o time de futebol e um pôster horizontal maravilhoso dos Mamonas Assassinas, com aquela energia de coisa proibida e ao mesmo tempo inocente. Eu gostei mais do que gostaria de admitir. Era um dado: Jason tinha ídolos, tinha humor, tinha uma parte que ainda não foi esmagada.
+Liguei a máquina e conectei à internet. O barulho da conexão discada começou a cantar aquela música irritante, como se o computador estivesse arrancando a própria garganta para puxar um fio invisível até o mundo. Enquanto a conexão negociava com a linha telefônica, observei os pôsteres: cantoras favoritas, o time de futebol e um pôster horizontal maravilhoso dos Mamonas Assassinas, com aquela energia de coisa proibida e ao mesmo tempo inocente. Eu gostei mais do que gostaria de admitir. Sorri ao ver o pôster. Jason continuava gostando das mesmas bobagens de quando éramos pequenos. Por um instante senti falta do garoto com quem eu corria pela casa quando éramos crianças.
 
-Quando a internet finalmente “entrou”, abri meu e-mail. Tinha um alerta, exatamente o tipo de alerta que eu programo para não perder tempo a procurar o óbvio.
+Quando a internet finalmente “entrou”, abri meu e-mail. Tinha um alerta, exatamente o tipo de alerta que eu programo para não perder tempo procurando o óbvio.
 
 “Um ano sem respostas: Onde está Kátia Sobral?”
 
 Kátia era uma jornalista investigativa de renome. Desaparecera na região do Morumbi, a poucos quilômetros dali. Antes de desaparecer, passou por um PUB e depois seguiu para o carro. Era o que a cronologia oficial dizia. Ela deveria dirigir para casa. Não dirigiu. Os fóruns de crimes não resolvidos estavam cheios de teorias, aquelas teorias que pessoas fazem quando querem sentir que o mundo é decifrável.
 
-Cliquei na notícia, abri o vídeo da última vez em que ela foi vista. Eu já tinha assistido dezenas de vezes. Como qualquer pista real, ela não grita. Ela espera o momento em que a tua atenção falha, e então se revela.
+Cliquei na notícia, abri o vídeo da última vez em que ela foi vista. Eu já tinha visto aquele vídeo várias vezes. Naquela noite, voltei a assistir porque a notícia mencionava um detalhe que eu não lembrava.
 
 No fundo, eu reconheci o edifício Penthouse, os comércios, o McDonald’s com o letreiro lançando luz como um farol ridículo numa cena que nunca deveria ter acontecido. Mas dessa vez havia algo a mais. Algo que eu não tinha notado. Rebusquei o trecho em que Kátia chega ao local. Pausei. Voltei. Pausei de novo.
 
-O carro estacionado ao lado do dela era branco. Um sedã comum. Tempos depois, quando ela saiu, o carro já não era mais branco. Parecia cinza, outra cor. A imagem era em preto e branco, mas dava para perceber a diferença de tom. O sedã provavelmente saiu da vaga enquanto Kátia ainda estava dentro do PUB. No lugar dele, estacionou um SUV imponente.
+O carro estacionado ao lado do dela era um sedã claro. Quando Kátia saiu, havia outro veículo naquela vaga. A filmagem era em preto e branco, então não dava para confiar na cor, mas o formato tinha mudado: agora era um SUV alto, que precisava de mais espaço para estacionar.
 
-Mesmo com a granulação, a silhueta era inconfundível: um utilitário de luxo, alto, com estribos laterais que refletiam a luz do poste. Não era um carro de alguém que passa despercebido. Era um carro de alguém que acredita que o mundo deve abrir caminho.
+Mesmo com a granulação, a silhueta era inconfundível: um utilitário de luxo, alto, com estribos laterais que refletiam a luz do poste. Era um carro de alguém que acredita que o mundo deve abrir caminho.
 
 Mas o que me fez travar o mouse de vez foi o frame exato em que Kátia abria a porta do próprio veículo.
 
 A luz do letreiro do McDonald’s refletiu no vidro traseiro do SUV ao lado, revelando um detalhe: um adesivo cromado de um clube de tiro exclusivo. Pequeno, mas brilhante o suficiente para existir mesmo num vídeo pobre, como uma assinatura.
 
-“É isso, Glenda”, murmurei, mais para fixar do que para me animar. Eu não precisava de euforia; eu precisava de certeza. “Não existem muitos carros como esse rodando por aí.”
+Anotei a placa que consegui ler, incompleta, e o desenho do adesivo. Não bastava para acusar ninguém, mas era uma pista que eu podia tentar identificar fora daquela filmagem.
 
 Ainda assim, a curiosidade, aquele órgão vital que o Jason sempre dizia que eu tinha no lugar do coração, não me deixava parar. Eu já tinha uma peça. Agora queria o resto do tabuleiro.
 
@@ -46,70 +46,42 @@ Abri e comecei a ler. O blog se chamava Postagem Diária, com aquele visual típ
 
 Li a entrevista inteira, como se estivesse ouvindo. O jeito como alguém conta uma coisa diz mais do que a coisa em si.
 
-“Hebert: D. Luiza, primeiramente, obrigada por vir, a senhora então é uma médium. Pode nos explicar o que é ser uma médium?”
+A entrevista começava com uma pergunta simples sobre o que era ser médium. Luiza respondia que via, ouvia e sentia coisas que os outros não percebiam. Não falava apenas em espíritos. Havia outras forças, e algumas delas podiam ser perigosas.
 
-“Luiza: Sim, é claro, obrigada. Ser uma médium é ter a capacidade de saber, ver ou ouvir informações que pessoas comuns não conseguem, através de forças sobrenaturais.”
+Passei por uma pergunta sobre a infância e parei num trecho em que ela mencionava Vila Velha.
 
-“Amélia: Isso significa, através de espíritos?”
+“Hebert: O que existe na sua cidade?”
 
-“Luiza: Não só espíritos, querida. Há muitas outras forças capazes de interagirem com nós, médiums.”
+“Luiza: Uma força maligna. Eu sei quando está por perto. O ar muda, os espíritos ficam diferentes. É o contrário do fogo, e o fogo liberta.”
 
-“Hebert: Outras forças, tipo o quê?”
+Copiei a frase no meu caderno. “O fogo liberta.” Era um jeito estranho de responder, mas aquele nome da cidade continuava aparecendo nos meus caminhos. Abri outra aba com o mapa da região e marquei o lugar.
 
-“Luiza: Na cidade onde eu vivo, Vila Velha, há uma energia maligna e perigosa. Eu não sei exatamente o que é. Mas às vezes a sinto.”
+Amélia perguntava sobre as aparições. Luiza dizia ter visto espíritos nas janelas e nas camas, homens e mulheres de várias idades e um grande cão negro que farejava coisas de longe. Acreditava que animais mortos violentamente também podiam deixar espíritos, e acrescentava que árvores e outros seres vivos tinham uma energia própria.
 
-“Hebert: Uma energia? Como a senhora descreve este tipo de energia?”
+Continuei a leitura. A entrevista se tornava menos confortável quando falava de comandar os mortos.
 
-“Luiza: Desculpe, mas é impossível eu explicar isso para você. Você consegue explicar como é ver para alguém que nasceu cego?”
+“Amélia: Então os espíritos podem ser obrigados a fazer coisas?”
 
-“Hebert: Acho que eu não seria capaz de fazer isso. Mas essa energia maligna e perigosa que a senhora mencionou, é algo que se encontra na cidade, é um tipo de fantasma vingativo, ou algo assim?”
+“Luiza: Podem. Mas não é qualquer médium que consegue. Isso exige muito poder, ou uma força maligna que mande neles. Não é o morto que você deve temer, e sim o que o está usando.”
 
-“Luiza: Olha, eu não costumo falar sobre as coisas que vejo, porque é perigoso. Muitos não gostam que falem sobre eles. Em relação ao que há na cidade, eu sei que existe uma força. Uma força oposta ao fogo, afinal o fogo liberta.”
+Anotei outra coisa: segundo ela, poucos médiuns tinham conseguido comandar espíritos na história. Pessoas com medos e desejos intensos seriam particularmente vulneráveis a entidades manipuladoras. Também havia uma maneira de manter contato mais profundo com os mortos, que a própria Luiza ainda dizia não dominar.
 
-“Amélia: E além dessa força, existem outras coisas que a senhora vê sendo uma médium?”
+“Hebert: Por que a senhora não tenta conversar com os espíritos de Vila Velha?”
 
-“Luiza: Espíritos são os mais comuns. Mas os de Vila Velha são um pouco diferentes. Por toda minha vida eu fui cercada por eles. Eu os vejo em muitos lugares, nas portas, nas janelas, sentados nas camas, mas nenhum deles se comparam com os que vi lá. Eles eram horríveis, tristes e perigosos. Se eu conseguisse contato com qualquer um deles, poderia perguntar coisas que talvez nenhum outro espírito conseguisse. Mas jamais tentei, porque há uma força que não permite me aproximar.”
+“Luiza: Porque alguma coisa impede. Eles são diferentes dos outros, e quem os controla não gosta de perguntas.”
 
-“Amélia: Que é a força que mencionou mais cedo?”
+No final, Luiza convidava outras médiuns a procurá-la caso precisassem de ajuda. Repetia o aviso sobre o fogo.
 
-“Luiza: Exato. Uma criatura oposta ao fogo libertador, gelada, sem vida, sombria e triste. Uma força que traz com ela a própria morte.”
+Voltei a ler as frases que tinha anotado. Eu não sabia se aquela mulher estava inventando histórias ou se acreditava nelas. Em todo caso, alguém que descrevia um cão negro, mortos dominados e uma cidade isolada merecia ao menos outra pesquisa.
 
-“Amélia: Isso é assustador. O que mais lhe assustou em todo o seu tempo morando Vila Velha?”
-
-“Luiza: Eu não me assusto com nada. Nem temo a nada. No começo eu me assustava com espíritos, mas depois me acostumei com eles. Houve um momento em que comecei a interagir com eles, e em pouco tempo conversava com eles. Há uma forma de ter um contato mais profundo, mas eu ainda não sei como fazer. Como mencionei, os espíritos de Vila Velha foram os mais diferentes e assustadores que já vi. Eles podem assumir formas humanas ou animais, de garotos a velhos. Havia uma criatura parecida com um cão preto que vi algumas vezes. Ele sentia o cheiro das coisas de longe.”
-
-“Hebert: Um espírito com a forma de um cão?”
-
-“Luiza: Acredito que seja um espírito de um animal morto de forma violenta.”
-
-“Amélia: Espírito de algum animal? Achava que apenas pessoas possuíam espírito.”
-
-“Luiza: Tudo possui um espírito, querida. Até mesmo as árvores possuem sua energia espiritual, não como a nossa, mas de uma forma diferente. Os animais não são a exceção, afinal, somos assim como eles seres vivos, possuímos as mesmas coisas que eles. O nosso defeito é que apenas somos mais inteligentes.”
-
-“Hebert: E como a senhora sabe disso?”
-
-“Luiza: Anos de experiência, querido. Tenho tudo anotado em meu diário. Os espíritos só ficam por aqui quando suas mortes foram extremamente chocantes ou quando possuem pendências a resolver. E seus rostos e corpos sempre são horrorosos. E eles não são nada bonitos. Ainda assim, nenhum espírito age contra um mortal sem que haja um mandador, ou algum médium ou força que o faça agir contra alguma pessoa.”
-
-“Amélia: Está dizendo que eles são como marionetes? Só que muito mais perigosas.”
-
-“Luiza: Eles não são perigosos, querida. São seus mandantes que são perigosos. Espíritos possuem uma energia celestial infinita, isso significa que eles não se cansam, não precisam dormir, nem descansar. O mandante de um espírito é um ser realmente poderoso. Porque ele pode fazer com que o espírito faça o que ele quiser para ele.”
-
-“Hebert: Mas seguindo sua lógica, D. Luiza, a senhora não é a única médium existente. Não deveriam haver muitos mandantes por aí? Alguns poderiam pedir os espíritos para roubar bancos, ou até mesmo matar pessoas. E a notícia se espalharia rapidamente.”
-
-“Luiza: Boa observação, rapaz. Acontece que o poder de mandar em um espírito só foi atingido poucas vezes na história. Apenas por médiums extremamente poderosas. Ou por entidades malignas que surgiram na história. E as pessoas mais vulneráveis a serem afetadas por eles são aquelas que possuem seus corações mais abertos, seja por insegurança, medo ou fraqueza emocional.”
-
-“Amélia: Sinistro, D. Luiza. Bom, muito obrigado por compartilhar conosco algumas de suas experiências como médium aqui em nosso blog.”
-
-“Luiza: Eu que agradeço. Meu recado aqui é um convite a todas as médiums: se descobrir que é uma e não souber lidar com isso, me procure. Eu irei lhe ajudar. Mas esteja sempre com o fogo, pois o fogo liberta.”
-
-Havia comentários abaixo, muitos. A maioria de jovens a ridicularizar. Um dizia que era médium e queria ajuda para mandar espíritos atormentarem a sogra dele. Eu li aquilo e, apesar do desprezo automático, um canto da minha boca quase subiu, não porque fosse engraçado, mas porque esse tipo de humor é sintoma. Pessoas riem mais alto quando estão com medo de levar algo a sério.
+Havia comentários abaixo, muitos. A maioria era de jovens que a ridicularizavam. Um dizia que era médium e queria ajuda para mandar espíritos atormentarem a sogra dele. Eu li aquilo e, apesar do desprezo automático, um canto da minha boca quase subiu, não porque fosse engraçado, mas porque esse tipo de humor é sintoma. Pessoas riem mais alto quando estão com medo de levar algo a sério.
 
 Vila Velha tinha histórico de coisas “paranormais”, ao menos na linguagem daquela mulher. Eu não precisava acreditar para reconhecer utilidade. Eu precisava de conexões. Será que Hebert e Amélia tinham entrevistado Luiza outras vezes? Abri a página inicial do blog. Eles não postavam havia quase três anos. A última publicação era uma mensagem de Feliz Páscoa em 2000.
 
 Uma foto de um coelho segurando um ovo, com os dizeres “Feliz Páscoa”. Abaixo, agradecimentos aos leitores. Era simples, até doce. E então eu desci até os comentários.
 
-“Saudades, Heb e Nat.”
-“Vocês eram os melhores, Hebert e Nat.”
+“Saudades, Heb e Amélia.”
+“Vocês eram os melhores, Hebert e Amélia.”
 “Como a vida é injusta. Os piores ficam e os melhores vão.”
 “Nem acredito que nunca mais terei reportagens novas aos domingos com vocês :(”
 “Descansem em paz, Nat e Heb.”
@@ -124,7 +96,7 @@ Abri um site e li a matéria. Os corpos estavam com a pele ressecada e queimada 
 
 Aquilo me deu um desconforto imediato, não exatamente choque. Eu só senti o mundo ficar mais estreito. A morte deles era um mistério. Havia suspeita de assassinato, mas nada nos corpos indicava isso, segundo os textos. Em um dos sites, vi a foto deles, embaçada, pequena, carregada daquele jeito lento que a internet fazia de propósito só para irritar.
 
-E foi então que eu vi.
+E eu vi.
 
 No canto da imagem, algo escuro. Um detalhe que eu não lembrava de ter notado antes. Desci a roda do mouse sem querer, mas aquilo continuou no mesmo lugar da tela.
 
@@ -136,9 +108,9 @@ Minha mente tentou catalogar: sombra, artefato da imagem, compressão do arquivo
 
 Ele sorria. Um sorriso grande demais, aberto demais. Dentro da boca, nada: nem dentes, nem língua. Os olhos apertados, quase em arco, como se ele estivesse rindo sem som.
 
-Foi aí que eu entendi.
+Eu entendi.
 
-A minha respiração acelerou, mas eu não me levantei de imediato. O corpo queria fugir; a cabeça queria prova. Eu virei lentamente.
+A minha respiração acelerou, mas eu não me levantei de imediato. O corpo queria fugir, a cabeça queria prova. Eu virei lentamente.
 
 — Glenda? — disse uma voz na porta.
 
@@ -152,13 +124,13 @@ Virei de vez. Não havia nada atrás de mim. Olhei para a porta e vi Diego parad
 
 Ele segurava um saco de papel. Eu reparei no jeito como ele entrou sem pedir licença. Não era sobre cupcakes. Era sobre entrar.
 
-— Ah, obrigado, Diego. Pode deixar que eu como mais tarde quando o Jason chegar — eu disse, e forcei um sorriso pequeno, o bastante para não provocar.
+— Ah, obrigada, Diego. Pode deixar que eu como mais tarde quando o Jason chegar — eu disse, e forcei um sorriso pequeno, o bastante para não provocar.
 
 Diego retribuiu o sorriso, mas não saiu. Entrou no quarto e caminhou até perto demais de mim. Eu me afastei da janela como se fosse casual e mantive os olhos nele. Ele tirou um cupcake de chocolate do saco com uma calma estudada.
 
 — Minha querida, comprei bastante pra vocês comerem mais tarde, mas tem um aqui que tenho certeza que vai adorar comer agora — disse, aproximando o doce. — O Jason me disse que é apaixonada por chocolates, é verdade?
 
-— É sim, mas não estou com fome, obrigado — respondi, mantendo o tom leve.
+— É sim, mas não estou com fome, obrigada — respondi, mantendo o tom leve.
 
 — Experimente, Glenda — ele insistiu, e aproximou o cupcake do meu rosto. — Dê só uma mordida. Você adora chocolate.
 
@@ -180,13 +152,13 @@ Peguei papel e caneta, reabri a entrevista com Luiza e comecei a rascunhar. Escr
 
 Quando terminei, já eram quase meia-noite. Jason ainda não tinha chegado.
 
-Desliguei o computador e fui para o meu quarto. A casa estava silenciosa demais. O tipo de silêncio que não é paz; é observação.
+Desliguei o computador e fui para o meu quarto. A casa estava quieta. Ouvi o relógio do corredor bater e descobri que ainda me lembrava daquele rosto sorridente que tinha aparecido na fotografia.
 
 Antes de deitar, resolvi explorar um pouco a casa. Eu não gosto de dormir em territórios desconhecidos. Subi pela escada no corredor e cheguei a um salão enorme: mesa de sinuca, um fliperama encostado na parede. O “salão de jogos” que Jason tinha dito. Na parede, um quadro enorme de uma mulher de biquíni. Nas prateleiras, jogos e bonecos. Um Xbox largado numa mesinha ao lado dos controles.
 
 O lustre no meio da sala era fantástico, digno daqueles filmes de Hollywood em que, no meio da luta, alguém corta a corrente e ele cai em cima de alguém. Eu gostei do lustre, o que provavelmente diz alguma coisa errada sobre mim.
 
-Segui pelo salão e vi uma mesa de tênis ao lado da de sinuca. Na lateral dela, uma mancha estranha, meio roxa, talvez vermelho escuro. Passei a mão por cima. Não era pó. Não era tinta fresca. Era mancha de algo que já tinha acontecido.
+Segui pelo salão e vi uma mesa de tênis ao lado da de sinuca. Na lateral dela, uma mancha estranha, meio roxa, talvez vermelho escuro. Passei a mão por cima. Não era pó nem tinta fresca. Era mancha de algo que já tinha acontecido.
 
 Um boneco tinha caído de uma prateleira. Um personagem gordo e grande. Eu o peguei e coloquei de volta no lugar, observando o ângulo da queda, se havia vento, se o chão vibrava. Não senti nada. Mesmo assim, a casa parecia estar mexendo em detalhes pequenos demais para serem ignorados.
 
@@ -218,9 +190,7 @@ Quando acordei pela manhã, desci para ir ao banheiro do andar de baixo. Aquela 
 
 Quando saí do banheiro, vi Jason descendo as escadas com uma cara de sono que parecia um crime.
 
-— Parece que a noite foi boa — eu disse.
-
-— Não podia ter convidado sua prima? — perguntei, rindo.
+— Parece que a noite foi boa — comentei, rindo. — Não podia ter convidado sua prima?
 
 — Ia ficar de vela. Não estava com nenhum amigo.
 

@@ -2,7 +2,7 @@ Daryon chegou antes do fim da manhã. Alyra reconheceu os passos dele do lado de
 
 Kadrir permanecia de pé junto à mesa, uma mão no punho da espada e a outra no antebraço enfaixado. O ombro ainda o incomodava, embora tentasse não demonstrar.
 
-Mapas de Kaendar cobriam a mesa: rotas, portões, depósitos, cisternas e escadarias. Brokan marcara reforços; Iressa enviara contagens de comida e Nalia, observações sobre a água contaminada.
+Mapas de Kaendar cobriam a mesa: rotas, portões, depósitos, cisternas e escadarias. Brokan marcara reforços, Iressa enviara contagens de comida e Nalia, observações sobre a água contaminada.
 
 Alyra olhava para aquilo com o cansaço de quem via pessoas transformarem urgência em tábua.
 
@@ -24,7 +24,7 @@ Ela puxou uma pedra pequena sobre o mapa, marcando a escadaria de Cima-Leste.
 
 — Às vezes panela mata mais que lâmina.
 
-Alyra olhou para Cal. Por um instante, quase gostou da resposta. A batida veio. Duas vezes. Secas. Cal virou-se antes dela.
+Alyra olhou para Cal. Por um instante, quase gostou da resposta. Então a batida veio, duas vezes, secas, e Cal virou-se antes dela.
 
 — Entra — disse Alyra.
 
@@ -88,9 +88,9 @@ Daryon olhou para Alyra.
 
 Alyra pegou o pedaço de couro primeiro. Havia marcas finas gravadas por dentro, não como escrita comum. Sinais de contrato. Ou recibo. Ou ameaça. Os Urtistar gostavam de fazer as três coisas parecerem iguais.
 
-Sob a cabeça, havia uma lâmina curta de madeira fina, gravada com linhas tão pequenas que alguém sem costume veria apenas arranhões. Alyra limpou parte do sangue com o polegar e leu. “A pedra aceitou o preço. O tambor caminhava com ventre e margem. A mulher da colheita viu a isca. A Garganta Seca recebeu sangue antes de resposta. A passagem sem raiz ainda ouve.
+Sob a cabeça, havia uma lâmina curta de madeira fina, gravada com linhas tão pequenas que alguém sem costume veria apenas arranhões. Alyra limpou parte do sangue com o polegar e leu. “A pedra aceitou o preço. O tambor caminhava com ventre e margem. A mulher da colheita viu a isca. A Garganta Seca recebeu sangue antes de resposta. A passagem sem raiz ainda ouve. A terceira sombra fugiu da chuva.”
 
-A terceira sombra fugiu da chuva.” Alyra leu uma vez. Depois outra. Daryon percebeu a reação.
+Alyra leu uma vez. Depois outra. Daryon percebeu a reação.
 
 — O que isso significa?
 
@@ -136,7 +136,7 @@ Daryon aproximou-se da mesa.
 
 — E eu?
 
-Alyra virou-se para ele. Daryon percebeu tarde demais quanto a pergunta soara pessoal; Cal também, e o aposento ficou em silêncio.
+Alyra virou-se para ele. Daryon percebeu tarde demais quanto a pergunta soara pessoal. Cal também, e o aposento ficou em silêncio.
 
 — Você aconselha — disse Alyra.
 
@@ -194,6 +194,8 @@ Cal não sorriu. Daryon também não. Alyra olhou para ele.
 
 Ele sustentou o olhar. Cal Kadrir desviou os olhos para o mapa. Daryon inclinou a cabeça, dessa vez sem elegância, apenas contenção.
 
+Alyra não esperou resposta.
+
 — Quer ser útil? Por que não me traz novidades do assunto que continua sem resposta?
 
 Daryon ficou quieto por um instante.
@@ -220,7 +222,7 @@ Cal olhou para a caixa fechada sobre a mesa e assentiu. Alyra olhou para Daryon.
 
 Kadrir caminhava ao lado dela, e os guardas se endireitavam ao reconhecer o Primeiro Kae.
 
-Ao chegarem à galeria oeste, dois guardas estavam à porta. Um deles era Lorian, jovem demais para esconder susto diante dela. O outro, Harvus Porta-Seca, era mais velho e mantinha a mão perto da lança. Ao reconhecer Alyra, endireitou os ombros. Os dois se endireitaram. Alyra parou diante deles.
+Ao chegarem à galeria oeste, dois guardas estavam à porta. Um deles era Lorian, jovem demais para esconder susto diante dela. O outro, Harvus Porta-Seca, era mais velho e mantinha a mão perto da lança. Ao reconhecer Alyra, os dois endireitaram os ombros. Alyra parou diante deles.
 
 — Abram.
 
@@ -242,7 +244,7 @@ O homem ficou pálido.
 
 — Eu sei o que quis dizer. Abra.
 
-Harvus olhou para Lorian, e abriu. Alyra entrou sem agradecer. O quarto tinha luz fria.
+Harvus olhou para Lorian e abriu a porta. Alyra entrou sem agradecer. O quarto tinha luz fria.
 
 Marken estava sentado no chão junto à janela estreita, com as costas apoiadas na parede. Havia tábuas, pedaços de carvão, pigmentos secos e panos espalhados perto dele. A cama permanecia quase intacta. Pela janela, nuvens cinzentas se juntavam acima dos anéis.
 
@@ -252,7 +254,7 @@ Os olhos dele passaram por Cal, depois voltaram a Alyra. Não havia surpresa suf
 
 — Então este é o homem que salvou a vida de minha irmã — disse Alyra.
 
-Marken não respondeu. Alyra caminhou pelo quarto, olhando para as pinturas. Algumas estavam encostadas à parede. Outras, presas com pequenos pedaços de metal. Mas a mais destacada era uma pintura de uma fortaleza em chamas.
+Marken não respondeu. Alyra caminhou pelo quarto, olhando para as pinturas. Algumas estavam encostadas à parede. Outras, presas com pequenos pedaços de metal. A mais destacada era uma pintura de uma fortaleza em chamas.
 
 Não era Kaendar nos detalhes, mas os anéis, a garganta e o Rio Grande bastavam para reconhecê-la.
 
@@ -282,7 +284,7 @@ Marken ficou em silêncio.
 
 — Marken.
 
-Alyra deixou um sorriso curto nascer entre os lábios, e continuou:
+Alyra deixou um sorriso curto nascer entre os lábios e continuou:
 
 — Clã.
 

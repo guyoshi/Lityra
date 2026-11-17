@@ -1,44 +1,42 @@
-A passagem de quatro traços abriu num terraço de nuvem, e Bruno resolveu que não olharia para baixo. Olhou para baixo duas vezes. O chão era branco, fofo, com um cheiro de lençol quarado, e a cada passo afundava até o tornozelo e devolvia o pé, de modo que andar ali era como caminhar em cima de um colchão muito pensativo. Por baixo, a uma distância que ele preferiu não calcular, havia um mar de outras nuvens, cinza-escuras, cheias de relâmpago miúdo.
+A passagem de quatro traços se abriu num terraço de nuvem branca e macia, com relâmpagos miúdos nas camadas debaixo. Bruno resolveu não olhar para baixo; olhou duas vezes.
 
-— Se eu cair daqui eu volto reclamando — disse. — Eu já aviso. Vou voltar só para reclamar, e vou reclamar muito.
+— Se eu cair, volto só para reclamar.
 
-— Você não vai cair. — Banjo caminhava na frente dele, devagar, de braços um pouco abertos, com Farol aninhado no capuz. — O Farol disse que a nuvem é de confiança. Ele ficou de olho nela desde que a gente chegou, e ela nem piscou.
+— O Farol disse que essa nuvem é de confiança — respondeu Banjo.
 
-— Nuvem não pisca, Banjo.
+— Nuvem não fala nem pisca.
 
-— Foi isso que eu falei para ele. Mas ele disse que essa não parece nuvem de piscar, e eu achei justo.
+— Foi o que eu disse a ele.
 
-Ferris achou os três traços na pedra de um poste enfiado na nuvem, e Shirley abriu a costura com os dedos, de baixo para cima, devagar, e entraram um atrás do outro numa luz que cheirava a chuva. Bruno foi o último, e antes de passar ainda olhou o terraço mais uma vez. Detestou concluir que tinha gostado.
+Ferris encontrou os três traços num poste de pedra. Shirley abriu a costura, e a passagem seguinte desembocou numa aldeia de cabras que andavam sobre duas patas e vestiam coletes.
 
-A passagem de dois traços abriu numa aldeia de cabras.
+Uma cabra de bigode enorme e relógio de bolso bloqueou a rua.
 
-Eram cabras de verdade, brancas e pardas, de chifre torto, mas andavam em duas patas, de colete, e uma delas, de bigode enorme e óculos de aro fino, parou no meio da rua de terra, tirou um relógio do bolso e olhou para os quatro com ar de coisa muito importante.
+— A cerimônia do nome já começou. Quatro mil anos de tradição não vão esperar por vocês.
 
-— Estão atrasados — disse. — A cerimônia do nome começou há vinte minutos, e o recém-nascido está com fome, e a mãe está nervosa. Sentem-se ali, ao fundo, e não façam barulho.
+Antes que Ferris conseguisse explicar a missão, os quatro estavam sentados diante de uma mãe de xale, segurando um cabritinho. As trinta cabras da plateia mastigavam folhas de louro em silêncio.
 
-— A gente só está passando, senhor. — Ferris deu meio passo à frente, de capacete debaixo do braço, na voz mais educada que tinha. — Nós procuramos uma marca na pedra e...
+— O visitante tem a palavra. Escolha o nome — ordenou a cabra do bigode, apontando para Bruno.
 
-— Ninguém passa antes do nome. É a regra da aldeia. Faz quatro mil anos que é a regra da aldeia.
+— Eu nem conheço o bicho!
 
-Bruno olhou para Banjo, e Banjo olhou para Bruno, e foi assim que os quatro foram parar sentados em bancos de madeira numa praça de terra, diante de uma cabra de xale que embalava um cabritinho do tamanho de um pão, e de uma plateia de umas trinta cabras de colete que mastigavam folhas de louro, em silêncio solene.
+— Escolha.
 
-— O senhor visitante tem a palavra — disse a cabra do bigode, apontando para Bruno. — Convidados escolhem o nome do filhote. É a tradição.
+Bruno encarou os olhos amarelos do filhote. Respirou fundo.
 
-— Eu? — Bruno apontou para o próprio peito. — Mano, eu nem sei a cor favorita do bicho. Eu não posso nomear uma pessoa assim, no susto, sem pesquisa.
+— Bruno Segundo.
 
-— O nome precisa ser dito agora.
+A mãe levou a pata à boca, emocionada.
 
-— Tá bom, tá bom. — Ele respirou fundo e olhou o cabritinho, que o olhou de volta com uns olhos amarelos de quem estava com muita fome e muita certeza. — Bruno Segundo.
+— Que nome bonito!
 
-Houve um silêncio comprido. A mãe de xale levou a pata à boca, e uma lágrima desceu pelo pelo do rosto.
+Banjo se inclinou para o irmão.
 
-— É um nome tão bonito — disse ela, num fio de voz. — Bruno Segundo. Eu nunca teria pensado.
+— Ele ficou muito feliz. Eu sinto daqui.
 
-— Ele está muito orgulhoso — sussurrou Banjo, perto da orelha dele. — Eu estou vendo, ele está com o peito cheio.
+— Fiz o que meu coração mandou — disse Bruno, com uma solenidade absurda. — Dois a zero pra gente.
 
-— Eu só fiz o que o meu coração mandou — respondeu Bruno, no mesmo volume, com a cara mais séria que conseguiu. — Dois a zero para a gente de novo. Anota aí.
-
-A cabra do bigode bateu o casco no chão e declarou o nome aceito, e as trinta cabras soltaram um berro comprido, que era a maneira de bater palmas, e Shirley riu tanto que precisou segurar o banco. Saíram da aldeia com uma cesta de pão de queijo de folha de louro, que Banjo carregou como quem leva um bebê de verdade, e com uma convicção grande, em Bruno, de que em algum lugar do universo existia uma cabra que ia crescer achando que ele era uma espécie de padrinho. Não era um fim ruim.
+As cabras aplaudiram com berros, e os irmãos ganharam uma cesta de pão de queijo de folha de louro. Bruno saiu convencido de que tinha um afilhado em algum lugar do universo.
 
 A passagem de um traço abriu num raso.
 
@@ -84,7 +82,7 @@ A porta azul abriu antes de qualquer um bater. Um homem apareceu no vão, com um
 
 O primeiro cômodo era normal, e foi a pior coisa que podia acontecer, porque Bruno relaxou. Tinha uma sala de entrada com um tapete, um cabide, um espelho de moldura torta. O segundo foi a cozinha.
 
-Bruno pôs o pé na soleira e o mundo girou para a esquerda. Não foi uma queda, foi uma resolução. A parede da esquerda, de repente, virou chão, e todas as panelas, as xícaras e uma mesa de quatro pés que estava ali em pé, tranquilamente, passaram a estar em pé numa parede, e Bruno deslizou, de braços abertos, de lado, e bateu de ombro na mesa, que estava no lugar onde estava desde sempre.
+Bruno pôs o pé na soleira e o mundo girou para a esquerda. A parede da esquerda virou chão, e todas as panelas, as xícaras e uma mesa de quatro pés que estava ali em pé, tranquilamente, passaram a estar em pé numa parede, e Bruno deslizou, de braços abertos, de lado, e bateu de ombro na mesa, que estava no lugar onde estava desde sempre.
 
 — Bruno! — Banjo estava rindo, e segurou-se na porta. — Você caiu para a parede!
 

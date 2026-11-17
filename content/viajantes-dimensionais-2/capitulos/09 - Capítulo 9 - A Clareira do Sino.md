@@ -92,7 +92,7 @@ Farol soltou um brilho dourado fraco da gola do moletom, e Banjo apertou os dedo
 
 — Eu sei — murmurou. — Eu também estou.
 
-O som que ouviu depois não era o do bosque nem o de uma pessoa. Era uma nota grave, como de uma corda grossa puxada com o dedo, que soou uma vez, ao longe, para a direita. Esperou. Soou de novo, no mesmo lugar, e entre as duas notas a floresta ficou tão quieta que ele pôde ouvir a própria lanterna zumbindo. Não parecia ser eco, porque eco não esperava. Era uma nota chamando, discreta, num tom que fazia as árvores relaxarem uma a uma ao redor dele, como gente que escuta uma canção conhecida.
+Depois ouviu uma nota grave à direita, parecida com uma corda grossa puxada com o dedo. Esperou. Soou de novo, no mesmo lugar, e entre as duas notas a floresta ficou tão quieta que ele pôde ouvir a própria lanterna zumbindo. Não parecia ser eco, porque eco não esperava. Era uma nota chamando, discreta, num tom que fazia as árvores relaxarem uma a uma ao redor dele, como gente que escuta uma canção conhecida.
 
 Banjo foi.
 

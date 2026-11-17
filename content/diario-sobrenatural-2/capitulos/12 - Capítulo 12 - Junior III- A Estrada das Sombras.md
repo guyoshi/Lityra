@@ -1,42 +1,44 @@
-Eu poderia dizer que estava confortável com a vida que levava, mas “confortável” não combinava mais comigo. Conforto exigia esquecimento, e eu não tinha esse luxo. Como é que alguém muda de vida se a única mudança possível exige apagar um passado impossível de apagar? Por muito tempo me convenci de que o massacre na casa dos Marques tinha sido um fim, um evento fechado dentro de uma caixa.
+No dia anterior eu tinha visto a minha mãe morta no banheiro. Antes disso, vi Kelly de novo. E, numa outra visão, apareci segurando uma faca perto do professor Caetano.
 
-Mas o que eu estava descobrindo, aos poucos, era que aquilo tinha sido apenas a borda do buraco.
+Comecei a anotar tudo num caderno, porque já não confiava na minha memória. Data, hora, lugar. No começo pensei que encontraria algum padrão, do mesmo jeito que fazia quando tentava resolver um mistério nos meus livros. A única coisa que as anotações mostravam era que eu estava dormindo cada vez menos.
 
-A maldição que nos cobriu não tinha ido embora. Só mudara de forma, como uma doença que deixa de dar febre e começa a corroer por dentro. As visões estavam mais frequentes, mais específicas, mais cruéis. A imagem do cadáver da Kelly e, pior, a da minha mãe morta se repetiam com uma facilidade que não parecia “memória”. Pareciam aviso, ameaça ou… ensaio. No dia anterior, eu tinha me visto segurando uma faca ao lado do professor Caetano. A sensação não era de sonho: era de presença.
+Naquela manhã, antes de sair para a escola, encontrei o toca-fitas que Kelly me dera no ano anterior. A etiqueta ainda dizia: “As melhores por Kelly Lorraine”.
 
-Antes de ir para a escola, vi num canto do quarto o toca-fitas que a Kelly tinha me dado no ano anterior. Caminhei até ele e o peguei com cuidado, como se o plástico ainda carregasse eletricidade de alguma coisa.
+Coloquei os fones. Ouvi alguns segundos e tirei. Não aguentava mais. Mesmo assim apertei o play outra vez. Era quase uma mania: fazia aquilo, ficava mal e depois me odiava por ter feito. Eu sabia que era estupidez, mas não conseguia parar.
 
-“As melhores por Kelly Lorraine”, estava escrito.
+De repente senti uma raiva enorme. Não foi crescendo aos poucos. Estava triste num segundo e, no outro, queria arrebentar tudo que havia no quarto.
 
-Me lembrei de todas as vezes em que tinha colocado os fones, de olhos fechados, fingindo que aquilo era só uma mania adolescente e não uma forma de tortura lenta. A cada acorde vinha tristeza e um calor no peito que não era saudade, era ferida. Mas naquela manhã uma coisa diferente tomou espaço: um ódio súbito, uma indignação guardada atrás da garganta havia meses. Um pensamento simples: cansei.
+— CHEGA! — gritei, antes mesmo de perceber que tinha aberto a boca.
 
 Atirei o toca-fitas contra a parede.
 
-O estalo do plástico foi seco, definitivo, como se eu tivesse feito algo irreversível pela segunda vez na vida. Fiquei olhando para os pedaços no chão, exausto, e o arrependimento veio quase na mesma velocidade que a raiva. Mas não juntei, não consertei. Virei de costas e saí do quarto.
+O aparelho se partiu. Fiquei olhando os pedaços no chão, assustado com a força que tinha usado. Aquela explosão de raiva parecia vir de um lugar que eu não conhecia. Pensei no Agouro e senti ainda mais raiva por continuar pensando nele.
+
+Me agachei para juntar as peças, mas desisti. Peguei a mochila e saí. Se ficasse mais um minuto ali, podia quebrar outra coisa.
 
 Naquela tarde, não vi a Jennifer na aula. Isso era estranho de um jeito quase estatístico: não era do feitio dela faltar.
 
 Às 17 horas, quando saí da escola, dei a volta pela rua de cima para passar em frente à casa dela. Uma daquelas decisões pequenas que a gente faz por impulso e depois finge que foi coincidência. Ao virar a esquina, vi a porta da casa da Jennifer aberta.
 
-Escancarada, como se alguém tivesse saído e esquecido o conceito de segurança.
+Escancarada.
 
-Aquilo não fazia sentido. O pai dela era superprotetor, e a Jennifer mal saía de casa. Quem vive em estado de alerta não tem descuido; tem lapsos. E lapsos, naquele nosso mundo, custavam caro.
+Não fazia sentido. O pai dela era superprotetor, e a Jennifer mal saía de casa. Quem vive em estado de alerta não tem descuido, tem lapsos. E lapsos, naquele nosso mundo, custavam caro.
 
-Pensei em ir lá. Pensei de verdade. Mas preferi me afastar daquela normalidade quebrada e ir direto para casa, como se ignorar fosse prevenção.
+Pensei em ir lá. Pensei de verdade. Mas preferi me afastar daquela normalidade quebrada e ir direto para casa, decidido a não me meter em mais um problema.
 
 Cheguei e fiz o que eu fazia para não enlouquecer: escrevi.
 
-Eu estava terminando o terceiro livro dos Viajantes Dimensionais. A escrita tinha virado um abrigo e, ao mesmo tempo, um laboratório. Eu pegava fragmentos do que vivi e distribuía nos meus personagens como quem espalha veneno diluído. Durante o último ano, eu tinha sobrevivido assim: fingindo que o horror podia ser transformado em enredo e, portanto, controlado.
+Eu estava terminando o terceiro livro dos Viajantes Dimensionais. Sempre gostei de inventar mundos. Ultimamente tinha começado a colocar nos meus personagens alguns medos que não sabia explicar nem para a minha mãe. Era mais fácil escrever sobre um herói enfrentando um monstro do que admitir que eu tinha medo de ficar sozinho no meu quarto.
 
 Enquanto eu escrevia, uma mosca enorme pousou na ponta da minha caneta. Sacudi a mão e a afugentei. Voltei à página, tentando decidir como finalizaria aquele arco. O “Senhor da Morte” precisava de um sentido. Ergui os olhos e ouvi o voo de mais duas moscas, grandes, pesadas, daquelas que fazem som, como se o ar fosse mais denso à volta delas.
 
-Pensei no inseticida. Nem estava tão quente para aquilo. Desde a casa dos Marques, a natureza tinha adquirido um comportamento estranho: pássaros, cães, insetos… como se os bichos estivessem reagindo a uma química invisível.
+Pensei no inseticida. Nem estava tão quente para aquilo. Desde a casa dos Marques, eu prestava mais atenção nos animais. Pássaros, cães, insetos: às vezes reagiam a alguma coisa que ninguém conseguia ver.
 
 Me levantei para pegar o inseticida no andar de baixo. Passei ao lado do toca-fitas quebrado e evitei olhar para ele como quem evita olhar para um cadáver. Fui até o armário, procurei o spray, e então ouvi batidas na porta.
 
 Batidas.
 
-Nós não tínhamos costume de receber visitas. A minha mãe trabalhava demais, eu passava o tempo na escola ou a escrever, e a nossa casa tinha o silêncio de duas pessoas que vivem juntas mas estão cada vez mais longe uma da outra. Batidas na porta não eram “visita”. Eram evento.
+Nós não tínhamos costume de receber visitas. A minha mãe trabalhava demais, eu passava o tempo na escola ou escrevendo, e a nossa casa tinha o silêncio de duas pessoas que vivem juntas mas estão cada vez mais longe uma da outra. Batidas na porta não eram “visita”. Eram evento.
 
 Caminhei até a porta e abri.
 
@@ -50,7 +52,7 @@ Ela não respondeu. Apenas olhou ao redor, com uma expressão de confusão tão 
 
 Ela arregalou os olhos.
 
-— Eu… acho que estou a me lembrar de algumas coisas — disse, levando a mão à cabeça.
+— Eu… acho que estou me lembrando de algumas coisas — disse, levando a mão à cabeça.
 
 Apertou os olhos como se um prego lhe atravessasse a testa. Depois os abriu outra vez.
 
@@ -66,11 +68,11 @@ Aquilo saiu como um relatório, não como conversa.
 
 — Não muito longe daqui, eu acho. Eu me lembro de estar lá e então apareci aqui. Minha cabeça está confusa. Eu realmente não sei como vim parar aqui.
 
-Observei o modo como ela falava: não era a confusão teatral de quem quer atenção, era a de alguém tentando montar um quebra-cabeça sem bordas.
+Observei o modo como ela falava, com a confusão de quem tenta montar um quebra-cabeça sem bordas.
 
 — Calma. Qual a última coisa de que se lembra, antes de aparecer aqui?
 
-A Manu olhou para o chão e, estranhamente, encarou o nada por alguns segundos. Eu já tinha visto gente encarar o nada. Não era “pensar”. Era escutar. Depois ela levantou a cabeça lentamente e me olhou nos olhos.
+A Manu olhou para o chão e, estranhamente, encarou o nada por alguns segundos. Eu já tinha visto gente encarar o nada, e quem faz isso está escutando. Depois ela levantou a cabeça lentamente e me olhou nos olhos.
 
 — Eu me lembro de estar sozinha na estrada. De não poder olhar para trás. E de uma voz… me dizendo para não parar de andar.
 
@@ -90,7 +92,7 @@ Agora eu precisava encontrar Alvorada Alegre. Deslizei o dedo pelo papel, para o
 
 — Aqui está. Você precisa pegar a estrada sul e só sair dela quando chegar em Mairinque, na segunda saída.
 
-A Manu virou o corpo como se fosse levantar e ir embora imediatamente.
+A Manu fez menção de se levantar e ir embora.
 
 — Ok. Obrigado — disse, simples, como se eu tivesse acabado de lhe dizer onde ficava a padaria.
 
@@ -102,7 +104,7 @@ Eu me levantei rápido e segurei o impulso dela com a voz.
 
 — Por que não vamos à polícia? Você diz que precisa voltar para casa.
 
-Ela abanou a cabeça na hora, e não foi “não quero”, foi “não posso”.
+Ela balançou a cabeça na hora, e a recusa soou como “não posso”.
 
 — Não… não posso ir à polícia.
 
@@ -116,7 +118,7 @@ Eu franzi o cenho. Era assim que o sobrenatural entrava na vida: não com monstr
 
 — Sim.
 
-Eu estava prestes rotulando aquilo como loucura quando ela disse a palavra que cortou a minha cabeça ao meio.
+Eu estava prestes a rotular aquilo como loucura quando ela disse a palavra que cortou a minha cabeça ao meio.
 
 — Kelly. Conhece ela?
 
@@ -158,15 +160,19 @@ Antes de sair, subi ao quarto e peguei uma mochila pequena. Enfiei nela o diári
 
 Saímos.
 
-O carro estava ali, silencioso, como um cúmplice. Destranquei.
+Parei na porta por um instante, com a chave da minha mãe na mão. Ela chegaria do trabalho, veria o carro desaparecido e encontraria a casa vazia. Ia telefonar para todo mundo. Depois do que acontecera com a Kelly, não suportava nem que eu demorasse a atender quando ligava.
+
+Quase voltei para deixar um bilhete. A Manu já estava descendo os degraus, descalça, e eu me convenci de que estaria de volta antes de anoitecer. Era uma desculpa idiota. Só percebi o tamanho da burrice muito depois.
+
+O carro estava ali, silencioso. Destranquei.
 
 — Entra.
 
-A Manu se sentou no banco do passageiro. Eu, no do motorista, senti o peso do que estava prestes fazendo: dirigir sem habilitação, sozinho, para uma cidade de que nunca ouvira falar, com uma menina sem memória, porque ela disse o nome da Kelly como quem chama fantasma.
+A Manu se sentou no banco do passageiro. Eu, no do motorista, senti o peso do que estava prestes a fazer: dirigir sem habilitação, sozinho, para uma cidade de que nunca ouvira falar, com uma menina sem memória, porque ela disse o nome da Kelly como quem chama fantasma.
 
 O Junior de um ano atrás nunca faria isso.
 
-Mas o Junior de agora já tinha atravessado um tipo de linha que não existia no código de conduta dos adolescentes normais.
+Eu devia ter pensado melhor antes de agir. Só que, depois de tudo o que vivera, às vezes tomava decisões antes de sentir medo delas.
 
 — Pode abrir os vidros se estiver com calor — eu disse, enquanto colocávamos o cinto.
 
@@ -202,7 +208,7 @@ Chegamos à estrada sul ao som de “Tempo Perdido”. Aumentei o volume sem per
 
 — Não conhece Legião Urbana? O que fizeram com sua memória? — eu ri, mas quando vi o desconforto no rosto dela, parei. Voltei a atenção à estrada e comecei a cantar baixinho.
 
-A Manu parecia assustada. Eu também. Nunca tinha dirigido sozinho, e o meu medo não era de morrer, era de errar. Peguei os óculos escuros numa caixinha ao lado do banco e coloquei, como se isso desse uma sensação falsa de controle.
+A Manu parecia assustada. Eu também. Nunca tinha dirigido sozinho, e o meu medo era menos de morrer do que de errar. Peguei os óculos escuros numa caixinha ao lado do banco e coloquei. Fiquei me achando um motorista experiente por uns três segundos.
 
 — Você sempre morou lá? — ela perguntou.
 
@@ -254,7 +260,7 @@ Eu travei.
 
 Pisei no freio com força, perdi a direção por um segundo e o carro deslizou na terra antes de parar. O motor morreu.
 
-Era um homem velho. Chapéu de vaqueiro. Barba falha. Roupa simples. Um rosto que carregava tempo e cansaço. A Manu estava tão assustada quanto eu. Eu soltei o cinto com a perna trémula, puxei a mochila para o ombro e saí do carro.
+Era um homem velho. Chapéu de vaqueiro. Barba falha. Roupa simples. Um rosto que carregava tempo e cansaço. A Manu estava tão assustada quanto eu. Eu soltei o cinto com a perna trêmula, puxei a mochila para o ombro e saí do carro.
 
 — Vocês não podem continuar — disse ele.
 
@@ -268,7 +274,7 @@ O tipo de frase que não pede discussão, pede obediência.
 
 — Porque nenhum dos que entraram conseguiu sair. Alvorada Alegre agora é o inferno.
 
-Eu olhei para a Manu sem saber se era medo ou alívio o que eu sentia. Ela franziu a testa, como se aquela frase fosse parte de uma lembrança que ainda não alcançava.
+Eu olhei para a Manu sem saber se era medo ou alívio o que eu sentia. Ela franziu a testa, tentando lembrar de alguma coisa.
 
 — Como assim um inferno? Eu vivo lá — ela disse.
 
@@ -294,9 +300,9 @@ O velho se aproximou e parou a poucos centímetros de nós. O cheiro dele era de
 
 — Há coisas que vocês não entenderiam acontecendo lá dentro. Coisas ruins.
 
-Foi então que ouvimos o som ao fundo: corvos crocitando, a voar num só ponto no horizonte, na direção de Alvorada Alegre. Nós três viramos para ver, e eu senti um frio subir pela coluna.
+Ouvimos um som ao fundo: corvos crocitando, voando num só ponto no horizonte, na direção de Alvorada Alegre. Nós três viramos para ver, e eu senti um frio subir pela coluna.
 
-Uma sombra estranha parecia cobrir o chão da estrada. Não era sombra de nuvem. Era sombra viva. Ela vinha em nossa direção, avançando depressa, escurecendo o caminho, as plantas, as árvores, como se a própria luz estivesse sendo engolida.
+Uma sombra estranha parecia cobrir o chão da estrada. Era uma sombra viva, não de nuvem. Ela vinha em nossa direção, avançando depressa, escurecendo o caminho, as plantas, as árvores, como se a própria luz estivesse sendo engolida.
 
 — Não estamos seguros aqui. CORRAM ATRÁS DE MIM! — o velho gritou, saindo da estrada e entrando na floresta.
 
@@ -342,13 +348,13 @@ A reação dele foi imediata. Ele virou o rosto para mim e arregalou os olhos. E
 
 — Há quanto tempo o encontrou?
 
-— Há um ano. Nós lutamos contra ele. O derrotamos.
+— Há um ano. Nós lutamos contra ele. Nós o derrotamos.
 
 — Então ele esteve lá esse tempo todo — ele disse, como se estivesse falando consigo mesmo.
 
 — Do que está falando?
 
-— Ele esteve sumido por anos. Isso explica as sombras terem vindo do norte. Elas estão a todo custo tentando entrar na cidade.
+— Ele esteve sumido por anos. Isso explica as sombras terem vindo do norte. Elas estão tentando entrar na cidade a qualquer custo.
 
 — Entrar na cidade? — a Manu perguntou. — Em Alvorada?
 
@@ -366,11 +372,11 @@ Ele assentiu.
 
 — O Agouro não está mais aqui — eu disse, porque eu precisava acreditar nisso. — Ele queria abrir um portal para libertar outros demônios, mas não conseguiu. Nós o derrotamos.
 
-O velho abanou a cabeça, e o modo como ele fez isso não foi de discordância, foi de luto.
+O velho balançou a cabeça, e havia luto no gesto.
 
 — Não, vocês não o fizeram. Essas sombras vieram de algum lugar, e se o que diz for verdade, o Varkhel é muito mais poderoso do que essas criaturas que rondam a cidade. Poucos teriam força para atraí-las até aqui.
 
-E foi então que o som veio.
+E o som veio.
 
 Um grito forte, distante, se aproximando. Ele cresceu rápido até chegar perto da porta e fazê-la tremer, como se algo estivesse tentando arrombá-la.
 
@@ -378,7 +384,7 @@ Um grito forte, distante, se aproximando. Ele cresceu rápido até chegar perto 
 
 — Espectros — o velho disse. — Partes malignas dos espíritos que são deixadas para trás. Eles vêm do mundo todo e estão se reunindo ao redor de Alvorada, vivendo na sombra que a circula. Há algum mal lá dentro, e os espectros o sentem. Por isso estão aqui.
 
-Eu olhei para a porta e depois para as paredes, tentando encontrar um ponto seguro para o olhar, e foi então que vi uma das pinturas. Uma garota, com laço na cabeça, retratada de um modo tão bem-feito que parecia uma pessoa presa dentro de tinta.
+Eu olhei para a porta e depois para as paredes, tentando encontrar um ponto seguro para o olhar, e vi uma das pinturas. Uma garota, com laço na cabeça, retratada de um modo tão bem-feito que parecia uma pessoa presa dentro de tinta.
 
 — Quem é você? — eu perguntei, voltando ao velho.
 
@@ -460,7 +466,7 @@ Ela me olhou aflita.
 
 — Desculpe — eu ri, quase sem humor. — Vou me deitar um pouco. Pode dormir na cama. Eu durmo no chão.
 
-Ela sorriu. Fui para o quarto ao fundo, mas antes de entrar o instinto — o mesmo que ignorei um ano atrás — pediu para eu não ser idiota. Fui até a cozinha do Pollux, abri gavetas, encontrei um facão grande e o escondi embrulhado num pano por dentro da roupa, como se fosse possível esconder a realidade com tecido.
+Ela sorriu. Fui para o quarto ao fundo, mas antes de entrar o instinto, o mesmo que ignorei um ano atrás, pediu para eu não ser idiota. Fui até a cozinha do Pollux, abri gavetas, encontrei um facão grande e o escondi embrulhado num pano por dentro da roupa, como se fosse possível esconder a realidade com tecido.
 
 O quarto era apertado, de janelas bloqueadas e chão empoeirado. Abri o armário: vazio, exceto por roupa de cama. Peguei um cobertor.
 
@@ -508,6 +514,4 @@ O frio lá fora bateu como memória, daquele que sempre avisava antes dos olhos 
 
 Eu avancei um passo para fora e vi.
 
-Um ser escuro, flutuando, com bordas que se moviam no ar como fumaça. A presença era calma e serena, o que tornava tudo pior, porque não havia pressa — havia certeza. O rosto esquelético tinha pele fina, ressecada e escura, colada aos ossos. Fios longos de cabelo branco caíam sobre os ombros. Os dedos compridos, articulados, parecidos com garras, se erguiam na minha direção como se ele estivesse medindo o espaço entre nós.
-
- 
+Um ser escuro, flutuando, com bordas que se moviam no ar como fumaça. A presença era calma e serena, o que tornava tudo pior, porque não havia pressa, havia certeza. O rosto esquelético tinha pele fina, ressecada e escura, colada aos ossos. Fios longos de cabelo branco caíam sobre os ombros. Os dedos compridos, articulados, parecidos com garras, se erguiam na minha direção como se ele estivesse medindo o espaço entre nós.

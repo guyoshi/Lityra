@@ -1,16 +1,16 @@
-Eu não dormi de domingo pra segunda.
+Eu não dormi de domingo para segunda. Fiquei a noite inteira virando na cama, ouvindo passos na casa e pensando no que tinha acontecido com Kelly.
 
-E não foi “insônia”. Foi o meu cérebro fazendo o que sempre fez: rodar e rodar, como um ventilador velho que não desliga nem quando você tira da tomada, procurando culpados, saídas, justificativas… qualquer coisa que pareça ordem.
+Também pensei em minha mãe. Fiquei inventando respostas para discussões que já tinham terminado, porque sou ótima nisso: encontro a frase perfeita horas depois, quando não serve mais para nada.
 
-E nas últimas semanas, ordem era uma piada.
+A casa estava silenciosa. Fui até a porta do quarto da Kelly e parei. Não entrei. Tinha coisas dela que eu queria guardar e outras que não suportava nem ver.
 
-O pior não era a tristeza. Era um silêncio por dentro que não parecia paz, como se alguém tivesse arrancado uma peça do meu corpo e deixado o buraco aberto, só pra eu ver. Eu devia sentir só dor. Mas junto vinha um alívio sujo, cheio de farpas, e eu odiava isso com força, assim como odiava não poder discutir com ninguém sem virar a vilã.
+Depois voltei ao meu quarto e comecei a arrumar a mala. Se continuasse ali, acabaria brigando com alguém. Eu precisava ir embora, mesmo sem ter a menor ideia de onde ia morar.
 
-Ainda era madrugada quando eu levantei e comecei a arrumar minhas roupas. Não teve cena bonita, lágrima no travesseiro, despedida no espelho. Foi uma decisão prática: eu ia embora. Ponto.
+Ainda estava escuro quando comecei a escolher o que levar. Não podia carregar o quarto inteiro, nem queria deixar a minha mãe pensar que eu voltaria no dia seguinte para buscar o resto.
 
 Coloquei na mala um livro, O Vermelho e o Negro. Nem sei por que peguei. Não sou do tipo que guarda lembrancinha pra chorar depois, mas aquele livro, naquela hora, era o único pedaço dela: um objeto com peso, capa, cheiro, marca de dedo no canto da página.
 
-Guardei as notas que peguei na gaveta da minha mãe, e fechei a mala com força, como se pudesse prender ali dentro o que eu não queria pensar.
+Guardei as notas que peguei na gaveta da minha mãe, e fechei a mala com força. Se a minha mãe ouvisse, ótimo.
 
 Fui pra cozinha.
 
@@ -32,7 +32,7 @@ Aquilo saiu com um tom tão ensaiado que me deu vontade de aplaudir. Quase.
 
 Ela sustentou. Porque ela sempre sustenta. Mesmo quando está errada.
 
-— Você não tem pra onde ir, Priscila — ela disse, como se isso fosse sentença.
+— Você não tem pra onde ir, Priscila — ela disse, cruzando os braços.
 
 — Isso não é problema. Se eu tiver que dormir embaixo de uma ponte, eu durmo.
 
@@ -56,7 +56,7 @@ Ela começou como quem conta uma tragédia histórica.
 
 — Seu pai tentou conversar com os pais da menina, mas ninguém sabia de quem ela era. E eu… eu fiquei preocupada, porque naquela época a gente não deixava você se aproximar de qualquer criança. A gente não sabia quem eram os pais, não sabia que tipo de gente era, se era seguro. Eu disse pro seu pai: “não deixa, a gente não conhece”. E você… você ficou com raiva. Raiva mesmo.
 
-Eu fiquei ali parada, com a mão na mala, olhando pra ela como se ela tivesse acabado de inventar um filme inteiro.
+Eu fiquei ali parada, com a mão na mala, olhando pra ela. Era tão absurdo que nem consegui responder.
 
 — Aí, enquanto a gente discutia, você passou do lado da menina. Bem quietinha. Eu até pensei “ah, finalmente acalmou”. Só que você… você empurrou. Do nada. Com força. A menina caiu com o rosto no chão, machucou a boca, começou a sangrar. Os pais apareceram correndo, e o seu pai ficou branco. Eu fiquei sem saber onde enfiar a cara.
 
@@ -68,19 +68,19 @@ Ela olhou pra mim: aquela lembrança era o certificado de origem do meu caráter
 
 — Nossa, que novidade. Eu era uma criança — eu respondi. — Criança faz birra. Eu não sabia que era crime.
 
-— Você não era só birra. Você tinha um jeito… Desde pequena, quando você não tinha o que queria, você fazia birra ou quebrava alguma coisa pra conseguir — ela respondeu, com aquela certeza irritante de quem acha que está fazendo um diagnóstico. — Foi ali que eu entendi que se a gente não fosse duro com você, você ia crescer achando que o mundo existe pra te obedecer. Se tornaria uma garota mimada. 
+— Você não era só birra. Você tinha um jeito… Desde pequena, quando você não tinha o que queria, você fazia birra ou quebrava alguma coisa pra conseguir — ela respondeu, com aquela certeza irritante de quem acha que está fazendo um diagnóstico. — Foi ali que eu entendi que se a gente não fosse duro com você, você ia crescer achando que o mundo existe pra te obedecer. Se tornaria uma garota mimada.
 
 Ela fez uma pausa antes de “mimada” como quem carimba uma caixa.
 
 — Você sempre quis tudo do seu jeito. Diferente da sua irmã que sempre aceitou o que tinha.
 
-Eu senti o estômago embrulhar, não de tristeza — de ódio.
+Eu senti o estômago embrulhar, não de tristeza, de ódio.
 
 — Ah, pronto. Chegamos nela — eu falei, com um sorriso torto. — Joga a Kelly na conversa que você se sente mais certa, né?
 
-— Eu não tô comparando — ela disse rápido demais, o que, claro, significava que era exatamente isso que ela estava fazendo. — Mas Priscila, sua irmã nunca me deu o trabalho que você me dá. 
+— Eu não tô comparando — ela disse rápido demais, o que, claro, significava que era exatamente isso que ela estava fazendo. — Mas Priscila, sua irmã nunca me deu o trabalho que você me dá.
 
-— É claro que não — eu ri, curto. — A filha perfeita. 
+— É claro que não — eu ri, curto. — A filha perfeita.
 
 — A sua irmã… — ela rebateu, subindo o tom. — Ela te amava!
 
@@ -90,11 +90,11 @@ Minha mãe ficou um segundo em silêncio. E, quando falou, foi com aquela voz de
 
 — Priscila… eu te amo…
 
-Não queria ouvi-la. 
+Não queria ouvi-la.
 
 — Vocês temiam que eu me tornasse errada — eu falei, e senti minha garganta apertar. — E parabéns: vocês conseguiram. Porque eu não consigo nem respirar nessa casa sem sentir que tô errada.
 
-— Você tá errada agora — ela disse, apontando pro chão como se eu fosse uma criança de novo. — Olha o que você tá fazendo. Você tá abandonando sua família. Ta fugindo da sua vida. Está querendo o caminho mais fácil. 
+— Você tá errada agora — ela disse, apontando pro chão como se eu fosse uma criança de novo. — Olha o que você tá fazendo. Você tá abandonando sua família. Ta fugindo da sua vida. Está querendo o caminho mais fácil.
 
 — O caminho fácil? — eu repeti, quase rindo de tão absurdo. — Você acha que eu tô indo embora porque é fácil?
 
@@ -108,7 +108,7 @@ Ela abriu a boca pra rebater, mas eu continuei, porque eu não ia deixar ela com
 
 — Todo mundo tem escolha, Karen. Todo mundo. Vocês escolheram ser assim comigo. Vocês escolheram me tratar como problema. Vocês escolheram olhar pra Kelly e enxergar santidade, e olhar pra mim e enxergar defeito.
 
-Eu disse “Karen” com intenção, sim. Porque ela sempre gostou tanto de controle, tanto de regra e de “como as coisas devem ser”, que às vezes parecia mesmo uma caricatura.
+Eu disse “Karen” com intenção.
 
 A reação veio como explosão.
 
@@ -128,25 +128,23 @@ Eu não tinha.
 
 Foi como cortar uma linha.
 
-Ela não falou nada. Só ficou ali, com a boca aberta, como se eu tivesse acabado de arrancar dela a última coisa que ela usava pra se sentir certa.
+Ela não falou nada. Ficou de boca aberta. Eu nunca tinha visto minha mãe perder a resposta tão depressa.
 
 Eu não esperei resposta.
 
 Virei as costas, peguei a mala, destranquei a porta e deixei a chave na entrada, como quem fecha um capítulo sem cerimônia.
 
-*São Paulo não abraça ninguém*
-
 Eu tinha uns cem reais, tirados de um cofre ridículo. Fui até o ponto, esperei dar cinco da manhã e peguei o ônibus pro centro de São Paulo, onde ia “arrumar emprego”.
 
 Sim, cem reais. Genial.
 
-Noventa por cento dos jovens que fogem de casa voltam porque quebram a cara. A maioria acha que a vida é mais fácil sem pai e mãe, e até é, quando alguém paga a conta e põe comida na mesa. A vida adulta tem um degrau alto demais pra subir num salto. E eu subi de cabeça, achando que ia cair em pé.
+A maioria dos jovens que fogem de casa volta porque quebra a cara. Todo mundo acha que a vida é mais fácil sem pai e mãe, e até é, quando alguém paga a conta e põe comida na mesa. A vida adulta tem um degrau alto demais pra subir num salto. E eu subi de cabeça, achando que ia cair em pé.
 
 Eu passei três dias na rua. Três.
 
-Em algum momento cogitei voltar. Não porque sentia falta — pelo amor de Deus — mas porque tinha quinze reais sobrando e uma cidade inteira me lembrando, a cada esquina, que ninguém te deve nada.
+Em algum momento cogitei voltar. Não porque sentia falta, pelo amor de Deus, mas porque tinha quinze reais sobrando e uma cidade inteira me lembrando, a cada esquina, que ninguém te deve nada.
 
-Comi o que dava. Andei de ônibus e metrô pela cidade, labirinto com saída escondida. Dormi mal, acordei pior. E ainda tentava manter postura, como se postura aquecesse.
+Comi o que dava. Andei de ônibus e metrô pela cidade, labirinto com saída escondida. Dormi mal, acordei pior. E eu ainda andava de cabeça erguida, mesmo tremendo de frio.
 
 Foi aí que eu conheci um cara. Até hoje eu não sei o nome. Eu pedi emprego num restaurante e ele disse que um amigo em Pirituba estava contratando “jovens moças”.
 
@@ -160,7 +158,7 @@ Quando eu cheguei, tinha fechado.
 
 E começou a chover, óbvio.
 
-Me enfiei debaixo de um telhado qualquer e apaguei ali mesmo. Acordei umas três vezes com carro passando; um deles jogou água em mim e eu xinguei o motorista até ele sumir, como se insulto fosse cobertor.
+Me enfiei debaixo de um telhado qualquer e apaguei ali mesmo. Acordei umas três vezes com carro passando. Um deles jogou água em mim e eu xinguei o motorista até ele sumir. Não me aqueceu, mas pelo menos me fez sentir melhor.
 
 De manhã eu esperei na porta até o dono chegar.
 
@@ -170,29 +168,29 @@ Quando ele entendeu minha situação, me deu a vaga.
 
 E, pra piorar minha dignidade, ainda me deixou dormir no armazém do restaurante por um mês, enquanto eu procurava lugar. Botou uma cama e um armário pequeno. Coisa simples, mas enorme demais pra aceitar sem engasgar.
 
-Eu agradeci do meu jeito: curto, seco, como se agradecer muito fosse admitir que eu precisava.
+Eu agradeci do meu jeito: curto, seco, porque agradecer demais era humilhante.
 
 No dia seguinte eu tomei banho, troquei de roupa e fui pro primeiro dia.
 
 Levei tanta bronca do Seu Estevan que achei que não passava da semana. Ou ele me mandaria embora, ou eu me demitiria. Nenhuma das duas coisas aconteceu. Fui ficando, me acostumando, engolindo, aprendendo.
 
-Ele era rígido, sim. Mas tinha um bom coração, do jeito dele. No fim do mês, levava a gente pra comer em hamburguerias de amigos e deixava pedir o que quisesse. Tinha estratégia, claro — queria que observássemos concorrência. Mesmo assim, era um gesto.
+Ele era rígido, sim. Mas tinha um bom coração, do jeito dele. No fim do mês, levava a gente pra comer em hamburguerias de amigos e deixava pedir o que quisesse. Tinha estratégia, claro: queria que observássemos concorrência. Mesmo assim, era um gesto.
 
 No final do mês já tinha alugado uma casa perto do trabalho. O locatário foi claro que não gostava de atraso. Eu fui clara que “não tinha esse hábito”, apesar de ser literalmente minha primeira casa. Comprei as coisas devagar: cama e fogão, depois geladeira e guarda-roupa. O Seu Estevan me deu um armário de cozinha velho quando comprou um mais moderno.
 
-E assim eu virei adulta.
+Fiquei com vergonha de aceitar o armário e com mais vergonha ainda de perceber o quanto precisava dele.
 
-No papel, eu estava bem. Na prática, eu já estava cansada de ser uma.
+Um ano depois, ainda estava naquele cubículo. O aluguel saía antes de eu pensar em comprar qualquer coisa para mim. No começo, ninguém da minha família podia sequer sugerir que eu voltasse. Depois parei de fazer questão de avisar que estava bem.
 
-Não vou dizer que sentia falta dos meus pais — tenho amor-próprio — mas comida e cama “de graça” eram mais cómodas do que fingir força sozinha numa cidade que não liga se você existe. Pelo menos eu era livre. Saía quando queria, com quem queria.
+Sentia falta de abrir a geladeira e encontrar comida sem ter que calcular o preço. Sentia falta do meu quarto antigo. Dos meus pais, não. Ou pelo menos era o que eu respondia, se alguém perguntasse.
+
+Em compensação, tinha a minha chave. Podia chegar a hora que quisesse, vestir o que quisesse, receber quem quisesse. Aquela liberdade custava caro, mas ainda era minha.
 
 E eu saí. Sim. Três homens nesse período. Saídas rápidas, sem contato depois, sem drama. Eu tinha regras. Porque existia um motivo pelo qual eu não deixava ninguém se aproximar demais.
 
 Eu prometi a mim mesma que nunca mais me debruçaria sobre homem nenhum como se ele fosse abrigo.
 
 E, mesmo assim, eu comecei a girar em torno de uma pessoa só.
-
-*Jason*
 
 — Entrou mais um cliente, vai atender, Priscila — o Seu Estevan mandou.
 
@@ -230,7 +228,7 @@ Meu Deus. Jason me chamando pra sair.
 
 Eu podia ir. Podia tentar. Mas existia um motivo pelo qual eu mantivera distância calculada de intimidade o ano inteiro. Eu não queria repetir padrão. Não queria entregar a minha garganta na mão de alguém e fingir que não era perigoso.
 
-Então, com uma cara que eu sei que estava ridícula — eu tenho consciência quando estou ridícula — eu disse:
+Então, com uma cara que eu sei que estava ridícula, porque eu tenho consciência quando estou ridícula, eu disse:
 
 — Não vai rolar.
 
@@ -254,8 +252,6 @@ Fui pro balcão e comecei a preparar. O Seu Estevan fez questão de entregar o p
 
 Quando saí do trabalho, fui cobrar o pagamento do Seu Estevan. Ele pediu pra eu aguentar mais um dia. Assenti com os dentes cerrados, peguei minhas coisas e fui embora.
 
-*Uma cidade inteira, e o vidro me traindo*
-
 No caminho de casa, um carro escuro acendeu o farol e me deu um susto. Eu ignorei e continuei. Virei numa esquina, andei mais duzentos metros e ouvi de novo o som de motor.
 
 Quando me virei, vi o mesmo carro escuro atrás de mim, devagar.
@@ -268,7 +264,7 @@ Aí eu corri.
 
 Ouvi o motor acelerar. O carro me alcançou, os vidros baixaram, e quando eu vi o motorista, eu desacelerei na hora.
 
-— Jason? — eu falei, ofegante. — Qual é o teu problema?
+— Jason? — eu falei, ofegante. — Qual é o seu problema?
 
 — Meu problema é ver você indo pra casa a pé e não te dar carona — ele respondeu, como se isso fosse óbvio.
 
@@ -302,7 +298,7 @@ Eu disse:
 
 E foi aí que eu vi o primeiro erro da noite: o reflexo.
 
-Quando ele virou numa avenida mais iluminada, eu olhei pro vidro do passageiro, só por hábito, pra conferir meu batom. E por um segundo — um segundo curto demais pra eu ter certeza — o vidro não me devolveu só a minha cara.
+Quando ele virou numa avenida mais iluminada, eu olhei pro vidro do passageiro, só por hábito, pra conferir meu batom. E por um segundo, um segundo curto demais pra eu ter certeza, o vidro não me devolveu só a minha cara.
 
 Tinha alguém atrás do meu ombro.
 
@@ -377,11 +373,11 @@ Eu olhei pra ele como se ele tivesse acabado de cometer um crime.
 
 — Então vai esquentar um pouco.
 
-Ele sorriu. Aquele sorriso que parece que já conhece tua fraqueza e só espera você admitir.
+Ele sorriu. Aquele sorriso que parece que já conhece a sua fraqueza e só espera você admitir.
 
 A gente ficou. Bebeu. Dançou.
 
-E eu, que passei um ano inteiro a controlar cada coisa que eu dizia e fazia, comecei a soltar. Comecei a rir de verdade. Comecei a cantar junto quando tocou Don’t Stop Me Now. Comecei a rodar no meio da multidão como se eu fosse uma pessoa normal.
+E eu, que passei um ano inteiro controlando cada coisa que eu dizia e fazia, comecei a me soltar. Comecei a rir de verdade. Comecei a cantar junto quando tocou Don’t Stop Me Now. Comecei a rodar no meio da multidão como se eu fosse uma pessoa normal.
 
 Isso deveria ser bom.
 
@@ -475,7 +471,7 @@ Perto demais.
 
 O corpo dele e o meu ficaram colados num espaço pequeno demais pra caber pensamento. Ele se aproximou e eu recuei milímetros, tentando voltar a ser a Priscila que manda. Mas ele encostou os lábios nos meus como se minha mente não tivesse valor.
 
-E por um segundo — um segundo ridículo — eu deixei.
+E por um segundo, um segundo ridículo, eu deixei.
 
 O beijo foi contido, mas foi real. O vento frio misturado com o calor dele, o som distante dos carros lá embaixo, o centro de São Paulo brilhando como um monte de vidro… e eu ali, sentindo uma coisa boa demais pra ser segura.
 
@@ -533,7 +529,7 @@ Forcei uma risada curta, amarga, do tipo que eu uso quando preciso fingir que te
 
 — Eu quero… — eu comecei e parei. Porque eu não queria dizer “eu quero que você fique”. Eu não queria dizer “eu quero colo”. Eu não queria dizer nada que provasse que eu estava carente igual qualquer outra pessoa.
 
-Sentei mais perto da porta por onde tínhamos entrado. Ele sentou ao meu lado, sem invadir, e passou o braço por cima de mim devagar, como quem pede permissão com o movimento. Eu deixei. Não porque era fraca, mas porque não tinha energia pra lutar contra tudo ao mesmo tempo.
+Sentei mais perto da porta por onde tínhamos entrado. Ele sentou ao meu lado, sem invadir, e passou o braço por cima de mim devagar, como quem pede permissão com o movimento. Eu deixei. Faltava energia pra lutar contra tudo ao mesmo tempo.
 
 Ficamos ali, olhando pro céu.
 
@@ -565,14 +561,6 @@ Eu deitei a cabeça no peito dele por alguns segundos, só pra descansar do meu 
 
 Eu fiquei quieta, respirando.
 
-A minha mente queria listar riscos: beijo, álcool, prédio arrombado, reflexo, vergonha, dependência, decepção futura. Ela queria mandar eu levantar e ir embora.
+Olhei para o vidro da janela. Só vi os dois encostados, sem nenhuma coisa estranha atrás de nós. Jason continuava com o braço em volta de mim.
 
-Meu coração, ao contrário, só queria ficar mais cinco minutos. E ele sabia pedir isso sem palavras.
-
-Eu olhei pro vidro uma última vez, por impulso. O reflexo não mostrou nada.
-
-Só mostrou o que era mais perigoso: eu ali, encostada em alguém, quase em paz.
-
-E eu entendi, com uma raiva quieta, que a minha mente não estava perdendo pro coração.
-
-Ela só estava ficando sem argumento.
+Eu podia ir embora quando quisesse. Pensei nisso, só para me lembrar. Mas fiquei. Depois de um ano jantando sozinha numa mesa pequena demais, cinco minutos ali não me pareciam grande crime.

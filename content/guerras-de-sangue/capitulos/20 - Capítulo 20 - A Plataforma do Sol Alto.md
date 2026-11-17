@@ -4,7 +4,7 @@ Savel não quisera falar mais depois de fechar a porta. Ainda assim, a frase del
 
 A rota saía de Noreval, passava por Rukhar Baixo e seguia em direção à Garganta Seca. Entre aquele ponto e Mirval, uma letra antiga marcava: Assentamento de Nhar-Veyr. Abaixo, outra mão acrescentara: sem nome.
 
-Harrev, de barba já grisalha, e Odris, antigo carregador de mãos largas, estudavam o mapa. Ambos tinham servido sob Edran; Kaelina os escolhera justamente porque já sabiam quando uma ordem precisava de pergunta.
+Harrev, de barba já grisalha, e Odris, antigo carregador de mãos largas, estudavam o mapa. Ambos tinham servido sob Edran. Kaelina os escolhera justamente porque já sabiam quando uma ordem precisava de pergunta.
 
 — Conhecem este caminho? — perguntou ela.
 
@@ -32,7 +32,7 @@ O dono da Casa de Bofgro fingiu procurar alguma coisa atrás do balcão. Kaelina
 
 Odris olhou para Harrev. Ele não reagiu, o que podia ser considerado o modo dele de reagir.
 
-— Minha soberana — disse Odris — Cal teria odiado esta decisão.
+— Minha soberana — disse Odris —, Cal teria odiado esta decisão.
 
 — Cal odiava quase todas as minhas decisões.
 
@@ -50,9 +50,9 @@ Kaelina prendeu o mapa à sela do tarrak.
 
 — Hoje, se o medo chegar, talvez seja o único guia honesto que temos.
 
-Partiram antes que Noreval começasse a perguntar. No primeiro dia ainda havia marcos Polar e depósitos de rota; no segundo, os caminhos estreitaram e a pedra passou a mandar mais do que o mapa.
+Partiram antes que Noreval começasse a perguntar. No primeiro dia ainda havia marcos Polar e depósitos de rota. No segundo, os caminhos estreitaram e a pedra passou a mandar mais do que o mapa.
 
-A Garganta Seca aproximou-se pelo vento menos úmido, pelas árvores mais baixas e pelo silêncio dos animais. Odris encontrou uma marca que podia ser de kevar de pedra; Harrev disse que também podia ser homem tentando imitar kevar.
+A Garganta Seca aproximou-se pelo vento menos úmido, pelas árvores mais baixas e pelo silêncio dos animais. Odris encontrou uma marca que podia ser de kevar de pedra. Harrev disse que também podia ser homem tentando imitar kevar.
 
 À noite, comeram pão de raiz escura, queijo salgado e carne seca sob uma formação de rocha. Harrev ferveu água com folha-de-alívio.
 
@@ -84,7 +84,7 @@ Harrev encontrou pele curtida e um tambor partido no pátio de secagem.
 
 — Saqueador leva o que presta e deixa o resto feio. Aqui mexeram no que não prestava também.
 
-Harrev encontrou uma marca escura perto de uma porta estreita. Pintura negra. Não antiga. Não totalmente seca.
+Perto de uma porta estreita, Harrev viu uma marca escura. Pintura negra. Não antiga. Não totalmente seca.
 
 Kaelina ajoelhou-se perto dela. A marca parecia ter sido deixada por mão ou braço encostado sem cuidado. O desenho estava borrado, mas a tinta tinha a espessura e o cheiro persistente do pigmento Tondrar, feito de cinza, gordura e mineral escuro.
 
@@ -112,7 +112,7 @@ Harrev derrubou um atacante. Odris arrancou a lança do próprio ombro e a usou 
 
 — Para o tarrak! — gritou Harrev.
 
-Kaelina tentou chegar aos tarraks. Cortou a mão de um homem que agarrou sua capa; Odris desviou outro golpe destinado a ela e recebeu uma lâmina nas costas.
+Kaelina tentou chegar aos tarraks. Cortou a mão de um homem que agarrou sua capa. Odris desviou outro golpe destinado a ela e recebeu uma lâmina nas costas.
 
 — Odris!
 
@@ -192,7 +192,7 @@ Kharvok respirou devagar.
 
 — Aprendi que preciso consertar alguns erros antes que se tornem irreparáveis.
 
-— Ah é? Você vai gostar do sol. Ele costuma fazer os mentirosos falar e os verdadeiros sangrar.
+— Ah, é? Você vai gostar do sol. Ele costuma fazer os mentirosos falar e os verdadeiros sangrar.
 
 Kharvok mandou levá-la para a parte alta do Pátio Seco, onde prisioneiros eram mantidos expostos ao sol e aos olhos da cidade.
 
@@ -288,7 +288,7 @@ Kaelina pegou a segunda faca do chão.
 
 — Já tentou, e falhou.
 
-Os golpes aceleraram. Nynestra escondia o cansaço na raiva; Kaelina continuava defendendo. Os tambores cresceram.
+Os golpes aceleraram. Nynestra escondia o cansaço na raiva e Kaelina continuava defendendo. Os tambores cresceram.
 
 Kaelina bloqueou um golpe, girou por dentro da guarda de Nynestra e segurou-lhe o pulso.
 
@@ -308,7 +308,7 @@ Nynestra acertou o rosto de Kaelina com a haste da lança. O gosto de sangue vol
 
 — Vocês da muralha não fazem ideia — disse Nynestra. — Do que vocês causaram a nós. Veja esses homens. Estão malucos para ter sua cabeça, soberana. Loucos para que sua irmã seja a próxima.
 
-Kaelina atacou pela primeira vez e a faca entrou pouco na parte externa da coxa de Nynestra. A Buldar caiu sobre um joelho; Kaelina recuou imediatamente.
+Kaelina atacou pela primeira vez e a faca entrou pouco na parte externa da coxa de Nynestra. A Buldar caiu sobre um joelho. Kaelina recuou imediatamente.
 
 — Não vou te matar.
 
@@ -342,11 +342,11 @@ Nynestra gritou de volta, mais uma vez:
 
 — Eu não matei Torgun!
 
-As lanças ao redor inclinaram-se de novo. Kaelina gemeu, a dor nas costas, o líquido quente escorrendo. Kharvok desceu um passo da sua posição.
+As lanças ao redor inclinaram-se de novo. Kaelina gemeu de dor nas costas, com o líquido quente escorrendo. Kharvok desceu um passo da sua posição.
 
 — Lutem!
 
-Nynestra avançou apesar da coxa. Kaelina segurou-lhe o braço e tentou prendê-la sem cortar; as duas giraram perto da borda.
+Nynestra avançou apesar da coxa. Kaelina segurou-lhe o braço e tentou prendê-la sem cortar. As duas giraram perto da borda.
 
 Kaelina sentiu o vazio e agarrou Nynestra por instinto. As duas caíram da plataforma. Nynestra caiu sobre ela, arrancando-lhe o ar. O pátio calou por um instante.
 
@@ -450,7 +450,7 @@ Kaelina ligou grão Buldar, margens Glydar, Boca Seca e Varkhama. Havia uma coal
 
 Nynestra olhou para ela como se a palavra fosse infantil.
 
-— Unindo? Não. Estamos na mesma sala antes que o teto caísse. É diferente.
+— Unindo? Não. Estamos na mesma sala antes que o teto caia. É diferente.
 
 — Buldar, Tondrar, Glydar... o óleo no rio… Alestir…
 
@@ -498,7 +498,9 @@ Kaelina lembrou-se das palavras de Alyra. Do modo como a irmã falava de força 
 
 Nynestra riu com incredulidade amarga.
 
-— Torgun me tirou dali da armadilha — Nynestra foi quem quebrou o silêncio. — O Tondrar que estava comigo. Não por bondade. Por utilidade, talvez. Por não querer que uma Buldar morresse antes de servir para alguma coisa. Corremos para a Boca Seca. Quase chegamos.
+Nynestra foi quem quebrou o silêncio.
+
+— Torgun me tirou da armadilha. O Tondrar que estava comigo. Não por bondade. Por utilidade, talvez. Por não querer que uma Buldar morresse antes de servir para alguma coisa. Corremos para a Boca Seca. Quase chegamos.
 
 A mão dela desceu até a coxa ferida.
 
@@ -512,7 +514,7 @@ Kaelina sentiu frio, apesar do ar preso da cela.
 
 — Kharvok acha que você matou Torgun.
 
-— Eu não os culparia. A Voz foi morta sob lei inimiga. Um de seus líderes enviados para lutar com o inimigo, foi encontrado morto do lado de fora de seus muros ao lado de um inimigo. Nada que eu diga mudará.
+— Eu não os culparia. A Voz foi morta sob lei inimiga. Um de seus líderes, enviado para lutar ao meu lado, foi encontrado morto fora dos muros, junto a uma inimiga. Nada que eu diga mudará.
 
 Kaelina ergueu o rosto.
 
@@ -520,7 +522,7 @@ Kaelina ergueu o rosto.
 
 Nynestra olhou para Kaelina, quase como se fingisse pena.
 
-— Você é exatamente igual Orionus — ela começou — É uma soberana com discurso de que quer evitar a guerra. Quando na verdade, sabe que a guerra já começou muito antes de seu pai.
+— Você é exatamente igual a Orionus — começou ela. — É uma soberana com discurso de que quer evitar a guerra. Quando, na verdade, sabe que a guerra já começou muito antes de seu pai.
 
 Kaelina conteve a vontade de responder com nomes e justificativas.
 
@@ -532,7 +534,7 @@ Nynestra olhou para ela sem suavidade.
 
 Acima delas, os tambores mudaram. Um ritmo baixo, seco, repetitivo. Não convidava ao choro. Convidava à memória.
 
-— Morte importante — disse Nynestra — Algum deles deve ter morrido.
+— Morte importante — disse Nynestra. — Algum deles deve ter morrido.
 
 — Como sabe?
 
@@ -542,7 +544,7 @@ Nynestra ainda a olhava com desprezo, embora menos do que antes.
 
 Kaelina estava cansada das palavras afiadas de Nynestra, então ignorou e aproximou-se das barras de osso.
 
-— Amanhã, Kharvok irá querer ver nós duas lutando de novo.
+— Amanhã, Kharvok irá querer nos ver lutando de novo.
 
 — E só uma vai falar — disse Nynestra.
 
@@ -602,13 +604,13 @@ Kaelina olhou pelas barras, uma pedra luminosa na parede.
 
 — Não. Não vou dar este gostinho a eles. Vou sair daqui. Ao seu lado.
 
-— Ah vai, é?
+— Ah, vai, é?
 
 — Vou declarar guerra contra os Buldar.
 
 Nynestra forçou um curto sorriso, confusa com o que a soberana dissera.
 
-— Vou dar palco a eles. E você irá me atacar.
+— Vou dar palco a eles — continuou Kaelina. — E você irá me atacar.
 
 — Do que está falando?
 
@@ -666,7 +668,7 @@ Kaelina não respondeu de imediato.
 
 — Quero que eles vejam o que não vão acreditar só ouvindo.
 
-Nynestra soltou um riso baixo, sem humor e baixou os olhos para a própria coxa ferida. O sangue já escorria menos, escuro sob os dedos. Depois olhou para Kaelina como se tentasse decidir se havia ali coragem, cálculo ou uma idiotice nobre demais para durar.
+Nynestra soltou um riso baixo, sem humor, e baixou os olhos para a própria coxa ferida. O sangue já escorria menos, escuro sob os dedos. Depois olhou para Kaelina como se tentasse decidir se havia ali coragem, cálculo ou uma idiotice nobre demais para durar.
 
 — Termine a frase, Polar. Antes que eu me arrependa de estar entendendo.
 
@@ -696,7 +698,7 @@ Nynestra aproximou-se das barras.
 
 — Quando eu ferir você… quer que seja onde?
 
-Aos poucos, levou a mão até a lateral do próprio corpo, abaixo das costelas, onde sangue apareceria depressa e morte poderia ser evitada se a lâmina obedecesse.
+Aos poucos, Kaelina levou a mão até a lateral do próprio corpo, abaixo das costelas, onde sangue apareceria depressa e morte poderia ser evitada se a lâmina obedecesse.
 
 Nynestra acompanhou o gesto e virou o rosto para a parede. Quando falou de novo, a voz veio mais baixa.
 

@@ -1,6 +1,6 @@
 Alyra leu a mensagem duas vezes enquanto o informante esperava de cabeça baixa. Os Homens das Areias haviam concluído a missão: os Fendelar estavam mortos, e os homens tinham retornado sem deixar rastros suficientes para serem seguidos.
 
-Rumores corriam por mercados, travessias e acampamentos: Kaendar teria enviado homens sem brasão para destruir Velarim; a trégua com os Tondrar teria servido apenas para matá-los sob uma lei Polar. A versão de Alyra, segundo a qual os Tondrar haviam envenenado Yvenn sob pão e sal, mal aparecia nos relatos. Alyra dobrou a tira de pele e a pousou sobre a mesa.
+Rumores corriam por mercados, travessias e acampamentos. Kaendar teria enviado homens sem brasão para destruir Velarim, e a trégua com os Tondrar teria servido apenas para matá-los sob uma lei Polar. A versão de Alyra, segundo a qual os Tondrar haviam envenenado Yvenn sob pão e sal, mal aparecia nos relatos. Alyra dobrou a tira de pele e a pousou sobre a mesa.
 
 — Saia.
 
@@ -22,7 +22,7 @@ O soldado empalideceu.
 
 — Agora, minha soberana.
 
-Enquanto esperava Daryon, Alyra observou Kaendar pela janela. Dos mercados, os boatos já alcançavam as rotas de comércio e os acampamentos.
+Enquanto esperava Daryon, Alyra observou Kaendar pela janela, onde os boatos dos mercados já alcançavam as rotas de comércio.
 
 Daryon chegou pouco depois, sem demonstrar pressa.
 
@@ -42,7 +42,7 @@ Alyra riu pelo nariz.
 
 — É isso?
 
-— É o começo da resposta, não a resposta inteira — Daryon dobrou a mensagem com calma — Se eles espalham que o ataque foi orquestrado por nós, é porque precisam que os outros clãs olhem para Kaendar antes de olharem para o próprio sangue derramado.
+— É o começo da resposta, não a resposta inteira — disse Daryon, dobrando a mensagem com calma. — Se eles espalham que o ataque foi orquestrado por nós, é porque precisam que os outros clãs olhem para Kaendar antes de olharem para o próprio sangue derramado.
 
 — Os Tondrar envenenaram um Polar. Por que ninguém fala disso?
 
@@ -108,7 +108,7 @@ Daryon deixou os dedos subirem até o ombro dela.
 
 — Deixe que falem por enquanto. Rumor também cansa. Se atacarmos toda boca que nos acusa, daremos dentes às acusações.
 
-Alyra olhou para a mão dele, depois para o rosto. E então com um gesto seco, afastou a mão dele.
+Alyra olhou para a mão dele, depois para o rosto. Então, com um gesto seco, afastou-a.
 
 — Hoje não, Daryon.
 
@@ -194,15 +194,15 @@ Alyra caminhou até as câmaras de banho do anel alto, de pedra clara, bacias la
 
 — Feche — disse ela.
 
-Ele fechou. A tranca estalou quando a porta se fechou. Alyra caminhou até a borda da bacia. A água soltava vapor lento, perfumado com ervas amargas. Tirou o manto dos ombros e o deixou cair sobre um banco de pedra. Kadrir manteve os olhos baixos e Alyra reparou.
+Ele fechou. A tranca estalou. Alyra caminhou até a borda da bacia. A água soltava vapor lento, perfumado com ervas amargas. Tirou o manto dos ombros e o deixou cair sobre um banco de pedra. Kadrir manteve os olhos baixos, e Alyra reparou.
 
 — Está com medo de olhar para mim?
 
-Ele não respondeu, apenas manteve os olhos baixos. Alyra virou-se para ele.
+Ele não respondeu. Alyra virou-se para ele.
 
 — Tire a armadura.
 
-Kadrir ergueu os olhos por um instante. Muito rapidamente, depois voltou a baixá-los.
+Kadrir ergueu os olhos por um instante, muito rápido, e voltou a baixá-los.
 
 — Minha soberana?
 
@@ -394,7 +394,7 @@ Kadrir levantou-se, recolheu a espada e parte da armadura sem erguer o rosto. Al
 
 — E feche do lado de fora.
 
-Cal Kadrir passou por Kaelina sem encará-la. A porta se fechou e as duas ficaram sozinhas. O vapor da água continuava subindo, como se nada tivesse acontecido. Kaelina foi a primeira a falar.
+Cal Kadrir passou por Kaelina sem encará-la. A porta se fechou e as duas ficaram sozinhas. O vapor continuava subindo, como se nada tivesse acontecido. Kaelina foi a primeira a falar.
 
 — Você gostou, não é?
 

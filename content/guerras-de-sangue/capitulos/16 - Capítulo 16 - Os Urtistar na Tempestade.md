@@ -2,7 +2,7 @@ Os Tondrar comemoravam como se Alestir tivesse sido Kaendar.
 
 Estavam em terras Buldar, longe da Boca Seca. Homens Tondrar de cabeça raspada e rosto pintado batiam lâminas em escudos, pés no chão e ossos uns nos outros ao redor das fogueiras. Celebravam o fato de os Polar terem provado perda.
 
-Os Buldar observavam com desconforto. Alguns jovens Ceifadores de Campo partilhavam a satisfação; outros mantinham as mãos perto das facas e os olhos nos depósitos de grão, raiz vermelha, pão e carne salgada. Aliança não fazia ninguém esquecer a fome Tondrar.
+Os Buldar observavam com desconforto. Alguns jovens Ceifadores de Campo partilhavam a satisfação, outros mantinham as mãos perto das facas e os olhos nos depósitos de grão, raiz vermelha, pão e carne salgada. Aliança não fazia ninguém esquecer a fome Tondrar.
 
 Os Glydar tinham vindo em menor número, com lanças de pesca, facas curvas, cordas, redes e bolsas impermeáveis de zírrio seco e raiz de margem. Longe do rio, pareciam deslocados.
 
@@ -40,7 +40,7 @@ Rendar caminhou até uma das fogueiras e chutou um pedaço de madeira ardida par
 
 — A vitória foi sobre o estômago deles.
 
-Nynestra olhou para os grãos espalhados sobre a mesa.
+Nynestra olhou para os grãos espalhados sobre a mesa. Rendar seguiu o olhar dela.
 
 — Sacos de grão-de-caule. Farinha escura. Raiz amarela seca. Zírrio de depósito. Carne salgada. Conserva. Barris de flor-de-sal. Mantimento guardado para travessia, cerco e estação ruim. Tudo aquilo queimou. Aquilo não irá virar discurso. Aquilo vira falta, vira contagem, vira homens dividindo água fervida, fiscal escondendo barril. Vira divisão.
 
@@ -98,7 +98,7 @@ Torgun olhou para ele. O homem baixou os olhos. Nynestra ignorou ambos.
 
 — A passagem noroeste seria fundamental. Com os Cendar, poderíamos mover grão, armas e mensageiros por pântanos que as vigias antigas conhecem mal. Crostas-de-pântano, agulhas-de-lodo e mantas-de-água tornam aquelas rotas quase inúteis sem guia.
 
-— O essencial é caro — disse Ossar.
+— Fundamental é caro — disse Ossar.
 
 — Tudo é caro — respondeu Nynestra. — A diferença é saber se pagamos em grão antes ou em filhos depois.
 
@@ -164,7 +164,7 @@ Um sorriso curto passou por alguns rostos, mas não ficou. Torgun encarou Nynest
 
 — Buldar fala como celeiro com pernas.
 
-— E Tondrar fala fingindo como tambor barulhento.
+— E Tondrar fala como tambor barulhento.
 
 Torgun inclinou a cabeça. Por um instante, pareceu que riria. Não riu. Rendar interveio.
 
@@ -206,7 +206,7 @@ Ossar ficou em silêncio. Atrás dele, os Glydar pareciam menores sob o céu pes
 
 Ninguém comemorou mais naquela noite.
 
-Os tambores não voltaram. Tondrar afiaram lâminas; Buldar conferiram ração, ligaduras, pão e Sacos de Três Dias; Glydar repartiram zírrio seco. Rendar permaneceu sobre o mapa.
+Os tambores não voltaram. Os Tondrar afiaram lâminas, os Buldar conferiram ração, ligaduras, pão e Sacos de Três Dias, os Glydar repartiram zírrio seco. Rendar permaneceu sobre o mapa.
 
 Dois dias depois, nuvens baixas cobriam Jesed. O grupo avançava pelos arredores de Mirval, no caminho da garganta, entre pedra escura, barro duro e marcas de passagem que os Tondrar reconheciam sem esforço.
 
@@ -216,7 +216,7 @@ Torgun seguia a pé, dizendo que montado não ouvia o chão direito. Carregava u
 
 Com eles iam quatro Tondrar, três Buldar, dois homens Glydar e uma mulher Glydar chamada Vessa, de tranças grossas presas por argolas de osso de peixe e uma rede curta enrolada no ombro. Poucos o bastante para não parecer marcha.
 
-Um pequeno grupo de Urtistar esperava junto a um abrigo de rota. Mantas secavam sob couro; uma panela de carne salgada, gordura e raiz amarga permanecia quente; duas pessoas desarmadas cuidavam dos animais e repartiam comida. A rota era vivida, não apenas vigiada.
+Um pequeno grupo de Urtistar esperava junto a um abrigo de rota. Mantas secavam sob couro, uma panela de carne salgada, gordura e raiz amarga permanecia quente, e duas pessoas desarmadas cuidavam dos animais e repartiam comida. A rota era vivida, não apenas vigiada.
 
 Uma mulher de cabelos muito longos carregava três lâminas de madeira envolvidas em tecido oleado. Guerreiros abriram espaço para ela, e ninguém tocou nas tábuas: as portadoras dos escritos sagrados não precisavam de armas para serem obedecidas.
 
@@ -318,11 +318,11 @@ A mão de Torgun desceu um pouco. Nynestra deu um passo entre os dois.
 
 — Depois.
 
-A garoa caiu por quase uma hora e o chão ficou escorregadio. Para uma Buldar, aquela chuva deveria significar canais cheios e campos salvos; ali, longe das terras, parecia um presente entregue no lugar errado.
+A garoa caiu por quase uma hora e o chão ficou escorregadio. Para uma Buldar, aquela chuva deveria significar canais cheios e campos salvos. Ali, longe das terras, parecia um presente entregue no lugar errado.
 
 Os Urtistar mantinham-se espalhados em pontos de observação. Vessa, a Glydar, aproximou-se de Nynestra.
 
-— Chuva perto da boca seca… não é bom sinal.
+— Chuva perto da Boca Seca… não é bom sinal.
 
 Nynestra olhou para ela.
 
@@ -334,7 +334,7 @@ Vessa passou a língua pelos lábios.
 
 Nynestra quase sorriu.
 
-— Guarde o medo. E o use na hora certa.
+— Guarde o medo e use-o na hora certa.
 
 Um dos harruns presos mais abaixo parou de beber a água acumulada na própria pelagem. Ergueu a cabeça de uma vez e ficou imóvel, voltado para a curva superior do caminho. O Urtistar mais próximo percebeu antes de Nynestra. Levantou dois dedos.
 
@@ -362,7 +362,7 @@ Um Buldar ergueu a lança e recebeu uma lâmina curta pela axila. Atrás dele, u
 
 Torgun aparou um golpe e abriu a barriga do atacante. Outro Urtistar veio pela lateral. Nynestra desviou de uma faca, sentiu a lâmina raspar-lhe a costela e enterrou a própria arma sob a mandíbula do homem. Um segundo golpe abriu seu ombro. Ela caiu, jogou lama no rosto do atacante e cortou-lhe a parte interna da coxa antes de se levantar.
 
-Ao redor, a emboscada desmanchava o grupo. Um Tondrar caiu junto à carroça; um Glydar morreu antes de puxar a rede; Vessa atravessou um atacante com a lança e foi atingida por trás.
+Ao redor, a emboscada desmanchava o grupo. Um Tondrar caiu junto à carroça, um Glydar morreu antes de puxar a rede, Vessa atravessou um atacante com a lança e foi atingida por trás.
 
 Kahul movia-se no centro sem gritar. Cortou um Buldar no pescoço e, com um segundo golpe, separou-lhe a cabeça. Nynestra viu. Kahul também.
 
@@ -374,13 +374,13 @@ Uma lâmina atingiu as costas de Torgun e o fez dobrar um joelho. Ele derrubou o
 
 — Eu sei correr, Buldar!
 
-Correram lado a lado; parar era morrer.
+Correram lado a lado. Parar era morrer.
 
-A garoa virou chuva densa. Nynestra escorregou e bateu o joelho numa pedra; Torgun puxou-a pelo manto antes que uma lâmina passasse onde sua cabeça estivera.
+A garoa virou chuva densa. Nynestra escorregou e bateu o joelho numa pedra. Torgun puxou-a pelo manto antes que uma lâmina passasse onde sua cabeça estivera.
 
-Ela girou e cortou o braço do perseguidor. Não fundo. O homem hesitou. Torgun terminou o serviço, golpeando-lhe o peito com força suficiente para derrubá-lo de costas. Nynestra já não sabia quantos estavam atrás.
+Ela girou e cortou o braço do perseguidor. Não fundo. O homem hesitou. Torgun terminou o serviço, golpeando-lhe o peito com força suficiente para derrubá-lo de costas.
 
-Nynestra não sabia se eram três ou quatro. Havia mais perseguidores do que os avistados na chegada; deviam estar escondidos.
+Nynestra não sabia se eram três ou quatro. Havia mais perseguidores do que os avistados na chegada, escondidos até então.
 
 Correram entre rochas baixas, arbustos de caule-gordo e fendas onde a água desaparecia depressa demais, por uma rota que Torgun parecia conhecer mesmo ferido. Só ouviam respiração, chuva, metal, barro, trovão e o próprio sangue batendo nos ouvidos. Uma flecha passou por eles e bateu na pedra adiante.
 
@@ -391,7 +391,7 @@ Os dois se jogaram no barro. Outra flecha cortou a chuva acima. Torgun rolou, pu
 Um Urtistar surgiu pela lateral. Os dois caíram, e a faca dele entrou fundo na coxa de Nynestra. Ela o atingiu no rosto e golpeou com a própria lâmina até conseguir se levantar. A perna quase falhou, mas continuou correndo.
 
 Então viram a Boca Seca. Primeiro os crânios.
-Fileiras irregulares pendiam nas muralhas de bambu grosso, barro endurecido e troncos enegrecidos de resina. O vento da tempestade batia neles, fazendo-os conversar em estalos secos. Tec. Tec. Tec. Tec. Atrás, as muralhas surgiam como dentes escuros. O primeiro portão estava distante, mas visível. O corredor estreito entre os portões ainda escondido por fumaça baixa e sombra. Khar-Tondr parecia acordar dentro da chuva.
+Fileiras irregulares pendiam nas muralhas de bambu grosso, barro endurecido e troncos enegrecidos de resina. O vento da tempestade batia neles, fazendo-os conversar em estalos secos. Tec. Tec. Tec. Tec. Atrás, as muralhas surgiam como dentes escuros. O primeiro portão estava distante, mas visível. O corredor estreito entre os portões ainda ficava escondido por fumaça baixa e sombra. Khar-Tondr parecia acordar dentro da chuva.
 
 Torgun respirou fundo.
 
@@ -411,7 +411,7 @@ A chuva misturava tinta e sangue no rosto de Torgun. Nynestra tocou o barro ao l
 
 Vieram quatro, depois oito, depois mais Tondrar armados.
 
-Eles viram Torgun. Depois viram Nynestra. Uma mulher Buldar ajoelhada ao lado dele coberta de sangue com uma faca na mão. Um dos Tondrar ergueu a lança. Outro rosnou algo que ela não entendeu.
+Eles viram Torgun. Depois, uma mulher Buldar ajoelhada ao lado dele, coberta de sangue, com uma faca na mão. Um dos Tondrar ergueu a lança. Outro rosnou algo que ela não entendeu.
 
 Nynestra tentou levantar-se, mas a perna ferida não deixou. Então soltou a faca no barro. Devagar, muito devagar, e ergueu as duas mãos.
 

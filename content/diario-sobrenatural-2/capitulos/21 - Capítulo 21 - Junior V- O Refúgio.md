@@ -1,10 +1,10 @@
-O barulho do trinco ainda parecia vibrar na madeira quando eu dei o primeiro passo para dentro. A porta fechou atrás de mim com força. O ar ali dentro era mais quente do que a rua e, ao mesmo tempo, mais frio em algum lugar que não era a pele, um frio que vinha da sensação de estar cercado por gente em silêncio.
+A porta da igreja bateu atrás de mim e levei um susto. Quase pedi para a mulher abrir de novo, só para ter certeza de que ainda conseguia sair. Lá fora, os sons dos carniceiros continuavam. Desisti da ideia.
 
-Havia homens e mulheres em bancos de madeira, velhos com mãos unidas como se segurassem a própria vida, e alguns contáveis jovens apertando terços como se a conta seguinte fosse a diferença entre estar vivo e estar errado. Alguns estavam de pé junto às colunas, outros sentados no chão perto das paredes. Os rostos se viravam para mim e para a mulher ao meu lado.
+Havia umas dezenas de pessoas lá dentro. Algumas estavam sentadas nos bancos, outras se apertavam perto das colunas. Vi um homem agarrado a um terço e duas crianças escondidas atrás da saia de uma senhora. Quando entrei, quase todos viraram para me olhar.
 
-A mulher que me puxara para dentro não largou o meu braço imediatamente. Ela parecia precisar de dois ou três segundos para se convencer de que eu tinha mesmo atravessado a soleira. Quando finalmente soltou, deu um passo para trás, ainda olhando para mim com aquela pressa contida de quem já viu a mesma noite acontecer muitas vezes.
+A mulher que me puxara para dentro ainda segurava o meu braço. Só me soltou depois de conferir se a porta estava bem fechada. Não sabia o nome dela, nem o que pretendia fazer comigo, mas naquele momento era a pessoa de quem eu mais gostava naquela cidade.
 
-Alguém sussurrou alguma coisa. Eu não peguei as palavras, só o efeito: cabeças se inclinando, um murmúrio passando de banco em banco. Uma criança espiou por entre as pernas de um adulto e foi puxada de volta para trás, como se me olhar fosse perigoso.
+Alguém cochichou no fundo. Uma das crianças tentou espiar por trás de um banco e a mãe a puxou de volta. Fiquei tentado a perguntar se eu tinha alguma coisa na cara. Depois de tudo o que tinha visto do lado de fora, preferi não brincar.
 
 — Ele entrou comigo — disse ela, o que soou mais como defesa do que explicação.
 
@@ -12,19 +12,19 @@ Do fundo, uma voz respondeu, áspera, mais cansada do que agressiva.
 
 — Não costumamos ter gente de fora, Lídia. 
 
-Não vi quem falou, porque eu estava processando o interior: velas em vez de lâmpadas, apesar de ser um lugar que claramente tinha fios e tomadas; panos cobrindo parte dos vitrais; e uma sensação de que tudo ali dentro tinha sido reorganizado para sobreviver, não para rezar.
+Olhei em volta. Havia lâmpadas no teto, mas ninguém as acendera. Só velas. Alguns vitrais estavam cobertos por panos escuros. Se aquilo era uma igreja, nunca tinha visto uma em que as pessoas parecessem ter mais medo do lado de dentro do que de Deus.
 
 A mulher que me trouxe, chamada Lídia, virou um pouco o rosto para a voz, mas não respondeu. 
 
-— Ele está vivo — disse Lídia — foi trazido para Alvorada para ser salvo. 
+— Ele está vivo — disse Lídia. — Foi trazido para Alvorada para ser salvo. 
 
-Ela virou o olhar para mim, quase como se eu fosse um objeto trazido para dentro sem a certeza de que era seguro.
+Ela me examinou por um instante, ainda sem decidir se fizera bem em me trazer.
 
-Eu tentei falar, mas a minha garganta estava seca. Era o cheiro. Ali dentro, por baixo do incenso barato, havia um odor de roupa guardada, madeira úmida e um traço de ferro.
+Tentei falar. O cheiro de incenso era forte e se misturava ao de roupa guardada e madeira úmida. Minha garganta estava tão seca que mal consegui começar.
 
 — Eu… — comecei, e parei. O que eu ia dizer? Que eu estava perdido? Que tinha acabado de ver pessoas virarem defuntos?
 
-Eu senti o peso dos olhos em mim e tive a impressão de que, se eu escolhesse a frase errada, poderia ser expulso para fora. Para junto dos carniceiros.
+Tinha tanta gente me encarando que fiquei nervoso. E se resolvessem me pôr para fora? Eu não sobreviveria nem cinco minutos com aquelas criaturas na rua.
 
 — Venha cá rapaz — disse a voz mais uma vez. Pertencia a uma mulher com um véu negro sentada num banco mais à frente, as mãos pousadas no colo, o rosto voltado para mim. — Apenas quem espera a salvação entra nessa casa. 
 
@@ -48,7 +48,7 @@ A mulher cega inclinou a cabeça para a direção dele, com paciência dura.
 
 — Qual é o teu nome? — perguntou a mulher cega, por fim.
 
-Eu hesitei. Dizer meu nome sempre foi uma coisa simples. Só que naquele lugar eu sentia que nomear era entregar alguma coisa.
+Hesitei. No meu bairro, dizer o próprio nome nunca foi perigoso. Ali, eu já não tinha tanta certeza.
 
 — Junior.
 
@@ -68,19 +68,19 @@ Contei, sem ter decidido contar, as pessoas entre mim e a porta. Onze. Duas eram
 
 O banco atrás rangeu e me virei. Lídia ficou rígida; o nome da garota parecia ter algum peso.
 
-— Tem a certeza que ela entrou contigo? — ela perguntou, tranquila.
+— Tem certeza de que ela entrou com você? — ela perguntou, tranquila.
 
 Eu ia dizer sim. Mas a verdade é que eu só lembrava dela correndo, do portão, da rua abrindo como armadilha. A minha memória parecia um filme com partes cortadas. Eu senti raiva disso.
 
 — Eu… eu estava com ela — eu disse, e a frase saiu menos firme do que eu queria.
 
-— Então ela está cá — disse a mulher cega. — Se estiver viva.
+— Então ela está aqui — disse a mulher cega. — Se estiver viva.
 
 O jeito como ela colocou “se” no fim fez uma tensão subir pelo meu estômago.
 
 Do lado de fora, comecei a ouvir ruídos esquisitos. A igreja inteira sentiu. O som atravessava a madeira e entrava pelo chão, como se algo se arrastasse e tocasse as paredes, rodeando o prédio.
 
-Um estalo seco soou lá fora. Depois outro. E então um ruído úmido, como mastigação. O som não era alto. Era íntimo. Como alguém comendo perto demais do teu ouvido.
+Um estalo seco soou lá fora. Depois outro. E então um ruído úmido, como mastigação. O som não era alto. Era íntimo. Como alguém comendo perto demais do seu ouvido.
 
 Lídia apertou o banco, e eu vi lágrimas nos olhos dela, não de emoção religiosa, mas de pavor contido. 
 
@@ -102,7 +102,7 @@ A mulher cega não respondeu de imediato. Antes, uma mulher sentada perto da col
 
 — Quando o corpo vai — completou outro, mais atrás — e a vontade fica.
 
-Não havia dramatização. Ninguém parecia tentar me assustar. Aquilo era dito como se fosse um dado geográfico, uma informação prática, do tipo que se aprende para não errar o caminho.
+Ninguém parecia tentar me assustar. Falavam daquilo com a familiaridade de quem ensina qual rua evitar à noite.
 
 — Fica tranquilo, rapaz — disse um homem mais velho, sentado à esquerda, as mãos entrelaçadas com força demais. — Aqui dentro estamos seguros.
 
@@ -114,7 +114,7 @@ A mulher cega passou o polegar lentamente sobre o dorso da própria mão, num ge
 
 Pessoas desviaram o olhar. Um homem se levantou depressa demais e foi até a porta lateral, a empurrando com a mão como se precisasse confirmar algo físico. Alguém fez um sinal que não era o da cruz — os dedos desenharam um gesto estranho no ar e depois tocaram o peito.
 
-— Não sabemos exatamente o que ele é — continuou mulhendo cega, com a mesma precisão contida. — Só sabemos o que ela faz.
+— Não sabemos exatamente o que ele é — continuou a mulher cega, com a mesma precisão contida. — Só sabemos o que ele faz.
 
 — Alvorada sempre teve histórias — murmurou uma mulher mais velha. — Lendas que ninguém levava a sério.
 
@@ -138,7 +138,7 @@ A mulher cega inclinou ligeiramente a cabeça, e quando falou, não houve hesita
 
 — Ilusões — corrigiu alguém.
 
-— O demônio usa essas formas — continuou mulhendo cega — para tentar nos atrair. 
+— O demônio usa essas formas — continuou a mulher cega — para tentar nos atrair. 
 
 — Então… tudo aquilo era uma ilusão? Todas aquelas pessoas estão… 
 
@@ -146,15 +146,15 @@ A mulher cega inclinou ligeiramente a cabeça, e quando falou, não houve hesita
 
 — Há pelo menos um ano — acrescentou outra voz, firme.
 
-— Porque eles não deixam Alvorada. O demônio da morte não os deixa descansar. — disse a mulher cega — ao menos temos ela para nos proteger. 
+— Porque não conseguem sair de Alvorada. O demônio da morte não os deixa descansar — disse a mulher cega. — Ao menos temos a Mãe para nos proteger. 
 
 — Ela?
 
 — A Mãe — disseram vários, quase em uníssono.
 
-— Ela nos protege à noite — continuou mulhendo cega. — Enquanto estamos aqui dentro. Enquanto obedecemos. Estamos seguros. 
+— Ela nos protege à noite — continuou a mulher cega. — Enquanto estamos aqui dentro. Enquanto obedecemos. Estamos seguros. 
 
-— O quê? Estão dizendo que seguem a vontade de uma tal mãe? — perguntei. 
+— O quê? Estão dizendo que seguem a vontade de uma tal Mãe? — perguntei. 
 
 Ela virou o rosto na minha direção. Eu tive a impressão estranha de que, se os olhos dela funcionassem, estariam cravados em mim com atenção cirúrgica.
 
@@ -188,7 +188,7 @@ Me aproximei com cuidado, sentindo que aquele gesto tinha peso demais para ser c
 
 Abri o livro.
 
-As primeiras páginas confirmaram a suspeita inicial: tinha sido uma bíblia. Agora, não mais. As margens estavam tomadas por anotações feitas à mão, em caligrafias diferentes, algumas apressadas, quase desesperadas, outras lentas, meticulosas. Versículos sublinhados, riscados, reordenados. Passagens inteiras reescritas, com palavras substituídas por sinónimos mais duros, mais práticos.
+As primeiras páginas confirmaram a suspeita inicial: tinha sido uma bíblia. Agora, não mais. As margens estavam tomadas por anotações feitas à mão, em caligrafias diferentes, algumas apressadas, quase desesperadas, outras lentas, meticulosas. Versículos sublinhados, riscados, reordenados. Passagens inteiras reescritas, com palavras substituídas por sinônimos mais duros, mais práticos.
 
 Folheei mais algumas páginas até encontrar algo que destoava do resto: folhas soltas presas com barbante, enfiadas no meio do volume como um enxerto. O papel era mais recente. Havia desenhos.
 
@@ -274,7 +274,7 @@ Lídia olhou para o corpo sendo levado e depois para mim, como se estivesse esco
 
 — O que “más intenções” significa? — perguntei. 
 
-— Significa que ela tentou quebrar nossa proteção e nos expor — explicou Lídia — O que é estranho… isso nunca aconteceu antes dentro da igreja. Qualquer um que tentasse romper nossa proteção, pereceria à entrada. Nunca conseguiria entrar. 
+— Significa que ela tentou quebrar nossa proteção e nos expor — explicou Lídia. — O estranho é que isso nunca aconteceu antes dentro da igreja. Qualquer um que tentasse romper nossa proteção, pereceria à entrada. Nunca conseguiria entrar. 
 
 Eu quase disse “como?”. Quase disse “porquê?”. Mas as perguntas morriam antes de virar som, porque Lucinda chamou o meu nome. 
 
@@ -284,7 +284,7 @@ Ela inclinou o rosto ligeiramente na minha direção como se pudesse me ver ali.
 
 — O nosso tempo está se encerrando — disse ela. — A Mãe tem avisado.
 
-“Mãe.” A palavra soou errada na minha cabeça. Mãe era Adriana. Mãe era casa. Mãe era alguém que te acorda para ir à escola e te pergunta se comeu bem. “Mãe” aqui era outra coisa. Era uma crença.
+«Mãe.» A palavra me incomodou. Minha mãe era Adriana, que deixava café pronto quando saía cedo e ficava furiosa se eu não avisasse onde estava. Naquele momento, provavelmente procurava por mim. Devia ter ligado para a polícia. Eu a imaginei diante da porta de casa, esperando ouvir o motor do carro. E aquelas pessoas falavam de outra «Mãe» como se fosse uma pessoa que merecesse confiança.
 
 — Aquela mulher… não devia conseguir entrar — continuou Lucinda, com a mesma serenidade de quem fala de chuva. — As proteções estão mais fracas. Há fendas. Há lugares por onde o que é de fora começa a vazar para dentro.
 
@@ -322,11 +322,9 @@ O meu corpo reagiu antes do meu pensamento. Um frio atravessou a coluna. Manu. E
 
 — O que é que você quer comigo? — eu perguntei, e o meu tom saiu mais firme do que eu me sentia por dentro.
 
-— Quero que a encontre.
+— Quero que a encontre — disse Lucinda. — Foi você quem chegou com ela. Só você consegue achá-la.
 
-— Porque foi você quem chegou com ela. Só você consegue achá-la.
-
-Era uma lógica absurda, mas aqui tudo funcionava assim: regras invisíveis mascaradas de fé. Eu quis rir de nervoso e não consegui.
+Aquilo não fazia o menor sentido. Eu queria discutir, exigir explicações, perguntar quem tinha inventado aquelas regras. Mas, se o pessoal acreditava nelas para sobreviver, talvez não fosse uma boa hora para brigar.
 
 — As forças lá fora estão mais fortes — ela continuou. — Não há tempo. A garota é a chave. Ela é nossa única chance.
 
@@ -348,4 +346,4 @@ E, no fundo, eu já sabia: se eu ficasse ali, eu ia enlouquecer. Se eu saísse, 
 
 A escola. Sexto andar. Sala 66.
 
-O tipo de endereço que não parece localização. Parece sentença.
+Não sabia o que me esperava na sala 66. E, sinceramente, não tinha certeza de que queria descobrir.

@@ -2,7 +2,7 @@ Antes de a maca de Yvenn deixar o pátio, três escribas tocaram a testa, o peit
 
 Yvenn seguia sobre uma maca de madeira escura, coberto por tecido vermelho profundo. Sobre o peito havia uma peça de osso polido, flor-de-sal e uma faixa com a Raiz bordada à maneira antiga. O rosto permanecia descoberto, como exigia a honra aos que morriam sob palavra pública.
 
-A procissão desceu pelos anéis em silêncio. Guardas de lanças invertidas abriam caminho; os Portadores da Raiz conduziam o rito. Depois vinha o corpo, seguido pelas soberanas, mais afastadas uma da outra do que a cerimônia exigia.
+A procissão desceu pelos anéis em silêncio. Guardas de lanças invertidas abriam caminho, e os Portadores da Raiz conduziam o rito. Depois vinha o corpo, seguido pelas soberanas, mais afastadas uma da outra do que a cerimônia exigia.
 
 Kaelina mantinha os olhos baixos. Os murmúrios já tinham chegado a seus aposentos: Yvenn envenenado, Tondrar traidores, Kaelina falhou. Alyra, ao contrário, olhava para o povo e aceitava a fúria sem se esconder.
 
@@ -58,7 +58,9 @@ Um homem ao lado tocou-lhe o braço, assustado.
 
 — Cuidado com a boca.
 
-A mulher empalideceu. Naquele mesmo dia, o Conselho começou a reunião sem Kaelina.
+A mulher empalideceu.
+
+Naquele mesmo dia, o Conselho começou a reunião sem Kaelina.
 
 Maelis registrou a abertura “por urgência de cidade, sem prejuízo da soberania ausente”.
 
@@ -78,7 +80,7 @@ Edran olhou para a marca no ombro dele. Depois para a têmpora esquerda, onde um
 
 — Sim.
 
-— E quem é você homem?
+— E quem é você, homem?
 
 — Cal Kadrir. Novo protetor das soberanas.
 
@@ -108,7 +110,7 @@ Edran saiu. Kaelina passou os dois dias seguintes nos aposentos, recebendo relat
 
 No terceiro dia, Iressa Mão-de-Sal entrou sem esperar ser anunciada. Isso, por si só, já dizia muito.
 
-Ela trazia uma tigela pequena nas mãos, coberta com pano claro. O cheiro veio antes da explicação: caldo grosso, flor-de-sal, raiz amassada e zírrio seco desfeito em lascas pequenas, comida de vigia, de soldado, de viúva, de gente que precisava continuar de pé mesmo quando o corpo pedia chão.
+Ela trazia uma tigela pequena nas mãos, coberta com pano claro. O cheiro veio antes da explicação: caldo grosso, flor-de-sal, raiz amassada e zírrio seco desfeito em lascas, comida de vigia, de soldado, de viúva, de gente que precisava continuar de pé mesmo quando o corpo pedia chão.
 
 — Trouxe isto — disse Iressa.
 
@@ -334,7 +336,7 @@ Uma mulher saiu de uma porta com as mãos brancas de farinha. Um homem surgiu do
 
 — Pelas raízes...
 
-Os adultos se curvaram depressa. A mulher da farinha tocou testa, peito e batente; o homem da ferramenta errou a ordem de nervoso, e uma criança, ao imitá-lo, acabou com poeira no nariz.
+Os adultos se curvaram depressa. A mulher da farinha tocou testa, peito e batente. O homem da ferramenta errou a ordem de nervoso, e uma criança, ao imitá-lo, acabou com poeira no nariz.
 
 — Minha soberana — disse o homem. — Perdoe-os. São crianças. Não sabiam...
 
@@ -392,7 +394,7 @@ Nos anéis altos, chamavam aquele lugar de Galeria da Permanência. Nos anéis b
 
 Kaelina caminhou entre as relíquias até o fim do corredor.
 
-Uma escadaria estreita descia ainda mais. Orionus a levara ali uma única vez quando criança, dizendo que algumas memórias não deviam ficar perto demais dos tronos.
+Uma escadaria estreita descia ainda mais. Orionus a levara ali uma única vez, quando ela era criança, dizendo que algumas memórias não deviam ficar perto demais dos tronos.
 
 A escadaria terminava numa câmara circular, escavada na pedra antiga de Kaendar. Não era grande como os salões de cerimônia, nem rica como as histórias faziam parecer.
 
@@ -450,7 +452,7 @@ O homem de preto lançou uma segunda lâmina, escondida até então na outra mã
 
 O jovem puxou a lâmina e o assassino caiu.
 
-Kaelina tentou levantar-se, mas o corpo não obedeceu de imediato. O susto ainda a mantinha presa ao chão. O jovem virou-se para ela. Pareceu prestes a aproximar-se, mas parou, como se se lembrasse de que salvar uma soberana não lhe dava direito de tocá-la.
+Kaelina tentou levantar-se, mas o corpo não obedeceu de imediato. O jovem virou-se para ela. Pareceu prestes a aproximar-se, mas parou, como se lembrasse que salvar uma soberana não lhe dava direito de tocá-la.
 
 — Está ferida — disse ele.
 
@@ -462,7 +464,7 @@ Antes que ele respondesse, passos começaram a ecoar pelo túnel. Vinham de vár
 
 Daryon Polar apareceu primeiro, acompanhado por dois homens do Conselho e pelos guardas dos túneis. Ao ver a cena, parou. Por um breve instante, o rosto dele falhou.
 
-Kaelina estava de pé com dificuldade, a túnica rasgada e o braço ensanguentado. O homem de preto jazia morto; o jovem ainda segurava a lâmina vermelha.
+Kaelina estava de pé com dificuldade, a túnica rasgada e o braço ensanguentado. O homem de preto jazia morto e o jovem ainda segurava a lâmina vermelha.
 
 — Pelas raízes... — murmurou Daryon.
 
