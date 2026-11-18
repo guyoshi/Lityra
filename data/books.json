@@ -133,6 +133,195 @@
       "order": 2,
       "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/a-mascara-do-contracanto/",
       "cover": "assets/covers/viajantes-dimensionais-2.webp?v=293ff2709ee8978f"
+    },
+    {
+      "id": "a-uniao-2",
+      "title": "Chamas da Noite",
+      "subtitle": "A União — Livro 2",
+      "manifest": "data/a-uniao-2.json",
+      "signupAvailable": false,
+      "series": "A União",
+      "order": 2
+    },
+    {
+      "id": "a-uniao-3",
+      "title": "Nova Era",
+      "subtitle": "A União — Livro 3",
+      "manifest": "data/a-uniao-3.json",
+      "signupAvailable": false,
+      "series": "A União",
+      "order": 3
+    },
+    {
+      "id": "a-uniao-4",
+      "title": "Livro 4",
+      "subtitle": "A União — Livro 4",
+      "manifest": "data/a-uniao-4.json",
+      "signupAvailable": false,
+      "series": "A União",
+      "order": 4
+    },
+    {
+      "id": "coracao-de-poeira",
+      "title": "Coração de Poeira",
+      "subtitle": "Ciclo de Jesed — Livro 5",
+      "manifest": "data/coracao-de-poeira.json",
+      "signupAvailable": false,
+      "series": "Ciclo de Jesed",
+      "order": 5
+    },
+    {
+      "id": "diario-sobrenatural-4",
+      "title": "A Convergência dos Profanos",
+      "subtitle": "Diário Sobrenatural — Livro 4",
+      "manifest": "data/diario-sobrenatural-4.json",
+      "signupAvailable": false,
+      "series": "Diário Sobrenatural",
+      "order": 4
+    },
+    {
+      "id": "diario-sobrenatural-5",
+      "title": "A Travessia dos Evanescentes",
+      "subtitle": "Diário Sobrenatural — Livro 5",
+      "manifest": "data/diario-sobrenatural-5.json",
+      "signupAvailable": false,
+      "series": "Diário Sobrenatural",
+      "order": 5
+    },
+    {
+      "id": "misterio-oculto-2",
+      "title": "Fábula de Fogo",
+      "subtitle": "Mistério Oculto — Livro 2",
+      "manifest": "data/misterio-oculto-2.json",
+      "signupAvailable": false,
+      "series": "Mistério Oculto",
+      "order": 2
+    },
+    {
+      "id": "misterio-oculto-3",
+      "title": "Cidade Crepúsculo",
+      "subtitle": "Mistério Oculto — Livro 3",
+      "manifest": "data/misterio-oculto-3.json",
+      "signupAvailable": false,
+      "series": "Mistério Oculto",
+      "order": 3
+    },
+    {
+      "id": "misterio-oculto-4",
+      "title": "Trilhos do Tempo",
+      "subtitle": "Mistério Oculto — Livro 4",
+      "manifest": "data/misterio-oculto-4.json",
+      "signupAvailable": false,
+      "series": "Mistério Oculto",
+      "order": 4
+    },
+    {
+      "id": "misterio-oculto-5",
+      "title": "Destino Disruptivo",
+      "subtitle": "Mistério Oculto — Livro 5",
+      "manifest": "data/misterio-oculto-5.json",
+      "signupAvailable": false,
+      "series": "Mistério Oculto",
+      "order": 5
+    },
+    {
+      "id": "spacetheft-3",
+      "title": "Livro 3",
+      "subtitle": "Spacetheft — Livro 3",
+      "manifest": "data/spacetheft-3.json",
+      "signupAvailable": false,
+      "series": "Spacetheft",
+      "order": 3
+    },
+    {
+      "id": "spacetheft-4",
+      "title": "Livro 4",
+      "subtitle": "Spacetheft — Livro 4",
+      "manifest": "data/spacetheft-4.json",
+      "signupAvailable": false,
+      "series": "Spacetheft",
+      "order": 4
+    },
+    {
+      "id": "spacetheft-5",
+      "title": "Livro 5",
+      "subtitle": "Spacetheft — Livro 5",
+      "manifest": "data/spacetheft-5.json",
+      "signupAvailable": false,
+      "series": "Spacetheft",
+      "order": 5
+    },
+    {
+      "id": "spacetheft-6",
+      "title": "Livro 6",
+      "subtitle": "Spacetheft — Livro 6",
+      "manifest": "data/spacetheft-6.json",
+      "signupAvailable": false,
+      "series": "Spacetheft",
+      "order": 6
+    },
+    {
+      "id": "viajantes-dimensionais-3",
+      "title": "O Observatório das Estrelas Ocultas",
+      "subtitle": "Viajantes Dimensionais — Livro 3",
+      "manifest": "data/viajantes-dimensionais-3.json",
+      "signupAvailable": false,
+      "series": "Viajantes Dimensionais",
+      "order": 3
+    },
+    {
+      "id": "viajantes-dimensionais-4",
+      "title": "O Solstício Arcano",
+      "subtitle": "Viajantes Dimensionais — Livro 4",
+      "manifest": "data/viajantes-dimensionais-4.json",
+      "signupAvailable": false,
+      "series": "Viajantes Dimensionais",
+      "order": 4
+    },
+    {
+      "id": "viajantes-dimensionais-5",
+      "title": "Livro 5",
+      "subtitle": "Viajantes Dimensionais — Livro 5",
+      "manifest": "data/viajantes-dimensionais-5.json",
+      "signupAvailable": false,
+      "series": "Viajantes Dimensionais",
+      "order": 5
+    },
+    {
+      "id": "viajantes-dimensionais-6",
+      "title": "Livro 6",
+      "subtitle": "Viajantes Dimensionais — Livro 6",
+      "manifest": "data/viajantes-dimensionais-6.json",
+      "signupAvailable": false,
+      "series": "Viajantes Dimensionais",
+      "order": 6
+    },
+    {
+      "id": "edelin-lys-1",
+      "title": "Promessas do Mar",
+      "subtitle": "Édelin Lys — Livro 1",
+      "manifest": "data/edelin-lys-1.json",
+      "signupAvailable": false,
+      "series": "Édelin Lys",
+      "order": 1
+    },
+    {
+      "id": "edelin-lys-2",
+      "title": "Memórias do Fogo",
+      "subtitle": "Édelin Lys — Livro 2",
+      "manifest": "data/edelin-lys-2.json",
+      "signupAvailable": false,
+      "series": "Édelin Lys",
+      "order": 2
+    },
+    {
+      "id": "edelin-lys-3",
+      "title": "Segredos do Gelo",
+      "subtitle": "Édelin Lys — Livro 3",
+      "manifest": "data/edelin-lys-3.json",
+      "signupAvailable": false,
+      "series": "Édelin Lys",
+      "order": 3
     }
   ]
 }
