@@ -432,6 +432,26 @@ Sefter ficou calado. Etrinna era mais cuidadosa do que ele gostaria de admitir e
 
 — Ele sabe tratar gente — continuou ela. — Olhara olhou os preparados que trouxe. Disse que eram bons. Isso compra uma noite e um prato de caldo. Não compra nossa confiança para sempre.
 
+Antes de chegar ao pátio das oficinas, tiveram de parar no acesso dos carregadores. Um vigia conferia as marcas de serviço numa tábua e não deixava ninguém passar pela entrada usada pelas famílias das oficinas. Sefter entregou o recibo do carvão. A autorização de trabalho valera para a manhã, não para entrar de novo ao cair da tarde.
+
+— Seu turno acabou — disse o vigia.
+
+— O pagamento não — respondeu Etrinna, mostrando a conta.
+
+O homem olhou primeiro para ela, depois para os reparos de seu casaco.
+
+— Você não está na lista.
+
+— Estou na conta. Foi meu grupo que trouxe a carga.
+
+— Então espera do lado de fora.
+
+Sefter percebeu dois carregadores parados junto à cerca, ambos com marcas de trabalho penduradas no peito. Um deles segurava o chapéu entre as mãos. Um guarda conferia sua bolsa enquanto o outro escrevia uma cobrança por ter ficado no pátio depois do horário. Etrinna viu também. Não ergueu a voz.
+
+— Se o encarregado corrigir três barris, vamos embora com o que nos deve. Se não corrigir, a carga de amanhã vai ficar esperando enquanto conferimos as quinze entregas. Ele prefere resolver agora.
+
+O vigia ficou olhando o recibo. Mandou um aprendiz buscar o encarregado e, quando recebeu sinal de dentro, permitiu que entrassem pela passagem estreita dos carregadores, sem se afastar das mesas de pagamento. Etrinna pegou de volta o papel, e Sefter teve o cuidado de manter a autorização à vista até ultrapassarem a cerca.
+
 Chegaram ao pátio das oficinas pouco antes de fecharem os depósitos. Ali o ar tinha cheiro de metal úmido, carvão e água aquecida nas caldeiras. Homens e mulheres empurravam carrinhos por cima de tábuas compridas, e uma fila se formava diante da pequena janela onde o encarregado guardava os registros. Sefter reconheceu a plataforma de carga pelo risco claro na borda.
 
 O encarregado estava fechando a caixa quando os viu. Era um homem de barba curta, com o avental marcado por queimaduras antigas e a voz de quem se acostumara a ser atendido antes de terminar de falar.
@@ -502,7 +522,7 @@ Etrinna contou o ferro.
 
 — Também não queremos ter que trazer a mesma conta duas vezes.
 
-Sefter recolheu as peças e agradeceu ao pesador. O rapaz pareceu surpreso por alguém se dirigir a ele. No caminho de saída, o encarregado chamou Sefter pelo casaco.
+Sefter recolheu as peças e agradeceu ao pesador. O rapaz pareceu surpreso por alguém se dirigir a ele. O vigia esperava perto da passagem, atento para que os dois levassem apenas o ferro autorizado e não saíssem da área dos carregadores. No caminho de saída, o encarregado chamou Sefter pelo casaco.
 
 — Amanhã tem mais carga. Se vier, vem sem essa mulher.
 
@@ -510,7 +530,9 @@ Sefter olhou para Etrinna, que já andava em direção ao portão.
 
 — Amanhã ela decide quem vem.
 
-O homem soltou o casaco. Sefter alcançou a líder na curva da estrada. Ela caminhou algum tempo sem falar, até que o ar das oficinas ficou para trás.
+O homem soltou o casaco. Na cerca, o vigia conferiu cada peça antes de permitir a saída. Um trabalhador de túnica limpa atravessou o portão principal sem mostrar nada, conversando com outro sobre a refeição daquela noite. Sefter precisou esperar a contagem terminar.
+
+Alcançou a líder na curva da estrada. Ela caminhou algum tempo sem falar, até que o ar das oficinas ficou para trás.
 
 — Você podia ter dito isso de um jeito menos satisfeito — comentou.
 
