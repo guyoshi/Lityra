@@ -242,7 +242,9 @@ Sefter acompanhou o dedo dela. Uma abertura escura se abria na rocha acima das c
 
 Litara parou para observar, mas não houve outro movimento. Ele a chamou para não se afastarem da estrada.
 
-Na primeira barreira havia duas filas, separadas por uma corda grossa. Uma levava ao portão do mercado, onde famílias entravam mostrando pequenas placas de metal presas às roupas ou aos carros de carga. A outra seguia para uma mesa de madeira e um posto coberto. Sefter entrou na segunda sem hesitar. Um trabalhador de cabelos raspados aguardava com uma criança pela mão, e atrás deles uma mulher carregava uma cesta de roupa suja. Um guarda escrevia marcas numa tábua enquanto o companheiro examinava os braços de quem passava.
+Na primeira barreira havia duas filas, separadas por uma corda grossa. Uma levava ao portão do mercado, onde famílias entravam mostrando pequenas placas de metal presas às roupas ou aos carros de carga. A outra seguia para uma mesa de madeira e um posto coberto. Sefter entrou na segunda sem hesitar, mantendo o recibo da oficina à vista. Sem aquele papel, não poderia passar nem pelo portão dos carregadores. Um trabalhador de cabelos raspados aguardava com uma criança pela mão, e atrás deles uma mulher carregava uma cesta de roupa suja. Um guarda escrevia marcas numa tábua enquanto o companheiro examinava os braços de quem passava. Dois homens que não tinham documento de serviço esperavam separados, junto à cerca, com as bolsas já recolhidas por outro vigia. Um deles perguntava se poderia ao menos avisar à família para onde seria levado. Ninguém lhe respondia.
+
+Litara olhou para os dois homens e chegou mais perto do irmão. Sefter não precisava mandar que ela ficasse quieta. A cidade só tolerava gente como eles enquanto tivesse alguma utilidade para as oficinas.
 
 — Nome da Casa? — perguntou, quando Sefter chegou.
 
@@ -272,11 +274,11 @@ Litara apertou a boca. Sefter passou a mão pela alça da sacola dela, sem puxá
 
 — Em nenhuma. Vai comigo até a Casa de Medidas.
 
-— Sem registro, paga entrada de acompanhamento.
+— Sem registro, paga entrada de acompanhamento. E fica nos caminhos de carga e de comércio baixo. Se ela passar para as ruas das Casas, eu recolho o disco e vocês dois ficam sob guarda até alguém decidir quem responde por vocês.
 
-Sefter contou as peças menores de metal que trazia. O pagamento que recuperaram pelos três barris viera em peças de ferro para a roda e os pinos. Das quatro peças pequenas recebidas antes, ele já gastara parte com as taxas da cidade. O guarda recebeu a quantia e colocou sobre a capa de Litara um pequeno disco de madeira com um número queimado.
+Sefter contou as peças menores de metal que trazia. O pagamento que recuperaram pelos três barris viera em peças de ferro para a roda e os pinos. Das quatro peças pequenas recebidas antes, ele já gastara parte com as taxas da cidade. O guarda recebeu a quantia e colocou sobre a capa de Litara um pequeno disco de madeira com um número queimado. Fez uma marca correspondente na tábua, ao lado do recibo de Sefter, e só então liberou a passagem.
 
-— Não perde. Se sair sem devolver, fica devendo outro.
+— Não perde. Se sair sem devolver, fica devendo outro. E esse recibo só vale para hoje.
 
 — E quem não tem dinheiro? — perguntou ela.
 
@@ -390,9 +392,11 @@ O escrivão ergueu os olhos para o recibo que Sefter lhe oferecia.
 
 — Sei. As estacas chegaram ontem perto da nossa casa. Quero saber de quem é a obra.
 
-— Casa? — repetiu o homem, olhando a roupa de Sefter.
+— Casa? — repetiu o homem, olhando a roupa de Sefter. — Quem autorizou vocês a vir até esta mesa?
 
-— Onde a gente mora.
+Sefter mostrou o disco numerado na capa de Litara e o recibo da oficina. O homem conferiu as marcas contra uma pequena tábua junto à janela. Só depois voltou ao desenho.
+
+— Onde a gente mora — respondeu Sefter.
 
 O escrivão pegou o recibo entre dois dedos.
 
@@ -632,7 +636,7 @@ Sefter abriu a mão. A pedra estava aquecida por seu corpo, e o risco verde pare
 
 Ela apontou para a tira de tecido no cabelo, o presente de Hadrel e Nefestra.
 
-Sefter olhou para a trança, depois para a pedra. Pensou em devolvê-la, mas o vendedor ainda estava perto demais e os guardas da esquina prestavam atenção em quem voltava pelo caminho contrário. Se entregasse o objeto e pedisse desculpas, talvez terminassem a tarde sem poder voltar ao acampamento.
+Sefter olhou para a trança, depois para a pedra. Pensou em devolvê-la, mas o vendedor ainda estava perto demais e os guardas da esquina prestavam atenção em quem voltava pelo caminho contrário. Se o homem apontasse para os dois discos de madeira e dissesse que tinham roubado, ninguém se daria ao trabalho de escutar Litara. Poderiam ser levados junto com os que esperavam na cerca, e ele não tinha uma Casa a quem pedir que os soltasse. Guardou a pedra na mão fechada, sem encontrar uma saída melhor.
 
 — Então a gente leva e não faz de novo — disse, guardando a pedra. — Eu não devia ter pegado.
 
