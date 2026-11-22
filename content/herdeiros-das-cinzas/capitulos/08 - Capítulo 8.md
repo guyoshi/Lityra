@@ -56,7 +56,7 @@ Ravira apontou para a descida leste.
 
 — Você conhece o posto?
 
-— Não. Conheço o barulho de caravana parando pra descarregar. No meu clã a gente aprendia a reconhecer pelo som das rodas. É mais fácil achar mercador perto de carga do que caçar erva nessa neve.
+— Não. Conheço o barulho de caravana parando pra descarregar. No meu clã a gente aprendia a reconhecer pelo som das rodas. Se houver ervas guardadas, deve ser perto da carga. Isso não quer dizer que vão deixar a gente chegar perto.
 
 Sefter apertou o cordão sob a manga.
 
@@ -64,7 +64,35 @@ Sefter apertou o cordão sob a manga.
 
 Ravira recebeu a frase sem resposta. Kedran pôs a tigela perto do fogo e voltou à entrada.
 
-— Assim que clarear, a gente desce. Se for posto de gente que não quer negociar, não vamos entrar todos.
+— A gente precisa descer mais — disse Sefter. — Pra onde o frio não pega desse jeito.
+
+— Mais pra baixo pode ter menos neve — concordou Nefestra. — Se a Litara conseguir passar uma noite sem esse vento, já ajuda.
+
+Kedran olhou para os dois.
+
+— E se tiver gente esperando nas estradas? A gente nunca foi tão longe. Nem sabe quem manda depois daquelas montanhas.
+
+— O homem do sal vinha das terras mais ao sul — disse Sefter. — Lembra do que ele contava? Quando a nossa ravina estava toda gelada, lá ainda tinha caminho de barro.
+
+— O homem do sal também andava com gente que respondia por ele — retrucou Kedran. — A gente não tem mais ninguém.
+
+Nefestra abriu a boca para defender Sefter, mas Litara tossiu outra vez e ela precisou ajeitar a menina. Esperou a crise passar antes de falar.
+
+— Não tô dizendo pra gente bater na porta de ninguém. Só não quero ficar subindo e descendo essas pedras enquanto ela piora.
+
+— E como vamos saber que estamos indo pro sul? — perguntou Sefter. — A neve cobriu até o caminho por onde viemos.
+
+Kedran apontou para a abertura entre as tábuas, onde a noite ainda escondia as encostas.
+
+— O pai fazia a gente marcar o lugar onde o sol nasce nas manhãs claras. É o nascente. De frente pra ele, a mão direita indica o sul. Quando o céu fechar, vou seguir a direção da crista que vimos ontem, até poder conferir de novo. Isso dá o rumo, não diz se tem estrada segura.
+
+Sefter lembrava. Maltaren fizera os dois irmãos se virarem tantas vezes na neve que Kedran terminara a brincadeira apontando para o lado certo mesmo de olhos fechados. Naquela época Sefter só queria ganhar do irmão. Agora queria que o pai estivesse ali para dizer quanto daquela descida poderia ser atravessado sem encontrar uma patrulha.
+
+— A trilha de carga vai pro leste primeiro — advertiu Ravira. — Depois dobra entre os morros. Eu conheço esta parte pelo rio. Além dela, não sei. Minha gente não descia até essas terras.
+
+Kedran olhou a irmã adormecida no colo de Nefestra. Não gostava de seguir uma rota porque não tinham outra escolha, mas já não havia alimento suficiente para esperar uma estação mudar.
+
+— Assim que clarear, vamos até a trilha e olhamos de longe. Se houver posto, ninguém se apresenta aos guardas. Se não der pra passar sem ser visto, procuramos outro caminho para continuar descendo.
 
 — Eu posso andar — disse Sefter.
 
@@ -140,25 +168,23 @@ Kedran se levantou. A observação era boa. Mesmo assim, não gostou de encontra
 
 — Não vamos ficar.
 
-Pouco depois ouviram o ranger de rodas pesadas. Uma voz distante reclamava de uma carga que escorregava. Abaixo deles, a mata se abria para uma faixa de terra batida e, além dela, um conjunto de tendas compridas cercadas por carroças. Dois tarraks estavam presos perto de um bebedouro de madeira, e homens com casacos escuros iam de uma tenda à outra levando sacos e rolos de tecido. Uma bandeira estreita, marcada com três traços que se encontravam no centro, tremulava presa a um poste.
+Pouco depois ouviram o ranger de rodas pesadas. Uma voz distante reclamava de uma carga que escorregava. Abaixo deles, a mata se abria para uma faixa de terra batida e, além dela, um conjunto de tendas compridas cercadas por carroças. Dois tarraks estavam presos perto de um bebedouro de madeira, e homens com casacos escuros iam de uma tenda à outra levando sacos e rolos de tecido. Uma bandeira estreita tremulava presa a um poste. Tinha um emblema escuro no centro. O mesmo desenho aparecia gravado na chapa de uma caixa junto à entrada, mas Kedran não reconheceu a marca. Não era nenhum dos sinais que Maltaren lhes ensinara a evitar no vale do norte.
 
 Ravira parou atrás do tronco mais próximo.
 
-— Mardrar — disse.
+— Conhece aquela bandeira? — perguntou Kedran.
 
-Sefter olhou para ela.
+— Nunca vi.
 
-— Amigos seus?
+— Achei que você conhecia todos os caminhos — provocou Sefter.
 
-— Não.
+— Eu reconheço carga e rodas. Não conheço quem usa essa marca.
 
-— Você tem certeza? Até ontem eu não sabia que você tinha tantos lugares por onde andar.
-
-— Sefter — advertiu Kedran.
+— Sefter — advertiu Kedran, antes que ele continuasse.
 
 Ravira não desviou os olhos das tendas.
 
-— Não são do meu clã. E não chega perto daquela estrada sem uma Casa respondendo por você. Se perguntarem de quem somos e a resposta for ninguém, levam a gente junto com a carga.
+— Não chega perto daquela estrada sem uma Casa respondendo por você. Se perguntarem de quem somos e a resposta for ninguém, levam a gente junto com a carga.
 
 Sefter olhou de novo para os homens junto ao portão.
 
@@ -354,7 +380,7 @@ Sefter percebeu que ela estava prendendo a própria perna com um pedaço de pano
 
 — Iam. Se conseguissem me alcançar.
 
-Sefter olhou para a faixa de sangue na meia dela. Pensou em tudo que dizia sobre o clã daquela moça e em como os Mardrar a teriam levado junto com ele sem perguntar de onde ela vinha. Não agradeceu. Ravira também não pediu nada. Foi Nefestra quem falou:
+Sefter olhou para a faixa de sangue na meia dela. Pensou em tudo que dizia sobre o clã daquela moça e em como os homens daquela bandeira a teriam levado junto com ele sem perguntar de onde ela vinha. Não agradeceu. Ravira também não pediu nada. Foi Nefestra quem falou:
 
 — O que importa é que a Litara tá mais quieta agora. Se quiser brigar, briga depois que ela dormir.
 
