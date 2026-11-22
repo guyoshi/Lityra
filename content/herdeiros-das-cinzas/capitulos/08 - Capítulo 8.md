@@ -158,7 +158,13 @@ Sefter olhou para ela.
 
 Ravira não desviou os olhos das tendas.
 
-— Não são do meu clã. Se eu fosse pedir abrigo aos Mardrar, precisava levar alguém que respondesse por mim. Agora não tenho ninguém.
+— Não são do meu clã. E não chega perto daquela estrada sem uma Casa respondendo por você. Se perguntarem de quem somos e a resposta for ninguém, levam a gente junto com a carga.
+
+Sefter olhou de novo para os homens junto ao portão.
+
+— Mesmo se a pessoa não tiver feito nada?
+
+— Pra eles, andar sem nome já basta — respondeu Ravira. — Depois encontram um trabalho pra pagar a escolta, a comida e tudo que resolverem cobrar.
 
 O posto estava movimentado. Num dos abrigos, duas pessoas despejavam grãos escuros sobre uma lona e os separavam com pás de madeira. No outro, um homem recebia caixas pequenas e as marcava num livro preso a uma prancheta. Havia mercadorias de mais de uma região. Kedran reconheceu metal Vendrar nas ferragens de um carro, fibras de Grastar em rolos claros e, numa das caixas, um desenho de folha sobre um pano encerado.
 
@@ -168,7 +174,11 @@ Litara se mexeu às costas dele. Um braço saiu do cobertor, procurando apoio, e
 
 — Não pode ficar esperando — disse a prima.
 
-Kedran escolheu um lugar protegido do vento para deixá-las, atrás de uma raiz grossa onde a terra estava seca. Abaixou-se com cuidado, soltou as faixas de Litara e passou a menina para Nefestra. Depois puxou Sefter para trás de um tronco.
+Um homem sem placa de identificação aproximou-se do portão com uma trouxa às costas. Kedran viu o guarda barrá-lo, tomar-lhe a trouxa e apontar para uma fila ao lado da cerca. O homem tentou pegar suas coisas de volta. Recebeu uma pancada com a haste de um bastão e foi empurrado para perto de dois trabalhadores que tinham os pulsos unidos por uma corda. Nenhuma mercadoria deixou de ser descarregada por causa daquilo.
+
+Kedran recuou para que as árvores o escondessem. Nefestra acompanhara a cena, calada, e abraçava Litara mais perto do peito.
+
+Ele escolheu um lugar protegido do vento para deixá-las, atrás de uma raiz grossa onde a terra estava seca. Abaixou-se com cuidado, soltou as faixas de Litara e passou a menina para Nefestra. Depois puxou Sefter para trás de um tronco.
 
 — Você fica com as duas.
 
@@ -180,11 +190,11 @@ Sefter engoliu a resposta. A coxa ardia desde a travessia do riacho. Ele tinha f
 
 — Posso ir até a estrada — disse. — Se tiver patrulha, aviso.
 
-— Até a pedra quebrada. Nem um passo além. Se alguém vier, faz aquele assobio que o pai usava na caça.
+— Até a pedra quebrada, pelo lado das árvores. Nem um passo na estrada. Se alguém vier, faz aquele assobio que o pai usava na caça. Se chegar a ver os guardas de perto, já esperou demais.
 
 A lembrança do pai deu à ordem um peso que nenhum dos dois comentou.
 
-Kedran tirou de dentro do saco uma pequena bolsa de couro onde guardavam o que restara das trocas feitas antes do ataque. Havia uma argola de metal, dois fechos e algumas tiras de couro seco. Talvez conseguissem pagar por um punhado de folhas. Talvez o encarregado risse ao ver o que tinham.
+Kedran tocou a pequena bolsa de couro que guardava os restos das trocas feitas antes do ataque. Havia uma argola de metal, dois fechos e algumas tiras de couro seco. Valeriam comida em qualquer estrada onde alguém aceitasse negociar. Ali, mostrar a bolsa seria mostrar a mão de um homem sem garantidor. O guarda não precisava de motivo melhor para prendê-lo.
 
 Ravira olhou para a faca que carregava na bota.
 
@@ -200,13 +210,13 @@ Ravira olhou para a faca que carregava na bota.
 
 Kedran pensou na testa rachada dela, na marca de corda retirada do pulso. Pensou também no tempo que já haviam perdido.
 
-— Você não fala o nome de ninguém da minha família lá dentro. Se perguntarem quem somos, somos viajantes sem Casa.
+— Não fala o nome de ninguém da minha família. E não vamos passar por aquele portão.
 
 Ravira assentiu.
 
-— Isso eu sei ser.
+— Tem uma vala atrás das carroças de carga. A gente consegue chegar ao depósito por ali, se os guardas não estiverem vigiando o desvio.
 
-Desceram pelo lado mais escondido da estrada. Nefestra os acompanhou com o olhar até perder os dois atrás da primeira carroça. Depois voltou a se sentar, acomodando Litara sobre a própria perna. A menina tentou abrir os olhos.
+Desceram pelo lado mais escondido da estrada, pisando nas raízes e nas pedras para não deixar rastros na neve fofa. Nefestra os acompanhou com o olhar até perder os dois atrás da primeira carroça. Depois voltou a se sentar, acomodando Litara sobre a própria perna. A menina tentou abrir os olhos.
 
 — Ked? — chamou, quase sem voz.
 
@@ -218,69 +228,35 @@ Litara tocou a bochecha dela com a mão molhada. O gesto lembrava a brincadeira 
 
 A menina não sorriu. Bera se deitou de lado junto às botas dela, oferecendo o pelo quente como se soubesse o que era necessário. Nefestra cobriu as duas com a ponta da pele.
 
-No posto, o encarregado estava terminando de discutir com um homem que trazia uma caixa amassada. A cada vez que o comprador dizia que a mercadoria tinha chegado quebrada, o encarregado apontava para uma marca no livro e repetia que ela fora recebida inteira.
+Kedran e Ravira alcançaram o fundo do posto sem cruzar a estrada principal. Uma vala de escoamento corria entre a mata e a cerca baixa de madeira. Tiveram de avançar agachados, com as mãos na lama, até encontrar duas carroças estacionadas tão perto uma da outra que as rodas escondiam o espaço por onde alguém poderia passar.
 
-Kedran esperou até que a discussão terminasse.
+Ravira se sentou atrás da primeira roda para aliviar a perna. Kedran estava prestes a perguntar se ela aguentaria continuar quando vozes se aproximaram pelo lado do pátio. Dois guardas conduziam o homem da trouxa. Agora ele não carregava nada. Um deles mantinha uma corda presa ao pulso do viajante, e o outro contava a um escriba quanto custaria alimentá-lo durante a viagem.
 
-— Preciso de folha-de-alívio e erva-de-pulmão — disse.
+— Eu só pedi um lugar pra dormir — protestou o homem.
 
-O encarregado olhou para o casaco gasto dos dois.
+— Pediu comida também — respondeu o guarda. — Agora vai trabalhar por ela.
 
-— Pra quem?
+O escriba fez duas marcas na tábua sem erguer a cabeça. O homem tentou insistir, mas o guarda lhe deu um puxão, obrigando-o a seguir. Passaram em direção aos galpões, onde mais gente transportava fardos sem receber a menor atenção dos encarregados.
 
-— Uma criança doente.
+Kedran apertou a bolsa de metal sob o casaco. Pensou no pai, que fazia a família atravessar matagais inteiros para não dormir a menos de um dia de uma estrada. Quando era pequeno, achava que Maltaren só não gostava de gente. Agora entendia por que nunca tinham pedido ajuda a um posto de passagem.
 
-— Compra pequena se paga antes de abrir a caixa.
+— Ali — murmurou Ravira, apontando com o queixo.
 
-Kedran estendeu a bolsa. O homem despejou os fechos sobre a mesa, olhou a argola e depois devolveu tudo.
+O pano encerado de uma caixa trazia um desenho de folha. Ficava sobre a mesa do depósito, ao alcance de um encarregado que conferia mercadorias recebidas. Um trabalhador precisava mostrar uma tábua de marcação antes de entrar. O homem de fora permanecia esperando até que alguém confirmasse o serviço que tinha ido fazer.
 
-— Não aceito peças sem marca.
+— Mesmo se a gente tivesse os merais, não abriram passagem pra nós — disse Kedran.
 
-— São de metal bom. Dá pra trocar na estrada.
+— Não com essa roupa. Nem sem marca de Casa — respondeu Ravira.
 
-— Então troca na estrada e volta com merais.
+O encarregado chamou outro trabalhador. Enquanto os dois discutiam uma caixa amassada, um rapaz empurrou uma carroça de carvão para trás do depósito. O carro parou diante da lona que cobria a entrada dos fundos. Ravira acompanhou o movimento, calculando os momentos em que a roda escondia os guardas.
 
-Ravira apontou para os panos encerados empilhados atrás do homem.
+— Tem ervas naquele depósito — disse.
 
-— Tem água limpa e um lugar pra preparar as folhas?
+— Vi o desenho.
 
-O encarregado a examinou com mais cuidado.
+— Não posso entrar pelo portão. Você também não. Mas a lona do fundo sobe quando trazem carvão pra aquecer a água das caixas.
 
-— Você tem registro?
-
-— Não.
-
-— Então não tem como responder por nada que eu tire do depósito.
-
-— Eu pago com trabalho — insistiu Kedran.
-
-— Trabalho de quem? Seu? E se você for embora com a caixa, eu mando cobrar de qual Casa?
-
-— Eu fico até pagar.
-
-O homem olhou para o arco nas costas dele, para o casaco rasgado de Ravira e para a perna que ela poupava.
-
-— Vão procurar serviço no setor de carga. Se o fiscal aceitar vocês, volta aqui com uma garantia. Agora saiam da frente.
-
-Kedran não se moveu imediatamente. Por baixo do pano de uma das caixas sentiu um cheiro forte, seco, que Ravira também percebeu. A moça tocou de leve sua manga, chamando sua atenção para os dois guardas que conversavam junto ao poste.
-
-Saíram antes que o encarregado chamasse alguém.
-
-Atrás de um depósito de carvão, Ravira parou para se apoiar numa roda.
-
-— Ele não vai vender — disse.
-
-— Eu vi.
-
-— Pode ter um curandeiro entre os homens da carga.
-
-— Até achar um que nos ouça, minha irmã fica pior.
-
-Ela olhou para a tenda onde as caixas de remédio eram guardadas. Uma mulher passava entre as entradas levando uma bacia de água, e um rapaz empilhava fardos numa carroça.
-
-— O depósito abre por trás também — disse Ravira.
-
-Kedran acompanhou a direção do olhar.
+Kedran esperou o carro se afastar. Ninguém olhou para a vala onde estavam.
 
 — Você quer roubar.
 
@@ -318,19 +294,33 @@ Foi quando uma voz soou do outro lado da tenda.
 
 Kedran imobilizou-se. Ravira soltou a lona, e a abertura caiu sobre a cabeça dele. Passos se aproximaram do corredor.
 
-— Eu tô procurando o fiscal da carga — respondeu Ravira, elevando a voz. — Disseram que precisava assinar antes de tirar o carro da fila.
+— A roda do carro de carvão afundou na vala — respondeu Ravira, levantando a voz. — Tem gente tentando tirar a carga.
 
-— O fiscal fica na mesa.
+— Que carro?
 
-— Na mesa falaram pra vir aqui.
+— O que passou por aqui agora.
 
-O homem praguejou. Kedran ouviu o som de uma caixa sendo arrastada e aproveitou para se enfiar sob a lona. Ravira se deslocou para a frente da passagem, obrigando o guarda a olhar para ela. A perna ferida quase cedeu, mas a moça se manteve de pé, apoiada na roda.
+O homem apareceu no corredor, procurando a carroça. Seus olhos desceram até a roupa rasgada de Ravira e pararam no pulso sem marca.
 
-— Se você quer o fiscal, fica onde está — ordenou o guarda.
+— Você veio com qual carga?
 
-— Eu queria não ter que ficar procurando.
+— Com a que tá presa na lama.
 
-A irritação da resposta pareceu convencer o homem de que tinha apenas mais uma trabalhadora descontente diante dele. Apontou para a mesa principal, mandou que saísse do corredor e voltou à própria ronda.
+— Mostra a placa de serviço.
+
+Ravira não levou a mão à cintura. Não tinha placa para mostrar. De dentro da tenda, Kedran ouviu o guarda mudar o peso das botas, preparando-se para avançar.
+
+— Fica onde está — ordenou ele.
+
+Ravira recuou até a roda e empurrou com a mão a cunha de madeira que a mantinha firme. O carro, carregado demais de um lado, avançou alguns palmos sobre o chão inclinado. Um dos barris bateu no seguinte, que começou a rolar para a passagem.
+
+O guarda se atirou contra a carga. Se o barril se partisse, teria de responder pelo carvão. Kedran levantou a lona, escorregou para fora e agarrou o braço de Ravira. Os dois passaram pela vala enquanto o homem praguejava e chamava outro para segurar o carro.
+
+— Volta aqui! — gritou o guarda. — Os dois! Cadê a marca de vocês?
+
+Kedran puxou Ravira para debaixo de uma carroça vazia. Só saíram quando o barulho da carga fez outros trabalhadores correrem para o corredor, impedindo o guarda de enxergar a vala. A moça se apoiou no joelho ferido, tentando não gemer. O pano se abriu junto à atadura e uma mancha escura começou a descer pela meia.
+
+Seguiram junto às raízes até alcançarem a mata. Não se atreveram a olhar para trás.
 
 Kedran alcançou Ravira do lado de fora. Os dois se afastaram entre as carroças sem olhar para trás. Quando chegaram à estrada, ele sentiu o pano de ervas preso junto ao peito e, pela primeira vez naquela manhã, o próprio corpo lhe pareceu um pouco menos pesado.
 
@@ -356,17 +346,15 @@ Ela olhou para a meia manchada.
 
 Sefter percebeu que ela estava prendendo a própria perna com um pedaço de pano que tirara da manga para dar o outro às ervas. Parte de seu rosto queria agradecer. A outra parte ainda enxergava a roupa da gente que matara os pais dele.
 
-— Eu vi o guarda falando com você — disse.
+— Eu vi um guarda correndo atrás de vocês — disse Sefter.
 
-— Ele queria saber do fiscal.
+— Ele viu que eu não tinha marca de trabalho — respondeu Ravira.
 
-— E você enganou ele.
+— Eles iam te prender?
 
-— Enganei.
+— Iam. Se conseguissem me alcançar.
 
-— Que fácil.
-
-Ravira ergueu os olhos, mas não respondeu. Foi Nefestra quem falou:
+Sefter olhou para a faixa de sangue na meia dela. Pensou em tudo que dizia sobre o clã daquela moça e em como os Mardrar a teriam levado junto com ele sem perguntar de onde ela vinha. Não agradeceu. Ravira também não pediu nada. Foi Nefestra quem falou:
 
 — O que importa é que a Litara tá mais quieta agora. Se quiser brigar, briga depois que ela dormir.
 
@@ -422,7 +410,7 @@ Sefter puxou Nefestra pelo cotovelo para que ela passasse primeiro pela garganta
 
 Kedran se voltou com o arco armado. Viu três homens subindo pela trilha estreita, usando capas com a marca do posto. Mais atrás vinham dois com lanças curtas. O homem da frente apontou para o pano que saía da bolsa de Nefestra.
 
-— Parados! Mercadoria do posto!
+— Parados! Os dois sem marca, não deixem escapar!
 
 Kedran soltou a flecha contra a pedra ao lado dele. Fragmentos saltaram, obrigando os homens a se abaixar. Não queria matá-los. Precisava apenas de tempo para que a irmã alcançasse o bosque.
 
