@@ -20,7 +20,7 @@ No instante seguinte a neve desapareceu.
 
 Sefter acordou com os dedos fechados no vazio e uma dor funda na coxa. O que estava acima de sua cabeça não era o teto de casa. Eram pedras inclinadas, galhos cobertos por uma pele e um pedaço de céu branco, cortado por neve que o vento fazia passar de lado.
 
-Demorou um pouco para entender onde estava. Haviam passado a noite sob uma saliência de rocha, depois de descer tanto pela mata que já não ouviam os homens do posto Mardrar. Não tinham encontrado abrigo melhor. A parede natural os escondia da estrada, mas deixava entrar o frio pela abertura mais larga. Nefestra tapara aquele lado com uma pele e algumas pedras. Antes de se deitar, arrastara um ramo de pinho sobre as pegadas que ligavam o abrigo à trilha. Se os Mardrar tornassem a procurar gente sem proteção, não precisariam encontrar uma arma nem provar um furto para levá-los. Bera dormia enroscada perto da entrada.
+Demorou um pouco para entender onde estava. Haviam passado a noite sob uma saliência de rocha, depois de descer tanto pela mata que já não ouviam os homens do posto de bandeira desconhecida. Não tinham encontrado abrigo melhor. A parede natural os escondia da estrada, mas deixava entrar o frio pela abertura mais larga. Nefestra tapara aquele lado com uma pele e algumas pedras. Antes de se deitar, arrastara um ramo de pinho sobre as pegadas que ligavam o abrigo à trilha. Se os guardas daquele posto tornassem a procurar gente sem proteção, não precisariam encontrar uma arma nem provar um furto para levá-los. Bera dormia enroscada perto da entrada.
 
 Kedran não estava ali.
 
@@ -359,6 +359,24 @@ Ele puxou a manga sobre o cordão.
 — Eu vou encontrar ele. Nem que leve a vida inteira.
 
 Nefestra não respondeu. Levantou-se para olhar a abertura do abrigo. O vento havia arrancado uma das amarras e começava a levantar a pele do lado de fora. Ela pegou a corda que restava e pediu que Sefter segurasse a ponta enquanto firmava o nó contra a pedra. Trabalharam juntos, sem continuar a discussão. No fim, o abrigo ficou um pouco mais escuro e um pouco mais quente.
+
+Sefter se sentou para aliviar a coxa. Pela fresta que restara, via uma faixa de montanha descendo para além do bosque. Kedran tinha escolhido aquela direção quando ainda estavam juntos. Agora Sefter não sabia o que havia depois das cristas, só que o chão parecia baixar mais a cada vale.
+
+— Quando a neve der trégua, a gente desce mais — disse Nefestra, juntando os panos limpos. — Talvez encontre um lugar sem esse gelo todo.
+
+— E se aparecer outro posto?
+
+Ela olhou para a entrada.
+
+— A gente não entra. Procura um caminho entre as árvores. Nem que demore.
+
+— O Kedran saberia por onde ir.
+
+— Ele ensinou o rumo pra você antes de a gente chegar lá. E o pai ensinou a ele.
+
+Sefter olhou para a pouca luz que entrava. De frente para o nascente, a direita indicava o sul. Não podia ver o sol naquela nevasca, mas lembrava a orientação da crista de antes das nuvens. Era pouco para escolher um futuro e o suficiente para não seguir em círculos.
+
+— Tá. A gente desce — concordou. — Mas não vai ser pela estrada daquela bandeira.
 
 Quando a noite chegou, Nefestra saiu para buscar neve limpa. A fogueira estava tão baixa que já não aquecia água suficiente para os dois e para Litara. Encontrou uma pequena reserva protegida entre duas pedras e encheu a tigela. Ao se levantar, viu alguém parado entre os pinhos, muito acima da trilha.
 
