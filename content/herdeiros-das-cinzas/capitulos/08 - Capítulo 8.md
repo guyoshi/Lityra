@@ -168,7 +168,7 @@ Kedran se levantou. A observação era boa. Mesmo assim, não gostou de encontra
 
 — Não vamos ficar.
 
-Pouco depois ouviram o ranger de rodas pesadas. Uma voz distante reclamava de uma carga que escorregava. Abaixo deles, a mata se abria para uma faixa de terra batida e, além dela, um conjunto de tendas compridas cercadas por carroças. Dois tarraks estavam presos perto de um bebedouro de madeira, e homens com casacos escuros iam de uma tenda à outra levando sacos e rolos de tecido. Uma bandeira estreita tremulava presa a um poste. Tinha um emblema escuro no centro. O mesmo desenho aparecia gravado na chapa de uma caixa junto à entrada, mas Kedran não reconheceu a marca. Não era nenhum dos sinais que Maltaren lhes ensinara a evitar no vale do norte.
+Pouco depois ouviram o ranger de rodas pesadas. Uma voz distante reclamava de uma carga que escorregava. Abaixo deles, a mata se abria para uma faixa de terra batida e, além dela, um conjunto de tendas compridas cercadas por carroças. Dois tarraks estavam presos perto de um bebedouro de madeira, e homens com casacos escuros iam de uma tenda à outra levando sacos e rolos de tecido. Uma bandeira estreita tremulava presa a um poste. No centro, havia uma balança de dois pratos, pendurados por correntes numa barra ornamentada. A haste central terminava numa ponta e trazia um losango. O mesmo desenho aparecia gravado na chapa de uma caixa junto à entrada, mas Kedran não reconheceu a marca. Não era nenhum dos sinais que Maltaren lhes ensinara a evitar no vale do norte.
 
 Ravira parou atrás do tronco mais próximo.
 
