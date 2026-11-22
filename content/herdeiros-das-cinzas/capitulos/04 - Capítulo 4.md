@@ -14,9 +14,9 @@ Bera não rosnara. Estava de pé na beira do pinhal, com o rabo baixo e atento, 
 
 — Você — disse Sefter.
 
-— O meu cesto fica no rio, logo abaixo da foz. Eu não sabia que a margem era sua. — Olhou para Bera, que cheirava a bota dela com a seriedade de quem confere uma carga. — A cátila lembra de mim.
+— Meu cesto fica no rio, logo depois da foz. Não sabia que essa margem tinha dono. — Olhou para Bera, que cheirava a bota dela com a seriedade de quem confere uma carga. — A cátila lembra de mim.
 
-— Ela lembra de todo mundo que não é de rosnar. A lista é curta.
+— Ela lembra de quem não faz ela rosnar. E não é muita gente.
 
 Ravira quase riu. O fôlego saiu dela em fumaça e ela o seguiu com os olhos, desconfiada do que a própria boca fazia sozinha.
 
@@ -36,7 +36,7 @@ Ele puxou a manga até o cotovelo. O cordão estava lá, de três tiras, ferruge
 
 — Ninguém — disse Sefter, e ouviu a palavra sair mais firme do que ele a sentia.
 
-— Eu tenho até a lua menor sumir. A minha gente está rio acima, e a Mais Velha conta tudo. Depois disso perguntam pelo meu pulso, e eu não sei mentir bem. — Pousou o gancho na neve. — Quero pagar antes. Diz o que você quer.
+— Tenho até a lua menor sumir. Minha gente tá rio acima, e a Mais Velha dá falta de tudo. Vão perguntar do meu pulso. E eu sou ruim de mentira. — Pousou o gancho na neve. — Quero te pagar antes. Diz o que quer.
 
 — Já disse que não quero nada.
 
@@ -44,7 +44,7 @@ Ele puxou a manga até o cotovelo. O cordão estava lá, de três tiras, ferruge
 
 — Foi só a corda curta.
 
-— A corda curta e o nó do seu irmão. — Ela já olhava os covos, e passou do vazio ao cheio sem mudar de cara. — Todo mundo quer alguma coisa. O meu povo pede sal, ou uma noite sem tarefa, ou um favor na hora errada. Eu sempre pago. Só nunca devi a alguém que não pede.
+— A corda curta e o nó do seu irmão. — Ela já olhava os covos, e passou do vazio ao cheio sem mudar de cara. — Todo mundo quer alguma coisa. Lá no meu povo pedem sal, folga de um dia, favor que ninguém quer fazer. Eu pago o que devo. Só nunca encontrei alguém que não quisesse cobrar.
 
 Sefter pensou no que queria. A coisa veio inteira, sem esforço, e não cabia em preço nenhum, e ele olhou para os zírrios, que tinham parado de bater.
 
@@ -56,11 +56,11 @@ Sefter pensou no que queria. A coisa veio inteira, sem esforço, e não cabia em
 
 Ela o encarou um tempo, e a boca se apertou no ponto em que, na laje, quase sorrira. Pegou um dos peixes pela cauda, virou-o, examinou a barriga como quem pesa, e o devolveu ao covo. Depois examinou de perto o cesto vazio ao lado, a boca de varas e a entrada em funil, passando o dedo por dentro.
 
-— Quem amarrou isto?
+— Quem fez esse covo?
 
 — Eu e o Kedran.
 
-— O Kedran fez o nó e você as varas. — Não esperou resposta. — O funil está curto. O peixe entra, olha em volta e sai pelo mesmo caminho, e vai contar aos outros. Põe mais um palmo e vira a ponta para dentro.
+— O Kedran deu os nós. As varas foram você. — Não esperou resposta. — Esse funil tá curto. O peixe entra, dá uma volta e sai. Depois vai contar pros outros. Bota mais um palmo e vira a ponta pra dentro.
 
 — O funil funciona.
 
@@ -78,19 +78,19 @@ Sefter riu. Foi um som curto e áspero, que saiu antes de ele decidir, e doeu no
 
 Ela não disse que sentia. Ficou de cócoras ao lado do covo, pegou outra vez um dos zírrios sem necessidade, e a mão não se mexeu.
 
-— A minha gente reza sete dias por quem vai — disse. — Depois o nome fica dito e a gente volta ao cesto. Foi o que eu fiz quando... — Parou ali, e Sefter reconheceu o jeito como se para antes de uma frase que tem dono. — A sua gente reza?
+— Lá em casa a gente reza sete dias por quem vai — disse. — Depois diz o nome e volta pro cesto. Foi o que eu fiz quando... — Parou ali, e Sefter reconheceu o jeito como se para antes de uma frase que tem dono. — A sua gente reza?
 
-— A gente diz o nome. Em cima das pedras, cada um na sua vez. — Ele apertou as pontas dos dedos dentro da luva. — E eu continuo repetindo uma regra que ela me deu, e a regra não sai da boca.
+— A gente fala o nome. Lá nas pedras, um de cada vez. — Ele apertou as pontas dos dedos dentro da luva. — A vovó me fez repetir uma regra. Agora não consigo parar de falar ela pra mim mesmo.
 
 — Que regra?
 
 — Não posso dizer.
 
-— Então não diz. — Ela não insistiu, e olhou para a mão dele. — Você fez o gesto agora. Na testa e no peito, quando abriu o covo. Eu vi da árvore.
+— Então não conta. — Ela não insistiu e olhou para a mão dele. — Mas você fez aquele gesto de novo. Na testa e no peito. Eu vi lá da árvore.
 
 — Eu sei.
 
-— Perguntou à sua avó por quê, depois do rio?
+— Você perguntou pra sua avó por quê, depois daquele dia no rio?
 
 — Perguntei.
 
@@ -120,7 +120,7 @@ Não contou a ninguém. Na pilha de lenha, com Kedran ao lado alinhando as toras
 
 — Hm.
 
-— Se a gente tivesse que sair daqui, para onde seria?
+— Ked, se a gente tivesse que sair daqui... pra onde ia?
 
 Kedran parou com a tora no ar e olhou para ele, não para a tora, e Sefter viu o cálculo atravessar a cara do irmão, silencioso e rápido.
 
@@ -128,7 +128,7 @@ Kedran parou com a tora no ar e olhou para ele, não para a tora, e Sefter viu o
 
 — Por nada.
 
-— Você está com a cara que tem. — Pôs a tora no lugar e entregou-lhe a seguinte. — Se for coisa que eu preciso saber, diz hoje. Amanhã eu estou cansado demais para ajudar.
+— Você tá com aquela cara. — Pôs a tora no lugar e entregou-lhe a seguinte. — Se tem alguma coisa pra me contar, conta hoje. Não me faz descobrir depois.
 
 — Eu digo.
 
@@ -136,15 +136,15 @@ Não disse. À porta do abrigo, ao entregar os peixes a Mentesra, a boca se abri
 
 Os zírrios foram para o caldo. Klafres e Maltaren voltaram da encosta do norte ao entardecer, com neve nos ombros e a resposta de todos os dias, e ninguém perguntou. Mentesra serviu as tigelas na ordem, Maltaren, Klafres, Kedran, Nefestra, Litara, a dela, e pôs a de Sefter no chão ao lado do joelho dele, como fazia desde o inverno passado, sem entregar. Ele a pegou com as duas mãos. Do outro lado do fogo Nefestra contava a família sem mexer os lábios, e passou por ele duas vezes, mais devagar a cada passada.
 
-Litara veio depois do caldo, com Bera atrás. Trepou no joelho dele sem pedir, agarrou-lhe o braço para se firmar e, no movimento, a manga de lã subiu até o cotovelo.
+Litara veio depois do caldo, com Bera atrás, escapando de Mentesra, que segurava outra túnica para trocar a manga que a menina tinha molhado na sopa. Vinha rindo, as botas batendo depressa no chão de terra, e fez uma curva para fugir da mão da tia. Sefter abriu os braços e ela se atirou contra ele, dando-lhe um tapa desajeitado na bochecha. Quando ele fingiu que o golpe quase o derrubara, Litara soltou outra gargalhada. Trepou no joelho dele sem pedir, agarrou-lhe o braço para se firmar e, no movimento, a manga de lã subiu até o cotovelo.
 
-— Corda! — disse, encantada. — Corda de cor! Bonita!
+— Coda! — disse, encantada. — Coda bonita!
 
 Tentou desatar o nó com os dentes. Sefter puxou o braço de volta, depressa demais, e a menina soltou um protesto agudo que atravessou o abrigo e calou todo o resto.
 
 Nefestra já estava olhando. Tinha parado a contagem no meio, com a mão sob a gola, sobre o peito, e a voz saiu seca e exata.
 
-— Ferrugem, cinza e azul-escura. A gente não tem essas cores.
+— Ferrugem, cinza e azul-escura. A gente nem tem lã dessas cores.
 
 — É uma corda velha, eu achei.
 
@@ -152,7 +152,7 @@ Nefestra já estava olhando. Tinha parado a contagem no meio, com a mão sob a g
 
 Kedran tinha parado a faca. Mentesra tinha parado a colher. Klafres, que ia dizer alguma coisa a Litara, olhou de uma cara para outra e resolveu ser leve.
 
-— Corda bonita. Onde se compra uma dessas? Eu quero uma de cada cor.
+— Bonita essa corda. Onde arranja? Eu quero uma de cada cor.
 
 Klafres esperou o riso, que não veio. Maltaren pousou a tigela no chão.
 
@@ -168,7 +168,7 @@ O frio estava limpo e sem lua. Do outro lado da ravina o monte de pedras no flan
 
 — A Litara foi para onde? — disse Mentesra.
 
-— Para a beira da laje. Tinha uma moça pescando e o cesto dela ficou preso, e eu ajudei com a corda. Ela deu o cordão por causa de uma regra do povo dela.
+— Pra beira da laje. Tinha uma moça tentando pegar um cesto preso no gelo. Eu emprestei a corda. Ela me deu esse cordão porque o povo dela tem uma regra.
 
 — Povo dela — repetiu Maltaren.
 
@@ -178,7 +178,7 @@ O frio estava limpo e sem lua. Do outro lado da ravina o monte de pedras no flan
 
 Todos olharam para ele. Estava com as costas nos troncos e os braços cruzados, e não olhava para o irmão.
 
-— No dia eu disse que não tinha mais ninguém lá, e ele disse que não tinha. Vi o galho e o rastro e sabia que era mentira, e raspei a trilha, e disse que estava bem. — Olhou o pai. — Eu sabia que tinha alguém e deixei.
+— Naquele dia eu perguntei se tinha alguém. Ele disse que não. — Kedran olhou o pai. — Mas vi o galho, vi os rastros. Sabia que ele tava escondendo alguma coisa. Mesmo assim, apaguei as marcas e não falei nada.
 
 — Você sabia da corda?
 
@@ -212,7 +212,7 @@ O vento passou na boca da ravina. A mão de Maltaren foi à cicatriz do antebra�
 
 — Disse.
 
-— Ela perguntou, ou você ofereceu?
+— Ela perguntou ou você contou sem ela pedir?
 
 — Perguntou. — Sefter engoliu. — Eu respondi.
 
@@ -240,7 +240,7 @@ Parou. O que ela dissera era nada. Ela olhara o rio, e o pinhal, e apertara o pu
 
 — Não sei.
 
-— Ele não sabe e eu também não — disse Kedran. — Mas ela veio sozinha à foz para pagar uma dívida, e quem quer contar não espera. Ele passou seis dias nos covos e ninguém veio atrás. — Descruzou os braços. — Pai. A culpa não é só dele.
+— Ele não sabe. Nem eu — disse Kedran. — Mas a moça veio sozinha pagar uma dívida. Se quisesse entregar a gente, por que esperar? Foram seis dias e ninguém apareceu. — Descruzou os braços. — Pai, a culpa não é só dele.
 
 — É dele — disse Maltaren, sem raiva. — A minha mãe levou você ao riacho para dizer a regra, e eu sei o que ela disse. O dia de contar não era seu.
 
@@ -254,7 +254,7 @@ Sefter sentiu a frase entrar e ficar. A vovó dissera aquilo mesmo na nascente, 
 
 Ficou olhando as pedras no flanco da ravina durante um tempo que ninguém ali teve coragem de encurtar, e quando falou de novo já tinha a voz de quem dá ordem de caça.
 
-— Amanhã, antes de clarear, a gente levanta o acampamento. Leva-se o que se carrega.
+— Amanhã, antes de clarear, a gente desmonta tudo. Só leva o que conseguir carregar.
 
 — Com a mãe ali em cima — disse Klafres.
 
@@ -262,7 +262,7 @@ Ficou olhando as pedras no flanco da ravina durante um tempo que ninguém ali te
 
 — E a moça? — disse Mentesra.
 
-— Ninguém a procura. Ninguém fala dela. Se alguém perguntar por qualquer moça de corda, a gente nunca viu. — Olhou o pulso de Sefter. — Tira isso.
+— Ninguém vai atrás dela. Ninguém toca no nome dela. Se perguntarem da moça do cordão, a gente nunca viu. — Olhou o pulso de Sefter. — Tira isso.
 
 Sefter puxou a manga e atacou o nó com as pontas dos dedos, que ainda respondiam devagar desde o gelo da curva. A primeira volta cedeu. A segunda não. O nó de três tempos apertava mais quanto mais ele o puxava, como o de Kedran, e depois de um tempo as unhas escorregaram e ele largou, com os dedos ardendo.
 

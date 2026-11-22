@@ -2,23 +2,23 @@ O pau de Kedran bateu no gelo três vezes e devolveu três sons diferentes, o pr
 
 — Qual dos três você pisaria? — perguntou Kedran, e esperou, com o queixo apoiado no cabo do pau.
 
-Sefter olhou os três lugares sem tirar as mãos de baixo dos braços. Eram três manchas na curva larga do rio, todas do mesmo cinza de pano molhado, e a única diferença que ele via era uma risca fina e azulada na do meio, como a veia de um pulso, que corria por baixo do gelo e sumia. O sol tinha aparecido pela primeira vez em muitos dias, baixo e de lado, por cima das colinas da outra margem, e a superfície inteira do rio brilhava com um brilho de faca limpa que fazia os olhos lacrimejar. Atrás deles, numa pele estendida sobre a neve da margem, Litara arrumava as orelhas de Bera uma de cada vez, com a seriedade de quem conserta um defeito de nascença, e a cátila aguentava aquilo de olhos fechados, deitada de lado, já sem o tremor dos primeiros dias. A tosse da vovó tinha atravessado a noite inteira, curta e seca, e de manhã a tia Mentesra, que não dormira, mandara os dois irmãos para o rio com a menina e a cátila, em nome do silêncio da casa.
+Sefter olhou os três lugares sem tirar as mãos de baixo dos braços. Eram três manchas na curva larga do rio, todas do mesmo cinza de pano molhado, e a única diferença que ele via era uma risca fina e azulada na do meio, como a veia de um pulso, que corria por baixo do gelo e sumia. O sol tinha aparecido pela primeira vez em muitos dias, baixo e de lado, por cima das colinas da outra margem, e a superfície inteira do rio brilhava com um brilho de faca limpa que fazia os olhos lacrimejar. Atrás deles, numa pele estendida sobre a neve da margem, Litara arrumava as orelhas de Bera uma de cada vez, com a seriedade de quem conserta um defeito de nascença, e a cátila aguentava aquilo de olhos fechados, deitada de lado, já sem o tremor dos primeiros dias. A luva direita da menina tinha caído duas vezes pelo caminho, e Kedran acabara prendendo-a à manga com um fio de lã. Ela já procurava uma maneira de soltar o fio. A tosse da vovó tinha atravessado a noite inteira, curta e seca, e de manhã a tia Mentesra, que não dormira, mandara os dois irmãos para o rio com a menina e a cátila, em nome do silêncio da casa.
 
 — O do meio — disse Sefter.
 
 — Por quê?
 
-— O primeiro é grosso demais para ensinar alguma coisa e o último é oco. Sobra o do meio.
+— O primeiro tá grosso. O último tá oco. Só sobra o do meio.
 
 — Sobra — repetiu Kedran, e apoiou o pau no ombro. — O do meio tem uma veia azul. Você viu? Sabe o que é?
 
 — Água.
 
-— Água que sobe de baixo e não deixa o gelo engrossar. Igual à da curva do sarnak. — Esperou que Sefter dissesse alguma coisa e, como ele não disse, continuou no mesmo tom. — Aquela você também não viu.
+— Água subindo por baixo. Não deixa o gelo engrossar. Igual lá na curva do sarnak. — Esperou que Sefter dissesse alguma coisa e, como ele não disse, continuou no mesmo tom. — Lá você também não viu.
 
 — Eu estava correndo atrás da Bera.
 
-— Você está sempre correndo atrás de alguma coisa. O gelo é o único lugar onde eu preciso que você ande devagar.
+— Você vive correndo atrás de alguma coisa. No gelo, precisa olhar antes de pisar, Sef.
 
 Sefter ia responder que lia gelo desde antes de Kedran ter barba, mas Kedran já tinha se virado para o trecho da margem onde a camada de cima era fina e deixava ver a de baixo, clara como vidro, e andava olhando ali com um jeito que Sefter conhecia. Era o do dia do sarnak, quando ele passou a luva por cima da pegada e a desfez em borrão. Sefter esperou que o irmão chegasse ao fim do trecho claro sem parar em nada e perguntou baixo:
 
@@ -26,13 +26,13 @@ Sefter ia responder que lia gelo desde antes de Kedran ter barba, mas Kedran já
 
 — O quê?
 
-— O pé. Você está olhando o gelo procurando um pé.
+— A pegada. Você tá procurando a pegada.
 
 — Estou olhando o gelo — repetiu Kedran, na mesma voz, e bateu o pau mais uma vez, fechando o assunto. — E eu mandei não falar disso lá dentro. Como é que a Nefestra sabe?
 
 — Ela adivinhou, eu não disse nada.
 
-— A Nefestra adivinha o que você deixa na cara. Bate agora. Você, não eu. E me diz o que ouviu de boca fechada, para variar.
+— A Nefestra só precisa olhar pra sua cara. Agora bate você. E presta atenção no som antes de abrir a boca, pra variar.
 
 Sefter pegou o pau e bateu perto da veia azul, que devolveu um som tão honesto que ele disse que dava para pisar. Kedran apontou com o queixo a risca, a uma largura de mão da ponta da bota dele, e Sefter recuou meio passo com tanta dignidade que doeu.
 
@@ -42,13 +42,13 @@ Sefter pegou o pau e bateu perto da veia azul, que devolveu um som tão honesto 
 
 — Fala exatamente assim, e o pai também acha.
 
-Kedran largou o pau na neve com cuidado, sem pressa nenhuma, o que era sempre mau sinal, e o empurrou pelo ombro, com uma mão só, para dentro do monte de neve que o vento tinha amontoado na margem. Sefter afundou até a cintura. Quando conseguiu se desvencilhar já tinha agarrado o tornozelo do irmão, e Kedran caiu de costas com um som de saco de farinha. Atrás deles, Litara gritou "Sef caiu!", mudou de ideia no meio do grito e gritou "Ked caiu!", batendo as luvas uma na outra. Houve uma luta curta e desajeitada, com neve na boca e nos colarinhos, que terminou com Sefter sentado no peito de Kedran, os dois punhos cheios de gola de pele e a certeza de ter ganhado, que durou três respirações.
+Kedran largou o pau na neve com cuidado, sem pressa nenhuma, o que era sempre mau sinal, e o empurrou pelo ombro, com uma mão só, para dentro do monte de neve que o vento tinha amontoado na margem. Sefter afundou até a cintura. Quando conseguiu se desvencilhar já tinha agarrado o tornozelo do irmão, e Kedran caiu de costas com um som de saco de farinha. Atrás deles, Litara gritou "Sef caiu!", mudou de ideia no meio do grito e gritou "Ked caiu!", batendo as luvas uma na outra. Tentou se jogar para trás sobre a pele estendida, copiando a queda, e ficou ali gargalhando para Bera, que lhe cheirou o rosto como se precisasse conferir se tinha se machucado. Houve uma luta curta e desajeitada, com neve na boca e nos colarinhos, que terminou com Sefter sentado no peito de Kedran, os dois punhos cheios de gola de pele e a certeza de ter ganhado, que durou três respirações.
 
-— Rende-se? — perguntou.
+— Vai se render? — perguntou.
 
 Kedran, deitado, olhava por cima do ombro dele com uma atenção que não combinava com a derrota.
 
-— Esse truque eu já conheço — disse Sefter. — Foi você que me ensinou.
+— Conheço esse truque — disse Sefter. — Você mesmo me ensinou.
 
 — Sef. — Não era o tom de brincar. — Olha a pele.
 
@@ -64,7 +64,7 @@ Sefter olhou. A pele de sarnak que servia de tapete estava vazia, com o amassado
 
 — E se eu achar e ela estiver na água?
 
-— Então você não grita, você entra. E eu vou atrás, como sempre. — Kedran já se afastava, e acrescentou sem se virar. — Devagar no gelo, Sef.
+— Então vai atrás dela. Eu vou atrás de você, como sempre. — Kedran já se afastava e acrescentou sem se virar: — Devagar no gelo, Sef.
 
 Sefter correu pelo gelo. Correu pela margem, na verdade, porque o pé dele ainda lembrava a veia azul, e pelo caminho foi dando nome em voz baixa a todas as coisas que a irmã podia ter encontrado, do jeito que se faz para não pensar na pior. A crosta quebrava sob as botas e o rio ia ao lado, de gelo e de sol, com o brilho tão forte que ele via manchas verdes quando piscava. Na segunda curva, ouviu Bera, um só chamado curto, de quem avisa e não de quem se assusta, e depois uma voz de pessoa, baixa e seca, que não era de nenhum dos seus.
 
@@ -78,11 +78,11 @@ A curva de cima fazia o rio estreitar entre pedras, e o gelo avançava ali em la
 
 — É minha irmã.
 
-— Então tira ela daqui. Cada vez que eu me mexo ela quer vir também, e não tenho mãos para duas coisas.
+— Então tira ela daqui. Toda vez que eu me mexo, ela vem atrás. Não tenho mão sobrando.
 
 Sefter atravessou a neve num trote de quem foi pego fazendo alguma coisa errada e levantou a irmã pelo capuz, e ela soltou um protesto agudo, de quem foi interrompida no meio de uma obra. Escorregou no barranco com ela no colo, sentou-se de repente, sem perder a menina, e ouviu a moça da laje soltar um som que podia ser riso ou o fim do fôlego.
 
-— Eu ajudo! — disse Litara, esticando o braço para a laje.
+— Eu juda! — disse Litara, esticando o braço para a laje.
 
 — Não ajuda — disse Sefter. — A moça pesca, e você fica quieta. — Pôs a menina de pé ao lado de Bera e lhe apontou um dedo. — Se sair daí, eu conto para a vovó.
 
@@ -90,7 +90,7 @@ Litara, que conhecia aquela ameaça havia tempo bastante para saber que nunca er
 
 Era um cesto de varas finas amarradas com tira de couro cru, preso por um cordão a uma estaca que o rio tinha arrancado, e estava encaixado debaixo do beiço da laje, balançando com a corrente. Faltava um braço para o gancho chegar. A corda da cintura dela estava esticada até o limite, vibrando a cada vez que ela avançava um palmo, e Sefter entendeu que o problema era o comprimento, e que ela já tinha chegado ao fim.
 
-— A sua corda é curta.
+— Sua corda não chega.
 
 — Eu sei contar um braço, obrigada.
 
@@ -98,11 +98,11 @@ Então ela virou o rosto, só de lado, e olhou por cima do ombro. Tinha uma manc
 
 — Eu tenho corda — disse ele.
 
-— Também sou capaz de ver. — Voltou a olhar o cesto. — Quanto?
+— Disso eu já sei. — Voltou a olhar o cesto. — Quanto você tem?
 
 — Dois braços e meio.
 
-— Serve. A minha dá uma volta no pinheiro e sobra uma ponta. Emenda a sua nela e vai dando corda. Se o nó soltar, vou ter que dar a notícia a quem espera o jantar.
+— Serve. A minha dá uma volta no pinheiro. Amarra a sua na ponta e vai soltando aos poucos. Se esse nó abrir, vai ter gente esperando jantar à toa.
 
 Sefter emendou a corda dele na ponta que sobrava com o nó que Kedran lhe ensinara quando ele tinha seis ciclos, o que aperta mais quanto mais se puxa e que ele jamais vira soltar sozinho. Passou o resto por uma volta no pinheiro, firmou o pé na base do tronco e testou com o peso do corpo inteiro.
 
@@ -120,7 +120,7 @@ Ela se arrastou para a frente, e a laje respondeu com um gemido grave que subiu 
 
 A laje estalou com um som de lenha verde. Sefter se jogou para trás com a corda no ombro, o tronco do pinheiro entre as botas, e sentiu a moça ser arrastada de bruços sobre o gelo, o cesto agarrado contra o peito, enquanto atrás dela a ponta da laje se soltava com um suspiro comprido e caía na água, e a água se fechava sobre ela com um barulho de pedra sendo engolida. A corda doeu nas mãos dele e não soltou. Ela chegou à margem de joelhos, arfando, com o cesto abraçado, e os dois ficaram um instante sentados na neve, sem ter o que dizer, enquanto os zírrios se debatiam e Bera inspecionava tudo com o nariz.
 
-— Eu ajudei — disse Litara.
+— Eu judê! — disse Litara.
 
 — Você puxou pior do que pesa — disse a moça, sem olhar para ela, e a menina considerou aquilo um elogio.
 
@@ -144,7 +144,7 @@ Ela ficou calada um tempo, com os olhos nele e uma expressão que ele não conse
 
 — É. — Ele sentiu o rosto esquentar.
 
-— Não é feio. — A voz saiu seca como antes. — A minha gente reza antes de lançar o cesto e depois de recolher, e eu perdi o jantar entre uma reza e outra. Se eu voltasse sem ele, a reza seguinte seria para mim.
+— Não disse que era feio. — A voz saiu seca como antes. — Lá em casa a gente reza antes de jogar o cesto e depois que recolhe. Se eu chegasse sem o jantar, a próxima reza ia ser por mim.
 
 — Foi só a corda curta.
 
@@ -158,11 +158,11 @@ Levantou o pulso para mostrar o cordão trançado, e Sefter entendeu que cada um
 
 — A gente é Sem-Nome.
 
-— Eu sei. Ninguém anda de bota remendada até o joelho sem ser. — Não disse como quem insulta. Disse como quem confere uma lista. — Eu devo a você. Dívida eu não deixo para depois.
+— Eu sei. Basta olhar essas botas remendadas até o joelho. — Não disse como quem insulta. Disse como quem confere uma lista. — Eu te devo uma. Não gosto de ficar devendo.
 
 — Não deve nada.
 
-— Eu devo. É a regra, e eu não discuto com ela.
+— Devo, sim. É a regra. Não fui eu que inventei.
 
 Desamarrou o cordão do pulso com os dentes e os dedos, e ele viu que a pele de baixo era mais clara que o resto da mão, uma pulseira de pele pálida onde o sol nunca batia. Pegou o pulso de Sefter sem pedir, enfiou o cordão por baixo da manga dele e deu uma volta, e fez um nó que ele não conhecia, de três tempos, apertado.
 
@@ -174,7 +174,7 @@ Desamarrou o cordão do pulso com os dentes e os dedos, e ele viu que a pele de 
 
 — Então para que me dá?
 
-— Porque é a regra — repetiu ela, e na voz havia uma teimosia que ele não esperava e uma raiva pequena de si mesma, e ele pensou, sem saber por quê, que aquilo era o mais próximo de um sorriso que ela se permitia.
+— Porque é a regra — repetiu ela, teimosa e um pouco irritada consigo mesma. Sefter teve a impressão de que aquilo era o mais perto de um sorriso que conseguiria dela.
 
 Foi nesse instante que a voz veio de longe, rio acima, de mulher mais velha, chamando um nome em três tempos, com as pontas compridas e o meio curto, e o vento trouxe o nome inteiro, devagar: "Ra-vi-ra". A moça ficou imóvel como Bera tinha ficado diante da encosta, e o rosto dela perdeu toda a cor que o frio tinha posto.
 
@@ -200,7 +200,7 @@ Kedran vinha no sentido contrário, entre os troncos, a passos largos. Parou ao 
 
 — Na curva de cima, na beira. A Bera foi na frente e ela atrás.
 
-— Eu chamei até ficar rouco.
+— Chamei até perder a voz.
 
 — Eu ouvi, mas estava com ela.
 
@@ -212,7 +212,7 @@ Kedran levantou o rosto devagar. O olhar passou pela corda que Sefter trazia a t
 
 — Que corda é essa?
 
-— A Litara foi para a beira da laje. Eu amarrei no pinheiro para ir buscar.
+— A Litara tava na beira da laje. Amarrei a corda no pinheiro pra tirar ela de lá.
 
 — No nó que eu ensinei?
 
