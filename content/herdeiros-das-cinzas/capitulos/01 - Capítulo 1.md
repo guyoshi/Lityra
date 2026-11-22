@@ -1,10 +1,10 @@
-A crosta de gelo sobre a neve aguentava o peso de uma cátila e cedia sob o de qualquer pessoa, de modo que Bera ia na frente sem deixar mais do que uma fileira de marcas miúdas, e os três que vinham atrás afundavam até a canela a cada passo, com um ruído de quem pisa em louça. A lua menor ainda estava no céu, pálida e baixa sobre a crista do vale, como se a noite tivesse esquecido de recolhê-la. O ar cheirava a pedra molhada e a resina. Sefter respirava por dentro do capuz e o hálito congelava no pelo da gola, formando uma casca que raspava o queixo toda vez que ele virava a cabeça.
+Bera ia na frente, leve o bastante para passar pela crosta de gelo sem quebrá-la. Atrás da cátila, Sefter, Kedran e Klafres afundavam até a canela a cada passo, fazendo um barulho de louça partida que qualquer bicho ouviria de longe. A lua menor ainda estava no céu, pálida e baixa sobre a crista do vale, como se a noite tivesse esquecido de recolhê-la. O ar cheirava a pedra molhada e a resina. Sefter respirava por dentro do capuz e o hálito congelava no pelo da gola, formando uma casca que raspava o queixo toda vez que ele virava a cabeça. Mais à frente, Bera diminuiu o passo e ergueu o focinho para a encosta alta do norte. Sefter examinou a encosta, mas só viu a neve lisa, sem um rastro sequer. Quando olhou de novo para a cátila, ela já farejava a trilha e seguia adiante.
 
-— Se o bicho estiver por perto, já ouviu a gente desde a curva do riacho — disse Klafres, baixo, ao lado dele. — Deve estar sentado em algum lugar esperando para ver quem chega primeiro com a pior bota.
+— Se o bicho ainda estiver por aqui, ouviu a gente lá da curva — disse Klafres, baixinho. — Deve estar esperando pra ver qual dos três tem a pior bota.
 
 — As minhas botas estão boas.
 
-— As botas estão excelentes. É o rapaz dentro delas que anda como um bravão carregado.
+— As botas, sim. O problema é quem tá dentro delas, pisando feito bravão com carga.
 
 Dois passos adiante, Kedran levantou a mão sem se virar e os outros pararam. Ele se abaixou junto de uma depressão funda na neve, larga como uma bacia, e Sefter reconheceu a pegada antes de chegar perto: a mesma do dia anterior, com o arrasto da pata traseira que o sarnak velho trazia desde algum golpe antigo. Kedran tocou o esterco ao lado com a ponta da faca e ficou olhando a lâmina. O cabelo comprido dele, preso para dentro da gola, tinha as pontas brancas de geada.
 
@@ -26,19 +26,19 @@ Klafres foi o primeiro a falar, e falou de leve.
 
 Kedran não respondeu. Já tinha o arco na mão e examinava a encosta da base ao topo, devagar, procurando o que se procura primeiro quando se vive longe de tudo: fumaça, pegadas, a mancha escura de uma pessoa parada contra a neve. Sefter fez o mesmo. Havia a crista, havia o céu cinzento atrás dela, e do meio da encosta uma fina linha de neve se soltou e subiu. Subiu rente ao chão, a passo de gente, desenhando uma curva preguiçosa, e Sefter percebeu que o vento que lhe batia no rosto vinha exatamente do outro lado. A linha durou o tempo de duas respirações e se desfez.
 
-— Vocês viram aquilo? — perguntou, e a voz saiu mais baixa do que pretendia. — Ali no meio da encosta, a neve levantou e foi subindo. Rente ao chão, devagar, e o vento está vindo do lado contrário.
+— Vocês viram? — perguntou, mais baixo do que pretendia. — A neve subiu a encosta. Foi contra o vento. Eu vi.
 
 — Eu vi neve — disse Kedran, sem tirar os olhos da crista. — O que você viu?
 
 Kedran olhou para o ponto que Sefter indicava, depois para o irmão, depois outra vez para o ponto.
 
-— Nas encostas o ar corre por cima num sentido e por baixo no outro — disse. — Vento de fundo.
+— Lá em cima o vento corre de um jeito, aqui embaixo de outro — disse. — Vento de fundo.
 
-— Eu já vi uma nevasca inteira andar para trás — acrescentou Klafres. — Foi no ano em que a Mentesra ainda me achava engraçado.
+— Já vi nevasca subir morro sozinha — acrescentou Klafres. — Foi no ano em que a Mentesra ainda ria das minhas piadas.
 
 — Ela te acha engraçado até hoje.
 
-— Ela acha que eu sou necessário, que é diferente.
+— Ela acha que precisa de mim. É outra coisa.
 
 Bera parou de rosnar no meio da frase, sem diminuir aos poucos, como uma porta que se fecha. Baixou o pescoço, cheirou o chão e voltou à trilha do sarnak de focinho baixo, sem mais nada. Kedran ainda ficou um instante olhando a encosta antes de segui-la. Quando andaram de novo, Sefter reparou que o irmão olhava para trás a cada vinte passos, e que Klafres, que não tinha olhado para trás nenhuma vez em toda a manhã, tinha começado a olhar também.
 
@@ -50,7 +50,7 @@ A curva de baixo era um alargamento do riacho onde a água, correndo mais devaga
 
 — Eu? O tio atira melhor do que eu, e você sabe.
 
-— Atira. Mas o tio não consegue ficar parado, e quem fica na saída tem que ficar parado até o bicho chegar perto. — Kedran olhou para ele como olhava para um arco antes de armá-lo. — Você consegue. É a única coisa em que você é melhor do que a gente e não gosta de ouvir.
+— Atira. Só não para quieto. Na saída, qualquer movimento espanta o bicho. — Kedran olhou para ele como olhava para um arco antes de armá-lo. — Você sabe esperar. É a única coisa em que ganha da gente e ainda reclama.
 
 — Esse tio aí é melhor em contar vantagem — disse Klafres. — Vai, rapaz, antes que seu irmão mude de ideia.
 
@@ -112,7 +112,7 @@ Sefter mexeu os dedos. Eles responderam devagar, desajeitados, de longe. Do outr
 
 Sefter quis rir e saiu só um tremor. Apertou Bera contra a barriga e esfregou o pelo duro do flanco, devagar, como o irmão tinha mandado.
 
-— Se você não tivesse entrado, eu teria deixado a Bera. Fiz a conta antes de você se mexer. O sarnak alimenta oito até o degelo, e ela é uma cátila.
+— Se você não fosse atrás, eu deixava a Bera. Aquele sarnak dá carne pra oito até o degelo. Eu já tinha escolhido.
 
 Sefter olhou para ele. O irmão olhava para o céu, onde a lua menor tinha finalmente sumido no cinza. Depois olhou para o casaco de pele de sarnak, o melhor que a família tinha, que Kedran tirara sem pensar e que agora estava encharcado em volta do bicho que ele dizia ter deixado.
 
@@ -136,7 +136,7 @@ Sefter virou a cabeça e ficou com a bochecha encostada no gelo. Ali, onde a laj
 
 — Isso é um pé.
 
-— É uma pegada. Gelo guarda coisa. — Kedran passou a luva sobre o vidro, e o que estava nítido virou um borrão de neve. — Alguém passou aqui há semanas, quando o gelo ainda era fino, antes de a camada de cima fechar.
+— É uma pegada. Gelo guarda marca. — Kedran passou a luva sobre o vidro, e o que estava nítido virou um borrão de neve. — Alguém pisou aqui quando essa camada era mais fina. Depois congelou por cima.
 
 — Sem bota.
 
@@ -150,7 +150,7 @@ Kedran olhou ao longo da borda. A crosta nova corria intacta até a margem, sem 
 
 — Isso não explica nada.
 
-— Explica o bastante para a gente não perder a carne. — Ele se apoiou nos cotovelos e olhou para o irmão. — E não fala disso lá dentro. A tia já está contando farinha.
+— Dá pra explicar. Agora vamos tirar a carne daqui. — Ele se apoiou nos cotovelos e olhou para o irmão. — E nem uma palavra disso lá dentro. A tia já tá contando farinha.
 
 Sefter não respondeu. Ficou olhando o borrão até ouvir o gancho de Klafres raspar a pedra, do outro lado, e então os dois rastejaram de volta até a margem, onde o gelo aguentava, e se sentaram sobre uma laje com Bera entre eles.
 
@@ -160,7 +160,7 @@ Klafres contornou o alargamento pela margem, arrastando a carcaça pelo gancho, 
 
 — Ninguém quer — disse Kedran.
 
-— Dou assim mesmo. Eu aqui arrastando o jantar sozinho e vocês dois sentados com a cátila no meio, feito três cátilas molhadas. — Largou o gancho. — O mais novo manda, o mais velho reclama e quem carrega sou eu.
+— Dou assim mesmo. Eu puxando o jantar sozinho e vocês dois aí, sentados com a Bera, parecendo três cátilas molhadas. — Largou o gancho. — Um manda, outro reclama e sobra tudo pra mim.
 
 Kedran, que já se abaixava para pegar Bera no colo, não respondeu.
 
@@ -210,13 +210,13 @@ Lá dentro cheirava a fumaça, a couro e a gordura quente, e a luz do fogo subia
 
 — Quatro, se Mentesra não deixar o Klafres cozinhar — disse Maltaren.
 
-— Isso é uma calúnia — disse Klafres, de dentro de um casaco que ele tirava pela cabeça. — Eu cozinho muito bem. Só não cozinho o que ela acha que deve ser cozido.
+— Isso é mentira — disse Klafres, lutando para tirar o casaco pela cabeça. — Eu cozinho bem. Ela é que não gosta do que eu faço.
 
 Bera foi posta perto do fogo, embrulhada, e de repente a ravina inteira ouviu a voz pequena de Litara, que vinha do fundo do abrigo, arrastando um pedaço de pele pelo chão.
 
-— Bera! Bera molhada!
+— Bê! Bê molhô!
 
-A menina tinha dois ciclos e o cabelo ainda fino demais para ficar preso, de modo que ele lhe saía da cabeça em tufos escuros, com uma mecha branca perto da orelha esquerda, tão clara quanto uma teia. Nefestra vinha atrás, a única mão agarrando a gola do casacão da menina para segurá-la antes de chegar à cátila. Litara se deixou conter por dois passos e depois se atirou para a frente, abraçando o embrulho de pele que cheirava a água e a bicho. Bera abriu um olho, bateu o rabo uma vez e voltou a tremer, só que mais devagar.
+A menina tinha dois ciclos e o cabelo ainda fino demais para ficar preso, de modo que ele lhe saía da cabeça em tufos escuros, com uma mecha branca perto da orelha esquerda, tão clara quanto uma teia. Nefestra vinha atrás, a única mão agarrando a gola do casacão da menina para segurá-la antes de chegar à cátila. Litara se deixou conter por dois passos e depois se atirou para a frente, abraçando o embrulho de pele que cheirava a água e a bicho. Bera abriu um olho, bateu o rabo uma vez e voltou a tremer, só que mais devagar. Litara encostou o rosto no focinho dela e recebeu uma lambida pequena na ponta do nariz. Recuou, surpresa, depois soltou uma gargalhada tão alta que Klafres olhou para ver o que havia acontecido. Tentou devolver a lambida com a língua de fora, mas Nefestra a segurou pela gola antes que conseguisse. Litara riu de novo e esfregou o nariz na manga, esperando que Bera repetisse a brincadeira.
 
 Maltaren soltou a pedra de afiar.
 
@@ -232,7 +232,7 @@ Maltaren olhou para o filho mais velho, e Kedran contou: a encosta do norte, a c
 
 — Vento de fundo — disse Kedran. — Foi o que eu disse lá.
 
-— Eu ouvi o que você disse. Pode ser — disse Maltaren, e a mão largou a cicatriz. — E pode ser que não. — Levantou-se, sem pressa. — Hoje a primeira vigia é minha. Ninguém acende nada maior do que isto até eu voltar.
+— Eu ouvi. Pode ser vento — disse Maltaren, tirando a mão da cicatriz. — Pode não ser. — Levantou-se, sem pressa. — A primeira vigia é minha. Até eu voltar, nada de fogo alto.
 
 Mentesra, que mexia numa panela do outro lado, parou a colher por um instante e continuou. Sefter, que tinha se sentado perto do fogo para tirar as botas, olhou para a pele da entrada, e através dela, para onde ficava a encosta alta do norte, que dali não se via. Nefestra apareceu ao lado dele com uma tábua nas mãos.
 
@@ -272,7 +272,7 @@ Atrás deles, do fogo, a voz de Klafres alcançou a conversa sem esforço.
 
 — Essa pele paga o sal até o fim do inverno — disse Klafres, olhando o couro como quem confere moeda. — Se o homem do sal não decidir que sarnak velho vale menos que sarnak novo.
 
-— Ele vai decidir — disse Sefter. — Cobra o dobro da gente porque somos Sem-Nome. Ouvi ele dizer a um outro: esses não têm Casa, aceitam qualquer preço.
+— Vai decidir, sim — disse Sefter. — Cobra o dobro porque a gente é Sem-Nome. Eu ouvi ele falar que quem não tem Casa aceita qualquer preço.
 
 — Sem-Nome não é crime — disse Kedran.
 
@@ -280,11 +280,11 @@ Atrás deles, do fogo, a voz de Klafres alcançou a conversa sem esforço.
 
 — Eu odeio o homem do sal — disse Nefestra, e raspou a pele com mais força.
 
-— Quer um conselho de graça, rapaz? — disse Klafres. — O homem do sal pesa quem baixa os olhos. Na hora de vender, você diz que a pele é ruim, que quase a deixou na neve, que só trouxe por pena. Ele vai querer provar que você está errado e acaba pagando mais.
+— Quer um conselho de graça, rapaz? — disse Klafres. — O homem do sal cobra mais de quem abaixa a cabeça. Diz que a pele não vale grande coisa, que quase deixou na neve. Ele vai querer provar que você tá errado e acaba pagando mais.
 
 — Klafres — disse Mentesra, do balde, sem se virar. — Não ensina a mentir ao menino.
 
-— Não estou ensinando a mentir. Estou ensinando a vender. — Ele piscou para Sefter, com o olho que a mulher não via. — A diferença é o olhar. Mente-se olhando a pessoa nos olhos. Quem olha o chão está contando o que fez.
+— Não tô ensinando a mentir. Tô ensinando a vender. — Ele piscou para Sefter com o olho que a mulher não via. — Olha na cara do homem. Se você ficar olhando pro chão, ele escolhe até o preço da sua bota.
 
 Nefestra cortou o último tendão da pele, puxou o couro inteiro para trás com um som úmido e olhou o primo com um sorriso torto, de quem ganhou e queria que ele percebesse. Sefter, que ia reclamar, descobriu que estava rindo. Do outro lado do abrigo, Mentesra olhava as mãos dele sobre a faca, perto do braço da filha, e o olhar durou só o tempo de uma respiração. Nefestra, sem erguer a cabeça, puxou a tábua para longe da faca dele, e a mãe voltou ao balde.
 
@@ -322,7 +322,7 @@ Nefestra não parou o gancho.
 
 E voltou a puxar a pele, com mais força do que precisava.
 
-Nefestra sempre soube em que ordem as coisas aconteciam à noite, e naquela noite a ordem foi a de sempre: primeiro o caldo, depois a conversa dos adultos, depois Jelatira. O caldo era de sarnak com raiz seca e baga-do-inverno cozida na gordura até virar um molho escuro e azedo, que Litara cuspia toda vez que a colher chegava perto e logo em seguida pedia de novo. O toco do braço doía. Doía sempre no começo do frio, uma dor funda e sem forma, que ela já sabia atravessar sentada, com o corpo um pouco inclinado para o lado onde o fogo batia, e que não contava a ninguém porque a mãe ia querer fazer alguma coisa a respeito.
+Nefestra sempre soube em que ordem as coisas aconteciam à noite, e naquela noite a ordem foi a de sempre: primeiro o caldo, depois a conversa dos adultos, depois Jelatira. O caldo era de sarnak com raiz seca e baga-do-inverno cozida na gordura até virar um molho escuro e azedo, que Litara cuspia toda vez que a colher chegava perto e logo em seguida estendia a mão para pedir mais. No meio da refeição, a menina puxou a roupa da tia Mentesra e avisou "ia, xixi". Mentesra a levou ao potinho de madeira atrás da pele da cama, mas já era tarde para o pano preso por baixo da túnica. Trocou o tecido e o musgo-de-frio seco que guardava dobrado dentro dele, pendurou o pano molhado para lavar e voltou à sopa, enquanto Litara dizia "queio comê" toda vez que a colher se afastava. Quando voltou, Klafres escondeu o rosto atrás da tigela e perguntou para onde a menina tinha ido. Litara deu a volta nele, bateu com a mão na perna do tio e saiu correndo em passinhos curtos, rindo tanto que precisou se segurar na pele da cama. Klafres fingiu procurá-la do lado errado até ela gritar "Io! Aqui!". Mentesra teve de chamá-la duas vezes para que voltasse a comer. O toco do braço doía. Doía sempre no começo do frio, uma dor funda e sem forma, que ela já sabia atravessar sentada, com o corpo um pouco inclinado para o lado onde o fogo batia, e que não contava a ninguém porque a mãe ia querer fazer alguma coisa a respeito.
 
 Do lugar dela, perto da entrada, via o abrigo inteiro: Kedran e o tio Maltaren conversando em voz baixa sobre a vigia, o pai tentando convencer a mãe de que o caldo precisava de mais sal, a mãe respondendo que o sal tinha de durar até o fim do inverno, e Sefter encolhido ao lado do fogo com os braços ainda vermelhos até o cotovelo. Ela os contou, como contava toda noite sem decidir fazê-lo: o pai, a mãe, o tio Maltaren, Kedran, Sefter, a avó, Litara e ela. Oito pessoas e uma cátila, e a conta fechou. Bera dormia embrulhada, a cabeça nos pés de Litara. Pela fresta do telhado de peles entrava a luz da lua maior, inteira e cor de osso, que desenhava uma risca fina sobre os cobertores. Nefestra gostava dessa risca. Todas as noites ela se movia um pouco, e dava para saber a hora pela distância em que ficava da perna de Kedran.
 
@@ -362,7 +362,7 @@ Houve riso. Jelatira esperou com a paciência das pessoas muito velhas, e quando
 
 — Havia uma cidade tão grande que quem nascia numa ponta morria sem conhecer a outra. Cada rua tinha nome de rei ou de batalha, e as crianças aprendiam os nomes antes de aprender o caminho. Era a cidade dos Polar. Quando ela ardeu, ardeu de uma vez, por dentro e por fora, e todo mundo correu para cima. Para as muralhas, para as torres, para onde achavam que estariam mais perto do céu.
 
-— E uma menina foi para baixo — disse Litara, que não estava dormindo.
+— Menina foi lá baixo — disse Litara, que não estava dormindo.
 
 Jelatira riu, uma risada baixa e rouca.
 
@@ -414,7 +414,7 @@ Foi Litara quem pediu, com a boca já encostada no ombro da velha.
 
 — Eu cantei ontem.
 
-— Canta de novo.
+— Canta ota vez.
 
 Jelatira suspirou, mas a mão que ia ao pescoço já estava lá. Começou baixo, quase sem voz, uma melodia de poucas notas e um balanço que acompanhava o das mãos no cabelo da menina. A letra vinha por cima da música como cobertor por cima de um corpo.
 
@@ -437,7 +437,7 @@ Ninguém na família sabia o que era ramalé. Jelatira jurava que as mais velhas
 
 — Foi. E anteontem a senhora cantou de mão em mão três vezes seguidas no segundo verso.
 
-— Então acertei a cantiga uma vez a cada dois dias, o que é bom para a minha idade. — A voz de Jelatira era um fio de graça cansada. — Cada boca muda um pouco, menina. Quando você cantar para a Litara, vai mudar também.
+— Então acertei ontem e errei hoje. Pra minha idade, tá bom demais. — A voz de Jelatira era um fio de graça cansada. — Cada boca muda um pouco, menina. Quando você cantar pra Litara, vai mudar também.
 
 — Eu não mudo.
 
@@ -455,9 +455,9 @@ Nefestra apertou a boca. Ficou olhando para a mecha branca de Litara, tão clara
 
 — Sempre.
 
-— Então alguém deveria terminar.
+— Então alguém podia terminar por mim.
 
-Do lado de fora, o vento passou pelo teto de peles e fez a risca de lua tremer sobre o cobertor. Muito longe, no riacho, o gelo estalou uma vez, comprido, como uma porta pesada se abrindo numa casa vazia, e o cheiro de carne defumada desceu dos varais com a corrente fria. Nefestra olhou o fogo. A avó parava ali todas as noites, e todas as noites a canção ficava pendurada no ar, e ela estava cansada de ver coisa pendurada.
+Do lado de fora, o vento passou pelo teto de peles e fez a risca de lua tremer sobre o cobertor. Muito longe, no riacho, o gelo estalou uma vez, comprido, como uma porta pesada se abrindo numa casa vazia, e o cheiro de carne defumada desceu dos varais com a corrente fria. Aos pés de Litara, Bera abriu os olhos e ergueu as orelhas na direção da entrada. Ficou assim por um instante, sem rosnar. Nefestra olhou o fogo. A avó parava ali todas as noites, e todas as noites a canção ficava pendurada no ar, e ela estava cansada de ver coisa pendurada.
 
 — Aqui — disse.
 
