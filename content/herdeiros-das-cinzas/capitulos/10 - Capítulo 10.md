@@ -150,7 +150,11 @@ A mecha branca atravessava a franja escura e continuava pelo cabelo preso numa t
 
 — Tô aqui!
 
-Sefter ficou olhando para a terra na manga dela.
+Sefter ficou sem resposta por um instante. Levou a mão em direção à testa dela, mas Litara inclinou a cabeça para escapar.
+
+— Tô ótima, Sef. Nem precisa perguntar.
+
+Ele baixou a mão e olhou para a terra na manga dela.
 
 — Litara. O que você estava fazendo lá?
 
