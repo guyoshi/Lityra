@@ -432,7 +432,7 @@ Sefter ficou calado. Etrinna era mais cuidadosa do que ele gostaria de admitir e
 
 — Ele sabe tratar gente — continuou ela. — Olhara olhou os preparados que trouxe. Disse que eram bons. Isso compra uma noite e um prato de caldo. Não compra nossa confiança para sempre.
 
-Antes de chegar ao pátio das oficinas, tiveram de parar no acesso dos carregadores. Um vigia conferia as marcas de serviço numa tábua e não deixava ninguém passar pela entrada usada pelas famílias das oficinas. Sefter entregou o recibo do carvão. A autorização de trabalho valera para a manhã, não para entrar de novo ao cair da tarde.
+Antes de chegar ao pátio das oficinas, tiveram de parar no acesso dos carregadores. Um vigia conferia as marcas de serviço numa tábua e não deixava ninguém passar pela entrada usada pelas famílias das oficinas. Acima do portão principal, uma chapa de ferro trazia a marca Vendrar: espada erguida sobre uma bigorna, martelo de um lado e torquês do outro. A passagem dos carregadores tinha apenas um número pintado na madeira. Sefter entregou o recibo do carvão. A autorização de trabalho valera para a manhã, não para entrar de novo ao cair da tarde.
 
 — Seu turno acabou — disse o vigia.
 
