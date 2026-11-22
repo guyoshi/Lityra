@@ -1,18 +1,18 @@
 A neve cobriu as marcas até a pedra com a marca de fogo e foi além, de modo que na hora em que Kedran se levantou da entrada, com as juntas travadas de frio, o chão diante da ravina era uma superfície lisa e cinzenta que não guardava o contorno de uma bota. Ele ficou um tempo olhando aquilo. Não dormira, nem tentara. Sentara com as costas na pele de sarnak que fechava a passagem e o arco atravessado nos joelhos, e vira a noite sair pela boca da ravina em pedaços, primeiro escura, depois branca da neve nova, e por fim de um azul fraco que ainda não era dia e já não era mais noite.
 
-Lá dentro, Mentesra tinha acendido um toco de vela de gordura e enrolava couro com a pressa seca de quem tem pouco tempo e nenhum direito de reclamar dele. Os colchões de ramos estavam virados contra a parede, as mantas dobradas em quadrados do tamanho de um fardo, o saco de raiz já atado, e no meio de tudo a tia de joelhos diante de uma pilha de panos, escolhendo o que ia e o que ficava. Não olhou para Kedran. Estendeu-lhe um fardo de peles de dormir sem dizer palavra, e ele o pôs ao ombro e o levou para fora, onde Bera esperava deitada na neve com o queixo sobre as patas, vigiando a encosta de cima com um olho só.
+Lá dentro, Mentesra tinha acendido um toco de vela de gordura e enrolava couro com a pressa seca de quem tem pouco tempo e nenhum direito de reclamar dele. Os colchões de ramos estavam virados contra a parede, as mantas dobradas em quadrados do tamanho de um fardo, o saco de raiz já atado, e no meio de tudo a tia de joelhos diante de uma pilha de panos, escolhendo o que ia e o que ficava. Separou dois panos finos usados por baixo da roupa de Litara e um saquinho de musgo-de-frio seco, que deixou ao alcance de Nefestra, longe dos fardos grandes. Não olhou para Kedran. Estendeu-lhe um fardo de peles de dormir sem dizer palavra, e ele o pôs ao ombro e o levou para fora, onde Bera esperava deitada na neve com o queixo sobre as patas, vigiando a encosta de cima com um olho só.
 
 Nefestra estava sentada junto do fogo apagado, com a única mão pousada sobre a fileira de fardos, e contava baixo, sem ninguém ter pedido.
 
-— Cinco fardos de pele, dois odres, o saco de raiz, o de peixe seco, a tábua de esfolar, a panela do tio. — Levantou os olhos para Kedran, que passava. — São onze cargas para seis pessoas que podem carregar, e ainda tem a Litara, que não carrega nada porque não anda.
+— Cinco fardos de pele, dois odres, raiz, peixe seco, a tábua de esfolar, a panela do tio. — Levantou os olhos para Kedran, que passava. — São onze cargas para seis pessoas que podem carregar, e ainda tem a Litara, que não carrega nada porque não anda.
 
 — Ela anda.
 
-— Anda até o primeiro monte de neve, e depois eu a levo. — Voltou a olhar os fardos. — Então são doze, e a conta não fecha, porque o tio Maltaren nunca leva mais do que a parte dele.
+— Anda até o primeiro monte de neve. Depois sobra pra mim. — Voltou a olhar os fardos. — São doze cargas, então. E não fecha, porque o tio Maltaren já tem as dele.
 
 — Fecha, sim. Eu levo o resto.
 
-— Você já está levando o resto — disse Nefestra, sem mau humor, e recomeçou a lista do começo.
+— Você já está levando o resto — disse Nefestra, sem mau humor, e recomeçou a lista do começo. Litara estava ocupada levando uma tira de couro de um fardo para o outro. A cada viagem, batia as mãos no próprio peito e anunciava "Eu levo!", depois corria de volta rindo quando Nefestra fingia procurar a tira desaparecida. Bera seguia a menina com o focinho, sem se levantar da neve. Kedran deixou a brincadeira durar até a pequena tentar arrastar uma pele maior do que ela, quando a tomou do chão antes que caísse.
 
 A panela entrou na conta no momento em que Klafres apareceu na boca da ravina trazendo-a debaixo do braço, com o cuidado que se tem com coisa viva. Mentesra saiu atrás dele com a vela na mão e parou ao vê-lo.
 
@@ -20,13 +20,13 @@ A panela entrou na conta no momento em que Klafres apareceu na boca da ravina tr
 
 — A panela vai.
 
-— Ela pesa o que pesa uma criança pequena, Klafres.
+— Essa panela pesa quase tanto quanto a Litara, Klafres.
 
-— Uma criança pequena não esquenta sopa. — Ele a apertou mais contra a costela. — O homem do sal me jurou que era ferro de cume, que não trinca no frio, e me cobrou duas medidas por ela, porque eu tinha cara de quem aceita. Eu aceitei. Passei quinze ciclos cozinhando nela para tirar o prejuízo, e a coitada ainda me deve umas três medidas. Deixar isso aqui seria perdoar a dívida.
+— Uma criança pequena não esquenta sopa. — Ele a apertou mais contra a costela. — O homem do sal jurou que esse ferro não racha no frio. Cobrou duas medidas a mais, e eu, feito besta, paguei. Já cozinhei quinze ciclos nessa panela e ainda acho que ela me deve umas três medidas. Não vou deixar a dívida pra trás.
 
 — Então carrega você.
 
-— Estou carregando, mulher, e é por isso que estou reclamando.
+— Eu tô carregando, mulher! Por isso mesmo que reclamo.
 
 O canto da boca de Mentesra se mexeu. Foi coisa de um instante, que ela tratou de desmanchar virando o rosto para a vela, mas Kedran viu, e viu que Klafres também viu e guardou a vitória sem dizer nada, e por um tempo curto a ravina teve o som antigo de uma casa que está de partida e ainda é uma casa. Depois Mentesra entrou outra vez e o som se foi com ela.
 
@@ -36,23 +36,23 @@ Maltaren tinha subido ao amanhecer. Kedran o viu quando saiu para respirar: lá 
 
 — O rio — disse Maltaren, parando diante dele. — O seu gelo da pedra grande, que você bateu ontem. Passa quanto?
 
-— Uma pessoa e meia. Com os fardos, um de cada vez, com corda, e só com luz, para eu ver a veia. — Kedran apontou com o queixo para baixo, onde a água do rio começava a aparecer entre os troncos como uma lâmina cinzenta. — Estamos esperando clarear por causa disso. Do outro lado a margem sobe para a mata, e a mata dá três dias de caminhada sem ninguém.
+— Uma pessoa e meia. Com os fardos, passa um por vez. De corda. E só quando clarear, pra eu enxergar a veia. — Kedran apontou com o queixo para baixo, onde a água do rio começava a aparecer entre os troncos como uma lâmina cinzenta. — Do outro lado a margem sobe pra mata. São três dias de caminhada sem cruzar com ninguém.
 
 — Sem ninguém é o que serve. — Maltaren olhou para dentro do abrigo. — O cordão.
 
 Sefter tinha ouvido. Veio até a entrada devagar, com o saco de peixe no ombro, e parou no meio da fala sem ser chamado.
 
-— Eu disse que decidia. — A mão de Maltaren foi à cicatriz do antebraço e passou nela uma vez. — Cortado aqui, ele fica no chão para quem passar. Fica no braço até a outra margem. Lá, no primeiro fogo longe deste, ele queima inteiro, e eu quero ver o fogo.
+— Eu disse que ia decidir. — A mão de Maltaren foi à cicatriz do antebraço e passou nela uma vez. — Se cortar aqui, a corda fica no chão pra qualquer um achar. Fica no braço até atravessarmos. No primeiro fogo do outro lado, a gente queima. E eu quero ver queimar.
 
 — Sim, pai.
 
-— E de agora até lá você não fala com ninguém que não seja da casa. Nem com uma sombra, nem com um bicho que tenha cara de gente.
+— E até lá você não abre a boca com ninguém de fora. Nem se parecer gente boa. Nem se chamar por você.
 
 Sefter confirmou com a cabeça. Quando Maltaren virou as costas, Kedran viu que o irmão apertava o pulso por cima da manga com a outra mão, como quem confere se uma coisa continua onde a deixou.
 
 Foi Bera quem avisou. Rosnou baixo, sem sair do lugar, o nariz virado para a encosta de cima, o pelo do pescoço arrepiado numa faixa estreita, e não parou quando Kedran se ajoelhou ao lado dela. Ele olhou para onde ela olhava. Havia neve. A crista tinha o mesmo cinza do céu e o pinhal ralo da encosta carregava as almofadas de sempre, e nada se mexia em lugar nenhum, nem fumaça, nem linha de neve subindo contra o vento.
 
-— Para quê? — perguntou Maltaren, que viera ver.
+— O que ela viu? — perguntou Maltaren, que viera ver.
 
 — Para nada.
 
@@ -66,7 +66,7 @@ Vinha pela margem de baixo, vinda da foz, andando devagar sobre a neve batida en
 
 Ele chegou à ravina sem correr e disse ao pai, baixo, só para ele:
 
-— Gente. Doze, mais uma. Pela margem de baixo, de mãos abertas.
+— Tem gente vindo. Doze, e mais uma na frente. Pela margem de baixo. Tão de mãos abertas.
 
 Maltaren não perguntou de que lado. Pôs a mão nas costas do filho e o empurrou para trás, e saiu à frente do abrigo, e atrás dele saíram Klafres com a panela ainda debaixo do braço e Mentesra com a vela apagada na mão, e por fim Sefter, que parou na pele da entrada e ficou ali, com o saco de peixe pendurado, os olhos presos na mulher da frente.
 
@@ -74,7 +74,7 @@ Ela parou a um tiro de pedra. Atrás dela os outros pararam também, e um por um
 
 — Paz neste fogo — disse ela. A voz era baixa, sem pressa, com a cadência de quem está acostumada a dizer coisas que se repetem.
 
-— Não há fogo — disse Maltaren. — Apagamos. Estamos de saída.
+— O fogo tá apagado — disse Maltaren. — A gente já vai embora.
 
 — Então paz neste chão. — Ela olhou os fardos empilhados e as botas amarradas, e não pareceu se surpreender. — Viemos de longe, pai de casa. Perdemos o fogo na travessia do vale, e a água do rio está dura demais para quem não tem machado. Pedimos o que se pede, fogo e água, e depois seguimos. Não pedimos pouso.
 
@@ -94,13 +94,13 @@ Maltaren também os olhava. Kedran percebeu pela mão do pai, que continuava no 
 
 — O senhor está com a mão na faca — disse a Mais Velha, sem olhar para ela, enquanto aceitava de Klafres uma caneca de água morna que ele tirara da panela. — Faz bem, em casa de gente que já viu muita coisa. Mas é uma faca de caça. Sei reconhecer.
 
-— Eu a levo sempre — disse Maltaren.
+— Ando com ela — disse Maltaren.
 
 — Todos levamos.
 
 Klafres servia as canecas uma por uma, e ao chegar ao rapaz de voz grossa puxou conversa, como fazia com todo estranho, para encher o silêncio.
 
-— Essa panela é de ferro de cume. Não trinca no frio, o homem do sal jurou. Cobrou o dobro por ela, o que me convenceu de que devia ser boa, porque quem cobra o dobro costuma ter razão.
+— Essa panela é de ferro de cume. O homem do sal jurou que não racha no frio. Cobrou o dobro, então espero que tenha falado a verdade.
 
 — Costuma dever — disse a Mais Velha.
 
@@ -110,9 +110,9 @@ Litara chegou pouco depois. Kedran nem soubera que tinha acordado. Veio nos bra�
 
 — A senhora tem uma casa grande — disse a Mais Velha a Mentesra, olhando para Nefestra. — Muitas bocas para o inverno.
 
-— Uma casa que está de saída — disse Mentesra.
+— E já está de saída — disse Mentesra.
 
-— Eu vejo. — A Mais Velha bebeu um gole, e o pomo de Adão do rapaz atrás dela subiu e desceu, num gesto de quem espera. — Antes de beber, dizemos. Nós temos o costume. Perdoem a demora, é o nosso modo de agradecer.
+— Estou vendo. — A Mais Velha bebeu um gole, e o pomo de Adão do rapaz atrás dela subiu e desceu, num gesto de quem espera. — Antes de beber, a gente diz umas palavras. É costume nosso. Espero que não se importem.
 
 Ela ergueu a caneca à altura do rosto. Os cinco sentados ergueram as suas, e os que estavam de pé baixaram as lanças, uma a uma, até a ponta tocar a neve.
 
@@ -136,7 +136,7 @@ Ela olhava a gola de Nefestra. Olhou por um tempo, sem esconder, com a expressã
 
 — Aí está — disse.
 
-— O que quer dizer isso? — perguntou Maltaren.
+— Que conversa é essa? — perguntou Maltaren.
 
 — Que a gente sabia, pai de casa. Sabíamos o nome de vocês antes de pedir o fogo. Quis ver o resto com meus olhos, e agora vi. — Ela se levantou. Era mais alta do que Kedran tinha calculado, e a voz, quando falou outra vez, tinha a mesma cadência calma de antes e nada de novo dentro. — Antes de lançar, dizemos.
 
@@ -162,7 +162,7 @@ Nefestra ficou parada. Tinha Litara contra o peito, a cabeça da menina enfiada 
 
 Maltaren já estava no meio deles. Tinha a faca em uma mão e na outra o braço de um dos de pé, que havia largado a lança para sacar o que levava na cintura, e os dois giraram juntos, e o devoto caiu sem um som e ficou onde caiu. Mais dois vinham. Maltaren recuou meio passo, para a boca da ravina, onde a rocha deixava um espaço que só cabia um homem de cada vez, e ficou ali, as costas na pedra, e uma lança curta lhe entrou pelo flanco esquerdo, por baixo das costelas, com um ruído que Kedran ouviu por cima de todo o resto.
 
-— O gelo — disse o pai. Tinha a voz rouca, de um homem que fala com água na boca. — Leva todos pelo gelo, Kedran. Você é quem sabe lê-lo. E o seu tio, se ele andar. Se não andar, arrasta.
+— O gelo — disse o pai. Tinha a voz rouca, de um homem que fala com água na boca. — Leva todo mundo pelo gelo, Kedran. Você conhece aquele trecho. Leva seu tio também. Se ele não conseguir andar, arrasta.
 
 — O senhor...
 
@@ -182,7 +182,7 @@ Desceram pelo caminho dos covos, entre os pinheiros, onde os galhos carregados d
 
 O rio estava na luz do dia, cinzento, com as veias de azul-escuro correndo por baixo do gelo como as dos pulsos, e a curva da pedra grande se abria à direita, onde as lajes se projetavam sobre a corrente preta em línguas tortas. Ele parou na margem. Pôs Sefter no chão, de lado, sobre a neve batida, e Sefter abriu os olhos, cinzentos de dor, e olhou para o céu sem parecer reconhecê-lo.
 
-— Sef — disse Kedran. — Olha para mim. Você tem que ficar quieto e deixar o corpo mole. Entendeu?
+— Sef — disse Kedran. — Olha pra mim. Fica quieto e deixa o corpo solto pra eu te puxar. Entendeu?
 
 — A tia — disse Sefter. A voz saiu esfarelada. — A tia Mentesra...
 
@@ -192,7 +192,7 @@ O rio estava na luz do dia, cinzento, com as veias de azul-escuro correndo por b
 
 Tirou o casaco de pele de sarnak e estendeu-o sobre a neve, e rolou Sefter para cima dele. Amarrou a ponta da corda de couro que levava na cintura à de Nefestra, com o nó que apertava mais quanto mais se puxava, passou a volta do meio na própria cintura e prendeu a outra ponta ao colarinho do casaco, por baixo dos braços de Sefter. Nefestra o olhava de perto, o rosto pequeno e imóvel, com a mecha de Litara colada na bochecha.
 
-— Você vai na frente — disse ele. — Vai de joelhos, com a Litara debaixo do corpo, e com o braço aberto. Não deixa o peso no mesmo lugar. Quando eu mandar, deita e se arrasta.
+— Vai na frente — disse ele. — De joelhos, com a Litara protegida debaixo de você e o braço aberto. Não põe o peso todo no mesmo lugar. Quando eu falar, deita e se arrasta.
 
 — Eu sei — disse Nefestra. — Você ensinou.
 
@@ -202,7 +202,7 @@ Tirou o casaco de pele de sarnak e estendeu-o sobre a neve, e rolou Sefter para 
 
 — Devagar no gelo.
 
-— Tio — disse Kedran. — O senhor por último, e de barriga.
+— Tio, o senhor vai por último. De barriga — disse Kedran.
 
 — De barriga — disse Klafres, com a mão no flanco e os dentes cerrados. — Eu sei.
 
@@ -244,11 +244,11 @@ Kedran olhou para o rio. Do outro lado, entre os troncos, as figuras cinzentas s
 
 Kedran não respondeu.
 
-— Eles vão dar a volta pelo vale de cima ou esperar o gelo pegar, que pega em três noites, e não têm pressa. — Klafres abriu os olhos de novo. — A gente volta por eles quando forem embora. Pelo seu pai e pela minha mulher. Não ficam ali.
+— Eles vão dar a volta pelo vale de cima ou esperar o gelo firmar. Em três noites já firma. E eles podem esperar. — Klafres abriu os olhos de novo. — A gente volta quando eles forem embora. Busca seu pai e minha mulher. Não vão ficar lá.
 
 — Volta.
 
-— Mas hoje não. Seu pai tinha uma coisa para contar a vocês e não deu tempo. Eu sei o que é. Eu conto quando a gente parar, e é melhor que seja logo. — A mão dele largou o flanco e agarrou o antebraço de Kedran, com uma força que não combinava com o resto. — Agora quem escolhe o caminho é você. Seu pai deixou você na frente, e eu não vou discutir com ele agora.
+— Mas não hoje. Seu pai tinha uma coisa pra contar. Não deu tempo. Eu sei o que é e conto assim que a gente parar. — A mão dele largou o flanco e agarrou o antebraço de Kedran, com uma força que não combinava com o resto. — Agora é você que escolhe o caminho. Seu pai deixou você na frente. Não vou discutir isso agora.
 
 Atrás de Kedran, no meio dos pinheiros, Sefter gemia baixo, com a coxa aberta pelo gancho, e Nefestra tinha se sentado numa raiz com Litara no colo e olhava para a frente, para a mata. Os lábios dela se mexiam. Kedran viu, e viu que a conta dela passava duas vezes pelo número cinco e que a boca insistia em tentar o seis, e o sete, sem som, e voltava ao começo. Quando os olhos dela passavam pelo pai, sentado contra o pinheiro, voltavam depressa para o chão. Com a mão única ela puxou a lamparina, que pendia por fora, e a empurrou de volta sob a gola, no lugar exato.
 
