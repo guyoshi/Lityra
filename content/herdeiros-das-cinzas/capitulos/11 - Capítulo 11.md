@@ -928,7 +928,7 @@ Ele fechou a tábua. A tira amarela ficou pendurada na ponta do rolo como uma pe
 
 Etrinna acompanhou os dois até a borda do acampamento. Ninguém voltou a pedir história. Hadrel permaneceu sentado ao lado de Nefestra, com o cobertor ainda sobre os joelhos dela. Sefter ficou de pé perto da roda, olhando o caminho por onde os homens tinham ido.
 
-Quando a líder voltou, trouxe o rolo de couro que o emissário deixara para a comunidade. Pousou-o sobre o banco e desenrolou até a última linha. Nefestra se aproximou com o livro de contas, e Olhara pegou a lamparina para iluminar os números.
+Quando a líder voltou, trouxe o rolo de couro que o emissário deixara para a comunidade. Pousou-o sobre o banco e desenrolou até a última linha. Nefestra se aproximou com o livro de contas, e Olhara puxou uma lamparina comum da cozinha para iluminar os números.
 
 Abaixo das condições de trabalho havia uma coluna vazia, preparada para os nomes de quem aceitasse.
 
