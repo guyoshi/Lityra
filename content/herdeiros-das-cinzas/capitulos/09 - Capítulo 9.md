@@ -20,7 +20,7 @@ No instante seguinte a neve desapareceu.
 
 Sefter acordou com os dedos fechados no vazio e uma dor funda na coxa. O que estava acima de sua cabeça não era o teto de casa. Eram pedras inclinadas, galhos cobertos por uma pele e um pedaço de céu branco, cortado por neve que o vento fazia passar de lado.
 
-Demorou um pouco para entender onde estava. Haviam passado a noite sob uma saliência de rocha, depois de descer tanto pela mata que já não ouviam os homens do posto Mardrar. Não tinham encontrado abrigo melhor. A parede natural os escondia da estrada, mas deixava entrar o frio pela abertura mais larga. Nefestra tapara aquele lado com uma pele e algumas pedras. Bera dormia enroscada perto da entrada.
+Demorou um pouco para entender onde estava. Haviam passado a noite sob uma saliência de rocha, depois de descer tanto pela mata que já não ouviam os homens do posto Mardrar. Não tinham encontrado abrigo melhor. A parede natural os escondia da estrada, mas deixava entrar o frio pela abertura mais larga. Nefestra tapara aquele lado com uma pele e algumas pedras. Antes de se deitar, arrastara um ramo de pinho sobre as pegadas que ligavam o abrigo à trilha. Se os Mardrar tornassem a procurar gente sem proteção, não precisariam encontrar uma arma nem provar um furto para levá-los. Bera dormia enroscada perto da entrada.
 
 Kedran não estava ali.
 
