@@ -48,11 +48,7 @@ Fiquei com o telefone na mão depois que ele desligou. Queria contar sobre a gar
 
 — Ótimo. — Ele pareceu satisfeito de verdade. — Eu te ligo mais tarde.
 
-Quando desliguei, fiquei alguns segundos parada com o celular na mão, olhando a parede, sem entender por que aquilo parecia tão bom e tão perigoso ao mesmo tempo. Larguei o celular e voltei a limpar a pia. Pelo menos ali eu sabia o que estava fazendo.
-
-E foi aí que eu errei.
-
-Porque eu parei em frente ao telefone fixo.
+Quando desliguei, fiquei alguns segundos parada com o celular na mão, olhando a parede, sem entender por que aquilo parecia tão bom e tão perigoso ao mesmo tempo. Larguei o celular e voltei a limpar a pia. Pelo menos ali eu sabia o que estava fazendo. E foi aí que eu errei. Porque eu parei em frente ao telefone fixo.
 
 Era velho, amarelando nas bordas, daqueles que ficam em casa por “precaução” e nunca servem para nada. Fiquei olhando para o telefone. Se ligasse, minha avó ia perguntar por que eu tinha demorado tanto. E antes de me convencer a não fazer, disquei o número da minha avó.
 
@@ -211,11 +207,7 @@ O motorista me olhou pelo retrovisor. Fingi que estava conferindo o endereço, m
 
 O táxi parou diante da entrada. Saí, sentindo o chão do jardim bem cuidado sob os pés, com a grama aparada rente ao chão.
 
-A porta abriu.
-
-Glenda.
-
-Ela apareceu com um sorriso que não chegava nos olhos, e eu senti na hora aquela irritação antiga. Aquele tipo de pessoa que parece ter sempre uma resposta pronta e nunca diz a verdade toda.
+A porta abriu. Glenda. Ela apareceu com um sorriso que não chegava nos olhos, e eu senti na hora aquela irritação antiga. Aquele tipo de pessoa que parece ter sempre uma resposta pronta e nunca diz a verdade toda.
 
 — Priscila — disse ela, prolongando meu nome só para me irritar.
 
@@ -325,9 +317,7 @@ Diego inclinou a cabeça, interessado demais.
 
 — Confusão como?
 
-Olhei de relance para Glenda. Ela acompanhava a conversa com uma atenção que me fez engolir a resposta que eu estava prestes a dar.
-
-Eu sorri, controlada.
+Olhei de relance para Glenda. Ela acompanhava a conversa com uma atenção que me fez engolir a resposta que eu estava prestes a dar. Eu sorri, controlada.
 
 — Gente chata. — eu disse. — Eu me cansei.
 
@@ -569,11 +559,7 @@ Ela riu como se eu tivesse feito piada.
 
 Foi nesse momento que Diego voltou. Não pela frente, como alguém que retorna à própria cadeira, mas por trás, contornando o ambiente como se estivesse circulando para verificar o cenário. Trazia alguma coisa na mão, qualquer desculpa doméstica para justificar a volta, e parou perto da minha cadeira, atrás de mim, numa distância que eu não tinha notado antes.
 
-Eu fui levar o copo à boca, tentando me concentrar no gesto, tentando manter o controle da minha expressão, e então senti.
-
-Uma mão tocando meu rosto.
-
-Não foi agressivo. Foi pior. Foi íntimo, familiar demais para alguém que eu mal conhecia. Diego encostou os dedos de leve na minha bochecha, como se o meu corpo fosse parte da decoração daquela noite. Imediatamente recuei. 
+Eu fui levar o copo à boca, tentando me concentrar no gesto, tentando manter o controle da minha expressão, e então senti. Uma mão tocando meu rosto. Não foi agressivo. Foi pior. Foi íntimo, familiar demais para alguém que eu mal conhecia. Diego encostou os dedos de leve na minha bochecha, como se o meu corpo fosse parte da decoração daquela noite. Imediatamente recuei. 
 
 — Esse perfume… — ele disse, e o sorriso bonito dele ficou ainda mais bonito, como se isso fosse o suficiente para tornar qualquer coisa aceitável. — É muito bom. Qual é?
 
@@ -627,9 +613,7 @@ Eu empurrei a cadeira para trás e me levantei com força, o som das pernas no c
 
 Atravessei o saguão, a porta grande, o ar da noite batendo no meu rosto como um tapa frio. Parei do lado de fora, tentando controlar o tremor nas mãos. Eu queria chorar de raiva, mas nunca chorava quando as pessoas estavam olhando. Fiquei sozinha por alguns segundos, até ouvir passos atrás de mim.
 
-Jason.
-
-Ele saiu apressado, e quando parou na porta, olhou para trás uma vez, para a casa, para o pai, como se estivesse medindo as consequências de desobedecer. Depois olhou para mim e o rosto dele amoleceu.
+Jason. Ele saiu apressado, e quando parou na porta, olhou para trás uma vez, para a casa, para o pai, como se estivesse medindo as consequências de desobedecer. Depois olhou para mim e o rosto dele amoleceu.
 
 — Pri… desculpa. — ele disse. — Meu pai costuma ser assim mesmo. Desculpe se ele ultrapassou os limites, ele não percebe…
 
@@ -699,17 +683,11 @@ Não o respondi. Eu queria responder, mas não consegui.
 
 Ele saiu, e eu fiquei ali, comigo mesma. O celular dele estava sobre a mesa, ao lado do guardanapo. E eu juro que eu não ia pegar. Eu não sou esse tipo de pessoa. Eu não invado. Eu não preciso disso.
 
-Só que a tela acendeu com uma notificação.
-
-Diego. Uma mensagem com imagem, vinda do número do pai dele. Uma foto. Depois outra. E outra.
+Só que a tela acendeu com uma notificação. Diego. Uma mensagem com imagem, vinda do número do pai dele. Uma foto. Depois outra. E outra.
 
 Eu vi apenas uma parte primeiro: pele pálida, um cabelo espalhado, um olho aberto demais. A minha mão se moveu antes da minha cabeça mandar, puxando o celular e abrindo a mensagem.
 
-As fotos abriram.
-
-Mulheres.
-
-Mulheres mortas.
+As fotos abriram. Mulheres. Mulheres mortas.
 
 Não era “violência de filme”. Era real. Era íntimo. Era o tipo de imagem que deixa um cheiro imaginário no ar, como se a morte atravessasse a tela.
 

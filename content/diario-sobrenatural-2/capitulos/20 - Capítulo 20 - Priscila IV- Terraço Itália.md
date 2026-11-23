@@ -12,9 +12,7 @@ O aluguel venceria outra vez em menos de um mês. Passei o ano pagando aquele cu
 
 Entrei no banho. Tinha vontade de telefonar para meus pais só para dizer que estava tudo bem. Não telefonei. Minha mãe faria perguntas, meu pai iria oferecer dinheiro e, se alguém dissesse “volta para casa”, eu provavelmente começaria a gritar. Desliguei o chuveiro antes que a conta de água também me arruinasse.
 
-Então o telefone tocou.
-
-Ignorei no primeiro toque. No segundo também. No terceiro, a insistência me irritou mais do que o barulho da água. Fechei o registro, me enrolei na toalha e atravessei o quarto pingando até o aparelho na sala.
+Então o telefone tocou. Ignorei no primeiro toque. No segundo também. No terceiro, a insistência me irritou mais do que o barulho da água. Fechei o registro, me enrolei na toalha e atravessei o quarto pingando até o aparelho na sala.
 
 — Alô.
 
@@ -118,9 +116,7 @@ Não vou contar como. Foi rápido e sem graça, e a primeira coisa que senti foi
 
 Dobrei o que sobrou e enfiei dentro da apostila de Hotelaria, na página das regras de etiqueta à mesa. Para devolver. Para jogar fora. Para depois.
 
-Bateram de novo, duas batidas educadas demais para o Dudu. Lavei o rosto, prendi o cabelo com as mãos que não tremiam e abri sem pensar.
-
-Jason estava ali.
+Bateram de novo, duas batidas educadas demais para o Dudu. Lavei o rosto, prendi o cabelo com as mãos que não tremiam e abri sem pensar. Jason estava ali.
 
 Bem arrumado demais para aquela rua apertada, camisa passada, cabelo no lugar, segurando um buquê de flores como se aquilo fosse a coisa mais normal do mundo. Fiquei sem reação.
 
@@ -198,9 +194,7 @@ Perto do fim da tarde decidi me arrumar. Não porque estivesse animada, mas porq
 
 Tomei banho de novo, prendi o cabelo de um jeito que parecia desleixado, mas era calculado. Perfume, uma blusa preta justa de alça, uma calça de cintura baixa, um cinto de fivela brilhante, um salto que eu odiava mas que me fazia parecer alguém sem medo de nada. Batom mais escuro, delineador puxado, meio agressivo. Se eu ia sair, ia sair parecendo que escolhi isso.
 
-Quando bateram na porta, eu já estava sentada com o rádio ligado, fingindo que era só mais uma noite qualquer.
-
-Abri a porta e Jason estava ali.
+Quando bateram na porta, eu já estava sentada com o rádio ligado, fingindo que era só mais uma noite qualquer. Abri a porta e Jason estava ali.
 
 Eu juro que ele estava ainda mais bonito do que de manhã, como se tivesse ido ao cabeleireiro só para esfregar na minha cara que existem pessoas com tempo e dinheiro para serem impecáveis. Cabelo recém-cortado, camisa clara bem passada, manga dobrada no antebraço, relógio discreto, e um casaco escuro que o fazia parecer adulto. O tipo de adulto que não se desmancha com uma conta atrasada.
 
@@ -342,9 +336,7 @@ O outro homem, mais jovem, com sorriso fácil, acenou.
 
 — Tudo pronto, comandante.
 
-Eu olhei.
-
-O helicóptero que nos dirigíamos era vermelho vivo, elegante, moderno demais para eu acreditar. Parecia coisa de celebridade.
+Eu olhei. O helicóptero que nos dirigíamos era vermelho vivo, elegante, moderno demais para eu acreditar. Parecia coisa de celebridade.
 
 — Jason… você alugou um helicóptero?
 
@@ -376,11 +368,7 @@ Quando as pás começaram a girar de verdade, o vento bateu e o barulho virou um
 
 — Eu tô respirando — eu menti.
 
-O helicóptero levantou.
-
-E o mundo… o mundo ficou para baixo.
-
-Meu estômago flutuou, minha pele arrepiou inteira, e eu agarrei Jason com tanta força que eu devia ter deixado marca.
+O helicóptero levantou. E o mundo… o mundo ficou para baixo. Meu estômago flutuou, minha pele arrepiou inteira, e eu agarrei Jason com tanta força que eu devia ter deixado marca.
 
 — Tá tudo bem — ele disse, rindo baixinho, não de mim, mas com ternura. — Eu tô aqui.
 
@@ -404,19 +392,13 @@ Eu apertei ainda mais o braço de Jason.
 
 Ele beijou minha testa de leve, um gesto tão simples que quase me desmontou.
 
-O helicóptero começou a descer.
-
-O estômago afundou de novo. Agarrei o braço de Jason, com medo de cair.
+O helicóptero começou a descer. O estômago afundou de novo. Agarrei o braço de Jason, com medo de cair.
 
 Quando pousamos, o comandante Afonso se virou com um sorriso.
 
 — Bem-vindos ao heliporto do Terraço Itália. É aqui que deixo vocês. Tenham um excelente jantar.
 
-Terraço Itália.
-
-Eu olhei para Jason, sem acreditar.
-
-Ele estendeu a mão para mim e eu peguei, porque naquele momento eu era incapaz de fingir autonomia.
+Terraço Itália. Eu olhei para Jason, sem acreditar. Ele estendeu a mão para mim e eu peguei, porque naquele momento eu era incapaz de fingir autonomia.
 
 Descemos. Subimos alguns corredores. Tudo era elegante: perfume caro e comida boa, luz baixa, gente bem vestida. Um garçom nos recebeu e, ao ver Jason, sorriu como quem reconhece alguém importante.
 
@@ -432,9 +414,7 @@ Jason inclinou o rosto.
 
 E era verdade: eu não estava com medo. Eu estava… outra coisa.
 
-Ninguém nunca tinha feito aquilo comigo. Nunca ninguém tinha me levado de helicóptero a um jantar, muito menos me tratado com toda aquela atenção. A Kelly era a princesinha. Eu era a esquecida. Eu era a que se virava. Eu era a que aguentava.
-
-Jason tocou minha mão.
+Ninguém nunca tinha feito aquilo comigo. Nunca ninguém tinha me levado de helicóptero a um jantar, muito menos me tratado com toda aquela atenção. A Kelly era a princesinha. Eu era a esquecida. Eu era a que se virava. Eu era a que aguentava. Jason tocou minha mão.
 
 — Agora você pode pedir o que quiser no cardápio. E eu espero que você tenha gostado da surpresa.
 

@@ -90,9 +90,7 @@ Eu chorei sem som, porque o choque comeu a minha voz. E foi aí que eu vi a Kell
 
 Ela estava do outro lado do fogo, entre duas árvores, o rosto molhado como se tivesse chovido só nela. A blusa era a mesma. O buraco no peito era o mesmo, escuro e absoluto, e o olhar dela me atravessava com uma calma que me deu medo. Kelly abriu a boca, e eu esperei uma frase, um perdão, um julgamento.
 
-O que saiu não foi voz.
-
-Foi fumaça.
+O que saiu não foi voz. Foi fumaça.
 
 A fumaça subiu, e quando se juntou ao fumo do carro, o ar ao meu redor começou a ganhar formas erradas. Sombras se alongaram, tentáculos negros surgiram como se o escuro tivesse decidido ter mãos, e olhos vermelhos se acenderam dentro deles, piscando, observando, como brasas vivas enterradas no breu.
 
@@ -194,9 +192,7 @@ Eu não me mexi.
 
 — Tô falando de vocês inventando mentira sobre uma pessoa que não pode se defender. A Kelly não era nada disso. Não como vocês.
 
-A loira abriu a boca, pronta pra gritar. Só que parou.
-
-Como se o ar tivesse mudado.
+A loira abriu a boca, pronta pra gritar, mas parou de repente, como se tivesse sentido uma mudança no ar.
 
 O copo em cima da mesa começou a se mexer. Para elas, era “sozinho”. Para mim, era o homem pálido tocando o vidro com quatro dedos, lento, deliberado.
 
@@ -210,23 +206,13 @@ A minha voz saiu ainda mais baixa.
 
 Olhei para o homem pálido, sem saber o que dizer, e ele virou o copo, jogando o líquido em cima das duas.
 
-Elas gritaram e saíram correndo.
+Elas gritaram e saíram correndo. O espírito olhou para mim uma última vez e sumiu, e eu fiquei ali sem satisfação nenhuma.
 
-O espírito olhou para mim uma última vez e sumiu, e eu fiquei ali sem satisfação nenhuma.
-
-Eu sempre odiei meninas daquele tipo, a facilidade com que transformavam pessoas em história. Dor em novela. Tragédia em entretenimento.
-
-E “assassino”.
-
-Foi essa palavra que ficou presa na minha cabeça.
-
-Vinícius estava preso por algo que não fez.
+Eu sempre odiei meninas daquele tipo, a facilidade com que transformavam pessoas em história. Dor em novela. Tragédia em entretenimento. Mas uma palavra ficou presa na minha cabeça: “assassino”. Vinícius estava preso por algo que não fez.
 
 Depois que os Elos foram destruídos, a polícia finalmente conseguira entrar na casa dos Marques e examinar o lugar. Antes disso, os investigadores voltavam sem conseguir explicar o que tinham ido fazer lá. Agora havia corpos, marcas e depoimentos. A morte do Pézinho acabou registrada como acidente; as dos homens do Mandioca continuavam sem explicação. Havia também uma filmadora no meu quarto. Eu a guardava porque mostrava coisas impossíveis, mas também mostrava Vini com um facão na mão. Se a entregasse, não sabia que parte escolheriam acreditar.
 
-E eu nunca tinha tido permissão pra visitá-lo.
-
-Quando saí da escola, fui pra casa como quem já tinha decidido. Tomei banho, me arrumei, peguei meus documentos, e depois fui até a casa do Alberto.
+E eu nunca tinha tido permissão pra visitá-lo. Quando saí da escola, fui pra casa como quem já tinha decidido. Tomei banho, me arrumei, peguei meus documentos, e depois fui até a casa do Alberto.
 
 Eu e Alberto tínhamos estudado juntos no começo da vida e depois sumimos um da vida do outro, como acontece em cidade pequena. Reencontrei-o quando ele foi matricular a irmã, e ele foi uma das poucas pessoas que me fizeram lembrar como é sorrir sem culpa.
 
@@ -316,9 +302,7 @@ Vinícius estava sentado num banco comprido, em frente a uma mesa pequena, cabe�
 
 — Vinícius? — eu chamei.
 
-Ele levantou o rosto.
-
-O choque foi físico.
+Ele levantou o rosto. O choque foi físico.
 
 O rosto dele estava destruído. Um olho quase fechado, roxo de hematoma, a boca com uma cicatriz feia, como se alguém tivesse tentado marcar a existência dele, uma curta barba jovem por fazer e um cansaço que deixava ele mais velho do que realmente era.
 
@@ -498,9 +482,7 @@ Glenda riu e olhou Vini nos olhos. A expressão de deboche se desfez aos poucos 
 
 — Você tá falando sério?
 
-Ele assentiu.
-
-Ela murmurou, quase pra si mesma:
+Ele assentiu. Ela murmurou, quase pra si mesma:
 
 — Estranho.
 
@@ -530,9 +512,7 @@ Glenda anotou algo e então se virou para Vini.
 
 — Seria o tipo de mentira que salva.
 
-O alarme de fim de visita soou, seco, metálico.
-
-Eu olhei pra Vinícius com urgência.
+O alarme de fim de visita soou, seco, metálico. Eu olhei pra Vinícius com urgência.
 
 — A gente vai dar um jeito, Vini. Eu prometo.
 
@@ -566,9 +546,7 @@ Depois subi e deitei, pensando no que restava. Talvez se Junior publicasse o Di�
 
 A mentira útil ainda poderia ser uma opção. Mas eu não conseguia aceitar que a morte da Kelly virasse “versão”.
 
-Eu levantei e fui até a casa do Junior.
-
-Bati na porta.
+Eu levantei e fui até a casa do Junior. Bati na porta.
 
 Depois de alguns minutos, ele abriu com cara de sono, cabelo bagunçado, aquele olhar vazio que parecia sempre atrasado na vida.
 
