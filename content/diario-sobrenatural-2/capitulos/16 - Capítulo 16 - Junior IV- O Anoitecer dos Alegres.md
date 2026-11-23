@@ -264,7 +264,9 @@ Eu continuei a andar, chamando Manu em voz baixa, evitando gritar.
 
 Comecei a notar, em meio à névoa, que havia pessoas ali. Um homem varria a calçada com movimentos lentos e metódicos, sem olhar para o que varria. Duas crianças corriam em volta de um poste, sem riso, como se cumprissem uma tarefa. Uma senhora regava plantas que não precisavam de água. Tudo parecia robótico.
 
-Além disso, nenhum olho se virava enquanto eu passava. Absolutamente ninguém me olhava.
+O homem que varria parou diante de uma rachadura na calçada. Pela primeira vez olhei para a vassoura. As cerdas estavam molhadas de vermelho, e ele as arrastava sobre o concreto seco, fazendo o mesmo movimento em direção a um balde vazio. Quando ergueu o cabo, ouvi várias batidas dentro do balde, como unhas no metal. O homem não se abaixou para ver. Continuou varrendo.
+
+Nenhum olho se virava enquanto eu passava. Absolutamente ninguém me olhava.
 
 Eu passei por um pequeno mercado, daqueles com letreiro desbotado e geladeira antiga, e optei por entrar.
 

@@ -1,10 +1,4 @@
-Nenhuma cidade de Jesed se comparava a Kaeliran. Outras fortalezas haviam resistido por gerações antes de desaparecer, mas Kaendar continuava no centro da cidade que crescera ao seu redor, pequena diante dos novos bairros e ainda sede das ordens e leis Polar. Cada soberano deixara sua marca. Kaelyr dera à cidade outro nome e ampliara as muralhas. Nerya conduzira água sob as ruas. Kareth mudara a maneira como os Polar construíam depois de grandes incêndios. Alysen estendera rotas e Kaes para além dos portões, levando a autoridade Polar por Jesed.
-
-Séculos de obras se cruzavam em Kaeliran: muralhas interiores ampliadas por soberanos diferentes eram atravessadas por canais de gerações posteriores, depósitos serviam distritos inteiros, portões continham multidões, e as ruas guardavam nomes de vitórias que poucos ainda sabiam explicar. Ordens saíam de Kaendar e alcançavam bairros distantes no mesmo dia. As crianças decoravam os soberanos antes de conhecer todas as passagens do próprio distrito.
-
-Acima de tudo, havia a história. Quando todos vieram contra os Polar, as muralhas permaneceram. Era assim que se contava. As gêmeas haviam mantido Kaendar de pé quando todo Jesed quis derrubá-la, e os séculos tinham aparado aquela guerra até ela caber numa frase de escola, num verso de canção e numa imagem pintada nas paredes: vieram todos, Kaendar permaneceu.
-
-Entre duas construções tortas da Cidade Exterior, Elis corria como se todo o poder dos Polar estivesse atrás dela.
+Entre duas construções tortas da Cidade Exterior, Elis corria com dois garotos no encalço.
 
 — Pare!
 
@@ -52,7 +46,11 @@ Três lascas pequenas descansavam em sua palma. Elis olhou para elas e franziu a
 
 Guardou duas, pensou melhor e guardou a terceira também. Não tinha mentido completamente. Eles haviam perguntado se estava com as lascas enquanto ela corria, e naquela situação uma resposta curta era muito mais útil do que uma resposta exata.
 
-Seguiu em direção às muralhas superiores. Quanto mais avançava, mais Kaeliran mudava: a terra dava lugar à pedra, as passarelas improvisadas desapareciam, os guardas surgiam com maior frequência, e carroças eram separadas por tipo de carga, trabalhadores mostravam autorizações e as filas se dividiam conforme destino, profissão ou registro. Naquele dia havia muito mais gente que o habitual, e todos queriam a mesma coisa.
+Seguiu em direção às muralhas superiores. Quanto mais avançava, mais Kaeliran mudava: a terra dava lugar à pedra, as passarelas improvisadas desapareciam, os guardas surgiam com maior frequência. Carroças eram separadas por carga. Trabalhadores mostravam autorizações nas filas, divididas conforme o destino, a profissão e o registro.
+
+A cidade guardava obras de soberanos diferentes, uma por cima da outra. Elis passou por uma fonte ligada aos canais que Nerya fizera correr sob as ruas. Na pedra de uma construção reconstruída depois de um grande incêndio, o nome de Kareth estava gravado acima de uma antiga marca de fuligem. Mais adiante, um portão ampliado trazia a Ramagem de Kaelyr, o soberano que dera à cidade outro nome. As vias usadas por mensageiros e Kaes lembravam a expansão de Alysen para além das muralhas. Em Maruva, aqueles nomes apareciam nas cantigas e nas placas, mas os benefícios das obras chegavam de forma bem diferente às ruas de baixo.
+
+Naquele dia havia muito mais gente que o habitual, e todos queriam a mesma coisa.
 
 Ver o soberano.
 
@@ -64,9 +62,9 @@ No controle provisório, entrou numa fila em que duas mulheres discutiam porque 
 
 — Está trabalhando.
 
-— Então volte com ele.
+— Nesse caso, volte acompanhada do responsável.
 
-— Todo mundo está entrando — disse Elis, apontando para a multidão além do portão.
+— Mas tem um monte de gente entrando! — Elis apontou para a multidão além do portão.
 
 — Nem todo mundo.
 
@@ -90,7 +88,9 @@ Ele a observou mais um instante antes de abrir espaço.
 
 Elis atravessou sentindo a última lasca escondida na roupa e sorriu. Os dois garotos provavelmente continuavam presos em algum dreno, o que fazia daquele um excelente começo de dia.
 
-O som da multidão cresceu à medida que ela se aproximava do Caminho da Permanência. Já estivera perto dali, mas nunca num dia como aquele. Uma avenida monumental subia até Kaendar entre construções mais limpas e antigas, com estandartes azuis pendendo das fachadas e guardas mantendo corredores livres para autoridades. Estátuas ocupavam os pontos elevados do percurso, e Elis reconheceu alguns nomes sem precisar ler inscrições: Kaelyr, Nerya, Alysen, Selyra. Estavam por toda parte, em distritos, fontes, portões e canções, de modo que até crianças que nunca chegariam perto de Kaendar sabiam alguma coisa sobre eles. Mais acima, a fortaleza dominava a cidade, com torres de épocas diferentes surgindo umas atrás das outras e muros ampliados tantas vezes que ninguém saberia apontar onde terminava a antiga fortaleza e começava o palácio.
+O som da multidão cresceu à medida que ela se aproximava do Caminho da Permanência. Já estivera perto dali, mas nunca num dia como aquele. Uma avenida monumental subia até Kaendar entre construções mais limpas e antigas, com estandartes azuis pendendo das fachadas e guardas mantendo corredores livres para autoridades. Estátuas ocupavam os pontos elevados, e Elis reconheceu Kaelyr, Nerya, Alysen e Selyra sem precisar ler as inscrições. Numa parede, as gêmeas apareciam diante de exércitos que avançavam de todos os lados. *Vieram todos, Kaendar permaneceu*, dizia a pintura. Era também o verso que as crianças cantavam, embora quase ninguém soubesse contar aquela guerra inteira.
+
+Elis ergueu a cabeça. Kaendar ainda estava no centro da metrópole, pequena diante dos bairros que tinham crescido ao redor e grande o bastante para mandar ordens a toda Jesed. Suas torres e muralhas pertenciam a épocas diferentes, e ninguém ali saberia apontar com segurança onde acabava a antiga fortaleza e começava o palácio. Elis queria apenas chegar perto o suficiente para enxergar quem morava lá dentro.
 
 Um homem enorme bloqueava sua visão. Tentou a esquerda e encontrou uma mulher de chapéu alto, tentou a direita e esbarrou em dois soldados, e só depois de passar por baixo do braço de alguém achou um espaço entre um barril e uma família, de onde via parte do caminho. Atrás das barreiras, tarraks batiam os cascos largos contra a pedra e moviam as orelhas diante do barulho. Mais longe, dois bravões puxavam uma carroça de recipientes de água, tão tranquilos com a multidão que um deles apenas virou a cabeça quando duas crianças começaram a discutir sobre qual conseguiria tocar primeiro seus quatro chifres se o condutor se distraísse.
 
@@ -284,7 +284,7 @@ O segundo homem fechou a passagem atrás dela.
 
 — Eu estava assistindo ao anúncio.
 
-— Você não possuía autorização para subir aqui.
+— Você não tinha autorização para passar por este acesso.
 
 — Eu paguei.
 
@@ -318,7 +318,7 @@ O estômago dela apertou.
 
 Elis abriu a boca, pensou um pouco e apontou para ele.
 
-— Isso não prova que eu entrei.
+— Isso só prova que vocês me acharam lá!
 
 O segundo homem quase sorriu, mas o primeiro permaneceu impassível.
 
@@ -396,7 +396,7 @@ Elis abriu a boca, mas Selina levantou um dedo.
 
 Elis fechou.
 
-— Você teve sorte de eu precisar deles. — Não havia gentileza alguma em sua voz.
+— Você teve sorte de eu precisar daqueles homens. — Selina não ofereceu nenhum sorriso.
 
 — Eu só estava olhando.
 

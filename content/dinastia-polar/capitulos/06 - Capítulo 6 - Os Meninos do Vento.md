@@ -1,4 +1,4 @@
-Kalan chegou em casa quando o céu ainda estava da cor de cinza molhado, a hora em que os últimos carregadores do turno noturno se cruzavam na rua com os primeiros vendedores empurrando carrinhos de verdura para o mercado da divisa. Passara a noite toda descarregando fardos que deviam sair antes do amanhecer por causa do fluxo do Torneio, os braços já respondendo mais por hábito do que por vontade. Cada rua de Maruva que atravessava parecia mais comprida do que da última vez, como se o cansaço esticasse a distância entre um poste e outro.
+Kalan chegou em casa quando o céu ainda estava da cor de cinza molhado, a hora em que os últimos carregadores do turno noturno se cruzavam na rua com os primeiros vendedores empurrando carrinhos de verdura para o mercado da divisa. Passara a noite toda descarregando fardos que deviam sair antes do amanhecer por causa do fluxo do Torneio, os braços já respondendo mais por hábito do que por vontade. Percorreu as últimas ruas de Maruva com as botas pesadas e a cabeça latejando.
 
 Elis já estava de pé quando ele entrou, enrolando na cintura a faixa onde guardava os pedaços de mapa, pronta para sair. Trocaram poucas palavras: ela perguntou se ele tinha comido alguma coisa, ele disse que ia comer depois, os dois sabendo que não era bem verdade, e ela saiu antes que ele perguntasse para onde ia. Kalan ficou olhando a porta fechada, sentindo o alívio egoísta de tê-la fora de casa pelas próximas horas. Do andar de cima não vinha som. Tair e Orel ainda dormiam no quarto que dividiam com ele.
 
@@ -8,7 +8,7 @@ Passou os dedos pelos papéis dobrados e amarelados, a maioria sem nenhum intere
 
 Leu duas vezes, devagar. Os pais de Darven constavam como Polar, ao contrário do que Tair afirmara. Kalan fechou os olhos um instante. Não tinha mais nenhuma desculpa fácil se alguém perguntasse por que aqueles registros tinham sumido da Casa da Permanência logo depois da agressão a Orel.
 
-Guardou os papéis de volta na ordem exata em que os tirara, pensando no que diria se um dia batessem na porta perguntando por aquilo. Podia jurar que nunca tinha visto a caixa. Podia dizer que outra pessoa da casa tinha entrado lá antes dele. Nenhuma das duas coisas ia se sustentar se alguém realmente quisesse procurar, e ele sabia disso enquanto fechava o fundo falso do caixote: tinha comprado dias, não anos, e o problema continuava exatamente onde estava antes de ele roubar qualquer coisa.
+Guardou os papéis na mesma ordem, recolocou a caixa sob os grãos e fechou o fundo falso. Se viessem perguntar, não tinha uma explicação convincente para sua visita à Casa da Permanência. Mas Orel ainda dormia no andar de cima, e ninguém aparecera para levá-lo.
 
 Subiu sem tirar as botas e caiu na própria esteira. Antes de dormir, pediu a Orel que o acordasse a tempo do próximo turno. Orel conhecia a hora pelos pregões, pelas carroças e pelos ruídos da rua, mesmo sem relógio.
 
@@ -28,9 +28,9 @@ De volta ao cais, Kalan empilhava caixas e repassava a conversa do dia anterior,
 
 Foi por causa disso que errou a marcação de um lote inteiro de sacas, trocando o peso registrado na entrada por outro que nem existia, cabeça longe demais do cais para perceber o próprio erro até Cairon parar ao lado dele, olhar a prancheta, olhar as sacas, e olhar de volta para Kalan sem levantar a voz.
 
-— Isso aqui não bate — disse Cairon, batendo o dedo no número errado, sem raiva, só cansado. — Você sabe fazer isso de olhos fechados. O que está acontecendo contigo?
+— Essa conta tá errada — disse Cairon, batendo o dedo na marca. — Você confere isso de olhos fechados, Kalan. O que aconteceu?
 
-— Nada. Só... muitos problemas em casa — respondeu Kalan, e corrigiu o número depressa, sentindo o rosto esquentar mais de vergonha do que de sol.
+— Nada. É coisa lá de casa — respondeu Kalan, corrigindo o número depressa.
 
 Cairon ficou um instante ali, como se fosse dizer mais alguma coisa, e não disse. Só balançou a cabeça devagar e seguiu para o próximo carregamento, deixando Kalan com a sensação incômoda de ter decepcionado alguém que nunca cobrava nada além de trabalho bem-feito, o que doía mais do que se tivesse gritado.
 
@@ -46,11 +46,11 @@ Sobre a mesa, ao lado da garrafa, estava o velho livro de capa escura que Karesi
 
 — Viajando — disse Karesis, a palavra saindo arrastada, os olhos meio fechados fixos em algum ponto vago da parede.
 
-— Viajando — repetiu Kalan, e riu, um som seco sem nenhuma graça dentro dele. — Você fica bêbado em algum canto da cidade e chama isso de viajar.
+— Viajando — repetiu Kalan, e riu, um som seco sem nenhuma graça dentro dele. — Você some pra beber em qualquer canto e chama isso de viagem.
 
 Karesis não respondeu. Levou a garrafa até a boca de novo, devagar, como se o gesto custasse mais esforço do que devia.
 
-— Sabe... Não está dando certo. — Kalan cruzou os braços, sentindo a raiva do dia inteiro finalmente encontrar um lugar para pousar. — Eu preciso de outra pessoa nessa casa que consiga arrumar trabalho, que ajude com alguma coisa além de comer, beber e dormir aqui. Bateram no Orel e não existia um único responsável que pudesse aparecer, responder por ele, exigir alguma coisa de alguém.
+— Não dá mais, Karesis. — Kalan cruzou os braços. — Eu passo o dia no cais e ainda tenho que resolver tudo aqui. Você não trabalha, não ajuda em nada. Bateram no Orel e a gente não tinha nem um adulto pra ir reclamar.
 
 — Eu soube — disse Karesis, baixo, quase sem mexer os lábios.
 
@@ -62,19 +62,19 @@ Karesis não respondeu. Levou a garrafa até a boca de novo, devagar, como se o 
 
 Silêncio. Karesis olhava para as próprias mãos agora, os dedos sujos de alguma coisa escura que Kalan não quis perguntar o que era.
 
-— Se você não quer ser responsável pela gente, sai — disse Kalan, e a voz dele já não estava mais gritando, tinha descido para um tom mais frio, mais perigoso por isso mesmo. — Sai dessa casa. Eu faço dezoito em pouco tempo, posso assinar por mim, e por todos nós, não preciso de você só ocupando espaço e bebendo.
+— Se não quer cuidar da gente, sai daqui. Daqui a pouco faço dezoito ciclos e posso assinar por nós. Até lá, pelo menos para de atrapalhar.
 
-Karesis ergueu os olhos por um segundo, e Kalan viu ali alguma coisa que não soube nomear na hora, algo que não era raiva nem desafio, mais parecido com um homem levando um golpe que sabia merecido havia muito tempo. Depois os olhos baixaram de novo, e nenhuma palavra veio.
+Karesis ergueu os olhos. Abriu a boca, mas desistiu de falar e tornou a olhar as mãos.
 
-— Fala alguma coisa — Kalan deu um passo à frente, a frustração escapando mais alto do que pretendia. — Você acha que ficar calado assim te livra de alguma coisa? Fala!
+— Fala comigo, pelo menos! — Kalan se aproximou. — Vai ficar olhando pra essa mesa até quando?
 
 Foi assim que Elis o encontrou, parada na porta com a faixa do mapa ainda amarrada na cintura, os olhos indo de um para o outro. Kalan se calou no meio do próprio fôlego ao vê-la ali, engoliu o resto do que ia dizer, e pegou a própria jaqueta pendurada perto da porta.
 
-— Vou trazer legumes pro almoço — disse ele, a voz ainda áspera, a desculpa servindo mais pra ele mesmo do que pra Elis, só um motivo qualquer pra sair daquele cômodo antes que dissesse algo que não desse pra desfazer depois.
+— Vou buscar legumes pro almoço — disse, pegando a jaqueta. Não olhou para Karesis.
 
 A porta bateu atrás dele mais forte do que precisava.
 
-Elis ficou olhando para Karesis por um instante, o silêncio da casa parecendo mais pesado agora sem a voz de Kalan enchendo ele.
+Elis esperou os passos de Kalan se afastarem na rua. Depois sentou diante de Karesis.
 
 — Você está péssimo — disse ela, sem rodeios, aproximando-se apenas o suficiente para sentar no banco do outro lado da mesa. — E fedendo.
 
@@ -122,7 +122,7 @@ Karesis levou um instante para responder.
 
 Elis ia insistir, porque nas histórias dele quase todo mundo tinha nome, mas ele já tinha seguido adiante, a voz baixando um tom.
 
-— Os meninos do vento tinham motivo de sobra para o orgulho. Erguer casas no ar era proeza que nenhum outro povo tinha repetido, e quanto mais os anos passavam sem que nada se soltasse ou caísse, mais eles se convenciam de que aquilo não era cuidado, nem sorte, era prova viva de que tinham feito por merecer aquela altura. Sabe o que as pessoas fazem, Elis, quando passam gerações inteiras sem perder nada? Param de perguntar se algum dia vão perder. Contavam histórias sobre os povos de baixo, gente que vivia com medo do chão que pisava, e riam delas em festas que duravam noites inteiras. E foi no meio de uma dessas festas, ou um pouco antes, que uma pedra pequena se soltou de uma das ilhas mais distantes e caiu sem que ninguém visse. Depois caiu outra, e mais outra, sempre nas bordas, sempre onde poucos olhos passavam. Quem notava dizia que era o vento mudando de direção, e voltava pra dentro de casa satisfeito com a própria explicação.
+— As ilhas estavam lá havia tanto tempo que ninguém mais pensava em cair. Nas festas, os meninos do vento riam de quem morava no chão. Diziam que lá embaixo as pessoas viviam com medo de tudo. — Karesis passou o polegar pela borda do livro. — Até que uma pedrinha se soltou de uma ilha distante. Depois outra. Algumas pessoas viram as rachaduras, mas os responsáveis disseram que era coisa do vento. As festas continuaram.
 
 — Ninguém percebeu?
 
@@ -132,7 +132,7 @@ Karesis tocou a própria pálpebra esquerda com a ponta do dedo, sem parecer not
 
 Ficou olhando a garrafa, girando-a uma volta inteira sobre a mesa. Lá fora passou uma carroça, as rodas batendo nas pedras da rua, e Karesis esperou o barulho morrer por inteiro antes de continuar, tão baixo que ela precisou se inclinar.
 
-— Numa noite comum, sem aviso maior do que os que já vinham ignorando, a primeira ilha desceu. Não de uma vez, em pedaços: uma ponte primeiro, depois um jardim arrancado pela raiz, depois uma casa, e outra, o barulho chegando nas ilhas vizinhas antes da poeira. Gente que dançava ainda achou, por um instante comprido demais, que era só mais um tremor. Não era. A segunda foi atrás da primeira, e não havia mais festa nenhuma quando a terceira começou a rachar, só gente correndo em pontes que balançavam demais para tanta pressa, e o vidro colorido das janelas brilhando um instante no ar antes de sumir nas nuvens.
+— Numa noite de festa, uma das pontes se partiu. Caiu primeiro a ponte, depois o jardim que ela sustentava e uma casa inteira. As pessoas correram para as ilhas vizinhas. Aí a segunda ilha começou a se desfazer também. Quando a terceira rachou, já não havia música. Só gente tentando atravessar as pontes que ainda restavam. As janelas de vidro colorido caíam junto com as paredes. Sumiam nas nuvens antes de atingir o chão.
 
 A mão direita dele, que descansava aberta sobre a mesa, foi se fechando devagar, um dedo de cada vez, até virar punho em volta de nada.
 
@@ -144,7 +144,7 @@ Karesis olhou para ela como se tivesse esquecido, por um instante, quem estava s
 
 Elis esperou o resto, como sempre esperava, e só aos poucos entendeu que dessa vez não havia resto guardado. Ele abriu a mão devagar, e ela estava vazia.
 
-— Não se sabe onde as ilhas caíram, nem quanto tempo levou — disse, já sem a cadência de antes. — Só se sabe que onde vivia aquele povo inteiro não sobrou nada que se pudesse apontar lá do alto e dizer: foi ali. 
+— Não se sabe onde as ilhas foram parar. Nem quanto tempo levou. Quem conta essa história nunca soube apontar no mapa onde ficava o povo do vento. 
 
 Empurrou a garrafa para o meio da mesa, longe da mão, puxou o velho livro para junto do peito e ficou sentado, quieto, os olhos fechados, até a respiração ficar comprida e pesada como a de quem dorme.
 

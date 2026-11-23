@@ -1,8 +1,8 @@
-O grito chegou antes de qualquer outra coisa em Kaendar naquela madrugada: agudo, quebrado no meio, do tipo que a Guarda Soberana treinava para nunca ignorar.
+O grito atravessou Kaendar antes do amanhecer.
 
 — O SOBERANO! ALGUÉM! MEU PAI ESTÁ SENDO ATACADO!
 
-Kerath já corria quando a segunda sílaba ainda ecoava no corredor. Não parou para confirmar, porque o treino lhe ensinara que o instante gasto perguntando "é verdade?" era exatamente o instante que separava um soberano vivo de um morto. Amaric já gritava ordens antes mesmo de aparecer no corredor principal, a voz cortando o tumulto que se formava.
+Kerath saiu correndo, a espada na mão. Amaric surgiu no corredor principal dando ordens antes mesmo de saber onde estava Vetarius.
 
 — Ala leste! Fechem a ala leste! Ninguém entra, ninguém sai!
 
@@ -12,17 +12,17 @@ Encontraram Caeren parado sozinho no meio do Jardim das Colunas, imóvel, os bra
 
 — Onde? — Amaric já estava ajoelhado diante dele, as mãos nos ombros do menino, os olhos correndo por cima da cabeça dele em busca de qualquer coisa fora do lugar. — Caeren. Onde ele está?
 
-Caeren não respondeu na hora. Kerath, parada um passo atrás de Amaric, viu o instante exato, pequeno, que um homem menos atento teria perdido, em que o canto da boca do menino tentou subir e foi contido à força.
+Caeren não respondeu. Kerath viu o canto da boca dele subir um pouco, antes que o menino apertasse os lábios.
 
 — Ali — disse Caeren, por fim, apontando para a Sala das Marés Baixas.
 
 Amaric entrou primeiro. Kerath logo atrás, mais dois guardas fechando a retaguarda. A Sala das Marés Baixas conservava o nome de quando aquele setor de Kaendar guardava tábuas de navegação e registros do Rio Grande. Naquele momento, porém, a sala estava vazia. Vetarius não estava lá, nem perto dali. Encontrariam depois que ele passara a última hora na varanda oeste, discutindo impostos de sal com um administrador entediado, sem nunca ter chegado perto de qualquer perigo.
 
-Foi Amaric quem voltou primeiro ao jardim, a mão ainda na espada, a respiração pesada demais para um homem que passara vinte anos treinando para nunca respirar pesado. Encontrou Caeren exatamente onde o tinham deixado.
+Amaric voltou ao jardim com a espada na mão. Caeren continuava no mesmo lugar, esperando.
 
 — Não havia ninguém — disse Amaric.
 
-Caeren esperou mais um segundo do que devia antes de deixar o riso sair. Quando saiu, saiu inteiro, as mãos nos joelhos, o corpo dobrando para a frente do jeito que só crianças conseguem rir, sem vergonha nenhuma da própria alegria.
+Caeren tentou conter a risada, mas logo se dobrou com as mãos nos joelhos, incapaz de parar.
 
 — Eu queria saber quanto tempo vocês demorariam.
 
@@ -52,7 +52,7 @@ Amaric hesitou só um instante antes de responder, como quem já sabe que a resp
 
 — É muito — disse Vetarius.
 
-E foi só. Nenhuma explicação, nenhuma promessa de castigo, nenhuma frase guardada para o menino carregar como lição. Vetarius já tinha virado inteiramente para Amaric e passou a perguntar, ali mesmo, por que o portão da ala leste demorava tanto para fechar, por que um guarda tinha saído sem a lança, quantos homens realmente tinham chegado ao jardim nos primeiros dois minutos e quantos só depois.
+Vetarius voltou-se para Amaric e começou a exigir explicações: o portão da ala leste demorara demais para fechar, um guarda saíra sem a própria lança e a primeira patrulha levara minutos para chegar ao jardim.
 
 Caeren ficou parado onde estava, ainda respirando um pouco rápido do riso, olhando o pai discutir a própria falha de segurança como se ele já não estivesse mais no jardim.
 
@@ -78,13 +78,13 @@ A lâmina brilhava de um jeito que Dareth não via nela havia muito tempo. Orvat
 
 Orvath não insistiu. Só assentiu, uma vez, do jeito de quem já esperava aquela resposta e só perguntara por educação profissional, e voltou a embrulhar a espada antes de entregá-la.
 
-Dareth pegou-a com as duas mãos, sentindo o peso familiar assentar contra os dedos que restavam de um jeito que nenhuma espada nova jamais conseguiria imitar, e pensou, sem dizer em voz alta, que Orvath tinha feito com aquele metal exatamente o que ninguém conseguiria fazer com ele mesmo: limpar, realinhar, preparar de novo, sem apagar nenhuma das marcas que provavam por onde já tinha passado.
+Dareth recebeu a espada com as duas mãos. O peso era familiar, assim como as marcas que Orvath fizera questão de não apagar. Testou a empunhadura. Ela se encaixava nos quatro dedos da mão esquerda como antes.
 
 A armadura veio depois, peça por peça, com Orvath supervisionando cada ajuste. Era azul Polar profundo, quase negro sob luz fraca e vivo demais sob luz direta, com placas e couro bons o bastante para parecer caro sem parecer inútil, pequenos detalhes de dravenito nas junções que só brilhavam quando Dareth se movia. A proteção da mão esquerda tinha sido refeita para acomodar o que restava dos dedos, com uma precisão que não vinha de vaidade, só do reconhecimento de que uma luva errada naquela mão era mais perigosa do que nenhuma.
 
 As primeiras versões que Orvath lhe mostrara dias antes tinham peças cerimoniais demais, dravenito demais, um elmo emplumado que Dareth recusara só de olhar. O que sobrava agora era funcional o bastante para um homem que ainda pretendia se mover como soldado, não como estátua.
 
-Orvath ajustava uma fivela, recuava um passo, olhava, ajustava de novo, e a cada peça que se encaixava sobre o corpo de Dareth alguma coisa dele desaparecia debaixo daquilo: o homem da propriedade a oeste, o homem que cortava lenha contornando um galho sem nunca comentar por quê. No lugar, devagar, peça por peça, surgia Quatro-Dedos.
+Orvath ajustou as últimas fivelas e afastou-se para ver o conjunto. A armadura trazia novamente o símbolo Polar sobre o peito de Dareth. Ele movimentou o ombro, testou a luva refeita e tentou não pensar em quantos anos fazia que vestira tudo aquilo pela última vez.
 
 — Está apertando aqui? — perguntou Orvath, ajustando uma tira sobre o ombro.
 
@@ -124,7 +124,7 @@ Um setor mais distante respondeu, a palavra ainda maior de tantas vozes juntas.
 
 E dali em diante não parou mais, milhares repetindo a mesma palavra até que ela deixasse de ser som e virasse alguma coisa mais parecida com clima, com ar, com o chão sob os cascos do tarrak de Dareth.
 
-Era, ele precisou admitir, genuinamente bonito. Não o tipo de beleza que se fabricava só com dinheiro e ordem, embora também houvesse dinheiro e ordem ali. Era o tipo que só nascia quando gente demais acreditava, ao mesmo tempo, na mesma coisa. Dareth não conseguia compartilhar aquela crença, mas conseguia reconhecer, sem desprezo, por que os Polar acreditavam tão profundamente na própria permanência.
+Dareth teve de admitir que era bonito. Havia gente chorando enquanto o estandarte subia, crianças gritando com os braços erguidos, velhos que se apoiavam uns nos outros para ver. Não compartilhava daquela devoção, mas a alegria nas ruas não parecia fingida.
 
 Dareth manteve a cabeça baixa durante boa parte do percurso. Em vez dos rostos que o aclamavam, via o caminho: pétalas de alguma flor que ninguém identificou caindo de uma sacada alta, as sombras compridas das bandeiras passando sobre a pedra clara, as patas do tarrak avançando num ritmo que ele nem precisava mais comandar, objetos pequenos lançados em sua direção por gente que só queria participar, flor-do-planalto, fitas, um punhado de grão-de-caule que alguém lançou por superstição antiga. Acima dele, Teral continuava proclamando feitos que Dareth conhecia melhor do que qualquer um ali, enquanto ele olhava para a estrada como quem procura alguma coisa que perdeu nela.
 
@@ -136,7 +136,7 @@ Aqui, o grito predominante continuava sendo o mesmo de antes.
 
 — POLAR!
 
-Dareth entendeu, sem que ninguém explicasse, que aquelas pessoas não estavam simplesmente celebrando um homem montado num tarrak. Estavam celebrando a si mesmas através dele, usando o corpo dele como prova viva de que a grandeza que lhes tinha sido ensinada desde crianças continuava existindo, ainda respirando, ainda montada bem ali na frente delas.
+Dareth viu uma mulher erguer uma criança sobre os ombros. O menino apontou para a Ramagem bordada na armadura e gritou junto com a multidão. O nome de Dareth não importava ali tanto quanto o símbolo que ele carregava.
 
 Vetarius seguia ao lado dele durante toda essa primeira parte, a Ramagem tão fresca que ainda brilhava de resina sob o sol, acenando, chamando pessoas pelo nome de vez em quando de um jeito que fazia cada uma delas se afastar depois contando aos vizinhos que o soberano a reconhecera. Dareth entendeu, observando aquilo de perto pela primeira vez em anos, por que Vetarius continuava sendo amado apesar de tudo: sabia fazer dezenas de milhares de pessoas acreditarem, ainda que só por alguns instantes, que ele conhecia cada uma delas.
 
@@ -160,7 +160,7 @@ Não tinha o mesmo peso solene do Polar repetido pela Cidade Interna. Era mais c
 
 Antes da última passagem, um homem da segurança da comitiva se aproximou de Teral com a urgência controlada de quem já sabia, de antemão, que a pergunta não seria bem recebida.
 
-— A Cidade Exterior é mais populosa. Mais difícil de controlar. Mais Nular por metro de rua do que qualquer coisa que conseguimos vigiar direito hoje. — Baixou um pouco a voz, como se isso tornasse a sugestão mais palatável. — Talvez seja mais prudente encerrar a cerimônia aqui.
+— A Cidade Exterior vai estar lotada de Nular. Não temos homens suficientes para vigiar todas as ruas — avisou o segurança. — Talvez seja melhor encerrar a cerimônia aqui.
 
 Teral nem hesitou.
 
@@ -176,7 +176,7 @@ Virou-se então para o filho, que ainda mantinha a mesma distância cautelosa de
 
 — Caeren vai com você até o fim.
 
-— Eu não preciso ir — disse Caeren, rápido demais, a voz perdendo por um instante toda a indiferença que vinha construindo desde Kaendar. — A Cidade Exterior não tem nada que eu precise ver.
+— Eu não preciso ir — disse Caeren, rápido demais, a voz perdendo por um instante toda a indiferença que vinha construindo desde Kaendar. — Não vejo motivo para me fazer acompanhar a comitiva pela Cidade Exterior.
 
 — Vai gostar — respondeu Vetarius, já ajeitando as rédeas do próprio tarrak, no mesmo tom de quem trata a última palavra como se já fosse, por si só, argumento suficiente.
 
@@ -196,7 +196,7 @@ Dareth ergueu os olhos.
 
 Dois Filhos da Raiz tentavam dominar uma garota magra, de tranças desfeitas, contra a parede de um prédio baixo, um segurando o braço dela enquanto o outro tentava contê-la pelos ombros, e ela não facilitava nada: chutava, puxava o braço com toda a força que o corpo pequeno conseguia reunir, gritava de um jeito que não pedia ajuda, só recusava. Um dos homens, perdendo a paciência mais rápido do que devia, ergueu a mão livre e acertou-a, um tapa forte o bastante para virar o rosto dela contra a pedra da parede, deixando ali uma marca vermelha que já começava a inchar antes mesmo de a garota terminar de recuperar o equilíbrio.
 
-Dareth parou. Por um segundo comprido demais, deixou de ver apenas uma garota Nular presa por dois agentes do Culto. Viu a altura da filha quando morreu, lembrou de uma voz que já não existia fora da memória. Diante dele, dois homens adultos batiam numa garota sozinha e chamavam aquilo de procedimento.
+Dareth parou. A garota era mais velha do que sua filha tinha sido quando morreu, mas o tapa trouxera de volta a lembrança de um rosto pequeno, de uma voz que ele já não ouvia havia vinte ciclos. Abaixou os olhos para a mão do agente ainda fechada no braço dela.
 
 Puxou o tarrak para fora do caminho previsto sem pensar duas vezes.
 
@@ -214,7 +214,7 @@ Parou diante deles.
 
 Um dos Filhos da Raiz, o que não tinha batido nela, adiantou-se para responder com a pressa nervosa de quem reconhece a posição numa hierarquia que acabou de ficar perigosamente instável.
 
-— Ela pertence a uma casa envolvida no desaparecimento de registros de uma Casa da Permanência, campeão. O irmão dela está detido por isso. Recebemos ordem de trazê-la para esclarecimentos.
+— A jovem reside numa casa investigada pelo desaparecimento de registros da Permanência, campeão. O irmão dela está detido, e temos ordem de conduzi-la para esclarecimentos.
 
 Dareth olhou para a garota. Depois para os dois homens. O que tinha falado continuou explicando, acrescentando alguma coisa sobre autorização e procedimento que Dareth deixou de ouvir na metade.
 
@@ -222,11 +222,11 @@ Dareth olhou para a garota. Depois para os dois homens. O que tinha falado conti
 
 Ela hesitou. Olhou para os Filhos da Raiz de lado, como quem mede o tamanho exato do medo antes de decidir se vale a pena falar diante deles, e o que Dareth viu naquele rosto não era desafio. Era terror controlado à força. Se fosse levada, ele entendeu sem que ela dissesse uma palavra, ela achava que estava acabado.
 
-— Eles pegaram meu irmão. — A voz falhou na primeira tentativa, e ela precisou respirar antes de continuar. — E meus amigos.
+— Eles pegaram meu irmão — disse Elis, falhando na primeira palavra. — E levaram meus amigos também.
 
 Começou a chorar diante de todos.
 
-— Disseram que Orel bateu nos garotos Polar. Mas não foi. Eles bateram nele. Machucaram ele. Muito. — Respirava mal entre as frases, cada uma saindo antes que a anterior terminasse de doer. — Depois foram lá. Levaram meu irmão. Levaram Tair. Levaram Orel.
+— Disseram que o Orel bateu nuns garotos Polar. É mentira! Foram eles que bateram nele, machucaram ele todo. Depois os guardas foram lá em casa e levaram o Kalan, o Tair e o Orel.
 
 Parou, só o suficiente para tentar respirar de verdade uma vez.
 
@@ -236,9 +236,7 @@ Dareth permaneceu em silêncio, deixando que ela terminasse.
 
 — Eu tô sozinha — disse Elis, por fim, num tom que já não tentava convencer ninguém de nada, só declarava um fato que tinha parado de doer o suficiente para ser dito em voz alta. — Não tem ninguém em casa.
 
-A semelhança de idade voltou a doer, a mesma altura, a mesma magreza dos corpos daquela idade antes de qualquer coisa mudar. Dareth não perguntou se ela tinha roubado alguma coisa. Não perguntou que pertencimento possuía, nem se deveria estar ali.
-
-Olhou para os dois Filhos da Raiz.
+Elis devia ter uns treze ciclos, quatro a mais do que a filha dele tivera quando morreu. Dareth observou o rosto inchado da menina e depois se voltou aos dois Filhos da Raiz. Não perguntou se ela tinha roubado alguma coisa, nem se possuía permissão para estar ali.
 
 — Deixem a garota.
 
@@ -264,7 +262,7 @@ Dareth deu um passo à frente, e olhou, devagar, para todas as pessoas que os ob
 
 Silêncio.
 
-Para cumprir a própria ordem, os dois homens precisariam agora enfrentar publicamente Quatro-Dedos durante a cerimônia da consagração dele. Não existia saída boa ali, e os dois pareciam perceber isso ao mesmo tempo.
+Os dois homens olharam ao redor. Guardas da comitiva, trabalhadores e comerciantes aguardavam em silêncio. Para levar a menina, teriam de passar por Quatro-Dedos diante de todos eles.
 
 O que tinha batido em Elis, talvez mais orgulhoso do que o companheiro, ou só mais desesperado por não perder a autoridade diante de tanta gente, levou a mão até o punho da espada.
 

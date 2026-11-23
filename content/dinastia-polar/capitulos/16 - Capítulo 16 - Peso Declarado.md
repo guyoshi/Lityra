@@ -1,20 +1,20 @@
-O cais ainda estava molhado da chuva da noite anterior quando Selina chegou à Balança Azul, e o cheiro de água parada se misturava ao de madeira encharcada, resina e animais. Não vinha em segredo, nem precisava. Trazia o selo da própria cadeira e uma justificativa que dispensava disfarce: o volume de carga circulando pela cidade crescera demais desde o anúncio do torneio, e autorizações de circulação, horários especiais e deslocamento de material ligado à comitiva Polar cabiam, precisamente, à Cadeira dos Caminhos e Estandartes. Apresentou-se como conselheira encarregada de verificar autorizações de circulação e carga. Não mencionou investigação.
+A chuva da noite anterior deixara poças entre as tábuas do cais. Selina chegou à Balança Azul com o selo da Cadeira dos Caminhos e Estandartes e uma justificativa oficial: precisava conferir as autorizações de circulação e carga ligadas ao Torneio. A comitiva Polar exigia cada vez mais material, e as licenças noturnas passavam por sua mesa. Ninguém teria motivo para estranhar a visita. Ela não mencionou os registros que levara para casa.
 
-Corven a recebeu na entrada do complexo administrativo, cordial de um jeito rápido demais para ser espontâneo, o tipo de cordialidade que aparecia só diante de quem tinha poder para incomodar. Guiou-a pelos pátios externos com a fluência de quem já dera aquele passeio a outras autoridades, e Selina deixou que ele falasse enquanto observava, porque o que via importava mais do que o que ele dizia.
+Corven a recebeu na entrada e começou a explicar o movimento dos pátios antes que ela perguntasse. Selina o acompanhou pelas passarelas, ouvindo o administrador e observando as cargas.
 
 Do alto das passarelas, Selina viu a Balança Azul em pleno funcionamento, e a ordem dos pátios dificultava enxergar o que poderia estar errado. Barcos encostavam e descarregavam em sequência contínua, como se o próprio Rio Grande tivesse virado uma esteira de trabalho. Animais esperavam em currais temporários, tarraks e bravões amontoados por tipo e destino. Funcionários conferiam peso numa fileira de balanças que nunca parava, e escribas copiavam destinos numa velocidade que fazia a caligrafia perder metade da beleza sem perder nada da exatidão. Carroças chegavam vazias e saíam cheias antes que Selina terminasse de olhar para a fileira anterior.
 
 Entre dois pátios, sob o vão de madeira que sustentava a cobertura de um galpão, Selina notou um pequeno corte na viga, baixo, quase na altura de uma mão. Duas linhas curtas, recentes, encontrando-se num ângulo fechado. Podia ser marca de carregador, pensou, o tipo de sinal que qualquer cais acumulava depois de anos de gente contando caixa e riscando madeira. Corven nem desacelerou, explicando alguma coisa sobre o próximo pátio, e ela seguiu em frente sem perguntar.
 
-Se alguma coisa ali estivesse errada, pensou Selina, o perigo não estaria numa caixa. Estaria no alcance que a Companhia possuía sobre praticamente tudo que entrava e saía de Kaeliran.
+Selina olhou novamente para as carroças que partiam. Mesmo que encontrasse uma caixa irregular, ainda precisaria descobrir quem a autorizara a sair, por onde passara e quem recebera o conteúdo.
 
 — Por que existe tanta coisa entrando, se o torneio nem vai acontecer aqui? — perguntou, mais para testar a resposta de Corven do que porque não soubesse a lógica geral.
 
-— Porque a delegação que vai representar os Polar não é um homem só, senhora. — Corven falou sem parar de andar, gesticulando de leve na direção de um dos pátios. — É praticamente uma cidade pequena se mudando por algumas semanas. Guardas, funcionários, escribas, cozinheiros, tratadores, curadores, mensageiros. Animais, carroças, toda a estrutura cerimonial que precisa viajar com Dareth. Isso não se monta na véspera.
+— Porque não é só Dareth que vai viajar, senhora. — Corven apontou para os pátios. — Precisa levar guardas, cozinheiros, tratadores, curadores, mensageiros, escribas... sem contar os animais e as carroças. Estamos preparando uma cidade pequena. Não dá pra fazer isso na véspera.
 
-Explicou o resto sem que Selina precisasse insistir, e ela reconheceu no jeito organizado das frases alguém que já explicara aquilo tantas vezes que a lógica saía pronta: mercadorias estrangeiras chegavam em grandes lotes, a Balança recebia, pesava e registrava, os lotes eram separados conforme o uso previsto, saíam para oficinas e depósitos espalhados por Kaeliran, viravam provisões e equipamentos acabados, e só então seguiam para os depósitos da comitiva ou direto para os pontos de partida. Uma carga marcada para o torneio podia muito bem terminar, semanas depois, com destino a Vardeno, a Selyra, a qualquer distrito que precisasse do que ela tinha virado pelo caminho.
+Corven mostrou as anotações de entrada e saída de um lote. O couro recebido de um fornecedor seguia para o curtidor. O metal ia para as oficinas, e os grãos para cozinhas e depósitos. Quando o material voltava a circular, já não tinha o mesmo peso nem o mesmo destino anotados na entrada. Parte seguia para os depósitos da delegação. O restante abastecia oficinas de Vardeno, Selyra e outros distritos, conforme as encomendas.
 
-— Não é fraude — disse Corven, quase antecipando a pergunta que Selina ainda não tinha feito. — É transformação. Couro precisa virar arreio. Metal precisa virar peça. Grão precisa virar provisão. Resina precisa impermeabilizar alguma coisa antes de servir para qualquer coisa.
+— Uma diferença de peso não significa fraude — disse Corven. — Couro vira arreio, metal vira peça, grão vira provisão. Até a resina muda de destino antes de ser usada.
 
 As carroças mais pesadas, continuou ele, circulavam principalmente à noite, porque durante o dia as ruas já estavam ocupadas demais pelo próprio torneio. Selina sabia disso melhor do que ele imaginava. Parte daquelas autorizações noturnas passara pela mesa dela semanas antes, numa época em que a solicitação parecera apenas razoável: menos carroças brigando com multidões de dia, mais fluidez à noite. Guardou o dado e continuou andando.
 
@@ -40,7 +40,7 @@ Selina perguntou por um funcionário específico, sem nomear ninguém, só quere
 
 — Cairon. — Corven fechou o registro. — Era o rapaz que percebeu a diferença naquele peso, se é dele que a senhora está falando. Trabalhador comum. Bom, pelo que sei.
 
-Corven reconheceu o nome o suficiente para confirmar, sem parecer ligado ao caso além do necessário, e quando Selina perguntou o que acontecera com aquela carga, explicou que fora marcada para segunda conferência, sem saber de cabeça o resultado. Normal. Procedimental. Uma resposta que não escondia nada porque não precisava esconder nada: era exatamente assim que o sistema deveria funcionar, e o fato de funcionar exatamente assim era, Selina começava a perceber, parte do problema.
+Corven mostrou a anotação da segunda conferência. A carga tivera o peso questionado e seguira com a ressalva registrada, algo permitido pelo procedimento atual. Selina pediu o nome de quem autorizara o prosseguimento e anotou a resposta.
 
 A caminho, passou perto do trecho onde os barcos menores amarravam para descarregar volume mais leve. Numa das estacas de amarração, gasta por décadas de corda, havia outro corte, mais fundo, o ângulo mais aberto, mas com a mesma qualidade de coisa feita de propósito. Não parou para examinar. Havia gente demais trabalhando perto.
 
@@ -60,17 +60,17 @@ Foi o suficiente. Alguma coisa no rosto de Cairon relaxou um grau, e ele passou 
 
 — O senhor atribuiu isso a quê?
 
-— Problema de casa. E o volume absurdo que o torneio trouxe pra cá. — Cairon encolheu os ombros. — Não é raro um homem cansado errar mais.
+— Problema em casa. E mais carga do que a gente dá conta desde que anunciaram o Torneio. — Cairon deu de ombros. — Homem cansado erra conta, senhora.
 
 — E ele estava vendo alguma coisa que vocês não estavam vendo?
 
 A pergunta pareceu incomodar Cairon de um jeito diferente das anteriores, e Selina reconheceu, na mandíbula que endureceu, orgulho ferido, não desconfiança do que ela insinuava.
 
-— Não existe coisa estranha entrando nesse cais, senhora. — A voz dele ficou mais firme. — O que existe é erro demais. E isso é diferente.
+— Senhora, não é carga suspeita que temos demais aqui. São erros. — Cairon ergueu a cabeça. — Isso faz diferença.
 
 Explicou o resto sem se fazer de rogado, como se explicar restaurasse o orgulho. Desde o anúncio do torneio, havia mais carga, mais contrato, mais gente trabalhando, mais alteração de última hora, mais redistribuição. A tolerância do sistema crescera junto, sem que ninguém decidisse isso. Antes, uma diferença de peso parava uma carga ali mesmo. Agora ganhava anotação e seguia para outra conferência. Antes, destino alterado exigia nova autorização. Agora existia uma categoria só para redistribuição ligada ao torneio, criada para não travar o fluxo. Antes, uma carroça fora de horário chamava a atenção de qualquer guarda decente. Agora dezenas possuíam licença noturna, e ninguém mais olhava duas vezes.
 
-— Continua tudo registrado — insistiu Cairon, como se aquilo fosse o ponto mais importante de tudo que tinha dito. — Só que o sistema está funcionando mais rápido do que consegue conferir a si próprio.
+— Continua tudo no registro — insistiu Cairon. — Só que, quando alguém confere uma anotação, a carga já passou por mais três pátios.
 
 Selina perguntou pelos selos, e Cairon explicou: a Balança pesava e registrava, e o Culto não pesava nada. A Raiz fornecia ou reconhecia o selo de inspeção, e pelo acordo atual uma carga apresentada pela Companhia como já verificada podia receber aquele selo sem ser reaberta em cada controle seguinte. Era o acordo que Kalan ouvira dias antes de ser preso. Cairon não sabia disso, e Selina não o esclareceu.
 
@@ -94,7 +94,7 @@ Neris hesitou, e a hesitação foi, para Selina, mais informativa do que qualque
 
 — Não. — A escriturária começou a separar outros papéis, devagar, como quem reconstrói uma memória que nunca fora organizada de propósito. — Não dezenas. Algumas. Uma diferença de peso aqui. Um destino alterado ali. Um lote dividido em três, mas só dois aparecendo claramente nos registros de saída. Uma carga cujo destino final termina só em "redistribuição do torneio", sem mais nada.
 
-Nenhum caso, isoladamente, bastaria para chamar uma conselheira. Juntos, começavam a incomodar, não pela quantidade, que continuava pequena, mas pelo padrão que qualquer olho treinado começava a reconhecer atrás dela. Selina pediu os registros completos, e Neris entregou tudo sem hesitar de novo, como se esperasse havia tempo que alguém pedisse exatamente aquilo.
+Neris encontrou outras ocorrências parecidas, sempre pequenas demais para justificar uma suspensão sozinhas. Quando Selina pediu os registros completos, a escriturária separou os maços sem discutir.
 
 Levou os papéis para casa e passou a noite seguinte, e boa parte do dia depois dela, cruzando-os sobre a própria mesa do jeito que só sabia fazer: não lendo "caixa", mas construindo colunas mentais que nenhum papel continha, origem, peso de entrada, selo, divisão, saída, destino interno, responsável, e cruzando cada linha contra as outras até que algum padrão insistisse em aparecer sozinho.
 
@@ -104,7 +104,7 @@ Então percebeu a repetição verdadeira.
 
 As cargas problemáticas não compartilhavam origem. Compartilhavam o que acontecia depois da entrada. Todas tinham passado por determinados pátios da Balança, recebido um mesmo tipo de validação, sido enquadradas em algum ponto como carga do torneio. Todas tinham saído nas janelas noturnas que a própria cidade autorizara, ou terminado em destinos internos genéricos demais para que uma pessoa acompanhasse o percurso inteiro sem depender da palavra de outra.
 
-Não provava fraude, muito menos conspiração. Mas o ponto comum, em cada linha que conseguia cruzar, era a Companhia.
+As anotações não provavam fraude. Mostravam apenas que a Balança Azul era o ponto por onde todas aquelas cargas haviam passado.
 
 Tentou falar com Alveris no dia seguinte. Corven disse que ele estava fora. Deixou o pedido, e no outro dia não houve resposta. Tentou de novo, num horário diferente, e ele continuava indisponível. Não pareceu fuga, e Selina não a interpretou como tal: Alveris era poderoso o bastante para não correr quando uma conselheira mandava chamá-lo, e correr seria, para um homem daquela posição, quase um erro de cálculo.
 
@@ -120,9 +120,9 @@ A residência ficava em Maelya, no coração da Cidade Interna, entre arquivos, 
 
 E objetos. Um recipiente Lusdar, fechado com a mesma precisão que Selina vira horas antes nos pátios da Balança. Uma peça mecânica Cendar, talvez uma engrenagem, exposta como se fosse arte. Couro Quendrar trabalhado até virar assento. Metal Vendrar polido ao ponto de esquecer que um dia servira para outra coisa. E, num canto, algo que parecia Braedar, cuja função ela não soube nomear.
 
-Alveris a recebeu com uma sobreveste longa, azul-acinzentada e escura, tecido caro demais para qualquer trabalhador reconhecer pelo nome, bordados discretos nas bordas, fechos de dravenito na gola. Luvas brancas, como sempre. O cachimbo estreito de cerâmica vitrificada já entre os dedos, a orva ainda não acesa.
+Alveris a recebeu com uma sobreveste azul-acinzentada de tecido caro, fechos de dravenito e as luvas brancas que Selina já conhecia. Levava entre os dedos o cachimbo estreito de cerâmica vitrificada, ainda apagado.
 
-— Cadeira dos Caminhos e Estandartes — disse ele com uma cortesia estudada, seguro da própria posição. — Sente-se. Ou prefere andar? Sei que a senhora pensa melhor em movimento.
+— Conselheira dos Caminhos e Estandartes — saudou Alveris, com uma inclinação discreta da cabeça. — Prefere sentar-se? Ou examinar os documentos enquanto caminhamos? Sei que pensa melhor em movimento.
 
 — Prefiro terminar isso rápido.
 
@@ -136,11 +136,11 @@ Alveris lembrava daquilo. Talvez melhor do que ela gostaria.
 
 — As cargas — começou Selina, sem introdução nenhuma. — Diferenças de peso. Destinos que terminam em lugar nenhum específico. Selos que deixaram de significar o que deveriam significar.
 
-— Com o volume que passa pela Balança, seria absurdo fingir que não existem diferenças de peso. — Alveris não negou nada, e a ausência de negativa era, ela sabia, tão estratégica quanto qualquer mentira. — Pesagem errada. Perda de conteúdo antes do selo. Troca de embalagem. Divisão posterior ao registro inicial. Tudo isso acontece o tempo inteiro numa operação desse tamanho, senhora. A pergunta não é se existem diferenças. É se elas significam alguma coisa.
+— Há diferença de peso todos os dias — respondeu Alveris. — Balança mal ajustada, embalagem trocada, lote dividido depois da entrada... Se eu mandasse parar o cais por causa de cada anotação dessas, a senhora teria de explicar a falta de grão nos mercados. A questão é se os erros são corrigidos.
 
 — E os selos da Raiz?
 
-— Confirmo o acordo abertamente. — A franqueza foi, por um instante, mais desconcertante do que qualquer negativa. — Foi feito para evitar que três homens abrissem a mesma caixa três vezes. Vocês não precisam confiar no conteúdo de cada carga, Selina. Precisam confiar em quem coloca aquele conteúdo diante de vocês. — Fez uma pausa breve. — Parece administração. Porque é administração.
+— O acordo existe, sim. Para impedir que três homens abram a mesma caixa três vezes. Se a Companhia já conferiu a carga, os Filhos da Raiz reconhecem o selo e ela segue. É assim que temos conseguido abastecer a cidade.
 
 — E as rotas noturnas?
 
@@ -176,7 +176,7 @@ Alveris tentou descobrir quem, sem perguntar diretamente duas vezes da mesma for
 
 Selina não respondeu a nenhuma das três perguntas com clareza suficiente para satisfazê-lo, e percebeu no padrão delas que ele não respondia às acusações. Tentava identificar a fonte, uma pergunta de cada vez, espaçadas o bastante para não parecerem interrogatório.
 
-— Da última vez que veio atrás de mim — disse ele, por fim, escolhendo o momento com o mesmo cuidado que escolhia as palavras —, sabia exatamente qual regra eu tinha quebrado. Hoje ainda está tentando descobrir qual é.
+— Da última vez que me fiscalizou, a senhora já sabia qual regra eu havia quebrado. Desta vez, não sabe nem se houve infração.
 
 — Da última vez, eu também sabia onde o problema terminava. — Selina sustentou o olhar. — Hoje não sei.
 
@@ -184,7 +184,7 @@ Foi só então que ele pareceu prestar atenção de verdade, um ajuste pequeno n
 
 — Foi a Câmara que pediu essa fiscalização? — perguntou, casual demais para ser casual. — Vetarius? O Culto? Ou só a Senhoria, por conta própria?
 
-Nenhuma pergunta ali era inocente. Se fosse Vetarius, havia pressão política se formando acima dela. Se fosse o Culto, a aliança dele com a Raiz estava rachando por dentro. Se fosse só Selina, ele precisava descobrir o que ela encontrara, e o quanto.
+Selina sabia por que Alveris perguntava. Se Vetarius ou o Culto estivessem por trás da fiscalização, ele precisaria negociar com outras autoridades. Se fosse apenas ela, bastava descobrir quanto sabia.
 
 — Isso é irrelevante para a conversa — disse Selina, e viu, no leve movimento dos olhos dele, que a resposta tinha confirmado justamente aquilo que evitava confirmar.
 
@@ -192,7 +192,7 @@ Nenhuma pergunta ali era inocente. Se fosse Vetarius, havia pressão política s
 
 Ele não entrou em pânico ao dizer isso, e a ausência de pânico foi, para Selina, mais reveladora do que qualquer negativa nervosa.
 
-— Sessenta ciclos ensinam pelo menos uma coisa, Selina: Kaeliran muda e depois jura que sempre foi daquele jeito. Eu quero que mude de novo. Vetarius não me convence. Um sistema hereditário também não. Emprego Nular porque trabalham, financio instituições porque resolvem problemas que o governo deixa passar e apoio reformas quando o sistema funciona mal. Nada disso é crime. — Alveris tragou a orva. — E a Senhoria sabe quem carrega boa parte desta cidade sem receber os mesmos direitos.
+— Tenho sessenta ciclos, Selina. Vi esta cidade mudar e depois fingir que sempre funcionou do mesmo jeito. Quero que mude de novo. Vetarius não me convence, e o governo hereditário tampouco. Emprego Nular porque trabalham bem. Financio instituições porque fazem o que a cidade deixa por fazer. Não escondo nada disso. — Alveris tragou a orva. — E a senhora sabe tão bem quanto eu quem sustenta os armazéns e continua sem direito de decidir coisa alguma.
 
 Selina não conseguiu chamar aquilo de absurdo, porque parte dela concordava com pedaços demais do que ele dissera, e Alveris via isso no rosto dela com a mesma clareza com que via um selo mal aplicado numa caixa.
 
@@ -204,9 +204,9 @@ Mas ele também falava como um homem que acreditava que pessoas e instituições
 
 — Sempre existe alguém acompanhando cada etapa.
 
-— Aí está o problema. — Selina apontou para os papéis entre os dois. — Tem responsável por cada etapa. Não tem ninguém responsável pelo caminho inteiro.
+— Precisamente. — Selina apontou para os documentos. — Cada etapa tem um responsável. O percurso completo não tem nenhum.
 
-Alveris sorriu sem o ar de um homem pego, com o respeito genuíno e desconfortável de quem reconhece que a mulher diante dele era boa no que fazia.
+Alveris observou os papéis e sorriu. Não contestou a última frase.
 
 A conversa continuou por mais tempo do que Selina pretendia. Quando terminou, ela sabia uma coisa desagradável: na tentativa de descobrir o que Alveris escondia, mostrara a ele quase tudo o que já percebera. Diferenças de peso. Rotas noturnas. O acordo com a Raiz. A falta de reconciliação entre entrada e destino. Não sabia o que ele faria com isso, nem a quem contaria.
 

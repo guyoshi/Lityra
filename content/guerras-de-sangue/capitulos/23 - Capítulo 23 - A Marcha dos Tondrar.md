@@ -1,4 +1,4 @@
-O grupo parou de imediato, como se todos dividissem o mesmo tendão. Eshvar desapareceu entre duas pedras com três homens. Kharvok esperou sem mostrar impaciência. Kaelina ouviu primeiro o vento. Depois um ruído curto, abafado, quase humano. Um corpo sendo impedido de terminar um grito.
+O grupo parou ao sinal dos batedores. Eshvar desapareceu entre duas pedras com três homens. Kharvok esperou sem mostrar impaciência. Kaelina ouviu primeiro o vento. Depois um ruído curto, abafado, quase humano. Um corpo sendo impedido de terminar um grito.
 
 Quando Eshvar voltou, havia sangue fresco numa das facas. Atrás dele, dois Tondrar arrastavam um homem de Kaendar pelo casaco. Não era Kae, nem guarda alto. Um Vigia de rota talvez, ou batedor enviado para observar as passagens. Tinha olhos abertos, boca cheia de sangue e a Raiz pequena gravada no cabo da faca presa à cintura. Kaelina reconheceu o gesto de dois dedos que ele tentara fazer antes de morrer. A mão ficara perto da testa, incompleta.
 
@@ -8,7 +8,7 @@ Kharvok olhou apenas o suficiente.
 
 — Tirem do caminho. Que os corvos secos aprendam primeiro.
 
-Kaelina não disse nada. Não podia. Não devia. Mas o morto a viu mesmo sem ver. O rosto dele ficou com ela enquanto avançavam. Era um homem dela, de Kaendar, morto porque ela continuava viva nas mãos de inimigos. A lógica era cruel e simples: se ele voltasse, avisaria. Se avisasse, a refém perderia valor. Se a refém perdesse valor, talvez Kaelina morresse. Então ele morreu. Jesed fazia esse tipo de conta sem pedir licença.
+Kaelina reconheceu o gesto da Raiz interrompido pela morte. O homem talvez nem soubesse quem os Tondrar levavam. Não pôde avisar Kaendar, e ela teve de seguir sem sequer saber seu nome.
 
 Nynestra passou por ela depois. Mancava menos do que pela manhã, ou fingia melhor. Kaelina manteve a cabeça baixa. Eles já andavam por quase um dia inteiro.
 
@@ -32,7 +32,7 @@ Ele se aproximou até onde os Tondrar permitiram. Não tentou tocá-la. Apenas i
 
 Rendar caminhou até Kharvok. Os dois se olharam como homens que já tinham medido um ao outro antes, mas agora traziam mortos novos entre as medidas. Os Tondrar de Kharvok viram os Tondrar de Rendar. Isso mudou o ar mais do que qualquer fala.
 
-— Estão todos vivos — disse Kharvok, surpreso, olhando para Varkun e os outros.
+— Vocês voltaram — disse Kharvok, olhando para Varkun e os outros.
 
 — Voz Tondrar — disse Rendar.
 
@@ -40,7 +40,7 @@ Kharvok respirou pela falha do rosto. A tinta preta, de limites duros, cobria qu
 
 — Fendelar.
 
-— Rumava para Kaendar.
+— Eu ia para Kaendar.
 
 — Com os meus homens?
 
@@ -50,7 +50,7 @@ Lanças Tondrar se ergueram um pouco. Kharvok não mandou abaixá-las. Rendar ta
 
 — Margem dos Zírrios queimou homens Polar. Um líder deles morreu. Barcos Glydar são nossos. Glydar estão conosco. Vimos fogo Vendrar abrir o acampamento, Buldar segurarem retirada, Polar gritar como qualquer carne.
 
-O relato percorreu os Tondrar de Kharvok com força estranha. O desconforto dela vinha mais de deslocamento do que de orgulho. A guerra que eles discutiam na Boca Seca já existia fora dela. Seus homens tinham estado lá. Tinham visto. Tinham sobrevivido. Varkun olhou para a Voz.
+O relato percorreu os Tondrar de Kharvok com força estranha. Para eles, a batalha acontecera enquanto a Boca Seca ainda discutia como avançar. A guerra que eles discutiam na Boca Seca já existia fora dela. Seus homens tinham estado lá. Tinham visto. Tinham sobrevivido. Varkun olhou para a Voz.
 
 — Onde está Torgun?
 
@@ -76,7 +76,7 @@ Kharvok mostrou os dentes.
 
 O vento moveu folhas baixas entre os grupos. Kaelina mantinha a cabeça baixa, o rosto escondido por cabelo, poeira e sombra. Ouvia tudo. Cada palavra de Rendar parecia pedra posta sobre pedra, sem ornamento. Ele não falava como Alyra, nem como Daryon, nem como Kaelina. Não tentava vestir violência de lei.
 
-— Liberte a Mão Buldar — disse Rendar.
+— Solte Nynestra — disse Rendar.
 
 Kharvok riu sem humor.
 
@@ -88,7 +88,7 @@ Os Buldar se retesaram. Hadrun tossiu, mas não recuou. Rendar deu um passo à f
 
 — Fala como se mandasse nos meus dentes.
 
-— Falo como quem precisa deles mordendo na direção certa.
+— Preciso dos teus homens na marcha. E eles precisam dos suprimentos Buldar.
 
 Kharvok sustentou o olhar de Rendar por tempo demais. Então olhou para os próprios Tondrar que tinham voltado com ele, para Varkun, para as marcas de combate, para o sangue seco que não vinha de pátio, mas de campo. Olhou para Nynestra, para Hadrun, para os Buldar que aguardavam com a tensão de homens tentando não transformar reverência em ataque. Por fim, fez um gesto curto.
 
@@ -112,7 +112,7 @@ Kaelina levantou levemente a cabeça, para ouvir melhor.
 
 — Cerco? — perguntou Kharvok.
 
-— A cidade está fraca. Com pouca água e alimento. Vamos cercá-los, e esperar.
+— Kaendar está com falta de água e mantimentos. Vamos fechar as rotas e esperar.
 
 — Esperar? Até quando? Está falando da fortaleza dos Polar — interpôs Nynestra. — O plano não era esse. Devíamos enfraquecê-los mais. Deixá-los sem opção. Um cerco agora é suicídio.
 
@@ -130,7 +130,7 @@ Kharvok fez um som áspero pela falha do rosto.
 
 — Fala como homem que quer esconder três mil bocas atrás de uma pedra.
 
-— Não se escondem três mil bocas — respondeu Rendar. — Esconde-se o momento em que elas mordem.
+— Não preciso esconder milhares de homens até o fim — respondeu Rendar. — Preciso impedir que Kaendar descubra cedo onde vamos atacar.
 
 Ele marcou vários riscos em volta do círculo.
 
@@ -138,7 +138,7 @@ Ele marcou vários riscos em volta do círculo.
 
 Alguns homens se entreolharam. Rendar continuou:
 
-— Quem viu dez homens pensou ter visto patrulha, quem viu cinquenta, saqueadores, quem viu carroça, fome fugindo da guerra, quem viu rastro demais, rastro falso. Nenhuma aldeia viu o todo. Nenhum Vigia viu o bastante para voltar com uma verdade inteira.
+— Quem viu dez homens pensou que fosse patrulha. Quem viu cinquenta, um bando de saqueadores. As carroças pareciam cargas comuns. Nenhuma aldeia viu o exército inteiro, e os Vigias que encontraram rastros seguiram caminhos diferentes.
 
 — E os que viram? — perguntou Eshvar.
 
@@ -150,7 +150,7 @@ Kaelina sentiu a frase como pedra no estômago. Não havia orgulho na voz de Ren
 
 — Mesmo assim, quando estivermos diante de Kaendar, eles verão.
 
-— Verão tarde.
+— Quando virem, não terão tempo de fechar todas as passagens.
 
 Rendar desenhou outra linha, mais próxima do círculo.
 
@@ -198,7 +198,7 @@ Rendar aceitou a correção sem demonstrar incômodo.
 
 Rendar riscou o lado do círculo, onde a terra ficava mais úmida.
 
-— Uma parte menor não seguirá conosco. Os líderes dos Glydar e dos Vendrar estão em outra posição agora. Não quero que todos pisem no mesmo chão. Alguns caminhos não guardam pegadas. Alguns homens sabem descer sem serem contados. O que tiver de acontecer longe das pedras, acontecerá longe das pedras.
+— Uma parte menor vai por outras rotas. Glydar conhecem trechos do rio que os Vigias mal observam. Vendrar podem levar armamento sem precisar marchar atrás das bandeiras Tondrar. Não vou concentrar todas as forças num único caminho.
 
 Nynestra olhou para ele com desconfiança. Ele estava escondendo algo. Rendar marcou três pontos ao redor do círculo.
 
@@ -208,7 +208,7 @@ Kharvok olhou para ele de lado.
 
 — Está poupando aldeia Polar?
 
-— Estou poupando boca inútil.
+— Estou poupando as aldeias que não precisam entrar nesta guerra.
 
 Rendar fincou o galho no chão.
 
@@ -220,11 +220,11 @@ Ele soltou o galho.
 
 Rendar virou-se para os homens. Nenhum disse nada. Foi então que os olhos de Rendar encontraram os de Kaelina.
 
-Talvez ele tivesse notado a corda antes, o rosto baixo, os guardas demais ao redor de uma prisioneira que não parecia Buldar, nem Tondrar, nem mulher de estrada. O cabelo dela estava sujo, a pele ressecada de sol e febre, a roupa marcada de sangue seco sob as costelas. Ainda assim, havia traços que nem poeira escondia. A linha do rosto. A boca. O formato dos olhos. Ela era muito parecida com a que ele quase matara. A outra soberana.
+Talvez ele tivesse notado a corda antes, o rosto baixo, os guardas demais ao redor de uma prisioneira que não parecia Buldar, nem Tondrar, nem mulher de estrada. O cabelo dela estava sujo, a pele ressecada de sol e febre, a roupa marcada de sangue seco sob as costelas. Ainda assim, havia traços que nem poeira escondia. A linha do rosto, a boca, o formato dos olhos. A irmã de Alyra.
 
 Rendar tentou passar. Dois Tondrar de Kharvok cruzaram lanças diante dele. Rendar não olhou para as lanças. Olhou para Kaelina, e então puxou a faca.
 
-O movimento foi tão rápido que todos responderam depois dele. Tondrar ergueram armas. Buldar levaram mãos às espadas. Vendrar sorriram do jeito errado. O silêncio veio inteiro.
+O movimento fez as lanças se erguerem em volta. Tondrar ergueram armas. Buldar levaram mãos às espadas. Vendrar sorriram do jeito errado. O silêncio veio inteiro.
 
 Kaelina não ergueu a cabeça. Sentiu a faca dele apontada para ela como se a lâmina já estivesse no corpo. A febre pulsava sob o ferimento. O espião Polar morto ainda estava em algum lugar atrás dela, de olhos abertos. Harrev e Odris também.
 
@@ -236,7 +236,7 @@ Kharvok respirou alto.
 
 Rendar avançou mais um passo, e as lanças tocaram seu peito.
 
-— Não existe nossa. É contra ela que estamos lutando.
+— A irmã de Alyra é o melhor refém que temos. Eu decido como usá-la.
 
 Nynestra falou antes que a tensão virasse sangue.
 
@@ -248,7 +248,7 @@ Rendar não se virou de imediato. Nynestra continuou:
 
 Rendar continuou encarando Kaelina. Por um momento, ela achou que ele a mataria apesar de Nynestra. Então ele guardou a faca com um movimento brusco.
 
-— A soberana assassina segue viva — disse Rendar. — Até conseguirmos o que queremos.
+— Ela fica viva — disse Rendar, sem tirar os olhos de Kaelina. — Por enquanto.
 
 Kharvok inclinou a cabeça, satisfeito não por concordar, mas por não ter sido contrariado diante dos seus. Nynestra permaneceu ao lado dos Buldar, apoiada em Hadrun, o rosto fechado. Eles não marcharam de imediato. Rendar virou-se para a direção de Kaendar. Ninguém falou.
 
@@ -472,7 +472,7 @@ Nynestra sustentou o olhar.
 
 — Não farei isso. A guerra é contra os Polar, no fim das contas.
 
-A conversa terminou ali. Nynestra deixou-o sozinho, mas levou consigo a certeza desagradável de que Hadrun estava certo. Rendar era necessário demais para ser ignorado e vazio demais para ser seguido sem medo. Pouco depois, os sinais começaram.
+A conversa terminou ali. Nynestra deixou-o sozinho. Não voltou para discutir. Hadrun lhe dera um aviso, e Rendar acabara de confirmá-lo. Pouco depois, os sinais começaram.
 
 Nenhuma ordem alta. Nenhum toque de tambor. Um assobio curto imitando ave noturna. Uma pedra batida duas vezes contra outra. Uma mão levantada no escuro. O abrigo sem fogo se desfez como se nunca tivesse existido.
 

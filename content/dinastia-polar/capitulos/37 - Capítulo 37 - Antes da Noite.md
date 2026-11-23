@@ -1,6 +1,6 @@
-# Capítulo 37 — Antes da Noite
+# Capítulo 37: Antes da Noite
 
-Dareth recuou até o corredor sem tirar os olhos do salão. Antes de alcançar o corredor, percebeu que alguns dos sobreviventes o observavam havia tempo demais.
+Dareth deixou o salão sem conseguir tirar os olhos dos que continuavam de pé. Alguns o observavam em silêncio desde o brinde.
 
 Saelira Buldar estava de pé junto à mesa da própria comitiva, tão imóvel que parecia não ouvir os pedidos de ajuda à sua volta. Não fizera menção de se aproximar de Alveris quando ele caíra. Agora encontrava os olhos de Dareth sem desviar, com a mesma serenidade com que participara do jantar. Perto dela, um dos homens Buldar aguardava junto à porta, e o outro deixou escapar um sorriso breve, que desapareceu assim que notou ter sido visto. Do lado oposto, o homem que propusera o brinde baixou a taça vazia e trocou um olhar com alguém que vestia as cores Vendrar.
 
@@ -14,7 +14,7 @@ Recuou até o corredor e esbarrou numa armadura úmida.
 
 Kerath o segurou pelos braços. Tinha névoa presa aos cabelos e ao metal dos ombros. Vinha da segurança externa, onde deveria estar. Olhou por cima dele para o salão, mas Dareth ainda bloqueava parte da entrada.
 
-— Dareth. Está tudo bem?
+— Dareth. Está ferido?
 
 Ele abriu a boca. O nome de Vetarius não chegou a sair.
 
@@ -26,7 +26,7 @@ Na escada reservada à Guarda Soberana, homens armados ocupavam posições que D
 
 Kerath mediu a distância até ele sem tirar os olhos dos homens.
 
-— Saiam da escada.
+— Larguem as armas e saiam da escada.
 
 O que estava mais próximo não se moveu. Sua arma apontava para a entrada de um corredor estreito que levava aos aposentos internos.
 
@@ -34,7 +34,7 @@ O que estava mais próximo não se moveu. Sua arma apontava para a entrada de um
 
 Ele riu. Havia gente gritando atrás deles, e mesmo assim pareceu divertir-se com a ideia de que uma autorização ainda resolvesse alguma coisa.
 
-— Vá reclamar com o soberano.
+— Reclame com o soberano, se ainda encontrar algum.
 
 — Abaixe a arma.
 
@@ -66,7 +66,7 @@ Ela olhou para a roupa dele, manchada de vinho e de sangue que não era seu.
 
 — Os curadores...
 
-— Todos os que beberam naquela mesa foram envenenados. Vetarius morreu nos meus braços.
+— Envenenaram o vinho da mesa central. Vetarius morreu nos meus braços.
 
 Kerath fechou os olhos por uma respiração. Quando os abriu, já olhava para o corredor de Caeren. Dareth não tentou consolá-la. Conhecia bem demais a obrigação que mudara de dono com a morte de Vetarius. Ela tocou a raiz da própria têmpora com dois dedos, gesto curto, de quem confere se uma coisa ainda está no lugar. Agora era o filho que ela precisava encontrar.
 
@@ -100,9 +100,9 @@ Uma barreira Polar tinha sido virada contra os próprios guardas. Homens com pe�
 
 Kerath parou por menos de um segundo.
 
-— Isso não é só Kaendar.
+— Estão atacando a cidade toda.
 
-— Não — Dareth respondeu.
+— Não é só o palácio — respondeu Dareth.
 
 Ele também tinha acreditado, até ali, que o envenenamento e os homens nos corredores faziam parte de um golpe concentrado no governo. A cidade inteira diante deles corrigia a hipótese. A celebração espalhara guardas pelos portões, praças, alojamentos e corredores de visitantes. Agora cada foco de ataque puxava uma parte dessa força para longe das outras.
 
@@ -112,9 +112,9 @@ A luta foi curta e desorganizada. Não havia formação nem desafio, apenas gent
 
 Dareth viu a marca na parede da viela. Já vira uma igual na Cidade Exterior, de relance, sem nunca entender o que significava.
 
-— Eles conhecem as rotas.
+— Eles estão usando os caminhos que não deveriam conhecer.
 
-— Ou alguém ensinou.
+— Alguém deve ter mostrado.
 
 Mais homens surgiam duas ruas abaixo. Kerath limpou a lâmina na própria capa sem tirar os olhos da descida.
 
@@ -148,9 +148,9 @@ Atrás dela, os portões terrestres começaram a fechar. A fila protestou. Um gu
 
 Numa rua de descida, dois guardas Polar retiraram uma barreira para permitir a passagem de estrangeiros armados. Um dos homens que entravam usava uma faixa Buldar no braço. Os outros levavam capas sem marca sobre peças de equipamento diferentes. O mais velho dos guardas apontou para a própria insígnia.
 
-— Fizemos o que Alveris pediu. Quando outro Polar assumisse, nossas patentes estariam garantidas.
+— Fizemos o que Alveris mandou. Ele prometeu nossas patentes quando o novo soberano assumisse.
 
-— O acordo era com ele — respondeu o homem à frente da coluna. Antes que o guarda pudesse falar, o estrangeiro o matou com um golpe só. O outro guarda tentou fugir. Não alcançou a esquina.
+— O acordo era com Alveris — disse o homem à frente da coluna. Antes que o guarda respondesse, matou-o com um golpe. O outro guarda tentou fugir. Não alcançou a esquina.
 
 Selina ficou encostada à parede até que a coluna passasse. Um dos homens arrancou a insígnia do guarda morto e a mostrou aos companheiros. Mais adiante, eles procuravam outras iguais nos uniformes que atravessavam a névoa. Na mesma rua, Filhos da Raiz conduziam moradores para fora de uma Casa da Permanência. Dois ficaram na entrada para defender os feridos. Receberam os estrangeiros com as armas na mão.
 
@@ -162,7 +162,7 @@ Uma porta se abriu à sua frente. Três homens entraram numa casa sem armas apar
 
 Olhou o número apagado na parede. Constava no antigo cadastro de residência de Aleris, entre as anotações que fizera antes de ser capturada. Não era uma propriedade reconhecida, coisa que um Nular como ele nem poderia ter. Era a indicação de onde morara antes de desaparecer dos registros. Agora havia caixas da Balança Azul ali.
 
-Mais adiante, um estrangeiro parou numa bifurcação, conferiu uma pequena marca perto da soleira de uma porta e escolheu a rua da esquerda. Havia outra marca adiante, no ponto exato em que seria fácil seguir pela via errada. Selina se lembrou de Elis dizendo que andavam riscando paredes de Maruva. A menina tivera razão em se inquietar.
+Mais adiante, um estrangeiro parou numa bifurcação, conferiu uma pequena marca perto da soleira de uma porta e escolheu a rua da esquerda. Havia outra marca adiante, no ponto exato em que seria fácil seguir pela via errada. Selina se lembrou dos três riscos no disco que mostrara aos guardas do portão. O código não servia só para entrar na cidade. Também orientava quem precisava atravessá-la sem conhecer as ruas.
 
 Um trabalhador apareceu correndo na direção contrária com as mãos vazias e erguidas. Disse que não era soldado. O homem que o perseguia não diminuiu o passo. O trabalhador caiu com as mãos ainda erguidas. A mulher atrás dele abriu a boca para dizer que também não era soldado. O invasor a atingiu antes que conseguisse falar. Outra moradora puxou Selina pelo braço antes que ela entrasse na rua aberta. Largou-a assim que viu a mancha de sangue em sua roupa.
 
@@ -204,25 +204,25 @@ Lá em cima ainda corriam homens armados. Selina precisava saber quantas saídas
 
 Foi o som de uma porta batendo na rua que os separou. Orel se colocou ao lado de Tair, mas não deixou de olhar para ela.
 
-— Aqueles homens estavam na casa vazia — Elis disse. — Antes da festa, Tair e eu vimos o que guardavam lá. Armas, capas, caixas com pavios. Agora estão distribuindo tudo.
+— Eram eles! — Elis apontou para a rua acima. — Eu e o Tair entramos naquela casa vazia antes da festa. Tinha lança, roupa, umas caixas que explodem. Agora estão levando tudo pra rua.
 
 Selina ergueu o rosto.
 
-— Que casa vazia?
+— Em que casa vocês entraram?
 
-Elis descreveu a rua. Tair acrescentou o que a mãe lhe contava, havia muitos ciclos, sobre o menino Nular que morara sozinho ali e desaparecera para se tornar alguém importante em outra parte da cidade. Enquanto ele falava, Selina sentiu a última distância entre duas investigações começar a desaparecer.
+Elis descreveu a rua. Tair contou que a mãe falava de um rapaz Nular que morara naquela casa muitos ciclos antes e desaparecera sem explicação. Selina conhecia o endereço pelos registros antigos. Enquanto ouvia, sentiu as duas investigações finalmente se encontrarem.
 
-— Alveris Polar é o dono da Balança Azul, onde Kalan trabalhava — disse Selina. — O menino daquela casa se chamava Aleris.
+— Alveris Polar dirige a Balança Azul, onde Kalan trabalhava — disse Selina. — O menino que morava naquela casa se chamava Aleris.
 
 — Aleris? — Tair repetiu, e pareceu testar se a palavra pertencia àquela lembrança de infância.
 
 — Os registros mostram Aleris Buldar, depois Aleris Nular em Kaeliran. Pouco depois de seu nome desaparecer, surge Alveris Polar. Ainda falta o processo que ligaria os nomes.
 
-Ela precisou explicar devagar, porque mesmo Elis, que percebera a semelhança dos nomes, ainda não via o percurso inteiro. Aleris desaparecia dos documentos num ponto em que sua condição de Nular deveria continuar registrada. Meses depois, Alveris aparecia com sobrenome Polar, autorização para possuir terras e uma vida inteira que os arquivos pareciam dispostos a aceitar. Entre um homem e outro faltava o processo que justificasse o reconhecimento. Pela lei, aquela mudança teria de passar pelos registros ligados à Raiz, e a lacuna não dizia quem a autorizara nem se os homens que hoje dirigiam o Culto sabiam dela.
+Elis repetiu os dois nomes em voz baixa. Selina mostrou a sequência: um registro encerrado e outro começando meses depois, com a mesma idade e a condição Polar agora reconhecida. O processo dessa mudança não aparecia em lugar nenhum que ela tivesse consultado. Isso apontava para uma fraude possível, não para quem a autorizara.
 
-— A casa era dele — Elis disse. — A casa onde estão juntando as armas.
+— Então as armas estavam escondidas na casa onde ele morava? — perguntou Elis.
 
-— Era onde ele vivia antes — Selina corrigiu. — Ele pode ter continuado a usá-la sem deixar o nome atual em registro nenhum.
+— Era onde morava antes de desaparecer dos registros. Talvez continuasse usando a casa sem deixar o nome atual em documento algum — corrigiu Selina.
 
 Tair apoiou a lamparina no chão. Seus olhos voltaram para Elis, e Selina soube que ambos tinham chegado à mesma pergunta.
 
@@ -230,11 +230,11 @@ Tair apoiou a lamparina no chão. Seus olhos voltaram para Elis, e Selina soube 
 
 Selina assentiu.
 
-— Os papéis que Kalan tirou de lá apontavam para o processo desaparecido. Ele procurava a origem de Darven, não a de Alveris. Talvez tenha visto o nome e passado adiante sem entender nada. Mas a caixa fora retirada do lugar. Se alguém seguisse os registros como eu segui, acabaria na lacuna.
+— Os papéis que Kalan pegou apontavam para essa mudança — disse Selina. — Ele foi atrás da origem de Darven, não de Alveris. Pode nem ter lido o nome. Mas quem examinasse a caixa encontraria a mesma lacuna.
 
 — Foi por isso que correram tanto atrás dele? — Tair perguntou.
 
-— É uma possibilidade. O Sumo Vigia se recusara a explicar por que queria a caixa de volta. A acusação contra Kalan cresceu enquanto ela permanecia desaparecida. Isso eu posso afirmar. Não tenho prova de que Alveris tenha pedido a execução. Teral tinha uma confissão, as regras da Raiz e um Nular diante dele. Foi o tribunal que o condenou, e o Culto reconheceu a sentença.
+— Talvez. A Raiz fez de tudo para recuperar a caixa, e o processo de Kalan ficou mais grave enquanto ela sumia. Isso eu sei. Mas não tenho prova de que Alveris tenha pedido a morte dele. Teral o condenou com base na confissão e nas regras do Culto.
 
 Elis pensou em Kalan aceitando sozinho a culpa para que Tair e Orel saíssem da prisão. Tinha revisto aquele momento tantas vezes que acreditara não ser mais capaz de encontrar nele uma dor nova. Encontrou. O irmão não roubara apenas uma caixa perigosa. Tocara, sem saber, no ponto em que a vida inteira de um homem poderoso poderia se desfazer.
 
@@ -248,13 +248,13 @@ Um estrondo veio de cima, ainda distante. Karesis esperou que a pedra parasse de
 
 Ela contou o que ouvira nas galerias do Altar: Saelira exigindo garantias, Alveris falando de acessos e de uma autoridade Polar endividada que ocuparia o lugar de Vetarius. Contou do campeão Quendrar, cuja coordenação piorara depois de aceitar água de um funcionário, e do invólucro com restos de uma planta que parecia Caule-de-Sono. Não sabia se algo fora posto no copo, nem quem conhecia o acordo. Tinha visto adversários de Dareth recuarem em momentos decisivos. Tampouco podia afirmar por quê.
 
-— Queriam que ele chegasse à final? — Elis perguntou.
+— Queriam que o Dareth chegasse à final? — perguntou Elis.
 
-— Talvez. A vitória levou as delegações a Kaeliran. Vetarius abriu os portões, autorizou escoltas e reduziu inspeções. A Balança pôde movimentar mais cargas sem que conferissem cada uma. Alveris soube usar a ocasião.
+— Não sei se interferiram nas lutas. Sei que a vitória abriu os portões. Vetarius autorizou escoltas e reduziu inspeções. A Balança conseguiu passar cargas com menos fiscalização. Alveris aproveitou isso — respondeu Selina.
 
-— Ele queria isto? — Tair perguntou, apontando para o teto, para o som das ruas que chegava através dele.
+— Alveris queria que destruíssem Kaeliran? — perguntou Tair, olhando para o teto que tremia.
 
-— Queria tirar Vetarius do poder e manter Kaeliran funcionando sob outra liderança Polar. Ouvi isso dele. Saelira não aceitava esperar uma abdicação, e Alveris disse que matar o soberano não fazia parte do acordo. Foi a última conversa deles que consegui ouvir.
+— Queria tirar Vetarius e controlar a cidade por meio de outra liderança Polar. Eu ouvi. Saelira não aceitava esperar pela abdicação, e Alveris disse que a morte do soberano não estava no acordo. Depois disso fui capturada.
 
 Selina lembrou os guardas mortos perto do portão e o homem que mandara fechar as folhas mesmo depois de receber notícia da morte do próprio organizador.
 
@@ -276,31 +276,31 @@ Selina a observou por um instante, ainda sem entender por que aquilo importava.
 
 Elis encolheu um pouco os ombros.
 
-— Agora não tem mais cidade. Mas teve gente que saiu.
+— A cidade acabou, mas nem todo mundo morreu.
 
 Karesis baixou os olhos. Não corrigiu nada.
 
 Selina apertou um pedaço limpo de tecido contra o ferimento e examinou a entrada do túnel.
 
-— Precisam sair de Kaeliran enquanto existe passagem.
+— Precisamos sair de Kaeliran antes que fechem todos os caminhos.
 
 — Precisamos — Tair concordou.
 
-— Eu volto ao Anel Intermediário.
+— Vou voltar ao Anel Intermediário. Amira ficou lá.
 
 Elis ergueu a cabeça.
 
-— Você acabou de entrar.
+— Você acabou de chegar, Selina!
 
 — Amira ficou numa Casa da Permanência. Disse que ajudaria com os registros. É o único lugar onde tenho alguma chance de encontrá-la.
 
 Tair se levantou também.
 
-— Então eu vou.
+— Então eu vou junto — disse Tair, levantando.
 
 Karesis olhou para Orel, que já recuava diante da ideia de ficar sozinho entre pessoas que não conhecia. Falou com Tair sem qualquer certeza sobre o que aconteceria a seguir:
 
-— Fica com ele. Quando o caminho estiver livre, leva quem estiver aqui até a passagem sob Maruva. Elis conhece as ruas de cima melhor do que nós.
+— Fica com Orel e prepara quem quiser fugir — disse Karesis a Tair. — Elis conhece a saída. Se a gente conseguir voltar, ela mostra o caminho.
 
 — E você?
 
@@ -326,7 +326,7 @@ Selina quase não olhou para Kaendar. Procurava a lateral de uma Casa da Perman�
 
 Na praça anterior, um homem de capa oficial orientava famílias para um mercado cercado.
 
-— Água e proteção lá dentro. Por este portão.
+— Tem água e abrigo lá dentro! Entrem por aqui! — gritava o homem de capa.
 
 As pessoas seguiam porque alguém parecia saber o que fazer. Elis viu três riscos baixos junto ao arco de entrada e segurou o braço de Selina. Antes que pudesse explicar, as folhas pesadas se fecharam atrás das últimas famílias. Um homem do lado de fora passou uma corrente pelo encaixe.
 
@@ -340,7 +340,11 @@ Uma faixa presa às vigas ardia com as palavras VIVA O CAMPEÃO POLAR ainda leg�
 
 Não tinham percorrido duas quadras quando uma mulher caiu à frente de Elis, atingida por uma flecha vinda da névoa. Elis se abaixou para ampará-la e quase apoiou a mão em outro corpo. Reconheceu o tecido antes do rosto.
 
-Ladira Polar jazia de lado. Um golpe abrira metade de sua boca e parte do pescoço. O sangue tornara indistinguível o desenho da roupa. Elis se deteve o tempo de reconhecê-la.
+Ladira Polar jazia de lado. Um golpe abrira metade de sua boca e parte do pescoço. O sangue tornara indistinguível o desenho da roupa.
+
+Elis lembrou da mesa cheia de comida, da mão de Ladira sobre a sua e de quando perguntara, chorando, se a avó ia mesmo ajudar os dois. Ladira dissera que sim. Depois, quando os Filhos da Raiz entraram, nem sequer pedira que a deixassem ir.
+
+Elis olhou para a mão caída junto ao corpo. Não sentiu vontade de tocá-la. Por um instante, teve vergonha de lembrar o quanto ficara feliz naquela casa.
 
 Outra flecha atingiu a parede. Selina chamou Elis. Ela se levantou e correu.
 
@@ -348,7 +352,7 @@ Amira estava na Casa da Permanência. Selina a encontrou ajoelhada diante de um 
 
 — Amira!
 
-— O QUE ESTÁ ACONTECENDO?
+— SELINA! O que está acontecendo?
 
 A pergunta saiu alta demais para o cômodo, mas ninguém ali estranhou. Amira deixara a casa de Selina antes do Torneio, vira a chegada das comitivas, a celebração, talvez as primeiras corridas nas ruas. Não ouvira a conversa sob o Altar, não sabia o que se passara em Kaendar. Para ela os feridos simplesmente tinham começado a chegar.
 
@@ -374,7 +378,7 @@ Os Filhos da Raiz mantinham a porta principal fechada para impedir que a multid�
 
 Selina esperou que a dor na perna diminuísse o suficiente para responder sem perder o passo.
 
-— Precisava saber se você queria vir.
+— Queria te encontrar. Mas a escolha de vir é sua.
 
 Amira a olhou uma vez, sem conceder à frase mais perdão do que ela merecia. Ajustou o braço do ferido e seguiu.
 
@@ -388,13 +392,13 @@ Selina virou o rosto para ela.
 
 — Onde?
 
-— Nos túneis. Tem uma passagem que sai do outro lado das muralhas. Não passa por portão nenhum.
+— Pelos túneis. Tem uma saída do outro lado da muralha. Não precisa passar no portão.
 
 Karesis olhou para Elis. Ela percebeu, mas não retirou o que tinha dito.
 
 — Você já usou essa passagem? — Selina perguntou.
 
-— Eu saí por ela com Karesis. É apertada em alguns lugares. Tem parte que precisa passar de lado e outra quase rastejando, mas sai fora da cidade.
+— Já fui por lá com Karesis. É apertado. Em umas partes tem que ir de lado, em outras, quase engatinhando. Mas dá pra sair.
 
 Amira ajustou melhor o peso do homem entre os ombros.
 
@@ -408,11 +412,11 @@ Selina ainda parecia calcular distâncias, feridos, ruas bloqueadas e gente dema
 
 — Você consegue encontrar a entrada daqui?
 
-— Se a gente chegar a Maruva, eu sei levar.
+— Chegando em Maruva, eu acho a entrada de olhos fechados.
 
 A resposta mudou a pergunta de Selina. Já não era mais como elas sairiam.
 
-— Então levamos quem conseguirmos até lá.
+— Então vamos levar todos que conseguirem andar.
 
 Elis assentiu.
 
@@ -472,15 +476,13 @@ Alguém xingou quando ela passou por baixo de um braço. Um joelho bateu em seu 
 
 Foi então que viu o garoto ao seu lado.
 
-Demorou um instante para reconhecê-lo. Nas outras duas vezes havia roupas limpas, espaço aberto ao redor dele e gente pronta para sair de seu caminho. Agora tinha sangue seco no cabelo, sujeira no rosto e a roupa rasgada num ombro. Ainda assim, era o mesmo menino que Elis vira perto de Vetarius no anúncio do Torneio e depois encontrara outra vez nas partes altas da cidade.
-
-O filho do soberano.
+Demorou um instante para reconhecê-lo. Nas outras vezes em que o vira, primeiro no anúncio do Torneio, perto de Vetarius, depois nas partes altas da cidade, estava limpo e havia gente pronta para abrir caminho. Agora tinha sangue seco no cabelo, sujeira no rosto e a roupa rasgada num ombro. Elis reconheceu o rosto, mas nunca soubera o nome dele.
 
 Ele também tinha se abaixado por causa do aperto. Reconheceu Elis e ficou olhando para ela por um segundo, assustado demais para fingir qualquer outra coisa. Ela abriu a boca, talvez para dizer que o conhecia, talvez apenas para perguntar se ele sabia o que estava acontecendo.
 
 Acima deles, alguém gritou uma ordem.
 
-Veio um som de cordas sendo soltas.
+Três cordas haviam soado assim no Pátio de Namar. Elis reconheceu o som antes de pensar no motivo.
 
 As flechas caíram.
 

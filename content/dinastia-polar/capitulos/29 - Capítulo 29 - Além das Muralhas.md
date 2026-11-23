@@ -1,4 +1,4 @@
-Elis acordou antes do amanhecer sem saber quanto tinha dormido. A casa estava em silêncio. Tair respirava pesado do outro lado do cômodo, exausto de um jeito que só vinha depois de muito choro acumulado. Orel estava encolhido perto da parede. O espaço onde Kalan dormia continuava vazio, e Elis desviou os olhos antes que a ausência a acordasse mais do que já estava. Karesis tinha voltado durante a noite.
+Na madrugada seguinte ao enterro de Kalan, Elis acordou sem saber quanto tinha dormido. A casa estava em silêncio. Tair respirava pesado do outro lado do cômodo, exausto de um jeito que só vinha depois de muito choro acumulado. Orel estava encolhido perto da parede. O espaço onde Kalan dormia continuava vazio, e Elis desviou os olhos antes que a ausência a acordasse mais do que já estava. Karesis tinha voltado durante a noite.
 
 Dormia sentado junto à mesa, o corpo torto contra a parede, uma perna esticada e a outra dobrada de um jeito desconfortável até para ele. A garrafa estava no chão. Perto da mão caída ao lado do banco, quase tocando os dedos dele, estava o velho livro.
 
@@ -20,7 +20,7 @@ Karesis passou a tira de couro ao redor do livro.
 
 — Você pegou enquanto eu dormia.
 
-— E você ia deixar eu ler acordado?
+— E se eu pedisse, ia deixar eu ler?
 
 Ele não respondeu. Elis apontou para o livro.
 
@@ -36,7 +36,7 @@ Silêncio.
 
 Ele olhou para ela dessa vez. Elis continuou antes que pudesse escapar da pergunta:
 
-— Você sempre conta como se tivesse inventado metade. Tem isso desenhado aí. Quem desenhou? Por que você tem? Eles existiram mesmo?
+— Você conta como se fosse história inventada! Mas tá tudo desenhado aí. Quem desenhou? Você já viu esse lugar? Ele existiu mesmo?
 
 Karesis apoiou o livro sobre os joelhos. Por alguns segundos pareceu considerar uma resposta e desistir antes de falar. Olhou para Tair e Orel dormindo. Depois para o lugar vazio onde Kalan deveria estar. Elis esperou. Karesis tornou a olhar para ela.
 
@@ -72,9 +72,9 @@ Elis seguiu mesmo assim, só o bastante para manter a carga à vista. Karesis fi
 
 Os homens pararam diante de uma construção antiga, talvez uma oficina fechada havia anos. Descarregaram objetos compridos embrulhados em tecido grosso e caixas pequenas demais para o peso que exigiam de quem as carregava.
 
-— Isso não devia estar no outro depósito? — um dos homens perguntou.
+— Essa carga não era pra ir pro outro depósito? — perguntou um dos homens.
 
-— No registro, está — respondeu outro.
+— No registro, tá — respondeu outro.
 
 O primeiro pareceu satisfeito. Elis olhou da carga para a porta da oficina: no registro, aquelas caixas estavam em outro lugar.
 
@@ -82,7 +82,7 @@ Perto da soleira havia uma pequena marca gravada na pedra, algumas linhas simple
 
 Os dois recuaram para a sombra de uma parede e esperaram que ele entrasse novamente.
 
-— Eles estão escondendo alguma coisa — Elis sussurrou.
+— Eles tão escondendo alguma coisa — sussurrou Elis.
 
 — Provavelmente.
 
@@ -120,7 +120,7 @@ Elis parou.
 
 Ela correu dois passos para alcançá-lo.
 
-— Você já veio por aqui?
+— Você já passou por aqui? Quantas vezes?
 
 — Já.
 
@@ -286,7 +286,7 @@ Elis franziu a testa.
 
 — Ladira disse que meu pai não prestava.
 
-— Ladira precisava transformar uma decisão que não controlou numa decisão ruim. É mais fácil fazer isso quando a culpa cabe numa pessoa só.
+— Ladira não gostava de perder o controle sobre a vida da sua mãe. Era mais fácil culpar seu pai do que aceitar que Neiva não queria viver daquele jeito.
 
 — Então meu pai prestava?
 
@@ -314,9 +314,9 @@ A resposta doeu mais por ser simples. Elis olhou de novo para Kaeliran ao longe.
 
 — Então ele abandonou a gente.
 
-— Eu disse que ele não estava. O resto é uma palavra sua.
+— Eu disse que ele não estava. Não sei dizer o que se passou antes.
 
-— É uma palavra boa.
+— Pra mim, é abandono.
 
 Karesis não tentou corrigi-la.
 
@@ -342,7 +342,7 @@ Aquilo surpreendeu Elis.
 
 Karesis passou algum tempo sem responder.
 
-— Algumas portas continuam abertas e mesmo assim você sabe que não pode morar atrás delas de novo.
+— Porque, mesmo que Ladira deixasse a porta aberta, sua mãe sabia que ia encontrar os mesmos problemas lá dentro.
 
 Elis pensou na casa de Ladira, nas janelas de vidro, na mesa onde sobrava comida sem ninguém contar pedaços, na mão da velha apertando a sua enquanto prometia ajudar Kalan. Depois pensou nos Filhos da Raiz entrando.
 
@@ -446,11 +446,11 @@ O silêncio dessa vez ficou entre os dois sem precisar ser preenchido.
 
 Elis olhou para a estrada por algum tempo.
 
-— Eu continuo esquecendo.
+— Eu fico esquecendo umas coisas...
 
 Karesis esperou.
 
-— Não esquecendo que ele morreu. — Ela falou mais depressa, irritada com a própria frase. — Eu sei que ele morreu. Só... acontece alguma coisa e eu penso que tenho que contar pra ele. Hoje, quando você mandou eu calçar as botas, eu pensei que Kalan ia ficar bravo porque eu saí sem falar nada.
+— Não esqueço que ele morreu — Elis se apressou. — Só que acontece uma coisa e eu penso «vou contar pro Kalan». Hoje, quando você mandou calçar as botas, pensei que ele ia brigar porque saí sem avisar.
 
 A garganta fechou antes que terminasse. Elis esfregou o nariz com o punho e olhou para o lado, para que Karesis não precisasse fingir que não vira.
 
@@ -498,7 +498,7 @@ Elis revirou os olhos.
 
 — Pelo menos uma coisa em você era exatamente o que parecia.
 
-— É importante manter alguma consistência.
+— Pelo menos alguma coisa tinha que ser verdade.
 
 Ela quase sorriu outra vez.
 
@@ -518,7 +518,7 @@ Ele pensou antes de responder.
 
 — Quero te mostrar uma história.
 
-— Histórias são pra contar — Elis disse, quase rindo.
+— Mas história não é pra contar? — Elis perguntou, quase rindo.
 
 — Essa é melhor olhando.
 
@@ -592,7 +592,7 @@ Elis percebeu.
 
 — Você já veio aqui? — perguntou.
 
-— Não desse jeito — Karesis respondeu.
+— Já estive — respondeu Karesis, sem olhar para ela.
 
 Ela não entendeu o que aquilo queria dizer. Não insistiu.
 
@@ -630,11 +630,11 @@ Karesis respondia pouco. Quando não sabia, ou não queria responder, dizia apen
 
 — Não sei.
 
-— Então suas histórias são histórias de verdade — Elis concluiu.
+— Então você não inventou tudo aquilo? — Elis perguntou.
 
 — História sempre começa com alguém contando — Karesis respondeu.
 
-— Isso continua não significando nada.
+— Você tá fugindo da pergunta de novo!
 
 Ele deu um pequeno sorriso, o primeiro daquele dia inteiro.
 
@@ -686,7 +686,7 @@ Ele olhou para ela antes de responder.
 
 Elis olhou de novo para a gravura.
 
-— Então inventaram tudo isso?
+— Então esses nomes todos foram inventados?
 
 — Inventaram os nomes. Depois de tempo suficiente, parece que eles sempre estiveram ali.
 
@@ -766,7 +766,7 @@ Karesis pensou por um instante.
 
 — Por quê?
 
-— Porque se muita gente conhece um segredo, vira rua.
+— Porque você conta pra um, esse um conta pra dois, e daqui a pouco todo mundo sabe.
 
 Elis prometeu.
 

@@ -62,7 +62,7 @@ Daryon moveu-se junto ao trono. Foi um gesto pequeno, quase incapaz de vencer o 
 
 Alyra fechou os olhos por meio instante, como se a confissão pública fosse mais uma ferida aberta por alguém que dizia amá-la. Quando os abriu, já não havia espaço para vergonha. Apenas ódio.
 
-— Rendar, Alyra merece responder pelo que fez, mas matá-la não resolverá nada. Assim como você, ela também foi enganada. Daryon escondeu por anos a assassina de nosso pai e mentiu para ela. Ylvena plantou o ódio entre Polar, Tondrar e Buldar. Por causa dela, os Fendelar estão mortos. Meu pai tentou conter a guerra por anos, mas ela veio mesmo assim. Tudo é mais complexo do que parece.
+— Rendar, minha irmã tem de responder pelo massacre de Velarim. Daryon e Ylvena mentiram para todos, mas Alyra escolheu enviar homens contra tua aldeia. Não estou pedindo que a desculpe. Estou dizendo que, se a matar agora, nada do que descobrimos poderá ser julgado.
 
 Rendar olhou para Daryon, depois para a mulher que segurava.
 
@@ -72,7 +72,7 @@ Rendar olhou para Daryon, depois para a mulher que segurava.
 
 — Eu ordenei que não tocassem nas crianças.
 
-— Ordenou? — perguntou Kaelina. — E você acha que alguém lá fora escuta você? Os homens estão matando tudo o que respira. Mulheres, crianças... bebês. Tudo que tem sangue Polar.
+— Ordenou? — perguntou Kaelina. — E quantos lá fora ouviram? Vi casas queimadas, famílias tentando fugir e homens atacando quem já tinha largado as armas. Você não consegue controlar tudo o que trouxe para dentro de Kaendar.
 
 Alyra tentou virar-se contra ele, mas Rendar pressionou a espada junto ao seu pescoço. Kaelina deu um passo.
 
@@ -94,7 +94,7 @@ Rendar respirou com dificuldade. Os olhos estavam úmidos, mas nenhuma lágrima 
 
 Ele endureceu. Kaelina continuou antes que pudesse rejeitar a frase.
 
-— Foi isso que fizeram com Velarim. Daryon escolheu sua aldeia porque acreditou que vocês eram poucos demais para importar. Alyra aceitou porque acreditou que sua família podia virar prova contra os Tondrar. Você está fazendo o mesmo que fizeram com você. Está prolongando esse ódio.
+— Alyra mandou matar os Fendelar para culpar os Tondrar e mostrar força. Daryon ajudou a preparar o ataque. Eles acharam que uma aldeia pequena não poderia se defender. Se matar a criança que ela carrega para puni-la, estará repetindo essa escolha.
 
 Rendar olhou para a barriga de Alyra, escondida sob as placas frouxas da armadura.
 
@@ -108,7 +108,7 @@ Alyra soltou uma risada curta e furiosa.
 
 Rendar apertou os olhos. Por um momento, Kaelina acreditou que ele cortaria. Kadrir também percebeu e voltou a erguer a espada. Os guardas prepararam-se, tensos o suficiente para disparar mesmo sem ordem. Kaelina permaneceu entre eles.
 
-— Eu vou tirá-la do poder — disse.
+— Não vou deixar que ela continue governando depois do que fez — disse.
 
 Alyra parou.
 
@@ -122,7 +122,7 @@ Kaelina não olhou para ela.
 
 Havia desprezo na pergunta, mas também algo parecido com exaustão.
 
-— Kaendar não, mas eu sim.
+— Eu não vou deixar essa sentença desaparecer entre os papéis do Conselho.
 
 Kaelina olhou ao redor do salão. Os guardas esperavam sua ordem. Varron havia abaixado a arma porque ela mandara. Kadrir permanecia ao lado de Alyra, mas não contradizia mais Kaelina. Iressa ouvira toda a verdade.
 
@@ -134,11 +134,11 @@ Alyra tentou avançar novamente.
 
 Rendar segurou-a. Kaelina finalmente olhou para a irmã.
 
-— Os Buldar foram embora.
+— Os Buldar estão recuando.
 
 Alyra ficou imóvel.
 
-— Nynestra retirou os homens dela. Os Tondrar estão sozinhos diante das muralhas, os Homens das Areias fecharão o cais e os invasores que ainda estão dentro não conseguirão abrir o portão principal.
+— Nynestra retirou os homens dela. Sem os mantimentos Buldar, os Tondrar não conseguem manter este cerco por muito mais tempo. Os Homens das Areias estão retomando o cais e Kadrir ainda mantém os portões principais fechados.
 
 Kadrir olhou para Varron, procurando confirmação. O conselheiro assentiu.
 
@@ -146,13 +146,13 @@ Kadrir olhou para Varron, procurando confirmação. O conselheiro assentiu.
 
 Alyra olhou para Kaelina sem admiração. O que apareceu em seu rosto foi mais difícil de suportar. Kaelina voltou-se para Rendar.
 
-— A guerra acabou. Não porque Kaendar venceu, nem porque os seus perderam. Acabou porque todos já pagaram mais do que aquilo que vieram buscar.
+— Ainda há homens lutando nas ruas. Mas o cerco pode acabar agora, antes que mais gente morra.
 
 Rendar olhou para Daryon no chão.
 
-— Eu nunca quis uma guerra.
+— Não comecei querendo uma guerra.
 
-A frase saiu tão baixa que os homens mais próximos precisaram inclinar-se para ouvi-la.
+Rendar quase não conseguiu terminar a frase.
 
 — Eu queria que eles soubessem — continuou. — Queria que dissessem os nomes. Queria que Kaendar olhasse para Velarim e não conseguisse chamar aquilo de consequência.
 
@@ -162,7 +162,7 @@ A primeira lágrima desceu pelo rosto dele. Rendar não tentou escondê-la, mas 
 
 Kaelina sentiu a própria garganta fechar.
 
-— Volte por eles agora.
+— Ainda pode voltar a Mirval. Não vou mandar ninguém atrás de você.
 
 Rendar soltou uma risada sem alegria.
 
@@ -178,13 +178,17 @@ Alyra tentou virar-se, mas ele a empurrou para a frente antes que alcançasse qu
 
 Os homens se prepararam para prendê-lo, mas Kaelina levantou a mão e ergueu a voz:
 
-— Deixem-no passar. Sob minha palavra, ele está protegido até atravessar aquele portão.
+— Deixem-no passar. E escutem todos: Rendar sairá vivo de Kaendar e terá passagem livre para voltar aos seus. Nenhum Polar o tocará. É minha palavra.
 
 Os homens obedeceram. Rendar caminhou em direção à porta. Os guardas fecharam a passagem por instinto. Espadas e lanças formaram uma parede diante dele. Ninguém se moveu.
 
 — Foi ele quem matou Cal Edran — disse Kadrir.
 
-— Eu sei — respondeu Kaelina. — E dei minha palavra assim mesmo. Chame de Lei do Portão, Kadrir. Ninguém perguntou onde ficava o portão antes de jurar lealdade a ela.
+— Eu sei.
+
+— Então vai deixá-lo sair?
+
+— Dei minha palavra, Kadrir. A Lei do Portão não deixa de valer quando se trata de um inimigo. Não foi por isso que a criaram.
 
 Kadrir olhou para Alyra. Ela parecia pronta para ordenar o contrário. Kaelina avançou até ficar entre Rendar e os homens.
 
@@ -300,7 +304,7 @@ Kaelina olhou para a irmã ajoelhada junto ao corpo.
 
 — Não sai deste salão.
 
-Alyra soltou uma risada baixa. Kaelina não permaneceu para ouvi-la crescer. Rendar não havia ido longe.
+Alyra soltou uma risada baixa. Kaelina não permaneceu para ouvi-la crescer. Rendar ainda estava na primeira galeria.
 
 Encontraram-no numa galeria próxima, cercado por guardas que mantinham distância suficiente para obedecer sem confiar. Ele caminhava com dificuldade, arrastando uma das pernas e pressionando a mão contra o ferimento no lado do corpo. Kaelina e outros guardas o acompanharam.
 
@@ -318,7 +322,7 @@ O Vendrar riu.
 
 — A cidade ainda está queimando.
 
-— Os Buldar recuaram. Os Tondrar não atravessaram os portões. Os Polar ganharam.
+— Os Buldar recuaram. Os Tondrar não atravessaram os portões. Sem os Buldar, não vamos conseguir manter o ataque.
 
 O riso desapareceu.
 
@@ -342,11 +346,11 @@ Os Vendrar trocaram olhares. Um deles ergueu o tubo de fogo. Os guardas responde
 
 Rendar acompanhou tudo em silêncio. O maxilar endureceu, mas ele não discutiu a ordem.
 
-Homens vinham o tempo todo com novos prisioneiros. Mais abaixo, capturaram Glydars segurando uma passagem próxima aos depósitos de sal úmido. Haviam virado mesas e barris para formar proteção contra os guardas. Um deles usava uma faixa azul de margem no braço e parecia comandar os outros.
+Homens vinham o tempo todo com novos prisioneiros. Mais abaixo, capturaram homens Glydar segurando uma passagem próxima aos depósitos de sal úmido. Haviam virado mesas e barris para formar proteção contra os guardas. Um deles usava uma faixa azul de margem no braço e parecia comandar os outros.
 
 Os Glydar que resistiam caíam, assim como alguns Vendrar perto do rio. Lorde Ossar não foi visto. Alguns disseram que fugira de volta para a Margem dos Zírrios, outros que morrera na batalha. Naquele momento, não havia como saber.
 
-A cada rua atravessada, Rendar via Glydars serem levados, casas incendiadas, Vendrar lutando. Alguns Tondrar que haviam conseguido entrar pelo cais gritavam e tentavam lutar, alguns eram espetados por lanças compridas, às vezes mortalmente. Rendar não respondeu a nada. A madrugada clareava devagar.
+A cada rua atravessada, Rendar via homens Glydar serem levados, casas incendiadas, Vendrar lutando. Alguns Tondrar que haviam conseguido entrar pelo cais gritavam e tentavam lutar, alguns eram espetados por lanças compridas, às vezes mortalmente. Rendar não respondeu a nada. A madrugada clareava devagar.
 
 À luz cinzenta da manhã, as chamas já não escondiam os estragos. Agora revelavam telhados abertos, paredes escurecidas, corpos cobertos às pressas e água misturada com cinza escorrendo pelas ruas. Nas partes baixas, crostas-de-pântano fugiam das poças revolvidas, batatas-de-lodo arrancadas de cestos boiavam entre detritos e flores-de-lodo-azul permaneciam abertas junto aos canais, belas demais para aquele cheiro de morte.
 
@@ -368,7 +372,7 @@ Sarkan olhou para Rendar.
 
 Kaelina o corrigiu.
 
-— Não. Este é o homem pelo qual a guerra chegou primeiro.
+— Este homem perdeu tudo antes que a cidade soubesse que havia uma guerra.
 
 Sarkan olhou para as muralhas, para os guardas Polar, para os próprios homens espalhados pelo cais e para a luz surgindo sobre o rio.
 
@@ -394,7 +398,7 @@ Rendar não se virou.
 
 — Mas a floresta existe.
 
-Kaelina pensou nos mortos enterrados na floresta, no Raukhar, em Veyr e em tudo o que Kaendar inventara porque era mais fácil acusar um povo pequeno do que admitir que um Polar havia morrido por arrogância.
+Kaelina lembrou dos vestígios de Veyr encontrados por Rendar e dos Fendelar mortos antes que Kaendar investigasse o que realmente acontecera na trilha.
 
 — Mandarei homens para ajudar a enterrar os que ficaram.
 
@@ -408,9 +412,9 @@ Kaelina aceitou.
 
 — Por quê? Sente-se culpada?
 
-— Não. Em dívida.
+— Porque Kaendar tem uma dívida com teu povo. Mesmo que você não queira receber nada de mim.
 
-Rendar olhou para ela durante algum tempo. Depois assentiu apenas uma vez. O som da corda do arco veio atrás deles.
+Rendar a encarou por um momento. Não chegou a responder. O som da corda do arco veio atrás deles.
 
 Kaelina reconheceu antes de entender. A flecha atravessou o espaço entre os guardas e entrou nas costas de Rendar, abaixo do ombro esquerdo. A ponta rompeu couro, carne e costelas antes de alcançar o coração. O corpo dele avançou dois passos pelo impulso. A espada caiu primeiro.
 
@@ -424,7 +428,7 @@ Os olhos dele ainda estavam abertos, mas já não procuravam Kaendar. A respira�
 
 — Quem atirou? — gritou Kaelina, virando-se de súbito.
 
-Assim como Kaelina, os guardas procuravam pelo executor. Sarkan desceu das caixas com a espada na mão. Kaelina pousou Rendar no chão e, ao virar-se, viu Alyra na entrada da rua.
+Os guardas se viraram para a rua, procurando de onde viera o disparo. Sarkan desceu das caixas com a espada na mão. Kaelina pousou Rendar no chão e, ao virar-se, viu Alyra na entrada da rua.
 
 O arco permanecia baixo em sua mão direita, a corda ainda vibrando. Na esquerda, carregava o mecanismo de fogo tomado de Tavra. O tubo estava preso por tiras rompidas enroladas em seu punho, pingando óleo sobre a pedra. A armadura continuava suja de sangue e fuligem.
 
@@ -434,7 +438,7 @@ Kadrir surgiu logo depois, o rosto escurecido, como se tivesse passado perto do 
 
 — O que você fez?
 
-Alyra soltou o arco no chão.
+Alyra baixou o arco e o deixou cair no chão.
 
 — Acabei com nosso inimigo.
 
@@ -450,7 +454,7 @@ Alyra olhou para os moradores reunidos nas portas, para os guardas, para os Home
 
 Ela apontou para Rendar.
 
-— E agora eu dei passagem a este homem diante de todos. Você o matou pelas costas antes que atravessasse o portão.
+— E eu dei minha palavra diante de todos para que ele voltasse vivo aos seus. Você o matou pelas costas, enquanto ainda estava sob minha proteção.
 
 Murmúrios cresceram ao redor. Alyra ergueu o queixo.
 
@@ -484,7 +488,7 @@ Kaelina olhou para Rendar morto entre elas.
 
 Alyra respirou fundo. A mão que segurava o mecanismo tremia.
 
-— Você nem deveria estar viva, irmã... — disse Kaelina.
+— Era você quem Ylvena queria matar, irmã — disse Kaelina.
 
 Alyra franziu o cenho.
 
@@ -594,15 +598,17 @@ Alyra correu até ele. Kaelina avançou, mas a perna ferida falhou. Tropeçou so
 
 Óleo continuava vazando pela junção atingida por Rendar. A haste cortada por Kaelina na torre permanecia torta. Pequenas chamas surgiam e morriam na abertura, como se a arma respirasse com dificuldade.
 
-Alyra sorriu. Kaelina ouviu Marken. Não como lembrança distante. A voz apareceu inteira dentro dela, junto ao cheiro dos pigmentos e à luz fraca do quarto. "Um dia, Alyra sorrirá antes do fogo. Quando isso acontecer, não recue. Baixe-se."
+Alyra sorriu.
 
-Kaelina dobrou os joelhos. A chama atravessou o lugar onde seu rosto estivera. O fogo passou sobre seus cabelos, atingiu a carroça e espalhou-se pela madeira seca. Alyra tentou corrigir a mira, puxando o tubo para baixo.
+Kaelina se abaixou antes que o fogo saísse. A chama atravessou o lugar onde seu rosto estivera. O fogo passou sobre seus cabelos, atingiu a carroça e espalhou-se pela madeira seca. Alyra tentou corrigir a mira, puxando o tubo para baixo.
 
 O mecanismo estalou. Primeiro veio um som pequeno, metálico, como uma peça soltando-se dentro de outra. Depois a pressão empurrou óleo pelas rachaduras. Uma faísca encontrou o líquido escorrido sobre as tiras de couro.
 
 A explosão tomou a mão de Alyra. Fogo e metal abriram-se diante dela. A força arremessou seu corpo para trás. Partes do tubo voaram pelo cais, atingindo pedra, madeira e escudos. Kaelina foi lançada contra o chão, protegendo o rosto com o braço. O som desapareceu por alguns instantes.
 
 Ela via bocas abertas, homens correndo e fogo movimentando-se, mas não ouvia nada além de um ruído contínuo dentro da cabeça.
+
+A voz de Marken voltou entre o zumbido e a fumaça: "Um dia, Alyra sorrirá antes do fogo. Quando isso acontecer, não recue. Baixe-se."
 
 Kaelina tentou levantar, mas a mão escorregou no chão. Conseguiu na segunda tentativa e avistou Alyra caída perto da parede.
 

@@ -1,36 +1,38 @@
-O jantar daquela segunda-feira foi comprido e barulhento, na mesa da sala de Brisália. Bruno contou três vezes a história do cabelo queimado de Denis, e na terceira a faísca de Amadou já tinha o tamanho de um raio. Beatriz explicou à tela de Kali, por ordem de importância, por que ficar em primeiro lugar não era motivo de orgulho e sim de responsabilidade. Banjo comeu devagar, com o nariz ainda dolorido e o peso da duna esquecido nos braços, e passou a refeição inteira olhando para a porta, esperando que Lioro aparecesse com a sobrinha atrás, de fita cinza no cabelo, dizendo que sabia achar o caminho pelo cheiro.
+Naquela segunda-feira, o jantar se arrastou até tarde na casa de Brisália. Bruno contou três vezes a história do cabelo queimado de Denis, e na terceira a faísca de Amadou já tinha o tamanho de um raio. Beatriz ainda falava com Kali sobre o primeiro lugar na prova, embora já tivesse repetido três vezes que a parte mais difícil havia sido reconhecer o que não era verdade. Banjo mal tocou na sopa. O nariz ainda doía da prova, mas era outra coisa que o fazia olhar para a porta. Lioro dissera que talvez trouxesse Nayra para jantar. A cadeira dela continuava vazia.
 
-Não apareceram. Banjo percebeu a falta quando a tela de Kali brilhou no fim da mesa, um pouco mais perto dele do que dos outros.
+Kali aproximou a tela de Banjo, que estava fazendo desenhos no caldo com a colher.
 
-— O senhor Lioro mandou recado pelo canal do Arcano — disse Kali, que sempre sabia para onde ele estava olhando. — A menina se deitou cedo, com uma dor de cabeça forte, e ele ficou com ela. Disse que não é grave. Você comeu a sopa toda? Porque eu recomendei cebola ao Velho-Sábio, e a cebola ajuda mais do que a gente imagina.
+— O senhor Lioro mandou recado pelo canal do Arcano — informou Kali. — Nayra está com febre e foi para a enfermaria. Ele ficou com ela. Disse que a curandeira não considera grave. E o seu prato continua quase cheio, Banjo.
 
-— Eu comi, sim, senhora, desculpa, é que tipo... eu só queria ver como ela estava.
+— Eu já comi um pouco. — Banjo afastou a colher. — Ela estava bem quando a gente saiu. Será que foi por causa da tempestade?
 
-— Claro que queria. Mas a sopa também é um jeito de ver como ela está, porque se você passa mal por causa de preocupação, eu tenho dois doentes para acompanhar em vez de um. — O brilho da tela baixou um pouco, o que em Kali era um jeito de falar mais baixo. — Vai lá amanhã de manhã, antes do Arcano abrir. Eu aviso o Velho-Sábio.
+— A curandeira ainda não sabe se a febre tem relação com a prova — respondeu Kali. A luz da tela suavizou. — Pode visitá-la amanhã cedo. Avisarei ao Velho-Sábio. E o seu jantar ainda está na mesa, Banjo.
 
 No quarto, as estrelas do relógio já tinham subido ao teto e se arrumavam em fila, devagar, como faziam quando a casa ia dormir. Banjo ficou deitado de lado, de olhos abertos, até a cama de cima ranger.
 
-— Para de pensar tão alto — disse Bruno, de cabeça para baixo, pendurado pela borda do colchão. — Dá pra ouvir daqui. Parece panela no fogo.
+— Banjo, vira pro outro lado, pô. — Bruno pendia da cama de cima, com a cabeça para baixo. — Você está suspirando faz meia hora.
 
-— Eu não estou pensando.
+— Não tô suspirando.
 
-— Está, sim. A menina do vento. Cara, é febre de deserto. Eu fiquei dois dias com o nariz escorrendo depois da casa do primo e ninguém fez velório.
+— Tá, sim. É por causa da Nayra, né? O Lioro falou que a curandeira tá cuidando dela. Não começa a imaginar o pior.
 
 — Dá pra fazer um desenho pra ela? — perguntou Beatriz, sonolenta, da cama do outro lado. — Eu faço um bem bonito. Com um cavalo.
 
-— Ela lê vento, Bia. Não sei se ela liga pra cavalo.
+— Ela gosta de vento, Bia — disse Bruno.
 
-— Então um cavalo com vento. Dentro.
+— Então eu desenho o cavalo com o cabelo voando.
 
-Banjo riu, e a risada saiu mais fraca do que ele queria. Do canto, Breno virou o travesseiro sem virar o rosto.
+— Cavalo não tem cabelo, tem crina — corrigiu Breno.
 
-— Amanhã você vai ver como ela está — disse. — Antes do Arcano. Leva pão e não leva a gente, que a gente faz barulho.
+— O meu vai ter os dois — respondeu Beatriz.
 
-— Eu ia pedir isso.
+Banjo riu pela primeira vez desde o jantar. Breno, do outro lado do quarto, virou o travesseiro e falou sem abrir os olhos.
 
-— Eu sei. Por isso falei primeiro.
+— Pode ir amanhã cedo, se o Lioro deixar. Só não vai sozinho sem avisar a ninguém.
 
-— Se ela piorar, me avisa — completou Bruno, voltando para cima do colchão. — Eu congelo a febre. Nunca testei, mas tenho fé.
+— Eu aviso, Breno. Prometo.
+
+— E se precisar de mim, me chama — acrescentou Bruno, subindo de volta à cama. — Eu não sei curar febre, mas posso levar alguma coisa.
 
 — Bruno.
 
@@ -38,25 +40,25 @@ Banjo riu, e a risada saiu mais fraca do que ele queria. Do canto, Breno virou o
 
 Banjo esperou a respiração dos três se acomodar e ficou olhando as estrelas, uma por uma, até perder a conta.
 
-Mas Banjo não esperou a manhã. Acordou antes do sol, com Farol enrolado no pescoço e a sensação desagradável de ter esquecido de apagar uma luz, e desceu a ladeira de Sorevan na ponta dos pés, com os sapatos na mão, até o Edifício Arcano. A porta lateral estava aberta. Uma lanterna de chama azul pendia ao lado da escada, e a enfermaria ficava no segundo andar, no fim de um corredor que cheirava a erva seca e a lençol limpo.
+Banjo acordou antes do amanhecer, com Farol enrolado no pescoço. Vestiu-se sem acender a luz, deixou um bilhete para Breno e desceu a ladeira de Sorevan até o Edifício Arcano. A porta lateral estava aberta. Uma lanterna de chama azul pendia ao lado da escada, e a enfermaria ficava no segundo andar, no fim de um corredor que cheirava a erva seca e a lençol limpo.
 
 Era uma sala comprida, de teto baixo, com seis camas de ferro encostadas na parede e uma janela grande no fundo. Cinco camas estavam vazias, e na última, perto da janela, Nayra dormia de lado, com a fita cinza solta no travesseiro e o cabelo colado na testa.
 
-Lioro estava sentado numa cadeira ao lado dela, com o manto dobrado no colo e as duas mãos entre os joelhos. Levantou a cabeça quando Banjo entrou, e o rosto dele tinha a cor de quem não dormiu e preferia que ninguém reparasse.
+Lioro estava sentado numa cadeira ao lado dela, com o manto dobrado no colo e as duas mãos entre os joelhos. Levantou a cabeça quando Banjo entrou. Tinha os olhos fundos e o manto amarrotado no colo.
 
-— Meu jovem. Você está de pé muito cedo.
+— Banjo? Ainda nem amanheceu, garoto.
 
-— Eu não consegui dormir, senhor Lioro. Desculpa entrar assim. A Kali falou que era dor de cabeça, mas eu... como é que ela está?
+— Desculpa aparecer tão cedo. A Kali disse que ela tava com febre. Como é que a Nayra está?
 
-— Com muita febre. A curandeira esteve aqui duas vezes durante a noite e diz que é a febre do vento, que a Nayra já teve em Marador e que vai passar em um ou dois dias. — Lioro esfregou os olhos com o polegar e o indicador. — Eu quero acreditar nela, e acredito. Só que na outra vez foi diferente. Em casa ela ficou quente e boba, falando sem parar, dando ordem às cortinas. Agora ela está quieta, e a quietude dela me assusta mais do que a falação.
+— A febre subiu durante a noite. A curandeira veio duas vezes. Parece aquela febre do vento que ela teve em Marador, mas ainda não sabe o que causou. Diz que devemos observar por um ou dois dias. — Lioro esfregou os olhos. — Da outra vez, Nayra não parava de falar. Dava ordens até para as cortinas. Agora mal abre a boca. Isso é que me preocupa.
 
 — Eu posso ficar um pouco? Não precisa ser muito.
 
-— Pode ficar o quanto quiser, que eu vou até a cozinha buscar um chá e aproveitar para esticar as pernas. Se ela acordar, não deixe que se levante. E não deixe que se preocupe com a prova, porque ela vai querer saber o resultado, e eu não tenho coragem de dizer que o segundo lugar não conta para nada.
+— Claro. Vou buscar chá e esticar as pernas. Se ela acordar, peça que fique deitada. E, por favor, não fale da próxima prova. Vai querer levantar na mesma hora.
 
-Lioro saiu devagar, e a cadeira ficou quente por um instante.
+Lioro saiu. Banjo ocupou a cadeira que ele deixara.
 
-Banjo sentou-se onde ele estava. Farol deslizou do pescoço para o ombro e olhou a menina deitada com a cabeça inclinada, quieto, num silêncio de bicho que reconhece doença. Nayra respirava curto, com uma pausa pequena entre uma e outra, e o rosto estava vermelho nas bochechas e pálido em volta da boca. Banjo tentou sentir alguma coisa dela e não achou o metal frio do dia anterior, nem o calor teimoso. Achou um calor sem dono, espalhado, que não vinha de lugar nenhum e não ia para lugar nenhum. Era como pôr a mão num forno que alguém tinha desligado e esquecido de abrir.
+Farol deslizou do pescoço de Banjo para o ombro e ficou observando Nayra, imóvel. Nayra respirava curto, com uma pausa pequena entre uma e outra, e o rosto estava vermelho nas bochechas e pálido em volta da boca. Banjo tentou entender se havia alguma coisa além da febre. No dia anterior, ela discutira com o vento, fizera piadas e insistira em continuar a prova. Agora mal se mexia. Ele aproximou a mão da testa dela, mas parou antes de tocar, com medo de acordá-la. Farol encostou o focinho no rosto dela e recuou para o ombro do menino.
 
 Ele ficou ali, olhando a janela, que estava aberta uns dois palmos. Pela abertura entrava o ar frio da madrugada, com cheiro de terra molhada. A cortina branca, presa por uma tira de pano, balançava um pouco.
 
@@ -64,21 +66,21 @@ Ele ficou ali, olhando a janela, que estava aberta uns dois palmos. Pela abertur
 
 Ele pulou na cadeira. Nayra tinha aberto os olhos, mas não olhava para ele. Olhava para o teto, e a voz saía rouca, devagar, sem nenhuma pressa.
 
-— Eu estou aqui — disse ele. — Sou eu, o Banjo. Está tudo bem, você só está com febre.
+— Você acordou! — Banjo se inclinou na cadeira. — Quer água? Quer que eu chame o Lioro?
 
-— Eu sei quem é você. Você é o que segurou a duna. — Ela engoliu em seco, e a garganta estalou. — Tem um fio solto.
+— Eu sei quem é você. Você é o que segurou a duna. — Ela engoliu em seco, e a garganta estalou. — O vento sumiu.
 
-— Um fio?
+— Sumiu?
 
-— No ar. Um fio comprido, desses de urdidura, que sai do meu peito e vai até a janela. Eu tenho puxado desde a hora do jantar e ele não vem. Vai pela cortina, passa pela rua, sobe para o céu e para. Alguém segurou do outro lado. — Os olhos dela correram pelo teto, de canto a canto, como quem lê uma linha. — Isso nunca aconteceu. No tear, quando um fio prende, a gente solta o pente e puxa de novo. Eu soltei o pente. Ele continua preso.
+— Eu chamo ele desde a hora do jantar e ele não vem. Sempre vem. Hoje é como se alguém tivesse fechado uma porta e ficado do outro lado, segurando. — Os olhos dela correram pelo teto, de canto a canto. — Isso nunca aconteceu.
 
-— Nayra, você está delirando. É a febre.
+— Mas você tá doente, Nayra. Será que não é por isso?
 
-— Febre do vento. Eu sei, o meu tio disse. Na última vez eu falava com as cortinas, e elas me obedeciam, e eu achava graça. Dessa vez nada me obedece. — Ela virou o rosto devagar, e os olhos finalmente acharam os dele. Estavam brilhantes demais, com as pupilas pequenas. — Você acha que foi a duna? Eu fiquei com a boca cheia de areia quando o vento virou por dentro. Pode ser que tenha entrado alguma coisa.
+— Febre do vento. Eu sei, o meu tio disse. Na última vez eu falava com as cortinas, e elas me obedeciam. Dessa vez nada acontece. — Ela virou o rosto devagar e finalmente olhou para ele. — Você acha que foi a duna? Engoli tanta areia que ainda sinto nos dentes.
 
-— Pode ser. Foi um dia pesado, e ainda teve a tempestade. Eu também estou todo moído, olha o meu nariz.
+— Pode ser, né? Aquela tempestade quase enterrou a gente. Meu nariz ainda dói.
 
-— O meu tio também falou isso. — Nayra fechou os olhos de novo e a voz diminuiu. — Os dois estão confiantes demais. Eu leio vento desde pequena, Banjo, e vento quebrado eu nunca tinha lido. Dá para ver o lugar onde quebrou. É liso, como uma corda cortada com faca limpa.
+— Meu tio também acha que foi a prova — murmurou Nayra. — Mas eu conheço meu vento, Banjo. Nunca fiquei sem sentir nada. Nem quando estava com febre antes.
 
 — O deserto tem coisa estranha, Nayra. Ontem você viu uma mulher de lenço e eu um homem de casaco, no mesmo lugar. Se o ar de lá já faz isso com a cabeça, imagina com o vento.
 
@@ -86,59 +88,61 @@ Ele pulou na cadeira. Nayra tinha aberto os olhos, mas não olhava para ele. Olh
 
 — Claro que pode.
 
-— Primeiro: eu não estou assustada, só estou cansada. Segundo: eu quero ver a prova do ciclo que vem. Terceiro: se eu não puder, você vai com alguém que não corra de duna. Quarto: o doce estava bom.
+— Primeiro: eu não estou assustada. Muito. Segundo: eu quero ver a próxima prova. Terceiro: se eu não puder ir, você escolhe alguém que não corra de duna. Quarto... — Ela parou para respirar. — O doce estava bom. Eu devia ter pedido outro.
 
 Banjo riu, curto, sem querer, e ela quase sorriu de volta.
 
-— Eu falo demais quando estou com febre — disse Nayra. — Fala isso para o meu tio, que ele acha que é falta de cuidado.
+— Se meu tio disser que fiquei quieta a noite inteira, você não acredita. Estou falando agora.
 
 — Eu falo.
 
-— Prometa que não conta que eu falei do fio. Ele já está com cara de quem não dorme, e eu não quero dar a ele mais um motivo.
+— E não conta pro meu tio que eu não sinto o vento, tá? Ele já tá com cara de quem não dormiu.
 
-— Eu prometo.
+— Tá. Mas, se piorar, a gente chama a curandeira. Promete?
 
-Ela dormiu de novo antes que ele terminasse a frase. Banjo ficou olhando o peito dela subir e descer, e o calor sem dono ao redor da cama, e uma pontada de culpa que nem sabia direito de onde vinha. Pensou que devia ter oferecido a torrada, mesmo dormida, mesmo com poeira, e que a menina tinha razão em reclamar do bolso. Pensou também em perguntar aos irmãos se alguém sabia o que era vento quebrado. Descartou a ideia na hora, com um pouco de vergonha, porque Bruno responderia com uma piada, Breno com uma ordem e Beatriz com quarenta perguntas, e nenhum deles resolveria a dor de cabeça de uma menina que só queria ver a próxima prova.
+Nayra assentiu de leve.
 
-A porta rangeu, e ele achou que fosse Lioro com o chá. Era Shirley.
+Nayra adormeceu antes que ele terminasse. Banjo acompanhou a respiração curta dela, lembrando-se da duna e do esforço que fizera para manter o vento aberto. Mas nada disso explicava a cortina imóvel junto à cama. Farol acomodou-se em seu ombro.
 
-Estava com o cabelo ruivo preso num rabo alto, o uniforme do Arcano passado e uma bolsa de pano pendurada no ombro. Fechou a porta com cuidado, de costas, e atravessou a sala de braços cruzados na frente do peito, no ritmo de quem não quer fazer barulho nem parecer que se esforça para isso.
+A porta rangeu. Banjo se virou, esperando Lioro, mas era Shirley.
 
-— Sabia que você estaria aqui — sussurrou. — A Kali disse que você saiu cedo, aí eu deduzi o resto. Não pula, Banjo.
+Estava com o cabelo ruivo preso num rabo alto, o uniforme do Arcano passado e uma bolsa de pano pendurada no ombro. Fechou a porta com cuidado e atravessou a sala na ponta dos pés, os braços cruzados para não esbarrar em nada.
 
-— Desculpa, levei um susto. Ela dormiu agora há pouco. — Banjo olhou para Nayra e baixou a voz. — A gente forçou demais ontem, Shirley. Ela segurou o vento uns quatro minutos, de braço aberto, e depois ainda correu. Eu fiz ela correr.
+— Pensei que você estaria aqui — sussurrou. — A Kali me contou que você saiu cedo. Não precisa pular da cadeira, Banjo.
+
+— Desculpa, levei um susto. Ela dormiu agora há pouco. — Banjo olhou para Nayra e baixou a voz. — A gente forçou demais ontem, Shirley. Ela segurou o vento um tempão e depois ainda correu. Fui eu que fiz ela correr.
 
 — A duna ia cair em cima dela. — Shirley sentou na ponta da cama vazia ao lado, com a bolsa no colo. — Eu ouvi a história ontem à noite. Quatro vezes, duas do Bruno. — Ela olhou para a menina que dormia. — Como ela está? Pode falar. Eu guardo.
 
 — Com muita febre. A curandeira diz que é febre do vento e que passa em um ou dois dias. Mas o Lioro está preocupado. Ela está quieta demais. — Banjo esfregou o rosto. — Ela perguntou se tinha entrado areia no vento. Eu não soube o que responder.
 
-— Às vezes é o que dá pra fazer. — Shirley mexeu na alça da bolsa. — Eu preciso confessar uma coisa. Você vai achar bobagem.
+— Você não tinha como saber. — Shirley puxou a alça da bolsa para perto do corpo. — Banjo, ontem eu fiquei meio chata com você. Você percebeu?
 
 — Pode falar.
 
-— Ontem, no ponto de água. Você chegou com ela, rindo, com o nariz sujo de sangue, parecendo amigo de anos. — Ela riu baixinho. — Eu fiquei com ciúme. Do tamanho do relógio do Largo dos Ponteiros. Pensei... a primeira amiga dele aqui fui eu, né? E me deu vontade de pedir meu lugar de volta.
+— Quando você chegou com a Nayra, os dois rindo daquele jeito... achei que tinha esquecido de mim. — Shirley fez uma careta. — Foi bobagem, eu sei.
 
 — Shirley...
 
-— Deixa eu terminar. Passou ontem à noite, quando soube que ela tinha adoecido, e aí eu me senti horrível. — Ela inclinou a cabeça. — Você já sabia, né? Eu estava com a cara mais óbvia do mundo.
+— Deixa eu terminar. Quando soube que ela ficou doente, me senti uma idiota por ter implicado. — Shirley olhou para Nayra. — Você ficou bravo comigo?
 
-Banjo sabia. Tinha sentido a farpa pequena e quente ainda no ponto de água, e tinha achado graça. Sentiu agora o contrário, um alívio morno que subia do peito, e riu pelo nariz, baixinho, para não acordar a menina.
+Banjo tinha percebido alguma coisa no ponto de água, mas não imaginara que Shirley fosse falar disso abertamente. Baixou os olhos para a bolsa dela, sem saber se devia rir.
 
-— Eu sabia. Mas achei que você ia fingir até o fim do ciclo.
+— Eu achei que você tinha ficado brava comigo.
 
-— Fingi uns vinte minutos. Pra mim é recorde. — Shirley juntou as mãos sobre a bolsa. — Eu sou ruim em guardar coisa.
+— Eu fiquei. Mas já passou — respondeu Shirley. — Só queria falar antes de ficar mais esquisito.
 
-— Não sei se eu guardo melhor. Mas obrigado por tentar.
+— Não achei. — Banjo ajeitou os óculos. — E você não precisa ficar com ciúme. Eu gosto de vocês duas.
 
-— Eu sempre tento. — Shirley ajeitou o rabo de cavalo. — Tem outra coisa. O senhor Graven mandou recado ao Lioro antes do café. O segundo desafio é em dupla de novo, sem data ainda. A curandeira diz que a Nayra não levanta tão cedo, e dupla desfeita perde ponto. Então o juiz deixa trocar, se o parceiro concordar.
+— Tá. — Shirley ajeitou o rabo de cavalo. — Ah, e o senhor Graven mandou um recado ao Lioro antes do café. O segundo desafio vai ser em dupla de novo. Se a Nayra não estiver bem, o juiz deixa trocar de parceiro. A gente só precisa avisar antes de fechar a lista.
 
 — Trocar quem?
 
-— A Nayra. — Shirley olhou para ele. — Hoje cedo, depois que soube do recado do senhor Graven, perguntei se podia entrar no lugar dela, só se fosse necessário. Ele disse que as contas aceitam, se você concordar. O Denis também. Ele troca de dupla com qualquer um, coitado. Tem até teoria de que eu ofusco ele.
+— A Nayra, se ela não melhorar. O Denis disse que troca comigo, porque vive querendo mudar de dupla. — Shirley sorriu. — Ele acha que eu falo demais. Imagina.
 
-— Eu concordo — disse Banjo, e se surpreendeu com a rapidez. — Quer dizer, se a Nayra melhorar eu quero fazer com ela. Mas se não puder, claro que faço com você.
+— Se a Nayra não melhorar, eu faço com você. Mas eu queria esperar mais um pouco. Pode ser?
 
-— Se ela melhorar, eu volto pro Denis. A gente conta ao juiz, sem drama. — Shirley sorriu, e os olhos dela ficaram quentes. — Prometo. Juro pelo Denis, que não vai gostar de ouvir.
+— Claro. Se ela ficar boa, continuo com Denis. Ele vai reclamar, mas reclama de tudo mesmo — disse Shirley, sorrindo.
 
 Banjo riu de novo, e o riso deu um pouco de dor no nariz. Nayra se mexeu no travesseiro, murmurou uma palavra que ele não entendeu, e os dois ficaram quietos até a respiração dela voltar ao ritmo curto e regular.
 
@@ -150,10 +154,9 @@ Banjo riu de novo, e o riso deu um pouco de dor no nariz. Nayra se mexeu no trav
 
 — Daqui a pouco. Vou esperar o Lioro voltar, não quero deixar ela sozinha.
 
-— Então eu guardo o seu lugar.
+— Tá bom. Eu guardo seu lugar no café.
 
-Ela saiu devagar, sem fazer barulho. A porta fechou com um estalo curto. Banjo ouviu os passos dela se afastarem no corredor, leves e iguais, até o fim da escada.
-
+Ela saiu sem fazer barulho. A porta fechou com um estalo curto. Banjo ouviu os passos dela se afastarem no corredor, leves e iguais, até o fim da escada.
 
 Lioro voltou meia hora depois, com uma caneca fumegante em cada mão e uma fatia de pão enrolada num pano debaixo do braço. Deu uma das canecas a Banjo sem perguntar, e ele aceitou, porque o chá cheirava a mel e a casca de laranja.
 
@@ -161,26 +164,24 @@ Lioro voltou meia hora depois, com uma caneca fumegante em cada mão e uma fatia
 
 — Um pouco. Falou de uma lista.
 
-— Ela faz listas desde os cinco anos. Fez uma para o próprio nascimento, que a minha irmã guarda numa caixa. — Lioro soprou a caneca. — Quando era pequena e adoecia, falava de coisas que eu não entendia. Fios, nós, trama. Eu achava que era delírio de criança. Hoje acho que era a única hora em que ela dizia o que via.
+— A Nayra faz listas desde pequena. A mãe dela guarda uma que ela fez aos cinco anos, contando o dia em que nasceu. — Lioro soprou o chá. — Ela costumava falar até dormindo quando ficava doente. Hoje, pelo menos, disse alguma coisa.
 
-Banjo apertou a caneca. Não ia contar do fio. Tinha prometido.
+Banjo apertou a caneca. Não ia contar do vento sumido. Tinha prometido.
 
-— Senhor Lioro. O que é vento quebrado?
+— Senhor Lioro, quando alguém fica muito doente, pode perder a magia por um tempo?
 
-— Onde ouviu isso?
+— Por quê, garoto?
 
-— Em lugar nenhum. É que na febre ela falou de vento de um jeito esquisito, e eu quis perguntar a alguém que entendesse.
+— A Nayra falou umas coisas estranhas com febre. Eu só queria saber.
 
-— Eu entendo de comércio, meu jovem, e de chá. De vento só entendo quando está contra mim. — Lioro olhou para a sobrinha, e as rugas em torno da boca se aprofundaram. — Em Marador existe um velho que sabe dessas coisas. Eu mandei um recado por mensageiro ontem à noite. Se ele souber o que é, vai responder dentro de uma semana, e se não souber, também vai responder, e a resposta vai ser longa.
+— De magia, menos do que devia — respondeu Lioro. Olhou para a sobrinha. — Em Marador conheço alguém que entende dessas doenças. Mandei uma mensagem ontem à noite. Se souber o que está acontecendo, vai responder. Se não souber, vai responder também, e ainda por cima com três páginas de explicação.
 
 — Eu posso ajudar em alguma coisa?
 
-— Pode. Quando a Nayra acordar de verdade, e eu espero que seja ao meio-dia, fale com ela como falou ontem, sem pena. Ela detesta pena. — Lioro deu uma risada curta, cansada. — Foi a primeira vez que ela chegou numa cidade nova e fez um amigo no primeiro dia. Eu não vou esquecer isso tão cedo.
+— Pode. Quando a Nayra acordar de verdade, e eu espero que seja ao meio-dia, fala com ela como falou ontem, sem pena. Ela detesta pena. — Lioro deu uma risada curta, cansada. — Foi a primeira vez que ela chegou numa cidade nova e fez um amigo no primeiro dia. Eu não vou esquecer isso tão cedo.
 
-Banjo sentiu o peito esquentar. Bebeu o chá em silêncio e deixou o assunto de lado.
+Banjo baixou os olhos para a caneca para esconder o sorriso e bebeu mais um gole.
 
 Ficou até o sol aparecer na janela e o sino do Arcano bater as oito. A curandeira, uma senhora baixinha de avental cinza, passou pelo corredor, tomou a temperatura de Nayra com a palma da mão e disse que estava igual, nem pior nem melhor, e que o garoto devia ir tomar café antes que Kali mandasse a guarda atrás dele. Banjo levantou, apertou a mão de Lioro, e na porta olhou uma vez para trás.
 
-A janela continuava aberta, os mesmos dois palmos, e o ar frio da manhã entrava empurrando o cheiro das ruas. Nayra dormia de lado, com a mão aberta fora do lençol. A cortina branca pendia da tira de pano, reta, de cima a baixo, sem mexer uma ponta.
-
-Banjo achou que tinha esquecido de fechar a porta e voltou para fechar. A cortina estava do mesmo jeito. Só quando já descia a escada, com Farol outra vez enrolado no pescoço, ele percebeu que na hora em que tinha entrado, de madrugada, ela balançava.
+A janela permanecia aberta, e o ar frio trazia cheiro de pão da rua. Nayra dormia de lado, com uma mão fora do lençol. Banjo ajeitou a alça da mochila e encostou a porta. Lá dentro, a cortina continuava parada, mesmo com a janela aberta.

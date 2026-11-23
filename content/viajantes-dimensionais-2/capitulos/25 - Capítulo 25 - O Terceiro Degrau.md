@@ -1,92 +1,102 @@
-Na terça à tarde, três dias depois da noite das costuras, Tayo ainda cheirava a coisa queimada.
-
-Banjo percebeu quando desceram da túbula na estação de Sorevan. O cheiro vinha de longe e de perto ao mesmo tempo, como o de um fogão que o vizinho esqueceu ligado. As janelas da avenida estavam tapadas com tábuas e lonas. Homens de colete subiam em escadas para remendar telhados, e uma moça de avental varria cacos de vidro para dentro de um balde com tanta força que o balde dançava. Num poste, um cartaz novo da Vigilância ainda tinha a cola molhada. TODA OCORRÊNCIA DE M.A. FORA DO REGISTRO DEVE SER INFORMADA EM ATÉ UMA HORA. Embaixo, assinado com uma letra comprida e sorridente, Cheisen Beker. Ao lado dele, um papel menor, escrito à mão. Tempestade forte na quarta. Aviso da Torre do Tempo.
+Na terça-feira à tarde, três dias depois da noite das costuras, o cheiro de queimado alcançou Banjo assim que desceram da túbula em Sorevan. Vinha das ruas ao redor. As janelas da avenida estavam tapadas com tábuas e lonas. Homens de colete subiam em escadas para remendar telhados, e uma moça de avental varria cacos de vidro para dentro de um balde com tanta força que o balde dançava. Num poste, um cartaz novo da Vigilância ainda tinha a cola molhada. TODA OCORRÊNCIA DE M.A. FORA DO REGISTRO DEVE SER INFORMADA EM ATÉ UMA HORA. Embaixo, assinado com uma letra comprida e sorridente, Cheisen Beker. Ao lado dele, um papel menor, escrito à mão. Tempestade forte na quarta. Aviso da Torre do Tempo.
 
 — Até o tempo tem aviso oficial — disse Bruno.
 
-Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia atrás dele, com o capuz da capa de Ivy puxado até as sobrancelhas, e Banjo ia por último, porque era de onde dava para sentir todo mundo.
+Ninguém riu. Breno ia na frente, de cabeça baixa e passo regular. Beatriz ia atrás dele, com o capuz da capa de Ivy puxado até as sobrancelhas, e Banjo caminhava por último, atento aos irmãos.
 
-Banjo sentiu um medo miúdo entre as pessoas na calçada, mas, depois do que acontecera com Shirley, não se atrevia a dizer de quem era. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina de uns quatro anos, no colo da mãe, acenou para Beatriz com a mão aberta, e a mãe baixou o bracinho dela depressa, com um sorriso desculpando-se com ninguém.
+Banjo reparava em como algumas pessoas reagiam quando viam Beatriz. Depois do que acontecera com Shirley, desconfiava das conclusões que tirava sobre os outros. Uma mulher puxou o filho pela mão para o outro lado da calçada quando Beatriz passou. Um velho de chapéu tirou o chapéu, devagar, sem dizer nada, e recolocou. Uma menina pequena acenou para Beatriz do colo da mãe. A mulher abaixou a mão da filha depressa, sem olhar para os irmãos.
 
-Beatriz puxou o capuz mais para baixo e apressou o passo. Banjo chegou perto, mas deixou que ela andasse sozinha.
+Beatriz puxou o capuz mais para baixo e apressou o passo. Banjo quase se aproximou para segurar a mão dela. Acabou ficando a um passo de distância.
 
-O Hospital Lumiar de Tayo ficava no fim da avenida, colado ao muro dos jardins do Edifício Arcano. Era um prédio alto e fino como uma vela, de pedra branca, com cinco andares de janelas redondas que acendiam e apagavam cada uma num ritmo diferente, como se o prédio respirasse por vários pulmões. O nome estava escrito sobre a porta em letras de luz. A porta abriu sozinha quando eles chegaram a três passos, e uma voz de água disse, de lugar nenhum:
+O Hospital Lumiar de Tayo ficava no fim da avenida, colado ao muro dos jardins do Edifício Arcano. O prédio de pedra branca tinha cinco andares e janelas redondas que acendiam e apagavam em ritmos diferentes. O nome estava escrito sobre a porta em letras de luz. A porta abriu sozinha quando eles chegaram a três passos, e uma voz de água disse, de lugar nenhum:
 
 — Quatro visitantes. Uma cura em andamento. Bem-vindos.
 
-— Que fofo — disse Bruno, baixinho. — Eu gostei dele.
+— Pô, o hospital conversa! — Bruno olhou para a porta. — Gostei.
 
 O saguão era claro e cheirava a hortelã e a metal limpo. Um karto pequeno, do tamanho de uma mala, passou rente aos pés dele sobre quatro rodas de luz, carregando uma bandeja de frascos que mudavam de cor conforme balançavam. Na parede do fundo, do chão até o teto, havia centenas de tubos de vidro, cada um com um fio de água luminosa dentro. A água subia e descia num ritmo, e cada ritmo tinha a sua cor. Banjo parou na frente deles.
 
 — São os pacientes — disse uma voz atrás dele.
 
-Era uma senhora baixa, de avental cinza e luvas que brilhavam um pouquinho nas pontas dos dedos. Tinha o cabelo preso num coque tão apertado que repuxava as sobrancelhas, e um crachá que dizia NERIVA, CURANDEIRA-CHEFE. Banjo achou que já tinha visto a cara dela. Era igual à curandeira do Arcano, só que mais velha e mais brava, como a prima que manda na família.
+Era uma senhora baixa, de avental cinza e luvas que brilhavam um pouquinho nas pontas dos dedos. Tinha o cabelo preso num coque tão apertado que repuxava as sobrancelhas, e um crachá que dizia NERIVA, CURANDEIRA-CHEFE. Banjo pensou na curandeira do Arcano. Neriva tinha o mesmo jeito de examinar as pessoas, só que parecia ter ainda menos paciência.
 
-— Cada tubo é um coração — continuou ela. — Sobe quando bate forte, desce quando descansa, e fica vermelho quando eu preciso correr. Aquele azul-claro, ali em cima, é o da sua amiga. Está lento e bonito. Está dormindo bem desde ontem à noite, e acordou ao meio-dia pedindo pão. — Olhou para os quatro, um por um, e a boca dela fez uma linha que Banjo não soube se era de aprovação. — Quinto andar, enfermaria nove, a da janela grande. Cinco minutos de cada vez e sem raio.
+— Cada tubo é um coração — continuou ela. — Sobe quando bate forte, desce quando descansa, e fica vermelho quando eu preciso correr. Aquele azul-claro, ali em cima, é o da sua amiga. Está lento e bonito. Está dormindo bem desde ontem à noite, e acordou ao meio-dia pedindo pão. — Olhou para os quatro, um por um, e a boca dela fez uma linha que Banjo não soube se era de aprovação. — Quinto andar, enfermaria nove. Visita curta e nada de raios.
 
 — Sem raio? — perguntou Beatriz.
 
-— Ela é condutora. Já disse isso a ela duas vezes.
+— Porque eu já avisei a Shirley duas vezes. E não pretendo avisar uma terceira.
 
 A enfermaria nove tinha seis camas e só duas ocupadas. Das paredes brancas saíam fios finos de luz que desciam do teto e pousavam no peito e na testa de cada cama, lendo o sono de quem estava deitado. Na primeira cama, perto da porta, um homem de barba grisalha dormia com a boca aberta, e um garoto ruivo, de capacete no colo, olhava a respiração dele como quem olha uma panela no fogo. Ferris levantou os olhos, fez um aceno curto para os quatro e voltou a olhar o pai.
 
 Na cama da janela, com os travesseiros todos empilhados atrás das costas e o cabelo ruivo solto sobre os ombros, estava Shirley.
 
-Estava pálida e menor do que Banjo lembrava, e usava uma camisola cinza que alguém tinha enfeitado com uma fita azul. Na beira da cama, de pernas cruzadas e uma folha comprida de papel nos joelhos, estava Nayra, que vinha todos os dias desde a noite das costuras, com a pressa de quem tinha uma lista para cumprir.
+Estava pálida e menor do que Banjo lembrava, e usava uma camisola cinza que alguém tinha enfeitado com uma fita azul. Na beira da cama, de pernas cruzadas e uma folha comprida de papel nos joelhos, estava Nayra, que vinha todos os dias desde a noite das costuras, com uma lista de perguntas apoiada nos joelhos.
 
-Banjo ficou parado na porta. Percebeu que estava prendendo a respiração desde a túbula.
+Banjo parou na porta e soltou o ar devagar. Tinha passado a viagem inteira pensando no que diria quando visse Shirley acordada.
 
-Porque ele sentia Shirley. Sentia de longe, antes mesmo de ela virar o rosto, e a sensação era só ela. Era simples como pão. Não tinha o silêncio liso, nem a lagoa sem vento. Tinha um cansaço grande, uma vergonha pequena e, por baixo de tudo, uma alegria quase boba de ver quatro caras na porta.
+Shirley estava com as mãos ocupadas em alisar uma dobra do lençol. Quando se virou e viu os quatro, os olhos se iluminaram um instante. Banjo reconheceu aquele sorriso de outras manhãs no refeitório. Ela parecia cansada, e ele não quis adivinhar o resto.
 
 — Oi, gente — disse Shirley.
 
 E parou. Banjo viu a mão dela apertar o lençol.
 
-— Essa frase eu não posso mais dizer, né? — completou, com um sorriso torto. — A do "vocês demoraram".
+— Acho que não posso mais falar "vocês demoraram", né? — completou Shirley, com um sorriso sem jeito.
 
-— Pode — disse Banjo, e a voz saiu mais fina do que ele queria. — Pode dizer. Só que a gente demorou mesmo.
+— Pode, sim — respondeu Banjo. — A gente demorou mesmo.
 
 — Demoraram um monte. — Ela abriu os braços. — Vem cá.
 
-Ele foi. O abraço cheirava a hortelã e a sabonete de hospital, e Farol saiu do capuz, deu duas voltas no pescoço dela e se enrolou na curva do cotovelo, fazendo um barulhinho de panela pequena, com a cauda acesa num dourado firme que Banjo conhecia da praça. Era o jeito dele de dizer que era ela, e que ele não ia largar de conferir. Banjo sentiu as costas dela tremerem e percebeu que estava rindo e chorando juntos, e que ela também.
+Ele foi. Shirley cheirava a sabonete de hospital e hortelã. Farol saiu do capuz, subiu no ombro dela e se enrolou no braço, com a cauda acesa num dourado firme. Banjo abraçou Shirley com mais força quando sentiu suas costas tremerem. Os dois riam e choravam ao mesmo tempo.
 
-— Está tudo bem — disse Shirley, no ombro dele. — Eu sinto que você está sentindo. Não vale. Agora eu que sinto você.
+— Tá tudo bem — disse Shirley, ainda abraçada a ele. — Você está tentando conferir se sou eu, né? Eu reconheceria esse seu abraço em qualquer lugar.
 
 — Eu não estou fazendo nada.
 
-— Está sim. Está fazendo o seu barulho de sussurro. — Ela se afastou e limpou o nariz na manga. — Os outros vão ficar aí parados na porta igual a um coro, ou vão sentar?
+— Eu conheço essa sua cara de preocupação. — Shirley limpou o nariz na manga. — E vocês três? Vão ficar aí na porta?
 
-Eles sentaram. Bruno na cadeira do canto, ao contrário, com os braços em cima do encosto. Breno de pé, perto da janela, com as mãos nas costas. Beatriz na ponta da cama, com o capuz ainda levantado e as meias molhadas de chuva, sem dizer nada. Shirley olhou para ela por um tempo, e depois olhou para as próprias mãos.
+Bruno virou a cadeira do canto e se apoiou no encosto. Breno ficou junto à janela. Beatriz sentou na ponta da cama, ainda de capuz e meias molhadas. Shirley tentou encontrar os olhos dela, depois baixou os próprios.
 
-— Me contaram o nome do que eu tinha — disse. — A curandeira falou "possessão", e eu pedi para ela falar de novo mais devagar, porque achei que tinha ouvido errado.
+— A Neriva disse que eu fui possuída — contou Shirley. — Pedi pra ela repetir. Achei que tinha entendido errado.
 
-— Eu anotei as perguntas que ela me fez — disse Nayra, e levantou o papel com as duas mãos. — São onze. Eu pedi autorização. Ela concedeu com a condição de eu ler baixo.
+— Anotei onze perguntas — disse Nayra, mostrando a folha. — A Neriva disse que eu podia fazer, desde que não ficasse gritando. Depois risquei duas porque achei melhor falar pessoalmente.
 
-— Lê alto, Nayra — pediu Shirley. — Eu quero saber se são as mesmas que eu tenho.
+— Onze? — perguntou Bruno. — Eu não tenho coragem nem de perguntar se vocês almoçaram.
 
-— Pergunta número um. Quando. — Nayra correu o dedo pela folha. — Pergunta dois. Como. Três. Por que eu. Quatro. O que ela queria. Cinco. O doce. Seis...
+— A primeira é quando tudo isso começou — respondeu Nayra, apertando o papel nos joelhos. — Mas eu não vou ficar lendo como se a Shirley estivesse numa prova.
 
-— A um e a dois eu respondo por ela. — A voz veio da primeira cama.
+— Obrigada — disse Shirley, com a voz fraca. — Eu também quero saber quando começou.
+
+— Talvez eu possa ajudar com essa parte — disse alguém, da cama perto da porta.
 
 Kalev tinha acordado. Estava deitado de lado, com a cabeça no travesseiro e os olhos fundos abertos, e ainda tinha a pele cinza de quem passou muito tempo sem luz de verdade. Ferris endireitou as costas na cadeira sem dizer nada. O pai estendeu a mão e pousou no braço do filho, só um segundo.
 
-— Foi comigo — disse Kalev. — Na tarde em que eu toquei a máscara. Eu já contei a vocês que eu só queria ouvir. Era mentira que eu contava a mim mesmo. Eu queria mandar nela. — Respirou. — Você estava no pátio da Casa de Pesquisa, Shirley, esperando com um recado. Eu nem te vi. Só soube depois.
+— Aconteceu antes de eu desaparecer — respondeu Kalev, apoiando a mão na borda da cama. — Shirley, você estava treinando perto do Coração Branco naquele dia?
 
-— Eu esperei. — Shirley apertou os lábios, e Banjo viu que ela estava buscando aquilo num lugar fundo. — Eu lembro do recado na mão. Do pátio, que parecia comprido demais, e de uma música baixinha que eu nunca tinha ouvido, e eu achei bonita. Aí fez frio, igual quando alguém abre a porta no inverno. Eu pensei "ué, quem abriu a janela?". Depois eu estava no chão.
+Shirley assentiu devagar.
 
-— A máscara me recusou — disse Kalev. — Ela aceita quem tem muita força e se oferece no lugar de outro. Eu tinha a força e não me oferecia por ninguém. Queria ensinar a ela. Ela me ouviu primeiro, como eu disse, e me segurou numa porta que não era de dentro nem de fora. Foi quando a porta se abriu um palmo para me segurar que uma coisa passou por mim. — Fez um gesto com a mão boa, uma curva, rápida. — Uma moça de fumaça, jovem e depressa. Passou sem me olhar e foi para o corpo mais perto.
+— Eu achei uma coisa cinza perto das pedras. Parecia um rosto, só que sem olhos. Quando me abaixei, ouvi alguém falando muito baixo. Não entendi as palavras. Depois... ficou tudo meio distante. Eu ainda via minhas mãos, mas parecia que outra pessoa decidia o que elas faziam.
 
-— Por que a Shirley? — perguntou Breno, da janela. Foi a primeira vez que abriu a boca.
+— Você apareceu no meu laboratório naquela tarde — continuou Kalev. — Trazia a máscara e disse que havia alguém pedindo socorro dentro dela. Queria que eu a vestisse.
 
-— Eu não sei — disse Kalev.
+— E o senhor vestiu? — perguntou Ferris.
 
-Ele disse isso sem pressa e sem vergonha, e Banjo gostou dele por isso.
+— Não. Eu disse que precisava estudar antes. Deixei-a na bancada e fui buscar os cadernos. Trabalhei até tarde e dormi ali mesmo, sobre os papéis. Quando acordei, estava preso naquele mundo.
 
-— Pode ser que fosse a mais perto. Pode ser que elas escolham quem conduz, porque a sua amiga conduz raio e o som corre melhor por quem conduz. Pensei nisso mil vezes lá dentro e não cheguei a nada que eu possa jurar. Se alguém disser que sabe, desconfiem.
+Ferris ficou com o capacete apertado entre as mãos.
+
+— Alguém colocou no seu rosto enquanto dormia.
+
+— Foi o que concluí depois. Eu não me lembro de vesti-la. E a máscara não estava onde eu tinha deixado quando vocês a encontraram na sala lacrada. Alguém a mudou de lugar depois que fui levado.
+
+Shirley olhou para as próprias mãos.
+
+— Eu lembro de carregar uma coisa enrolada num pano. Não sei quando foi. Na época, achava que estava sonhando.
+
+Kalev deixou o silêncio ficar por alguns segundos.
 
 — Lá dentro onde? — perguntou Beatriz, baixinho.
 
-— Dentro dela. Da máscara. — Kalev virou o rosto no travesseiro e olhou para os quatro, devagar, um por um. — Eu devia ter dito isso na Central, e disse mal, com pão de queijo na boca. Digo de novo. Sem vocês eu estaria lá até hoje, e amanhã, e depois de amanhã, escutando as mesmas trinta e seis vozes. Meu filho teria crescido sem mim. Obrigado.
+— Dentro dela. Da máscara. — Kalev olhou para os quatro, devagar, um por um. — Sem vocês eu ainda estaria lá, ouvindo aquelas vozes. Meu filho teria crescido sem mim. Obrigado.
 
 Ferris não disse nada. Mas pôs a mão no ombro do pai e, por cima do ombro, olhou para Breno com os olhos vermelhos.
 
@@ -98,43 +108,43 @@ Saiu tão baixo que quase ninguém ouviu. Estava com os olhos no chão, no desen
 
 — Os que ficaram. Quando eu queimei... eu vi a cara deles, seu Kalev. Tinha uma menina de trança que piscou para mim. Eu sabia que eles ficavam lá. Eu sabia e queimei do mesmo jeito.
 
-O quarto inteiro parou. Banjo sentiu o peso da pergunta cair nele como uma pedra molhada, e viu Kalev demorar, e agradeceu por ele demorar, porque uma resposta rápida teria sido mentira.
+Ninguém respondeu de imediato. Kalev demorou a erguer os olhos, e Banjo ficou aliviado por ele não tentar tranquilizar Beatriz com uma resposta pronta.
 
-— Eu não vou te dizer que foi fácil — disse Kalev. — Nem que foi certo, porque eu não sei. Posso dizer o que eu ouvi lá dentro. Eles não estão sozinhos. Escutam uns aos outros, e escutaram você tocar a gaita no escuro, e ficaram por muito tempo falando disso. A velha e a moça de fumaça eram só duas, e as duas teriam saído de lá por uma porta que mais ninguém ia conseguir fechar. Você fechou a única porta. Isso tem um preço, e o preço é seu, e eu não vou fingir que não é.
+— Não vou dizer que foi certo — respondeu Kalev. — Porque eu não sei. Posso dizer o que eu ouvi lá dentro. Eles não estão sozinhos. Escutam uns aos outros, e escutaram você tocar a gaita no escuro, e ficaram por muito tempo falando disso. A Velha e a moça de fumaça eram só duas. Enquanto a máscara existisse, poderiam tentar voltar, e eu não sei se conseguiríamos fechar outra passagem. Você impediu isso. Entendo por que fez. Mas não vou fingir que não teve consequências.
 
 — Eu sei.
 
-— Eu sei que sabe. — Kalev sorriu, um sorriso cansado. — É por isso que eu também sei que você era a pessoa certa para estar lá. Quem carrega o peso é quem faz a escolha com cuidado.
+— Eu sei que sabe. — Kalev sorriu, um sorriso cansado. — Imagino que esteja pensando nisso desde aquele dia. Eu também pensaria.
 
 Beatriz não respondeu. Encolheu os ombros, e Banjo viu uma lágrima grossa cair na fita azul e ficar ali, redonda. Ele não disse nada. Só encostou o ombro no dela, sem pegar na mão, e ela deixou.
 
-— Hoje é a vez da Shirley — disse Kalev, e fechou os olhos de novo. — Continuem.
+Kalev recostou a cabeça no travesseiro. Não havia mais nada que pudesse contar sem inventar as horas de que não se lembrava.
 
-Shirley olhou para Nayra, e Nayra, sem entender o olhar, leu a pergunta seguinte.
+Nayra dobrou a lista sobre os joelhos. Olhou para Shirley por um instante, sem conseguir escolher as palavras que tinha escrito.
 
-— Cinco. O doce.
+— E o doce? — perguntou, por fim. — Eu preciso saber daquela parte.
 
-O quarto ficou quieto. Banjo sentiu o aperto dentro de Shirley subir tão depressa que ele teve de se segurar na cama.
+O quarto ficou quieto. Shirley apertou o lençol com tanta força que os nós dos dedos empalideceram. Banjo se ajeitou na beira da cama, sem saber se devia fazer a pergunta por ela.
 
-— Eu fiz o doce — disse ela. — Na cozinha da Eshley, antes do desafio. Eu estava fazendo a receita da minha mãe, e ela usou a minha outra mão para pôr alguma coisa num dos pedaços. Depois guardou aquele pedaço. — Shirley apertou o lençol entre os dedos. — Eu via tudo, Nayra. Via as minhas mãos se mexendo e gritava por dentro, mas a minha boca não abria. Quando você pediu o doce no banco, eu tentei dizer para não comer. Ela sorriu e entregou justamente aquele.
+— Eu fiz o doce — disse ela. — Na cozinha da Eshley, antes do desafio. Era receita da minha mãe. Mas aquela coisa usou minha mão pra colocar alguma coisa num pedaço. Depois guardou justamente aquele. — Shirley apertou o lençol entre os dedos. — Eu via minhas mãos se mexendo, Nayra. Tentava avisar, mas não conseguia. Quando você pediu o doce no banco, eu tentei dizer para não comer. Ela sorriu e entregou justamente aquele.
 
 — Eu fiquei quatro dias na cama — disse Nayra.
 
 — Eu sei. Eu sinto muito. Eu sinto tanto que...
 
-— A sopa que você levou foi boa — disse Nayra. Dobrou o papel em quatro, com muito cuidado, e olhou para ela com os olhos mais abertos que Banjo já tinha visto nela. — Eu anotei. O doce foi a causa. A sopa foi a cura. A sopa era sua, não dela. Tinha pimenta demais, e eu não consegui terminar, e mesmo assim foi a melhor coisa que me deram naquela semana. Isso não era dela, Shirley. Eu sei diferenciar.
+— Você também levou sopa pra mim, lembra? — Nayra dobrou o papel e olhou para ela. — Eu anotei. O doce me fez mal, e foi a sopa que me ajudou a melhorar. Tinha pimenta demais, eu mal consegui terminar, mas aquela sopa era sua, Shirley. Eu sei a diferença.
 
 Shirley abriu a boca e não disse nada. Chorou de repente, sem som, com a cara inteira, como choram as crianças pequenas quando o susto passa. Nayra subiu na cama, de joelhos, e a abraçou de um jeito que parecia um nó bem dado.
 
 Bruno virou o rosto para a parede e fingiu que olhava um quadro.
 
-— Seis — disse Nayra, no cabelo de Shirley, sem soltá-la. — Quanto tempo ela foi você. Sete, o que ela queria de nós.
+Nayra apertou Shirley no abraço, ainda com a lista amassada entre os dedos. Não perguntou mais nada. Foi Shirley quem continuou, quando conseguiu respirar.
 
-— Ela queria a pequena — respondeu Shirley, quando conseguiu falar. Tinha a voz toda molhada. — Falava isso dentro da minha cabeça o tempo todo. A pequena. A pequena. Só no fim eu entendi que era a Bia. E queria que eu fizesse dupla com o Banjo. Assim eu estaria sempre perto de vocês, sem ninguém estranhar. Nayra estava no caminho.
+— Ela falava da pequena o tempo todo — contou Shirley. — Falava isso dentro da minha cabeça o tempo todo. A pequena. A pequena. Só no fim eu entendi que era a Bia. E queria que eu fizesse dupla com o Banjo. Acho que era para ficar perto de vocês, sem levantar suspeitas. Nayra estava no caminho.
 
-Beatriz não mexeu um músculo. Banjo sentiu o medo dela subir pela cama, frio e liso, e o capuz escondeu o resto.
+Beatriz não mexeu um músculo. Seus dedos se fecharam na borda da capa de Ivy, puxando o capuz para a frente. Banjo não sabia se era medo ou raiva e não quis perguntar.
 
-— Ela não queria te machucar — disse Shirley, devagar, olhando para ela. — Eu sei que isso é pior. Ela queria companhia. Queria alguém que ficasse do lado dela e não tivesse medo. E ela me usou para ficar perto de vocês, porque era a única coisa que funcionava. Ela gostava de vocês. Gostava mesmo, Bia. Do jeito dela.
+— Não sei se ela queria te machucar, Bia — disse Shirley. — Falava tanto de querer companhia, de ter alguém por perto que não tivesse medo... Mas usou a minha cara para chegar até vocês. Às vezes parecia gostar de vocês de verdade. Não sei o que pensar.
 
 — Não quero que ela goste de mim — disse Beatriz.
 
@@ -142,21 +152,25 @@ Beatriz não mexeu um músculo. Banjo sentiu o medo dela subir pela cama, frio e
 
 Bruno limpou a garganta.
 
-— Mano, eu fico lembrando... — Bruno passou a mão no rosto. — A Shirley sumia e voltava com as botas limpas. O Banjo sentia uma coisa esquisita e achava que ela estava triste. A gente estava do lado dela o tempo todo e não percebeu.
+— A gente estava com a Shirley o tempo todo — murmurou Bruno, olhando para ela. — Ela ajudava nos treinos, ria das besteiras do Denis, ia visitar a Nayra. Como é que a gente ia adivinhar?
 
-— Korvo percebeu — disse Kalev, com os olhos ainda fechados. — E contou com isso.
+— Vocês não tinham como saber — respondeu Shirley.
 
-Os quatro olharam para ele ao mesmo tempo.
+— A gente foi usado — disse Breno, olhando para os irmãos.
 
-— Korvo conhecia a regra da máscara. Sabia que vocês entrariam para salvar um irmão e deixou o caminho aberto — disse Kalev.
+Kalev assentiu. Apertou a mão do filho sobre o cobertor, sem procurar uma explicação que diminuísse o que tinha acontecido.
 
-— A gente foi usado — disse Breno.
+— E o senhor voltou — murmurou Ferris. Ficou com a mão ali mesmo.
 
-— Foram. — Kalev abriu os olhos e olhou para ele, direto. — E mesmo usados, tiraram um homem e um monte de gente de uma jaula e uma moça de dentro de outra. Não me peça para dizer que as duas coisas não são verdade ao mesmo tempo. São. Ele não perdeu a máscara, garoto. Ele nunca quis a máscara pela máscara. Ele não perdeu. Ele apostou.
+— Voltei — respondeu Kalev. — Mas ninguém deve nada ao Korvo por isso.
 
-— Apostou no quê? — perguntou Bruno.
+— E por que ela aceitou Banjo? — perguntou Beatriz.
 
-Kalev olhou para a janela, para o céu cinzento sem decisão, e não respondeu.
+Kalev olhou para o caderno que Ferris mantinha sobre o cobertor.
+
+— Acho que entendi agora. Eu estava perto de descobrir antes de desaparecer. Depois que sair daqui, mostro o que encontrei. Com calma, sem sair do hospital pelas escondidas.
+
+— Boa ideia — disse Ferris. — A curandeira já ameaçou pôr o senhor numa caixa.
 
 Foi Shirley quem quebrou o silêncio. Esfregou o rosto com as duas mãos e ergueu um dedo, e uma faísca minúscula, do tamanho de um vaga-lume, correu entre as pontas dos dedos dela e acendeu um dos fios do teto.
 
@@ -170,7 +184,7 @@ Farol enfiou a cabeça debaixo do lençol, e só a ponta da cauda acesa ficou de
 
 Shirley levantou as duas mãos para o alto, rindo, e Beatriz, no canto da cama, soltou uma risada curta que ela mesma não esperava, e escondeu a boca na manga.
 
-Banjo olhou os irmãos. Bruno ria sem som, com a testa encostada no braço. Nayra tinha pegado de novo a lista, ofendida pela interrupção. Beatriz tinha abaixado o capuz sem perceber, e o cabelo dela estava todo amassado e ainda tinha um pouco de fuligem atrás da orelha. Ele sentiu todos ao mesmo tempo, o calor deles, e achou que nunca tinha sentido nada tão grande dentro de um quarto tão pequeno.
+Banjo olhou os irmãos. Bruno ria sem som, com a testa encostada no braço. Nayra tinha pegado de novo a lista, ofendida pela interrupção. Beatriz tinha abaixado o capuz sem perceber, e o cabelo dela estava todo amassado e ainda tinha um pouco de fuligem atrás da orelha. Banjo quis guardar cada rosto daquele quarto, as risadas trêmulas, os olhos molhados e o jeito de Beatriz finalmente deixar o capuz cair. Fazia tempo que um lugar tão pequeno não lhe parecia tão cheio de gente viva.
 
 Só Breno não ria. Estava de pé, de costas para a janela, e olhava para a rua lá embaixo, onde um grupo de vigilantes de capa cinza passava sob o poste do cartaz.
 
@@ -184,9 +198,9 @@ Foi a primeira vez que Banjo reparou no que ele tinha deixado de dizer desde a t
 
 Lá fora, as nuvens começaram, devagar, a se fechar.
 
-Bruno saiu para o jardim porque não aguentava mais ficar numa sala onde todo mundo era melhor do que ele em chorar.
+Bruno saiu para o jardim. Já não conseguia ficar no quarto vendo os outros chorarem sem saber o que fazer.
 
-O jardim de cura ficava nos fundos do hospital, entre dois muros brancos cobertos de trepadeira. As pedras do caminho zumbiam baixinho quando se pisava nelas, uma nota por pedra, e os bancos eram mornos por baixo, como se alguém tivesse acabado de levantar. Bruno pisou numa pedra de propósito e escutou o zumbido. Pisou noutra. Nenhuma das duas fazia a música do pai, e ele sentou no primeiro banco que viu com a sensação de ter tentado alguma coisa e perdido.
+O jardim de cura ficava nos fundos do hospital, entre dois muros brancos cobertos de trepadeira. As pedras do caminho zumbiam baixinho quando se pisava nelas, uma nota por pedra, e os bancos eram mornos por baixo, como se alguém tivesse acabado de levantar. Bruno pisou numa pedra de propósito e escutou o zumbido. Pisou noutra. Nenhuma daquelas notas lembrava a música do pai. Ele se sentou no primeiro banco que encontrou.
 
 — Bruno.
 
@@ -206,21 +220,25 @@ Bruno tentou rir e saiu um soprinho de nariz.
 
 — Foi um monte de coisa — disse Bruno.
 
-— Foi um monte de coisa. — Ela olhou finalmente para ele. — Eu terminei com o Dário.
+— Foi um monte de coisa. — Brenda finalmente olhou para ele. — Eu terminei com o Dário naquela quarta-feira. Antes de Verna.
 
-Ele sentiu o estômago afundar uns três andares.
+Bruno baixou os olhos para os próprios sapatos.
 
 — Foi por minha causa.
 
-— Não faz essa cara. — Brenda estalou a língua, do jeito que fazia quando ele tentava passar a vez numa conta. — Foi por ele, por mim e por você, nessa ordem, e você é o terceiro. Eu terminei porque ele guardou aquela carta de mim por tanto tempo que eu aprendi a viver ao lado de um segredo. Eu não quis aprender isso. Se ele tivesse me contado do pai dele no começo, eu teria ficado do lado dele pelo resto do ciclo. Não contou, e eu fiquei do lado de fora de uma porta, e depois você arrombou a porta no meio da encosta, na frente da ala inteira. Você acendeu a luz da sala, Bruno. A sala já estava cheia de coisa.
+— Você provocou a discussão, sim — disse Brenda. — Inventou uma história sobre outra garota e falou na minha frente pra machucar ele. Mas fui eu que decidi terminar. Já fazia dias que eu perguntava se ele estava bem, e ele dizia que não era nada. Depois soube da promessa que tinha feito ao pai. Ele tinha o direito de guardar aquele segredo. Eu só queria que tivesse conseguido me dizer que precisava de tempo.
 
-— Eu humilhei o cara na frente de todo mundo.
+— Se eu não tivesse aberto a boca, vocês ainda estavam juntos.
 
-— Humilhou.
+— Eu não sei, Bruno. Talvez a gente tivesse conversado melhor. Talvez não. Sei que ele foi fazer a prova sem dormir, no dia seguinte à nossa discussão. E você sabe por que ela começou.
+
+— Eu queria que você gostasse menos dele — confessou Bruno. — Acabei fazendo ele perder a prova.
+
+— Ele perdeu a brasa. Mas você fez uma coisa cruel antes disso, e não dá pra fingir que uma coisa não tem nada a ver com a outra.
 
 — Eu fui um babaca.
 
-— Foi. — Ela disse sem crueldade, e ele agradeceu por isso, porque o "foi" dela pesava mais do que o "não foi" de qualquer outro. — Você pediu desculpa no corredor. O Dário me contou. Disse que foi um pedido de verdade, mal falado, e que não bastou.
+— Foi — respondeu Brenda, sem levantar a voz. Bruno não tentou se defender. — Você pediu desculpa no corredor. O Dário me contou. Disse que percebeu que você estava arrependido. Mas não quer conversar ainda.
 
 — Eu queria que bastasse.
 
@@ -238,7 +256,7 @@ Passou um karto pequeno pelo caminho de pedras, empurrando uma bandeja com copos
 
 — É o que eu consigo dizer agora — respondeu ele, e a voz saiu torta. — Eu queria uma coisa mais bonita e não tenho. Eu queria... sei lá. Fazer alguma coisa. Uma tarefa. Carregar um peso. Ficar de castigo uns seis meses.
 
-— Não tem castigo. — Brenda fechou o livro no colo. — Tem uma coisa que ele precisa fazer sozinho, e uma que você precisa carregar sem que ninguém te dê uma tarefa. É a parte ruim. Ninguém marca a hora de acabar.
+— Você já pediu desculpa, Bruno — respondeu Brenda, fechando o livro. — Agora precisa dar um tempo pra ele. Não dá pra obrigar ninguém a perdoar.
 
 Ele concordou com a cabeça, olhando as pedras.
 
@@ -246,11 +264,11 @@ Ele concordou com a cabeça, olhando as pedras.
 
 — O que isso quer dizer?
 
-— Que ele concorda e não pode gritar. — Os olhos dela brilharam de raiva por um segundo. — Pensa nisso. Eu só queria que você soubesse antes de qualquer outro.
+— Que ele concorda comigo, mas não pode fazer muita coisa — respondeu Brenda. — Queria que você soubesse dessa votação antes de ouvir algum boato.
 
 Bruno ia responder quando uma sombra caiu em cima dos dois.
 
-Tango estava de pé no caminho, com o cachecol azul enrolado duas vezes no pescoço e uma cara de quem tinha dormido num banco de pedra e achava a ideia ruim. Trazia um envelope na mão, comprido, de papel cinza, e o envelope estava fechado com um fio de cera sem selo.
+Tango estava no caminho, com o cachecol azul enrolado duas vezes no pescoço e olheiras de quem passara a noite em claro. Trazia um envelope na mão, comprido, de papel cinza, e o envelope estava fechado com um fio de cera sem selo.
 
 — Brenda. — Tango entregou o envelope. — Estava na porta da sua casa. Seu pai me mandou trazer, porque disse que, se ele mesmo trouxesse, ia ler primeiro.
 
@@ -262,7 +280,7 @@ Brenda segurou o papel com as duas mãos. Não abriu. Bruno viu que ela tinha re
 
 — Ele deixou alguma coisa para mim? — Bruno ouviu a própria pergunta e quis puxar de volta.
 
-Tango olhou para ele por um tempo, com a ironia guardada no bolso.
+Tango olhou para Bruno e demorou antes de responder.
 
 — Eu pedi que deixasse — disse. — Ele disse que não. Não foi cruel. Foi só um "não".
 
@@ -278,13 +296,13 @@ Tango pegou o papel, abriu uma ponta, leu a primeira linha e a segunda, e dobrou
 
 Foi embora de cachecol balançando. Brenda continuava com o envelope fechado nas duas mãos, de olhos nele, e quando Bruno entendeu que ela queria ficar sozinha, levantou. Disse "tchau" e ela disse "tchau" sem levantar os olhos.
 
-Na porta do jardim, ele parou. Pegou o aparelho de música que levava no fundo da mochila, com as duas pilhas, e ficou olhando a tampa. Pensou em ligar, pensou em qual disco colocar. Nenhuma música que ele conhecia tinha o tamanho daquilo.
+Na porta do jardim, ele parou. Pegou o aparelho de música que levava no fundo da mochila, com as duas pilhas, e ficou olhando a tampa. Pensou em ligar, pensou em qual disco colocar. Não estava com vontade de ouvir nenhuma delas.
 
 Guardou o aparelho. Voltou para dentro do hospital, e atrás dele as pedras do caminho cantaram uma nota para cada passo, e ele não prestou atenção em nenhuma.
 
 Beatriz não conseguia dormir, e a culpa era dos rostos.
 
-Fechava os olhos e eles estavam ali, no escuro, virados para ela como girassóis. A menina das tranças. O homem de barba ruiva. A mulher de lenço azul. Trinta e seis, fora os que Kalev nunca ouvira, e ela tinha olhado cada um por tempo demais e por tempo de menos. Quando abria os olhos, via o teto do quarto de Camporil, e a respiração de Banjo na cama do lado, e a janela, onde a primeira chuva da noite começava a fazer pontinhos no vidro.
+Quando fechava os olhos, voltava a ver os rostos da máscara. A menina das tranças. O homem de barba ruiva. A mulher de lenço azul. Trinta e seis vozes que Kalev conseguira distinguir, além de outras. Beatriz vira alguns daqueles rostos antes de destruir a máscara e fechar a única saída que ainda tinham. Quando abria os olhos, via o teto do quarto de Camporil, e a respiração de Banjo na cama do lado, e a janela, onde a primeira chuva da noite começava a fazer pontinhos no vidro.
 
 Levantou sem acordar ninguém. Desceu a escada de meia, pulando o degrau que estalava, e passou pela cozinha, onde a mãe de Lioro tinha deixado uma massa de pão descansando debaixo de um pano, e foi até a porta da frente, que estava só encostada.
 
@@ -304,7 +322,7 @@ Beatriz não respondeu. Esperou que ela continuasse, com o estômago apertado, e
 
 — Eu quase queimei a sua casa.
 
-— Quase.
+— Mas não queimou — respondeu Ivy.
 
 Beatriz olhou para ela, surpresa, porque era a mesma palavra que Bruno tinha usado no precipício, e ela nunca tinha imaginado que Ivy e Bruno pudessem ter qualquer coisa em comum.
 
@@ -320,7 +338,7 @@ Beatriz esperou.
 
 A chuva engrossou. Uma gota gorda caiu do beiral e bateu na bota de Ivy, e ela nem mexeu o pé.
 
-— A maldição vem devagar e depois vem rápido. Primeiro as mãos ficaram cinzentas. Depois o cabelo. Depois ela não conseguia parar de esquentar, e tudo em volta dela foi ficando seco, e a gente tentou de tudo. Chamamos curandeiro, chamamos a Vigilância, chamamos o pai do Lioro. Ninguém conseguiu parar. Foi na Campina, porque a gente achou que lá ela não machucava ninguém. — Ivy engoliu. — Ela me pediu para sair de perto.
+— A maldição começou pelas mãos, que ficaram cinzentas. Depois foi o cabelo. Logo ela não conseguia parar de esquentar, e tudo em volta secava. A gente tentou de tudo. Chamamos curandeiro, chamamos a Vigilância, chamamos o pai do Lioro. Ninguém conseguiu parar. Foi na Campina, porque a gente achou que lá ela não machucava ninguém. — Ivy engoliu. — Ela me pediu para sair de perto.
 
 — E você saiu.
 
@@ -328,15 +346,15 @@ A chuva engrossou. Uma gota gorda caiu do beiral e bateu na bota de Ivy, e ela n
 
 — E o desenho no portão? — perguntou Beatriz.
 
-— Alguém copiou o sinal para assustar vocês. Não sei quem. Eu raspei porque não ia deixar usarem o lugar onde a Tuli morreu para ameaçar quatro crianças.
+— Alguém copiou aquele símbolo para assustar vocês. Não sei quem. Raspei porque não ia deixar usarem o lugar onde Tuli morreu pra ameaçar vocês.
 
 Beatriz abriu a boca e fechou. Pensou no Bruno de bruços atrás da cerca, e no Breno erguendo o dedo enfaixado para dizer "fato", e em todos eles ali na sala, chamando o desenho do marco de símbolo dos antidimensais.
 
-— A gente achou que o desenho era contra a gente — disse, baixinho. — Eu achei. Eu achei que você odiava a gente.
+— A gente achou que o desenho era contra a gente — disse, baixinho. — Eu achei. Eu cheguei a achar que você odiava a gente.
 
 — Eu sei o que vocês acharam. Na noite da Campina eu passei a dois passos da mão do Banjo, na relva, e fingi que não vi. — Ivy quase sorriu. — Eu odiei mesmo. Fiquei com raiva de todo mundo com poder. Fiquei com raiva de você antes de te ver, só porque o Lioro disse que vinha uma menina com fogo.
 
-— E a capa?
+— E aquela capa que você me deu?
 
 Ivy desfez o embrulho de pano devagar, e dentro dele havia uma bala redonda, fosca, enrolada em papel de cera. Era de mel, Beatriz sentiu o cheiro.
 
@@ -362,13 +380,13 @@ Levou a gaita à boca e tocou baixinho, sem pensar na música da mãe, sem pensa
 
 — De nada.
 
-— Eu ainda tenho medo de você — disse Ivy, sem rodeio. — Eu quero que saiba. Vou ter por um tempo. Eu não vou parar de fazer chá por causa disso.
+— Ainda tenho medo do seu fogo — admitiu Ivy. — Acho que vou ter por um tempo. Mas isso não quer dizer que vou parar de cuidar de você.
 
 — Eu também tenho medo de mim.
 
 — Eu sei. — Ela olhou a praça, a fonte seca, o chão que ainda tinha uma mancha escura no meio. — A diferença é que você parou.
 
-Beatriz apertou a gaita contra o peito. Era a coisa mais bonita que alguém tinha dito para ela naqueles três dias, e vinha de uma pessoa que não sabia dizer coisas bonitas.
+Beatriz apertou a gaita contra o peito. Não esperava ouvir aquilo de Ivy e ficou sem saber o que responder.
 
 Foi então que viram a luz.
 
@@ -376,10 +394,10 @@ Uma lanterna balançava no portão da praça, pequena e amarela, e debaixo dela 
 
 — O Velho-Sábio — disse Ivy, e levantou. — Veio do Conselho.
 
-— A gente sabe pelo passo — disse Beatriz.
+— Reconheci pelo jeito de andar — respondeu Beatriz.
 
 — Que passo?
 
 — Aquele que ele faz quando vai falar uma coisa que não quer. — Ela se levantou também e guardou a gaita no bolso. — Eu acordo os meninos.
 
-— Eu acordo o Lioro. — Ivy enfiou a bala no bolso da capa, para o dia seguinte, e olhou o caminho que a chuva fazia. — Ele vai querer estar de pé. Não vai querer estar bonito.
+— Eu acordo o Lioro. — Ivy enfiou a bala no bolso da capa, para o dia seguinte, e olhou o caminho que a chuva fazia. — Ele vai querer ouvir pessoalmente, mesmo com aquela bandagem horrorosa.

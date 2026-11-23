@@ -6,7 +6,7 @@ Corri até a esquina e parei atrás de uma banca fechada. Um ônibus passou tão
 
 Era uma mulher. Eu podia ver os azulejos sob o corpo, a pele pálida, o cabelo espalhado. Havia mais duas imagens. Não me obriguei a olhar até o fim. O número que mandara aquilo era o do pai de Jason. Diego.
 
-O homem que passara o jantar inteiro fazendo perguntas sobre a minha vida. O homem que tocara no meu rosto sem pedir licença. Aquele sorriso educado. A casa enorme. Jason sentado ao lado dele, achando tudo normal. Senti o estômago virar.
+Lembrei da mão de Diego no meu rosto durante o jantar. Jason estava ao lado, achando tudo normal. Senti o estômago virar.
 
 Talvez alguém tivesse roubado o telefone de Diego. Talvez as fotos fossem falsas. Talvez eu estivesse fazendo uma confusão monumental, e daqui a dez minutos Jason me ligasse para explicar tudo, e a gente acabasse rindo. Rindo. Claro.
 
@@ -14,7 +14,7 @@ Guardei o celular na bolsa e chamei um táxi com o braço erguido. Quando entrei
 
 — Estou ótima. Por quê? Tenho cara de quem está mal?
 
-Ele olhou para o retrovisor e decidiu não responder. Homem inteligente. Passei o caminho inteiro imaginando Jason levantando da mesa e encontrando minha cadeira vazia. Será que ia procurar por mim? Será que sabia das fotos? Será que o pai dele lhe mandara aquelas coisas por engano? Não importava. Eu só queria chegar a casa e trancar a porta.
+Ele olhou para o retrovisor e decidiu não responder. Homem inteligente. Passei o caminho inteiro imaginando Jason levantando da mesa e encontrando minha cadeira vazia. Será que ia procurar por mim? Não importava. Eu só queria chegar a casa e trancar a porta.
 
 O prédio continuava com o cheiro de umidade de sempre. Subi as escadas depressa, tropeçando na barra do vestido, e só percebi que estava chorando quando a chave escorregou da fechadura pela segunda vez.
 
@@ -26,7 +26,7 @@ Fui até a pia, enchi um copo de água e derramei metade no chão porque minhas 
 
 O Dudu me entregara aquilo quando eu perdera o emprego. Eu tinha usado uma parte, e o que sobrou continuava escondido entre as páginas. Naquele momento, a ideia de passar algumas horas sem sentir coisa nenhuma pareceu boa demais. Peguei a apostila.
 
-Abri na página das regras de etiqueta à mesa e encontrei o papel dobrado em quatro. Fiquei olhando para ele durante um tempo. Meu apartamento, a foto da Kelly na estante, o aluguel atrasando, o emprego perdido, Jason, a mãe dele, o pai dele... Tudo na minha vida parecia dar trabalho demais. Ouvi outra vibração debaixo da almofada.
+Abri na página das regras de etiqueta à mesa e encontrei o papel dobrado em quatro. Fiquei olhando para ele durante um tempo. A foto da Kelly continuava na estante. O aluguel não ia esperar, e o telefone vibrava outra vez debaixo da almofada.
 
 Fechei a apostila e fui até a cozinha. Abri o papel, olhei o que restava e senti vergonha de mim mesma. Joguei no lixo, por cima das cascas de legumes e do pão velho. Depois despejei água por cima. Pronto. Pelo menos uma besteira eu ainda podia evitar. O telefone de casa começou a tocar.
 
@@ -164,7 +164,25 @@ Jennifer respirou fundo e começou de novo, com calma. Desta vez consegui acompa
 
 — Quero que você venha comigo — ela corrigiu. — A gente vai buscar o Vini juntas.
 
-Pensei em Vinícius. Preso havia quase um ano por um crime que não cometera. Pensei na Kelly, na maneira como ele assumira a culpa para proteger a memória dela e o Junior. Pensei também nas coisas horríveis que eu dissera a ele antes de tudo acabar.
+Olhei para Jennifer. Ela estava tão cansada quanto eu, mas tinha vindo mesmo assim. Tentei responder. Não saiu. Na minha cabeça estava outra coisa, a garota parada no supermercado, a boca apodrecida mexendo diante dos pacotes de açúcar.
+
+— Eu vi a Kelly — falei, quase sem som.
+
+Jennifer não se moveu.
+
+— Onde?
+
+— Na rua. No mercado. Na minha televisão. — Olhei para o aparelho quebrado no canto. — Não ela. Uma coisa com a cara dela. Às vezes está toda... — A palavra ficou presa. — Não quero falar disso.
+
+— Desde quando, Pri?
+
+— Faz tempo suficiente. Achei que, se eu não contasse pra ninguém, ia parar. — Passei a mão no rosto. — Não parou.
+
+Jennifer me observou por alguns segundos. Não disse que era alucinação. Também não jurou que era um espírito. Acho que foi por isso que consegui continuar.
+
+— Eu não sei o que está fazendo isso — ela disse. — Mas acredito em você.
+
+Pensei em Vinícius. Preso havia quase um ano por um crime que não cometera. Pensei na Kelly, na maneira como ele assumira a culpa para proteger a memória dela e o Junior. Pensei também nas coisas horríveis que eu dissera a ele antes de tudo acabar. Eu tinha fugido de Vila Velha para não ver mais nada daquilo. Agora nem fazer compras eu conseguia. Ficar escondida no apartamento não estava salvando a minha cabeça. Talvez, se eu fosse com Jennifer, ao menos pudesse fazer alguma coisa por alguém de verdade.
 
 — Ele estava vivo? — perguntei.
 
@@ -356,7 +374,7 @@ A cara de Pedro mudou.
 
 — O Junior não é mais meu amigo.
 
-Ninguém falou por alguns segundos. Eu sabia por quê. Sabia o que acontecera com a Kelly. Mas também sabia que Pedro passaria o resto da vida se culpando se tivesse a oportunidade de ajudar Junior e não ajudasse.
+Ninguém falou por alguns segundos. Pedro apertou o celular de Jennifer na mão. Eu sabia o que acontecera com a Kelly, mas não podia decidir por ele.
 
 — Eu vou com a Jennifer — disse. — Se o Vini ainda está vivo, quero ser uma das pessoas que vão tirá-lo de lá.
 

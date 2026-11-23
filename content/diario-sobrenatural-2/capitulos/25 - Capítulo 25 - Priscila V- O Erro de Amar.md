@@ -44,6 +44,8 @@ Fiz uma pausa. Podia ter brincado, feito sarcasmo, solto uma frase ácida para m
 
 — Tá. — eu disse. — Eu vou.
 
+Fiquei com o telefone na mão depois que ele desligou. Queria contar sobre a garota do mercado, sobre a televisão quebrada, sobre aquele rosto que eu continuava vendo toda vez que fechava os olhos. Jason tinha escutado coisas muito menos agradáveis sem ir embora. Talvez escutasse isso também. Mas eu podia imaginar a conversa inteira: ele perguntando se eu tinha dormido bem, sugerindo um médico, oferecendo-se para me acompanhar. Eu gostava dele demais para suportar que começasse a me olhar daquele jeito. Guardei o telefone. À noite seria um jantar normal. Eu precisava que pelo menos uma coisa fosse normal.
+
 — Ótimo. — Ele pareceu satisfeito de verdade. — Eu te ligo mais tarde.
 
 Quando desliguei, fiquei alguns segundos parada com o celular na mão, olhando a parede, sem entender por que aquilo parecia tão bom e tão perigoso ao mesmo tempo. Larguei o celular e voltei a limpar a pia. Pelo menos ali eu sabia o que estava fazendo.
@@ -119,45 +121,43 @@ Eu fiquei em silêncio por um momento, e foi aí que a pergunta que eu estava se
 
 A minha avó demorou a responder. Não porque não tinha resposta, mas porque sabia que eu não ia gostar.
 
-— Porque você passou um ano inteiro gritando silêncio com as atitudes, Priscila.
+— Porque você se afastou, menina. Sua mãe me contou das brigas, e eu achei que, se ficasse te procurando, ia acabar ouvindo a mesma coisa que ela.
 
-Eu senti a raiva subir, pronta, familiar.
+— Quer dizer que eu sou a culpada de tudo, agora?
 
-— Claro. — Ri, sem humor. — Porque eu sou a vilã, né? A que só atrapalha. A que some.
+— Eu não disse isso. Disse que senti sua falta.
 
-— Priscila… — Meu nome veio do jeito que só ela sabia dizer, como quem segura alguém pelo braço sem encostar. — Você sumiu porque achou que precisava provar que não precisava de ninguém.
+Olhei para a rosa em cima da mesa. Era mais fácil brigar com a minha mãe do que discutir com aquela voz cansada.
 
-— E eu não precisava.
+— Eu tô me virando, vó.
 
-— Precisava sim — ela cortou sem agressividade — Só que você confundiu ser forte com ser invisível.
+— Estou vendo. Até descobriu o telefone outra vez.
 
-A frase bateu em mim com uma precisão humilhante.
+— Engraçadinha.
 
-— Eu não tô invisível.
+Ela riu, tossiu duas vezes e voltou a falar como se não tivesse acontecido nada. Aquela tosse me deu uma vontade idiota de pegar um ônibus e aparecer na porta dela.
 
-— Tá sim. — Pela linha, ouvi o cansaço por trás da firmeza dela. — Sabe por quê? Porque você tá vivendo como se existir dependesse de alguém te escolher. Quando isso não vem… você sente que não vale nada.
+— Os seus amigos vieram aqui molhados até os ossos — contou. — O Pedro quase acabou com o meu bolo. Você sabia que eles estavam vindo?
 
-Eu quis responder com sarcasmo. Quis dizer que ela não sabia de nada. Mas eu não consegui, porque doeu no lugar certo.
+— Fui eu que dei o endereço. E cinquenta reais pro táxi. Era tudo o que eu tinha.
 
-— Então qual é a solução? — saiu com raiva, mas era raiva de mim.
+— Então você ajudou.
 
-— A solução é você escolher primeiro. — A voz dela ficou mais simples, mais de vó, mais impossível de rebater. — Você quer ser vista? Então faz falta. Aparece. Ajuda. Não porque vão te dar medalha, mas porque é assim que a gente existe de verdade.
+— Não fiz por eles. Queria tirar aquela gente da minha casa antes que arranjassem mais problema.
 
-Fiquei muda.
+— Pode ser. Mas deu o endereço certo e o dinheiro também.
 
-— Os seus amigos… — ela continuou, sem me pressionar, só colocando a verdade na mesa — Eles não foram aí pra te usar. Eles foram porque estavam sem chão. E você… você é melhor do que finge ser.
+Eu queria dizer que ela estava entendendo tudo errado. Só que me lembrei da cara do Pedro debaixo daquele guarda-chuva e fiquei mexendo no fio do telefone.
 
-Eu fiquei olhando pro chão, odiando o aperto no peito e odiando mais ainda que eu entendia o que ela queria dizer.
+— Eles vão se meter em outra encrenca — murmurei.
 
-— Eles não precisam de mim — eu afirmei, expondo exatamente o que sentia.
+— Provavelmente. Você conhece esses meninos melhor do que eu. Não estou mandando você correr atrás deles, Priscila. Só não precisa fingir que não liga.
 
-— Precisam — A resposta veio sem hesitar — E você precisa deles também. Você não nasceu pra viver brigando com o mundo só pra garantir um lugar na mesa.
+Fiquei calada. Minha avó arrastou alguma coisa pelo chão, talvez uma cadeira, e a ouvi se sentar.
 
-Tentei não deixar a voz falhar.
+— Me liga de vez em quando sem precisar acontecer uma tragédia, tá? — pediu. — Nem que seja pra reclamar da vida.
 
-— Tá bom.
-
-Do outro lado, minha avó soltou o ar. Acho que estava com medo de eu desligar.
+— Tá bom, vó.
 
 — E não fica com pena de mim, tá ouvindo? — Ela voltou pro tom de bronca. — Eu tô vivendo bem. Eu vejo o sol, eu como o que eu gosto, eu descanso. O corpo tá doente, mas eu ainda sou eu. E eu ainda tô aqui pra te puxar a orelha quando você fizer bobagem.
 
@@ -169,9 +169,7 @@ Eu quase sorri, e dessa vez deixei.
 
 Desliguei devagar e fiquei parada no meio da sala, com o telefone na mão, sem saber onde guardar aquilo que ela disse.
 
-Voltei a passar o aspirador, principalmente para não ficar parada pensando.
-
-Quando fui guardar o aspirador, a apostila de Hotelaria estava na estante, na lombada de sempre, com um papelzinho dobrado que só eu sabia que existia entre as páginas de etiqueta à mesa. Parei com a mão a dois dedos dela. Coisas fáceis cobram depois. Deixei onde estava. Não foi orgulho, foi conta: se eu abrisse, teria que decidir o que fazer com aquilo, e eu tinha um jantar para ir.
+Voltei a passar o aspirador, principalmente para não ficar parada pensando. Depois abri a apostila de Hotelaria. A prova estava chegando, e eu já tinha perdido dias demais naquela história de emprego, dinheiro e namoro. Tentei estudar as regras de etiqueta à mesa, mas encontrei o papelzinho que guardara dobrado entre aquelas páginas. Fiquei com o dedo em cima dele. A minha avó tinha razão em uma coisa: eu precisava decidir o que fazer da vida. Só que não ia começar por aquele papel, não com Jason chegando em poucas horas. Tentei ler a lição mais uma vez e deixei a apostila aberta na mesa.
 
 No fim da tarde, fui ao guarda-roupa e encarei a verdade: eu tinha pouca roupa, e não a “pouca roupa” chique de gente minimalista. Pouca porque nunca tive dinheiro para comprar mais. Camisetas do ano passado, uma calça jeans que tinha perdido a cor certa, duas saias que eu usava quando queria parecer mais arrumada do que me sentia, e um vestido comprado numa promoção e nunca usado. Ainda estava com a etiqueta escondida lá dentro, como se ele também tivesse medo de ser escolhido.
 
@@ -205,9 +203,13 @@ Esperei do lado de fora do prédio, com o cheiro de asfalto e de comida de algum
 
 Quando o táxi chegou, entrei com cuidado para não amarrotar o vestido. Olhei pela janela, vendo as ruas ficarem mais “certinhas” conforme a região mudava, e cada quarteirão parecia mais caro que o anterior. Quanto mais avançávamos, mais nervosa e animada eu ficava.
 
-Quando o táxi entrou na rua da mansão, senti o impacto silencioso de quem olha um lugar e entende na hora quem manda ali. A fachada branca, as sacadas de vidro, a piscina à frente que parecia mais um aviso do que um luxo. Tudo limpo demais, brilhante demais, aberto demais, como uma vitrine onde alguém quer que você veja exatamente o que ele escolheu mostrar.
+Quando o táxi virou a rua, achei que o endereço fosse um condomínio. O portão era enorme, e a casa demorou a aparecer inteira atrás do jardim. Quando apareceu, fiquei olhando sem conseguir disfarçar. Três andares, mais a cobertura, paredes brancas, sacadas de vidro, uma piscina que parecia ocupar o espaço de várias casas pequenas. O portão se abriu e o carro ainda precisou avançar pelo terreno até chegar à entrada.
 
-O carro entrou pelo portão e parou. Saí, sentindo o chão do jardim bem cuidado sob os pés, com a grama aparada rente ao chão.
+— Caramba… — escapou da minha boca.
+
+O motorista me olhou pelo retrovisor. Fingi que estava conferindo o endereço, mas eu estava era tentando calcular quantas vezes o meu apartamento caberia naquela casa. Meus pais tinham vivido bem, eu sabia o que era conforto. Só que aquilo era outra coisa. Eu já tinha visto o carro e o helicóptero. Ainda assim, não imaginara que o pai de Jason morasse num lugar desse tamanho. E Jason tinha me convidado para viver ali, como se estivesse oferecendo uma cama extra no quarto de visitas.
+
+O táxi parou diante da entrada. Saí, sentindo o chão do jardim bem cuidado sob os pés, com a grama aparada rente ao chão.
 
 A porta abriu.
 
@@ -221,11 +223,45 @@ Ela apareceu com um sorriso que não chegava nos olhos, e eu senti na hora aquel
 
 — Entra. Eles estão te esperando.
 
-Entrei com o queixo erguido. A sala tinha até um projetor no teto. Na minha casa, a televisão quebrada ainda estava encostada num canto. Apertei a alça da bolsa e fingi que não tinha reparado no luxo. Não daria a Glenda o gosto de me ver impressionada.
+Entrei com o queixo erguido. O saguão era tão grande que minhas passadas pareceram pequenas. Vi uma sala com um projetor no teto, móveis que pareciam escolhidos por alguém que nunca precisou olhar uma etiqueta de preço e vidro por toda parte. Na minha casa, a televisão quebrada ainda estava encostada num canto. Por um segundo, eu quis parar e olhar tudo, subir as escadas, descobrir quantos quartos havia ali. Em vez disso, apertei a alça da bolsa e fiz cara de quem frequentava mansões toda semana. Não daria à Glenda o gosto de perceber que eu estava impressionada.
+
+Jason surgiu da sala ao lado com uma folha de papel na mão e um sorriso tão grande que fiquei desconfiada.
+
+— Pri, eu passei!
+
+— Passou o quê?
+
+— No vestibular! Educação Física, na FMU. Saiu a lista hoje. — Ele ergueu a folha, quase amassando tudo. — Eu passei, cara!
+
+Olhei para o papel. O nome dele estava ali, impresso, no meio de outros. Meu cérebro demorou um segundo para entender. Depois entendeu tudo de uma vez.
+
+— JASON! — gritei.
+
+Larguei a bolsa no chão e me joguei nos braços dele. Jason me ergueu um pouco do chão e eu comecei a rir, sem conseguir parar. Não era aquele sorriso educado que eu usava quando precisava agradar alguém. Eu estava feliz. Feliz de verdade, por ele.
+
+— Parabéns! Eu sabia que você ia conseguir! — apertei o rosto dele entre as mãos, ainda rindo. — Você conseguiu, seu idiota!
+
+— Ei, foi só uma das faculdades — ele disse, vermelho.
+
+— E daí? Você passou! — Dei outro abraço nele. — Para de diminuir a tua vitória!
+
+Glenda se aproximou e deu um soco leve no braço do primo, com a intimidade de quem fazia aquilo desde criança.
+
+— É isso aí, cara. Eu nunca duvidei de você.
+
+Jason levantou a sobrancelha.
+
+— Não foi você que disse que eu tinha cérebro nos braços?
+
+— E continuo dizendo. Agora são braços universitários.
+
+Os dois riram. Glenda bagunçou o cabelo dele e, por um instante, sorriu sem aquela expressão de quem estava sempre se defendendo. Foi a primeira vez que vi os dois como primos, e não como duas pessoas disputando quem mandava naquela casa.
+
+Eu peguei a bolsa do chão. Ainda estava sorrindo. Nem o luxo da mansão parecia tão irritante naquele instante.
 
 Então vi um homem vindo do corredor. Era alto, magro e musculoso, com o cabelo comprido preso atrás e um sorriso bonito e fácil, desses que dão vontade de confiar antes mesmo de você decidir se deve. Era o pai de Jason. Eu o tinha visto uma única vez, no dia do almoço na hamburgueria, e a lembrança que eu guardava dele era a mesma: gente relaxada demais para ser inocente. 
 
-— Priscila — ele disse, sorrindo e estendendo a mão. Pela primeira vez naquela noite alguém me pareceu realmente contente em me receber. — Que bom te ver de novo. Seja bem-vinda. Meu filho falou muito de você.
+— Priscila — ele disse, sorrindo e estendendo a mão. Ele parecia realmente contente em me receber. — Que bom te ver de novo. Seja bem-vinda. Meu filho falou muito de você.
 
 — Obrigada. — eu respondi, educada, mas sem abrir demais.
 
@@ -233,7 +269,7 @@ Então vi um homem vindo do corredor. Era alto, magro e musculoso, com o cabelo 
 
 Eu podia jurar que ele me analisou de cima a baixo num segundo só, mas sem parecer desrespeitoso. Era um tipo de olhar treinado: olhar sem ser pego olhando.
 
-Jason apareceu logo depois, e quando eu o vi, senti um alívio ridículo: ele era a única coisa familiar num lugar perigoso. Ele veio até mim, me deu um beijo no rosto, e me guiou pela casa com a maior naturalidade, sem olhar para ver se alguém aprovava.
+Jason voltou para o meu lado, e senti um alívio ridículo: ele era a única coisa familiar num lugar perigoso. Apertou minha mão e me guiou até a mesa com a maior naturalidade, sem olhar para ver se alguém aprovava.
 
 — Vem, a mesa já tá pronta.
 
@@ -289,7 +325,7 @@ Diego inclinou a cabeça, interessado demais.
 
 — Confusão como?
 
-Era uma armadilha. Pequena, bem montada, com cara de conversa inocente. Eu podia responder, podia falar da briga, podia falar de Glenda, podia despejar tudo e parecer a coitada injustiçada. Mas eu olhei de relance para Glenda e vi o brilho de atenção dela, esperando eu me expor.
+Olhei de relance para Glenda. Ela acompanhava a conversa com uma atenção que me fez engolir a resposta que eu estava prestes a dar.
 
 Eu sorri, controlada.
 
@@ -323,7 +359,7 @@ Diego ergueu as mãos num gesto teatral.
 
 — Desculpa, desculpa. Eu sou curioso — falou ele, e voltou para mim. — É que eu gosto de saber quem tá perto do meu filho. Jason é tudo pra mim.
 
-A frase soou bonita, mas comecei a sentir que tinha ido àquela casa para ser entrevistada, não para jantar.
+A comida esfriava no meu prato.
 
 Eu forcei um sorriso, porque eu não queria estragar aquilo. Eu não queria ser “a difícil”. Eu não queria perder a prioridade que eu tinha conquistado.
 
@@ -567,7 +603,7 @@ Eu dei um sorriso curto, duro.
 
 — Não, mas… — ele inclinou a cabeça, curioso. — Você veio de outra cidade, tá trabalhando sozinha, mora sozinha… Deve ter alguma coisa por trás. Alguma coisa que a faz ser assim... 
 
-A raiva subiu, quente. Porque aquilo era exatamente o que eu mais odiava: gente cavando dentro de mim como se tivesse direito. Como se eu fosse um assunto interessante, não uma pessoa.
+Apertei o guardanapo entre os dedos. Já não tinha vontade de comer.
 
 — Você quer saber demais. — eu disse.
 
@@ -651,7 +687,7 @@ Eu toquei a aliança no dedo e senti a vontade absurda de rir e chorar ao mesmo 
 
 — Você se arrependeu, não é? — perguntou ele. — O que eu posso fazer para você ficar comigo?
 
-Não era isso, Jason. Ele não era o problema. Eu era. Eu estava muito insegura. Estava com medo. Estava zangada. Estava sentindo absolutamente todos os sentimentos que existem.
+Girei a aliança no dedo, sem conseguir olhar para Jason.
 
 Jason pareceu interpretar o meu silêncio de forma negativa e desviou o olhar.
 

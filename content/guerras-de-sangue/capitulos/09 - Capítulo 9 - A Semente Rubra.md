@@ -82,7 +82,7 @@ Orven hesitou.
 
 Nynestra passou a língua pelos dentes. Não por nervosismo. Por cálculo.
 
-— A seca não continua. A seca aprofunda.
+— Se cair mais dois dedos, as famílias do sul perdem os viveiros. Quero saber por onde a água está saindo.
 
 Orven baixou os olhos.
 
@@ -166,7 +166,7 @@ Nynestra percorreu as marcas da tábua: grão, famílias, canais e sementes de p
 
 — A proposta Polar resolveria parte disso.
 
-O silêncio mudou. Ninguém gostava da palavra “resolveria” quando vinha acompanhada de Kaendar. Uma mulher cuspiu no chão.
+Uma mulher cuspiu no chão. Marev pousou o estilete sobre a tábua, à espera da resposta de Nynestra.
 
 — Resolveria? Ou compraria?
 
@@ -176,7 +176,7 @@ O silêncio mudou. Ninguém gostava da palavra “resolveria” quando vinha aco
 
 — Água com ferro ainda é água — respondeu outro.
 
-Dessa vez, a discussão cresceu. Não em gritos. Buldar não desperdiçavam força em volume quando a fome escutava de perto. Mas as vozes se atropelaram: uns falando de crianças, outros de sementes, outros de aldeias pequenas demais para serem mantidas, outros de Urtistar, de Vendrar, de roubo, de seca, de orgulho inútil.
+A discussão cresceu. Uns queriam proteger o viveiro, outros insistiam na água para as casas. Marev falava de racionamento, enquanto as Mães de Linha cobravam comida para as crianças. As vozes se atropelaram e Nynestra deixou que falassem.
 
 Nynestra deixou que falassem. Era assim que se ouvia um celeiro partir por dentro. Então uma velha chamada Saira, Mãe de Linha de uma família pequena, colocou sobre a mesa um saquinho de pano. Desamarrou o nó queimado pela metade. Dentro, havia sementes. Ninguém respirou. Sementes antigas.
 
@@ -192,7 +192,7 @@ Todos olharam para as sementes. Saira continuou:
 
 — Eu bati na mão dela. Forte demais. Ela chorou. Depois eu chorei escondida. Não porque ela comeu. Porque por um instante, quando vi a boca dela cheia, eu pensei em deixar.
 
-A frase caiu no depósito como lâmina sem cabo. Nynestra sentiu o peso dela no próprio peito. Quem come a semente passa fome duas vezes.
+Nynestra olhou para o saquinho de sementes, depois para as mãos de Saira. Quem come a semente passa fome duas vezes.
 
 Saira amarrou o pano de novo.
 
@@ -298,11 +298,9 @@ O homem respirou. O ar entrou nele como se doesse.
 
 Nynestra observou o homem. Ele não dissera atacado ou saqueado. Dissera exterminado.
 
-— Exterminado? O que quer dizer? — perguntou ela.
+— Quem fez isso? — perguntou ela.
 
-Os olhos dele não se desviaram.
-
-— Pelos Polar.
+— Os Polar.
 
 Alguém soltou uma praga baixa. Outro murmurou que era mentira. Uma mulher levou a mão ao Nó de Semente no pescoço. Orven ficou imóvel ao lado de Nynestra. A Mão da Colheita deu mais um passo.
 
@@ -376,7 +374,7 @@ Ele tocou a fivela com a unha.
 
 — Talvez não seja prova para um Conselho. Mas é o bastante para um caçador saber para onde aponta a fera.
 
-Nynestra olhou-o nos olhos. Falava a verdade? Seria ele mesmo um Fendelar? Os Fendelar teriam sido mesmo exterminados? Os Polar seriam os culpados?
+Nynestra examinou as peças na terra. O homem podia ser Fendelar. Os objetos podiam ter pertencido a um Polar. Nenhuma das duas coisas ainda mostrava quem dera a ordem.
 
 — Como se chama? — perguntou ela.
 
@@ -456,7 +454,7 @@ Nynestra deu um sorriso mínimo.
 
 — Não tem medo de morrer?
 
-— Não vou morrer esta noite. Não antes de concluir meu trabalho.
+— Hoje, não. Ainda preciso fazer você me ouvir.
 
 — Que trabalho?
 
@@ -566,7 +564,7 @@ Nynestra estreitou os olhos.
 
 — Quer que eu pareça fraca.
 
-— Quero que pareça possível.
+— Quero que os Polar achem que podem negociar sua rendição. Assim, deixam os celeiros e os canais ao alcance dos nossos homens.
 
 — E os Tondrar?
 
@@ -588,7 +586,7 @@ Um dos guardas hesitou.
 
 Rendar não agradeceu. Nynestra gostou disso também. Então olhou mais uma vez para o desenho no chão.
 
-Nynestra olhou para Saira com o saquinho de sementes e para o jovem da Semente Rubra, ainda com a mão enfaixada. Vingança não enchia celeiro. Submissão também não.
+Nynestra pensou na neta de Saira, que comera sementes de plantio, e no jovem que cortara a palma pela colheita futura. Vingança não encheria os celeiros. A proposta Polar tampouco garantia a próxima estação.
 
 Nynestra se virou para Orven.
 

@@ -1,8 +1,6 @@
-A primeira coisa que Dareth notou, ao chegar à base do cume, não foi a arena. Foi o que crescera ao redor dela.
+Antes de ver a arena, Dareth viu a cidade que haviam construído ao redor do Altar. Tendas de dez dinastias espalhavam-se pelos caminhos do cume. Cozinheiros alimentavam fogueiras, mercadores disputavam espaço, curadores montavam postos de atendimento e ferreiros trabalhavam sobre bigornas portáteis. Trabalhadores cochilavam encostados às cargas enquanto esperavam sua vez de descarregar.
 
-De longe, dias antes, o Altar dos Dez Estandartes parecia uma estrutura isolada no topo de uma montanha. De perto era o centro de uma cidade inteira que não existia havia um ano e deixaria de existir assim que o Torneio terminasse. Tendas grandes e pequenas se espalhavam por uma área maior do que Dareth conseguia abranger num olhar: cozinhas improvisadas soltando fumaça, carroças em fileiras longas demais para contar, currais temporários, depósitos de lona reforçada, mercadores que não pertenciam a nenhuma das dez delegações e já tinham montado banca. Mensageiros corriam entre as tendas. Guardas de origens diferentes cruzavam caminho sem se cumprimentar. Famílias inteiras tinham viajado só para assistir, e algumas já discutiam em voz alta o preço de um lugar melhor nas arquibancadas que nem tinham visto por dentro.
-
-Ferreiros de campo martelavam metal em bigornas portáteis. Curadores armavam tendas próprias, separadas do resto. Tratadores cuidavam de animais que Dareth nunca vira, lado a lado com tarraks comuns. Trabalhadores dormiam encostados nas próprias cargas, esperando a vez de descarregar.
+Entre os currais improvisados havia animais que Dareth não conhecia. Guardas trocavam sinais nas passagens, mensageiros desviavam das carroças e famílias inteiras negociavam lugares nas arquibancadas. O torneio ainda não tinha começado, mas o mercado já funcionava.
 
 Havia sotaques ali que Dareth não ouvia desde a guerra, e outros que nunca ouvira.
 
@@ -24,9 +22,9 @@ Dareth assentiu. A mulher voltou a tratar com Selina de espaço, água e acesso 
 
 Um dos aristocratas que viajavam com a comitiva Polar não escondeu o desagrado ao ver o espaço reservado à delegação.
 
-— Esse é realmente o espaço da delegação Polar? — perguntou, olhando ao redor como se esperasse algo maior.
+— Pretende acomodar a representação de Vetarius Polar neste setor? — perguntou o aristocrata, examinando o espaço com evidente desagrado.
 
-— É — a responsável pelos depósitos confirmou, sem se alterar.
+— Este é o setor designado, senhor — confirmou a responsável pelos depósitos.
 
 O homem citou Vetarius, sabendo perfeitamente que o soberano não viera.
 
@@ -46,9 +44,9 @@ O rapaz não pareceu entender. Dareth já ouvira outros Polar usarem "clãs" ape
 
 Pouco depois, a própria Administração mostrou por que aquelas palavras importavam.
 
-Um funcionário Braedar discutia com dois auxiliares diante de uma pilha de fichas. O problema parecia ridículo: um trabalhador havia escrito **Braedar** no campo de pertencimento, mas o registro de nascimento indicava mãe Lusdar e pai sem dinastia reconhecida.
+Um funcionário Braedar discutia com dois auxiliares diante de uma pilha de fichas. O problema parecia ridículo: um trabalhador havia escrito Braedar no campo de pertencimento, mas o registro de nascimento indicava mãe Lusdar e pai sem dinastia reconhecida.
 
-— Ele vive em Braivar há doze ciclos, pertence a uma Oficina e responde por duas rotas — disse o funcionário. — É Braedar.
+— Ele mora em Braivar há doze ciclos, trabalha numa Oficina e responde por duas rotas. Está registrado como Braedar — explicou o funcionário.
 
 Um jovem Polar que ajudava no registro franziu a testa.
 
@@ -56,7 +54,7 @@ Um jovem Polar que ajudava no registro franziu a testa.
 
 O homem soltou um riso curto.
 
-— Ainda bem que o formulário não perguntou onde nasceu.
+— Ainda bem que este formulário não pede o local de nascimento para decidir a filiação.
 
 A discussão atraiu gente suficiente para virar, por alguns minutos, um pequeno retrato de Jesed. Uma mulher Buldar foi a primeira a dizer que, nas terras dela, não haveria dúvida: Buldar era descendência. Um estrangeiro podia viver sob suas leis, trabalhar para uma Família de Terra e receber proteção sem adquirir o nome. Um Grastar, ouvindo de perto, concordou e acrescentou que, entre os seus, nem casamento, riqueza ou décadas de serviço transformavam estrangeiro em Grastar.
 
@@ -66,7 +64,7 @@ A discussão atraiu gente suficiente para virar, por alguns minutos, um pequeno 
 
 Uma Cendar que carregava ferramentas presas ao cinto entrou na conversa sem ter sido chamada.
 
-— Sangue ou confiança comprovada. Uma Casa pode incorporar alguém. Depois de anos de convivência, serviço e responsabilidade.
+— Sangue ou confiança conquistada — explicou a Cendar. — Uma Casa também pode acolher alguém, depois de anos de trabalho e responsabilidade.
 
 O Leidar ao lado dela levantou um dedo.
 
@@ -78,7 +76,7 @@ O Leidar ao lado dela levantou um dedo.
 
 Um Vendrar, que até então apenas escutava, disse que aquilo parecia burocracia demais para uma coisa que uma oficina resolvia melhor.
 
-— Aprende um ofício, serve, encontra mestres que respondam por você e faz o Primeiro Compromisso. Depois conversamos.
+— Primeiro aprende um ofício. Depois arranja um mestre que responda pelo seu trabalho e assume o Primeiro Compromisso. Aí a gente conversa.
 
 — Vocês transformam tudo em contrato — disse alguém.
 
@@ -90,7 +88,7 @@ Os Lusdar aceitavam estrangeiros por residência e serviço, mas exigiam formaç
 
 Foi uma mulher Quendrar quem interrompeu a tentativa de transformar aquilo numa competição.
 
-— Ninguém recebe de outro o direito de continuar existindo.
+— Ninguém precisa de autorização de outra pessoa para existir.
 
 O funcionário Polar ergueu os olhos.
 
@@ -100,7 +98,7 @@ O jovem Polar olhou para Selina, como se esperasse que ao menos a resposta dos p
 
 Era.
 
-— Sangue reconhecido — disse ela. — E registro.
+— Ascendência Polar reconhecida — respondeu Selina. — E validação no registro.
 
 Serviço não bastava. Morar em Kaeliran não bastava. Casar com Polar não bastava. Uma criança de união mista precisava ser reconhecida pelo genitor Polar e validada nos registros. Dareth pensou em quantas vezes ouvira aquilo como se fosse a única definição possível de pertencimento.
 
@@ -112,9 +110,9 @@ Foi buscar água. Depois foi descobrir onde tinham deixado parte do equipamento.
 
 Um cozinheiro Buldar discutia com um fornecedor Braedar porque recebera menos óleo do que a marca da jarra prometia. Dois jovens Cendar jogavam alguma coisa sentados no chão, indiferentes ao movimento, enquanto uma mulher mais velha costurava a manga rasgada de um deles sem interromper o trabalho. Um Quendrar reclamava alto do preço do pão para quem quisesse ouvir. Uma criança Braedar tentava negociar uma peça de metal com um homem Vendrar, que recusou balançando a cabeça.
 
-— Isso não vale nem metade do que você está pedindo — disse.
+— Isso não vale nem metade do preço que você pediu — disse o Vendrar.
 
-— Então aprende a fazer uma coisa que valha — a criança respondeu, sem hesitar.
+— Então faz um melhor e tenta vender — retrucou a criança.
 
 O Vendrar riu, alto e de verdade, e acabou pagando mais do que começara oferecendo.
 
@@ -178,7 +176,7 @@ O sorriso de Dareth desapareceu. Olhou, por um instante, na direção de Selina,
 
 Maerys percebeu a mudança de temperatura na hora, mas não ficou desajeitada: riu, de um jeito mais contido, e desviou.
 
-— Kaeliran tem muralhas melhores do que segredos, Quatro-Dedos.
+— Os muros de Kaeliran seguram melhor as pessoas que as notícias, Quatro-Dedos.
 
 Não respondeu de verdade. Transformou tudo de volta em piada com outro comentário, e o grupo ao redor riu de novo, mas Dareth não conseguiu deixar aquilo passar tão rápido quanto ela pretendia.
 
@@ -198,7 +196,7 @@ Mais tarde, um dos Polar da comitiva tentou pagar um serviço usando merais.
 
 — Polar não usa meral — disse, oferecendo uma moeda dravus em vez disso.
 
-O dravus brilhou entre os dedos dele. Dravenito. Dareth crescera vendo aquele metal em moedas, selos, joias e peças de prestígio, quase sempre associado ao nome de Khar-Kaelyr. Nos mapas militares mais antigos que estudara, porém, a mesma cidade aparecia como **Khar-Tondr**.
+O dravus brilhou entre os dedos dele. Dravenito. Dareth crescera vendo aquele metal em moedas, selos, joias e peças de prestígio, quase sempre associado ao nome de Khar-Kaelyr. Nos mapas militares mais antigos que estudara, porém, a mesma cidade aparecia como Khar-Tondr.
 
 Kaelyr tomara a antiga cidade Tondrar séculos antes e pusera o próprio nome sobre ela. As cavernas conquistadas continham uma das maiores fontes conhecidas de dravenito, riqueza que ajudara a financiar a expansão Polar e, mais tarde, a própria moeda. Em Kaeliran, Khar-Kaelyr soava como geografia. Para quem ainda lembrava Khar-Tondr, o nome dizia outra coisa.
 
@@ -214,7 +212,7 @@ A Primeira da Mesa Mardrar apareceu quando a conversa exigiu presença política
 
 Ela era diferente de Maerys de um jeito que Dareth notou quase de imediato. Não competia por espaço. Fazia a sala vir até ela, sem esforço aparente: calma, cuidadosa, cada palavra escolhida como se tivesse considerado, um instante antes, se precisava mesmo dizer aquilo.
 
-— Vim confirmar os termos que a Cadeira dos Caminhos e Estandartes já registrou — disse a Selina, com uma educação que não soava fria nem calculada, só precisa.
+— Conselheira, gostaria de confirmar os termos já registrados por sua Cadeira — disse a Primeira da Mesa, com uma cortesia precisa.
 
 Dareth sabia que ela não era uma soberana absoluta, mas percebeu, no jeito como outros estrangeiros se dirigiam a ela, que muitos preferiam tratá-la como se fosse, por conveniência diplomática. Um funcionário Mardrar ficou ao lado dela, confirmando números quando necessário, sem participar da conversa.
 
@@ -236,7 +234,7 @@ Dareth já conhecia Karev de vista, da viagem. Ali, observando-o rir de alguma p
 
 Saelira Buldar apareceu mais tarde, numa conversa sobre logística de abastecimento entre delegações. Falava com a calma prática de quem resolve problemas concretos: quantidade de grão, tempo de armazenagem, distribuição entre os setores.
 
-— Um homem que já viu guerra de perto luta diferente de um jovem tentando provar alguma coisa — comentou, em algum momento, olhando diretamente para Dareth, sem nenhum tom de bajulação na voz. — Os Polar escolheram bem.
+— Um veterano entra na arena com preocupações diferentes das de um jovem — comentou Saelira, voltando-se para Dareth. — A Dinastia Polar escolheu bem.
 
 Dareth quase concordou antes de se lembrar de quem falava. Não havia nada na frase que soasse falso ou calculado, só um elogio direto, do tipo que teria aceitado de qualquer outro estranho sem pensar duas vezes.
 
@@ -280,7 +278,7 @@ Saren Lusdar esperava a vez sentado num banco baixo, sem pressa, observando o mo
 
 — Vocês fiscalizam tudo? — Dareth perguntou, apontando para a fila.
 
-— Só o que pode matar sem estar em combate — Saren respondeu, com um leve tom de provocação, como quem já ouvira mais de uma vez algum comentário reduzindo os Lusdar a "os que cuidam de veneno".
+— Só aquilo que pode matar alguém antes do primeiro golpe — respondeu Saren, com uma ponta de humor.
 
 Um dos quatro soberanos Lusdar apareceu depois, tratando de segurança de rotas e controle de substâncias permitidas no Torneio. Um Polar perguntou, curioso, sobre os outros três que não tinham vindo.
 
@@ -346,7 +344,7 @@ O público continuava chegando em quantidade cada vez maior. Vendedores gritavam
 
 Uma criança disse a outra que Dareth tinha perdido quatro dedos, não um.
 
-— Se tivesse perdido quatro, chamavam ele de Um-Dedo — corrigiu a segunda, com total seriedade.
+— Se tivesse perdido quatro, era Um-Dedo! — corrigiu a outra, muito séria.
 
 Dareth continuou andando. Os outros campeões também observavam adversários.
 
@@ -365,7 +363,7 @@ Falaram, no começo, das autoridades ausentes: Vetarius, o velho soberano Grasta
 
 — Às vezes é mais fácil falar em nome de alguém quando essa pessoa não está na sala — comentou a Primeira da Mesa, num tom que não soava como crítica.
 
-— Às vezes é a única forma de a coisa andar — Selina respondeu.
+— Às vezes é a única forma de obter uma decisão — respondeu Selina.
 
 A conversa seguiu, mais longa do que Dareth conseguiu acompanhar de perto, mas percebeu, de fora, que algo parecido com confiança começava a se formar entre as duas mulheres: cautelosa, ainda distante de qualquer aliança, mas real.
 
@@ -403,10 +401,6 @@ Ao redor de todo o círculo, os outros também apareciam. Khalir. Serka. Karev. 
 
 No centro da arena, um espaço preparado esperava: talvez uma mesa, talvez recipientes selados, marcas gravadas no chão de pedra. Funcionários já ocupavam posição ao redor.
 
-Nenhum dos dez campeões tinha se movido na direção daquele centro ainda.
+Dareth avançou sobre a pedra clara. As arquibancadas abafavam os próprios passos, e os dez estandartes batiam ao vento acima do círculo. Os outros nove campeões tinham entrado pelas portas do perímetro. Ninguém se aproximara ainda dos recipientes do sorteio.
 
-Dareth atravessou a própria entrada, e o grito das arquibancadas o atingiu inteiro, de todos os lados, forte o bastante para que, por um instante, deixasse de ouvir os próprios passos sobre a pedra.
-
-Do outro lado do círculo, outro campeão surgiu. Depois outro.
-
-Os dez estandartes se moviam, agitados pelo vento, bem acima de todos eles. Dareth olhou para o centro da arena. Ainda não sabia quem tentaria matá-lo primeiro.
+Dareth olhou para os adversários. Não sabia qual enfrentaria primeiro.

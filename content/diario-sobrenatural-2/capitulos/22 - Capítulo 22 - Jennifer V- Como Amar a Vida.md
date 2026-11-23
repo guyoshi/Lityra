@@ -36,7 +36,23 @@ A Sra. Olívia me observou como se entendesse mais do que dizia.
 
 — Os pesadelos muitas vezes refletem os medos mais profundos. Mas são também uma oportunidade de nos prepararmos melhor — disse ela, sua voz carregada de um tom enigmático. — Me diga, o que você viu, menina. 
 
-Contei o que Filipo me disse e o que sonhei. A Sra. Olívia não demonstrou reação alguma e, quando terminei, se levantou, suspirando. O que aquele suspiro significava?
+Contei o que Filipo me disse e o que sonhei. A Sra. Olívia não demonstrou reação alguma. Ficou cortando uma pera em fatias cada vez mais finas, até eu pedir que parasse.
+
+— A senhora também tinha medo de dormir quando era mais nova?
+
+Ela pousou a faca.
+
+— Depois do que aconteceu com Sara, tinha medo até de fechar os olhos. Minha mãe me encontrava acordada de madrugada. Dizia que ninguém parte sozinho. Quando chega a hora, alguém que a gente amou vem buscar.
+
+— A senhora acreditava?
+
+— Eu queria acreditar. — Ela empurrou uma fatia de pera na minha direção. — Fazia diferença naquela época.
+
+Fiquei olhando para a pera.
+
+— Eu procurei a minha mãe depois que ela morreu. Não encontrei. Nem uma vez.
+
+Olívia não tentou me consolar com uma explicação. Pousou a mão sobre a mesa, perto da minha, e esperou até eu conseguir respirar melhor.
 
 — Acho que não é hora de falarmos sobre isso. Mas de fato seu amigo estava certo. Cabras, bodes, não são coisa boa. Acho que o que você está vendo, tem a ver com uma força maligna extremamente perigosa. É por isso que você deve se preparar e blindar sua mente e alma contra essas forças. 
 
@@ -58,7 +74,7 @@ Ela assentiu. Pediu que eu aproximasse a mão, mas não tocasse na chama. O frio
 
 — E eu posso impedir?
 
-— Você pode aprender a usar a sua. Não sei até onde. Nunca tive a força de uma selifa para experimentar.
+— Não sei se pode impedir. Nem sei se o que sentiu na égua pode ser repetido. Não vou prometer uma coisa que nunca consegui fazer.
 
 Pensei nos Elos da casa dos Marques. Nos objetos que prendiam aqueles espíritos.
 
@@ -96,7 +112,7 @@ Ergui uma sobrancelha e a questionei:
 
 — Eu não tenho certeza se é isso que eu quero — falei — digo, eu quero ser forte... mas de que vai adiantar eu lutar contra um ser que nunca pode morrer? Pra que eu gastaria toda a minha vida para isso? 
 
-— Porque você é uma selifa. E isso está em você. Você tem escolhas. Pode abandonar tudo isso e decidir viver uma vida normal. Mas os espíritos não vão lhe abandonar, os demônios vão lhe perseguir, o mundo fará de tudo para que você reencontre o seu caminho. 
+— Eu não sei o que você é obrigada a enfrentar, menina. Mas sei que pode decidir o que fazer hoje. Os mortos não vão deixar de aparecer só porque você gostaria que deixassem. Isso não significa que tenha de passar a vida lutando contra eles. 
 
 Aquilo era demais para mim. Eu não via mais sentido naquilo que eu estava fazendo. 
 

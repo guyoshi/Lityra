@@ -16,13 +16,13 @@ Nynestra olhou para a abertura estreita acima das barras, de onde vinha um ar qu
 
 — O tambor mudou. Kharvok quer o povo acordado antes do sol alto. Quer que todos tenham tempo de escolher a raiva que vão levar ao pátio.
 
-Kaelina tentou se sentar. A dor nas costelas abriu-se como mão de ferro e ela precisou esperar o mundo parar de inclinar. Nynestra observou sem ajudá-la. Talvez por desprezo, talvez porque, se ajudasse, qualquer Tondrar que visse poderia transformar o gesto em prova de cumplicidade, talvez porque a própria Nynestra mal tivesse força para mover a perna sem mostrar dor.
+Kaelina tentou se sentar. A dor nas costelas a fez apoiar uma mão na parede até a tontura passar. Nynestra observou sem ajudá-la. A própria perna estava ferida, e os guardas não deixavam de vigiar as duas.
 
 — Você entendeu o que eu quis dizer ontem — disse Kaelina, baixa o bastante para a pedra engolir parte da frase.
 
 Nynestra não respondeu. Kaelina insistiu:
 
-— Se eu tentar parecer inocente, eles vão rir. Se eu tentar parecer justa, vão me odiar mais. Se eu tentar explicar, vão ouvir apenas uma soberana procurando outra palavra para escapar da sede. Então não vou pedir que acreditem em mim.
+— Se eu disser que sou inocente, eles vão rir. Se pedir que me escutem, vão dizer que estou com medo de morrer. Então não vou tentar convencê-los sozinha.
 
 Nynestra ficou imóvel, mas algo nos olhos dela mudou, uma atenção curta, quase imperceptível.
 
@@ -32,13 +32,13 @@ Kaelina sentiu gosto de sangue seco no canto da boca. Talvez tivesse mordido a l
 
 — Em você.
 
-O silêncio que veio não foi acordo. Foi medida.
+Nynestra estudou o rosto dela antes de responder. Mas os guardas chegaram primeiro.
 
 Passos começaram no corredor antes que Nynestra respondesse. O som cresceu pelas Veias de Barro, botas secas sobre pedra úmida, metal curto batendo em osso, vozes baixas. Três Tondrar pararam diante da cela. Um deles trazia uma tigela com água. Outro carregava tiras de couro. A terceira era uma mulher de cabeça raspada, pintura negra descendo do olho esquerdo até a garganta, mãos manchadas de tinta ritual. Não tinha arma visível. Isso a tornava mais importante, não menos.
 
 — De pé — disse a mulher.
 
-Kaelina tentou obedecer antes que alguém a puxasse. Conseguiu ficar de joelhos, depois de pé, apoiando uma mão na parede. A mulher observou a fraqueza sem prazer e sem pena. Aproximou-se, segurou o rosto de Kaelina pelo queixo e virou-o para um lado e para o outro, avaliando inchaços, cortes, queimaduras de sol e os restos dos traços brancos como quem escolhe onde pintar couro. Passou o polegar sobre um deles, viu a pasta sair seca na pele dela e limpou a mão no próprio braço, sobre a pintura negra.
+Kaelina tentou obedecer antes que alguém a puxasse. Conseguiu ficar de joelhos, depois de pé, apoiando uma mão na parede. A pintora aproximou-se, segurou o rosto de Kaelina pelo queixo e virou-o de um lado para o outro, avaliando inchaços, cortes, queimaduras de sol e os restos dos traços brancos. Passou o polegar sobre um deles, viu a pasta sair seca na pele dela e limpou a mão no próprio braço, sobre a pintura negra.
 
 — A soberana aguenta o pátio? — perguntou um dos guardas.
 
@@ -62,9 +62,7 @@ A subida até o Pátio Seco pareceu mais longa do que no dia anterior. Talvez po
 
 O Pátio Seco estava cheio.
 
-Entre todas as marcas negras do clã, a de Kharvok era a mais fechada: planos rígidos de tinta fosca tomavam quase todo o rosto, deixando a falha do nariz exposta no centro.
-
-Gente ocupava as bordas, as passagens altas, os degraus de barro, os vãos entre pilares. Cabeças raspadas brilhavam de suor. Pinturas negras dividiam rostos em funções, lutos, guerras e cargos que Kaelina ainda não sabia ler. Crânios pendiam das estruturas laterais, batendo de leve quando o vento seco atravessava a cidade. Tec. Tec. Tec. O som era pequeno, mas insistente, como se os mortos também quisessem assistir.
+Gente ocupava as bordas, as passagens altas, os degraus de barro, os vãos entre pilares. Cabeças raspadas brilhavam de suor. Pinturas negras dividiam rostos em funções, lutos, guerras e cargos que Kaelina ainda não sabia ler. Crânios pendiam das estruturas laterais, batendo de leve quando o vento seco atravessava a cidade. Tec. Tec. Tec. O som persistia sob os gritos.
 
 Kharvok estava de pé diante da Plataforma do Sol Alto. A Marca da Voz incorporava a mutilação do rosto de modo tão completo que a ausência do nariz já não parecia ferida. Parecia centro. Ele respirava com aquele som áspero de pedra rachada, e a cada respiração o povo parecia lembrar que ele sobrevivera ao círculo para ocupar aquele lugar. Ao redor dele, o Círculo da Cabeça Nua mantinha posições medidas: a Senhora dos Tambores com as mãos sobre a pele esticada de um tambor pequeno, uma guardiã das Veias de Barro, um homem velho de braços finos marcados por riscos de contagem, e Eshvar, o Guardião da Boca Seca, alto, seco, com a pintura descendo pela garganta como uma rachadura. Eshvar observava mais do que falava. Isso, naquele pátio, era uma forma perigosa de poder.
 
@@ -82,9 +80,9 @@ Quando o elevador chegou ao nível da plataforma, dois guardas lançaram as lâm
 
 — Até a morte — disse Kharvok.
 
-O pátio respondeu com urros, mas Kaelina não olhou para o povo. Olhou para Nynestra. A Buldar segurava a faca sem pressa, respirando mal por causa da perna, mas com o olhar firme demais para quem estava apenas assustada. Kaelina procurou ali algum sinal do acordo imperfeito feito nas Veias de Barro. Não encontrou certeza. Encontrou cálculo, raiva, uma distância que podia ser atuação, mas também podia ser verdade.
+O pátio respondeu com urros, mas Kaelina não olhou para o povo. Nynestra segurava a faca sem pressa, respirando mal por causa da perna e encarando-a. Kaelina procurou ali algum sinal do acordo imperfeito feito nas Veias de Barro. Não encontrou certeza. Encontrou cálculo, raiva, uma distância que podia ser atuação, mas também podia ser verdade.
 
-Kaelina ergueu o rosto e deixou a própria expressão endurecer. Não tentou parecer justa, nem ferida, nem ela mesma. Pensou em Alyra, no modo como a irmã usava crueldade como se fosse direito antigo, no modo como transformava uma sala inteira em degrau apenas mudando a voz. Kaelina odiava aquela parte da irmã. Por isso mesmo, sabia imitá-la.
+Kaelina ergueu o rosto e deixou a própria expressão endurecer. Endireitou os ombros, apesar da dor. Pensou em Alyra, no modo como a irmã usava crueldade como se fosse direito antigo, no modo como transformava uma sala inteira em degrau apenas mudando a voz. Kaelina odiava aquela parte da irmã. Por isso mesmo, sabia imitá-la.
 
 — Buldar — disse ela, alto o bastante para o pátio ouvir — sempre confundiram celeiro com trono.
 
@@ -96,7 +94,7 @@ O pátio murmurou. Alguns Tondrar riram. Outros não. Nynestra mantinha o rosto 
 
 — Cada família de terra que se ajoelha diante de você só come porque Kaendar permite que as rotas continuem abertas. Vocês alimentam Jesed? Não. Vocês guardam comida até alguém mais forte decidir por onde ela vai passar. Sem os Polar, não seriam senhores da colheita. Seriam camponeses brigando por vala, semente e lama, fingindo que sujeira no punho é o mesmo que autoridade.
 
-O olhar de Nynestra mudou. Por um instante, Kaelina quase recuou. Não pelo plano. Pelo que havia nos olhos dela. A Buldar sabia que aquilo precisava ser dito. Mas saber não impedia a ferida de abrir. Kaelina continuou porque parar ali seria covardia.
+Nynestra apertou tanto o cabo que os dedos perderam a cor. Kaelina quase interrompeu. Sabia o que havia combinado, mas a ofensa já não parecia ensaiada.
 
 — E Araquien? As terras que vocês chamam de vossas? São vossas porque Kaendar aceitou escrever assim por tempo demais. Uma linha num registro Polar vale mais que todas as sementes que seus mortos enterraram ali. O que foi escrito pode ser corrigido. O que foi dado pode ser retomado. Volte para Nyn-Harad, Mão da Colheita, e diga às suas famílias que Kaendar se cansou de fingir que agricultores com celeiros são iguais a soberanos.
 
@@ -104,17 +102,15 @@ Nynestra avançou um passo, mas ainda parecia controlar a própria fúria. Havia
 
 — Agricultores? — repetiu. — É assim que vocês nos chamam quando estão longe da fome. Mas quando o pão acaba nos anéis baixos, quando seus depósitos começam a contar migalhas como se fossem estratégia, vocês lembram o caminho até Nyn-Harad. Os Polar sempre foram bons em dar nomes limpos a coisas podres. Fome vira contenção. Roubo vira acordo. Ameaça vira rota fechada.
 
-A resposta era boa. Forte. Verdadeira. Mas Kaelina percebeu a falha: era boa demais como resposta. Nynestra ainda falava para o povo, ainda media a própria raiva, ainda deixava espaço demais entre palavra e lâmina. Se continuasse assim, os Tondrar veriam duas mulheres representando ódio, não duas inimigas quase se matando. Kaelina precisava empurrá-la para fora da atuação.
+Kaelina percebeu que Nynestra ainda conseguia escolher as palavras para a plateia. Nynestra ainda falava para o povo, ainda media a própria raiva, ainda deixava espaço demais entre palavra e lâmina. Se continuasse assim, os Tondrar veriam duas mulheres representando ódio, não duas inimigas quase se matando. Kaelina precisava empurrá-la para fora da atuação.
 
 — Palavras — disse Kaelina, com desprezo. — É isso que você dá aos seus quando a comida acaba? Palavras? Talvez por isso os Tondrar tenham razão em desconfiar de você. Talvez a Mão da Colheita saiba mesmo trocar morte por vantagem e depois apontar para outro lado. Torgun caiu na estrada, você voltou viva, e agora quer que todos acreditem que foi só azar. Os Buldar sempre souberam onde esconder a culpa quando a colheita falha.
 
-A máscara de Nynestra caiu.
-
-Não completamente. Talvez nunca caísse por inteiro. Mas caiu o bastante para Kaelina ver o que precisava ver e, no mesmo instante, temer ter ido longe demais. A Buldar não respondeu. Não havia mais resposta. O primeiro golpe veio com todo o corpo. A mão de Nynestra acertou o rosto de Kaelina antes que qualquer voz no pátio acompanhasse o movimento. O som atravessou a plataforma. Kaelina cambaleou, sentiu a boca abrir por dentro e o gosto de sangue fresco se misturar à sede.
+Nynestra parou de responder com palavras. O rosto ficou vermelho de raiva e Kaelina teve medo de ter ido longe demais. A Buldar não respondeu. Não havia mais resposta. O primeiro golpe veio com todo o corpo. A mão de Nynestra acertou o rosto de Kaelina antes que qualquer voz no pátio acompanhasse o movimento. O som atravessou a plataforma. Kaelina cambaleou, sentiu a boca abrir por dentro e o gosto de sangue fresco se misturar à sede.
 
 Kharvok não sorriu. Apenas ergueu um pouco o queixo. A luta começou. Depois disso, nenhuma das duas falou.
 
-Nynestra atacou primeiro com a faca, e Kaelina recuou, aparando o golpe alto, sentindo o impacto subir pelo pulso até o ombro. A perna ferida da Buldar prejudicava o equilíbrio, mas não diminuía a violência. Pelo contrário. Cada passo errado parecia empurrar mais raiva para os braços. Kaelina desviou de um corte no ventre, girou por dentro do alcance e tocou o ombro de Nynestra com a lâmina, superficial, visível, calculado. Não podia poupá-la demais. Não podia feri-la demais. Essa era a parte impossível do plano: parecer inimiga sem se tornar carrasca.
+Nynestra atacou primeiro com a faca, e Kaelina recuou, aparando o golpe alto, sentindo o impacto subir pelo pulso até o ombro. A perna ferida da Buldar prejudicava o equilíbrio, mas não diminuía a violência. Pelo contrário. Cada passo errado parecia empurrar mais raiva para os braços. Kaelina desviou de um corte no ventre, girou por dentro do alcance e tocou o ombro de Nynestra com a lâmina, superficial, visível, calculado. Tinha de parecer disposta a ferir Nynestra sem transformar o plano numa execução de verdade.
 
 Nynestra percebeu. O ódio nos olhos dela ficou pior.
 
@@ -226,7 +222,7 @@ Um novo tumulto ameaçou subir, mas Kharvok cortou-o com a própria voz.
 
 — Viva não é livre. Viva não é hóspede. Viva não é perdão. Ela será levada com corda, febre e sangue. A irmã verá o que a Boca Seca carrega. Se a quiser, terá de sair de seu esconderijo.
 
-O pátio aceitou aos poucos. Não por piedade. Não por confiança em Nynestra. Aceitou porque a morte rápida tinha sido transformada em coisa menor. E nenhum Tondrar queria parecer pequeno diante da própria sede.
+O pátio aceitou aos poucos. Alguns ainda gritavam por morte, mas outros começaram a falar do resgate, das rotas e de tudo o que poderiam exigir de Alyra. Kharvok deixou que discutissem antes de mandá-los calar.
 
 Nynestra olhou uma última vez para Kaelina. O ódio ainda estava lá. Mas, por baixo dele, havia outra coisa: não alívio, não amizade, não cumplicidade limpa. Apenas a confirmação amarga de que, por enquanto, a utilidade vencera a lâmina.
 
@@ -288,7 +284,7 @@ Os preparativos de Khar-Tondr subiam pelas paredes como outro tipo de tambor. De
 
 Tentaram matar a soberana durante uma das noites. Nynestra gritou, e homens chegaram para impedir. O Círculo da Cabeça Nua discutiu a partida por mais de uma vez. Kaelina ouvia vozes altas acima das Veias de Barro: havia quem quisesse levar pouca gente, quem dissesse que pouca gente pareceria medo. Quem quisesse matar Kaelina antes de sair, quem dissesse que matar refém era desperdiçar faca. Quem lembrasse que os campos Buldar alimentavam filhos Tondrar quando a caça faltava, quem respondesse que depender de grão era a vergonha que os trouxera até ali.
 
-Kharvok decidiu no fim, como Voz. Não explicou tudo. Voz que explicava demais parecia pedir permissão.
+Kharvok decidiu depois de ouvir o Círculo e os guardas de passagem. Mandou preparar água, comida e homens suficientes para que a marcha chegasse a Kaendar sem se denunciar cedo demais.
 
 Quando vieram buscá-las, Kaelina estava pálida o bastante para que o guarda que abriu a cela olhasse duas vezes. O ferimento abaixo das costelas tinha bordas quentes e vermelhas. A pasta da curandeira segurava o pior, mas não afastava o risco de podridão. Cada passo puxava a costura como se alguém prendesse um anzol por dentro de sua pele. Amarraram-lhe as mãos, depois passaram uma corda pelo tronco, cuidando para não apertar exatamente sobre o corte. Tratavam-na com o zelo seco de quem transporta uma ferramenta frágil, sem qualquer misericórdia.
 
@@ -306,7 +302,7 @@ A Boca Seca abriu-se.
 
 Saíram pelo corredor de poeira e osso, com o sol já alto o bastante para transformar pedra em lâmina. Kaelina caminhou no meio do grupo, presa por dois guardas, o corpo balançando entre dor e febre. O calor entrou pelo couro da roupa, pelo cabelo sujo, pela ferida. Às vezes a visão manchava de branco, às vezes o mundo se estreitava no som dos próprios passos. Nynestra seguia adiante com a liberdade limitada de quem ainda era útil. Kaelina tinha a sobrevivência vigiada de quem ainda valia como ameaça.
 
-O caminho pela Garganta Seca não era estrada. Era prova. A pedra estreitava a passagem, abria de repente, depois fechava outra vez. O chão mudava de barro duro para cascalho e de cascalho para lajes antigas partidas por raízes secas. Em certos pontos, marcas de luta ainda permaneciam. Uma lasca de lança entre pedras. Uma mancha escura que a chuva não lavara. Quando chegaram ao trecho onde a antiga Voz fora morta sob trégua, os Tondrar diminuíram o ritmo sem receber ordem.
+O caminho pela Garganta Seca não era estrada. Era prova. A pedra estreitava a passagem, abria de repente, depois fechava outra vez. O chão mudava de barro duro para cascalho e de cascalho para lajes antigas partidas por raízes secas. Em certos pontos, marcas de luta ainda permaneciam. Uma lasca de lança entre pedras. Uma mancha escura que a chuva não lavara. Quando chegaram ao trecho onde Dravun, a antiga Voz, fora morto sob trégua, os Tondrar diminuíram o ritmo sem receber ordem.
 
 Kaelina soube antes de alguém dizer.
 

@@ -42,7 +42,7 @@ Cheguei ao salão de cabeleireiro do Zeca, bróder antigo. Ele torceu o nariz.
 
 — Nem vem, Vini. Hoje não.
 
-Contei que meu pai tinha provado minha inocência e que a polícia me soltou. Zeca aceitou cortar meu cabelo, mas fez tudo tão depressa que parecia querer me expulsar dali.
+Contei que, depois de fugir dos policiais na casa, meu pai tinha me levado de volta à delegacia com o laudo do Pézinho. O legista confirmava a queda, não a paulada que me acusavam de ter dado. Sem prova contra mim, a polícia me soltou. Zeca aceitou cortar meu cabelo, mas fez tudo tão depressa que parecia querer me expulsar dali.
 
 Desci até a quadra onde a gente jogava todo domingo. Lá estavam o Pepeu, o Caneca, o Thiaguinho e mais uma galera. Eu precisava falar com eles, principalmente com o Thiaguinho e o Caneca. Sentei num canto. Assim que me viram, começaram a me olhar torto e cochichar. Fixei o olhar no Thiaguinho e esperei. Quando o time dele levou gol, ele saiu da partida e veio. Tinha um corte cicatrizando na bochecha que antes não existia.
 

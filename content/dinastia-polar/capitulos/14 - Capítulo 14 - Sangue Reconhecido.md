@@ -1,10 +1,8 @@
-Vetarius dormia num horário que nenhum soberano deveria dormir quando um dos funcionários dos aposentos bateu três vezes, esperou, e bateu de novo antes de entrar o suficiente para anunciar, em voz baixa e visivelmente incomodado com a própria função:
+Vetarius ainda dormia quando o criado bateu três vezes à porta e anunciou que o Sumo Vigia o esperava para uma audiência particular.
 
-— Vossa Soberania. O Sumo Vigia solicita uma audiência privada e aguarda do lado de fora.
+— Agora? — resmungou Vetarius.
 
-O Sumo Vigia aguardava do lado de fora. Não exigira entrada, embora tivesse autoridade para fazê-lo. Vetarius sentiu o estômago se apertar antes mesmo de estar completamente acordado. O velho conhecia bem demais o protocolo para que aquela visita fosse casual.
-
-Vestiu-se devagar demais de propósito, um pequeno ato de resistência que sabia inútil, e recebeu o Sumo Vigia na sala menor dos aposentos, ainda com a cabeça pesada da noite anterior e uma irritação que não tentou esconder.
+O homem continuou na soleira. Aquilo bastava. O Sumo Vigia não costumava vir aos aposentos do soberano para conversar sobre assuntos menores. Vetarius vestiu uma túnica, demorando-se de propósito nas fivelas, e recebeu o visitante na sala menor, ainda com dor de cabeça da noite anterior.
 
 — Bebida? — ofereceu, por hábito mais do que por hospitalidade real, já caminhando na direção da mesa onde mantinha os próprios frascos.
 
@@ -36,23 +34,21 @@ Deixou aquilo pesar no ar antes de continuar, as mãos cruzadas diante do corpo,
 
 — Ele não estava pensando no Livro da Permanência, Sumo. Estava pensando numa garota sendo espancada na rua.
 
-— E é exatamente por isso que o problema é maior, não menor. — A voz do Sumo continuava calma, sem nenhuma urgência, o que de alguma forma tornava tudo mais difícil de rebater. — Um homem que age por impulso hoje agirá por impulso amanhã, e depois, e depois disso. A Raiz não teme decisões erradas tomadas com frieza. Teme decisões certas tomadas sem nenhum respeito pela ordem que as permite existir.
+— E amanhã ele vai fazer a mesma coisa — respondeu o Sumo Vigia. — Não me preocupa só o que ele fez pela menina. Preocupa-me que milhares de pessoas tenham visto um homem ignorar uma ordem da Raiz e sair aclamado por isso.
 
-Vetarius sentiu, ouvindo aquilo, o contorno antigo de uma conversa que os dois já tinham, de formas diferentes, havia décadas: a divisão nunca resolvida entre o que pertencia ao trono e o que pertencia à Raiz, cada um cedendo ao outro o suficiente para que Kaeliran continuasse funcionando sem que nenhum precisasse admitir, em voz alta, que não controlava a cidade sozinho. Ele governava Kaeliran. O Sumo Vigia governava, com a mesma firmeza, tudo aquilo que Kaeliran acreditava sobre si mesma. Havia tempos em que os dois territórios pareciam a mesma coisa, e tempos, como aquele, em que a linha entre eles ficava dolorosamente visível.
+Vetarius conhecia aquela disputa desde muito antes de subir ao trono. Vetarius comandava guardas, estradas e leis. O Sumo Vigia decidia quem tinha direito a pertencer, quem podia casar, o que era pecado e que juramento valia perante a Raiz. Um soberano podia assinar uma ordem. Nem sempre conseguia fazê-la cumprir sem o Culto.
 
 — O que você quer, exatamente? — perguntou Vetarius, por fim, cansado o bastante para ir direto ao ponto.
 
 — Não vim pedir sua permissão para nada — respondeu o Sumo, sem agressividade, só a constatação de um fato. — Vim para que você soubesse, de mim, que uma nova interferência não poderá ser ignorada. Da próxima vez, a Raiz vai responder à altura do que for feito contra ela, com ou sem a aprovação do trono.
 
-O Sumo Vigia fizera a ameaça com a tranquilidade de quem anunciava o horário de um sino. Vetarius sabia que ele não estava blefando. Passara a vida cedendo território ao Culto em pequenas doses, em nome da paz que permitia governar sem brigar por tudo ao mesmo tempo, e só agora, diante daquele homem magro e calmo sentado em sua própria sala, via o tamanho do que tinha cedido.
+Vetarius encarou a taça. Não pretendia entregar Dareth aos tribunais religiosos, mas também não podia fingir que o Culto não tinha meios de agir sem sua autorização.
 
-Ainda assim, não ia entregar Dareth àquilo. Não depois de vinte anos de dívida que nunca tinha realmente terminado de pagar.
-
-— Ele é meu campeão — disse Vetarius, a voz endurecendo pela primeira vez desde que a conversa começara. — Metade de Kaeliran passou o dia de ontem carregando o nome dele na boca. Se você transformar Dareth Quatro-Dedos em alvo agora, um dia depois de eu apresentá-lo à cidade inteira como prova viva da força Polar, não vai parecer justiça religiosa. Vai parecer que a Raiz tem medo de um homem que protegeu uma criança.
+— Ele é meu campeão. — Vetarius pousou a taça. — A cidade inteira viu Dareth defender uma menina dos seus homens. Se a Raiz resolver puni-lo por isso, vão dizer que o Culto tem medo de Quatro-Dedos. É essa conversa que você quer nas ruas?
 
 O Sumo Vigia considerou aquilo por um momento mais longo do que qualquer coisa dita até ali.
 
-— Se acontecer de novo — disse Vetarius, aproveitando o silêncio —, trate-o como trataria qualquer outro Polar. Eu não vou defender um segundo incidente. Mas não transforme meu campeão num problema justamente agora que metade da cidade resolveu carregá-lo nos próprios ombros. Isso não serve a você, nem a mim, nem à Raiz.
+— Se acontecer outra vez, não vou defendê-lo — acrescentou Vetarius. — Mas agora, deixe esse assunto morrer. Não interessa nem a você nem a mim.
 
 Vetarius encerrou o assunto como encerrava tantos outros: com uma decisão suficiente para aquele dia. Antes que a conversa terminasse de esfriar, já puxava para perto outro documento.
 
@@ -98,17 +94,17 @@ O filho franziu a testa, a primeira reação genuína de confusão desde que Vet
 
 — É a mesma coisa.
 
-— Não é. — Vetarius partiu um pedaço de pão, sem pressa, deixando a explicação se formar do jeito que preferia formar qualquer explicação difícil, devagar, com espaço para o outro acompanhar. — Nular não é outro povo, Caeren. Não é uma dinastia rival, não é uma linhagem estrangeira que decidiu viver dentro das nossas muralhas. É uma classificação. A condição de quem vive sob domínio Polar sem possuir uma linhagem reconhecida como Polar.
+— Não exatamente. Nular é a classificação de quem vive sob nosso governo sem pertencer a uma linhagem Polar reconhecida. Não é uma dinastia de estrangeiros, dessas que mandam emissários e soldados. É gente que trabalha e mora aqui, sob as nossas leis.
 
 — Então são de fora.
 
-— Muitos nasceram aqui. Alguns têm pais e avós que nasceram aqui, que nunca conheceram nenhuma outra cidade além desta. — Vetarius fez uma pausa, deixando aquilo assentar. — Uma pessoa pode ser kaelirana e Nular ao mesmo tempo. E um Polar pode nascer longe daqui, do outro lado de Jesed, e continuar Polar, desde que a linhagem seja reconhecida.
+— Tem Nular cujo avô já nasceu em Kaeliran. E tem Polar que nunca pisou nesta cidade, mas continua Polar porque a família tem o nome reconhecido. Nascer aqui não resolve isso.
 
 Caeren pareceu confuso, não por estupidez:  pela primeira vez um sistema em que sempre acreditara sem examinar precisava fazer sentido lógico.
 
 — Isso não faz sentido. Como alguém nasce aqui e não é daqui?
 
-— Porque cidade e Dinastia são coisas diferentes. — Vetarius bebeu um gole de água. — Kaeliran dá muralha, mercado, trabalho, proteção. Isso não torna ninguém Polar. Um Nular pode nascer aqui, viver aqui a vida inteira e continuar Nular. Hoje, quem carrega o nome é decidido por sangue reconhecido e registro. É assim que a cidade sabe quem pertence à Dinastia.
+— Porque nascer numa cidade não significa entrar numa dinastia. Kaeliran dá muralhas, mercado e trabalho. O nome Polar vem de linhagem reconhecida e registro. São coisas diferentes, por mais que você queira juntá-las.
 
 — Então é injusto que alguém nasça aqui e nunca seja Polar.
 
@@ -132,21 +128,21 @@ Caeren pensou por um instante, a testa ainda franzida.
 
 — Conheço o nome. Nunca entendi por que é importante.
 
-— Orionus governou há mais de quatrocentos ciclos, muito antes de Kaendar virar Kaeliran. Os relatos antigos nem concordam em todos os detalhes, alguns falam só em água, outros em pão também. O que permaneceu foi o gesto. — Vetarius recostou-se. — Emissários inimigos entravam com bandeira de paz, estudavam as defesas e voltavam depois sabendo onde bater. Orionus não fechou os portões. Passou a obrigar todo emissário a comer e beber ali, diante dos dois lados, antes de entrar.
+— Orionus governou há mais de quatrocentos ciclos, antes de Kaendar virar Kaeliran. Emissários de povos inimigos entravam sob bandeira de paz, estudavam nossas defesas e depois voltavam com um exército. Orionus não fechou os portões. Exigiu que comessem e bebessem junto dos anfitriões, ali, diante de todos, antes de entrar. Alguns relatos falam de pão e água. Outros mencionam apenas água.
 
-— E isso resolveu tudo?
+— Isso acabou com as traições?
 
-— Isso não resolveu nada sozinho. — Vetarius balançou a cabeça, um sorriso pequeno aparecendo. — Mas envenenar comida na frente de quem vai comer junto é muito mais difícil do que envenenar depois, escondido, e qualquer emissário que se recusasse a comer diante do portão já estava confessando alguma coisa sem dizer uma palavra. Não impediu toda traição. Só tornou a traição mais cara e mais visível.
+— Não. Mas se alguém se recusasse a comer, já levantava suspeita. E tentar envenenar alguém naquela mesa ficava mais arriscado. Orionus não tornou ninguém honesto. Tornou mais difícil trair sem que os outros percebessem.
 
 Caeren esperou, sem parecer particularmente impressionado.
 
 — Só isso? Uma regra sobre pão?
 
-— Só isso. — Vetarius apontou para ele com o pedaço de pão. — E quatrocentos ciclos depois, você, que nunca estudou aquele período com atenção, ainda sabe o nome da lei. Esse é o ponto, Caeren. Orionus não precisou mudar Jesed inteira de uma vez. Criou uma coisa pequena, específica, difícil de ignorar, e ela continuou funcionando muito depois que ele morreu, porque as pessoas continuaram vendo motivo pra obedecer a ela.
+— Só isso. Quatrocentos ciclos depois, você ainda sabe o nome da lei. Não porque Orionus resolveu todos os problemas de Jesed, mas porque fez uma regra que continuou útil quando ele morreu.
 
 Deixou aquilo pairar por um momento antes de terminar.
 
-— Governar não é decidir o que devia ser verdade. É entender o que uma cidade inteira ainda vai estar disposta a sustentar daqui a cem ciclos, quando você já não estiver mais aqui para exigir nada.
+— Se você quiser mudar alguma coisa quando for soberano, pense em como vai fazer as pessoas continuarem obedecendo depois que você morrer.
 
 Caeren ficou em silêncio por mais tempo do que Vetarius esperava, olhando para o próprio prato sem vê-lo.
 
@@ -158,7 +154,7 @@ Selina estava revisando um mapa de rotas cerimoniais que já não serviam para n
 
 Selina não esperava um pedido de audiência de Dareth. Recebeu-o numa sala pequena de reuniões. Ele entrou indiferente ao efeito da própria presença, o que tornava mais difícil ignorá-lo.
 
-— Prometi a uma garota que ia descobrir o que aconteceu com o irmão dela — disse Dareth, sem preâmbulo. — Nular. Preso pelo Culto há mais de uma semana, junto com dois amigos, por causa de registros desaparecidos de uma Casa da Permanência.
+— Dei minha palavra a uma menina — disse Dareth, entrando. — O irmão dela foi preso pelo Culto junto com dois amigos. Faz mais de uma semana. Estão falando de uma caixa de registros que sumiu.
 
 — Elis.
 
@@ -166,7 +162,7 @@ Dareth pareceu genuinamente surpreso, uma pausa pequena antes de continuar.
 
 — Você a conhece.
 
-— Conheço — confirmou Selina. Lembrou-se da garota atrás dos caixotes, da pergunta sobre o próprio poder. — Já a peguei mais de uma vez em lugares onde ela não deveria estar. Cidade Intermediária, Cidade Interna, sempre circulando sem autorização, sempre com uma desculpa nova. Ela é, para fins práticos, uma pequena calamidade administrativa que anda por conta própria.
+— Conheço. Já encontrei essa menina na Cidade Intermediária, depois na Interna, sempre sem permissão. Tem treze ciclos e parece achar que portão é um convite. Uma calamidade administrativa ambulante.
 
 — Ela está sozinha havia dias. Comendo mal, ou nem isso. — Dareth sentou-se sem esperar convite, ocupando a cadeira do jeito que ocupava qualquer espaço, sem esforço para parecer menor do que era. — E quando teve diante dela alguém que podia ajudar de verdade, ela não pediu dinheiro. Não pediu comida, não pediu uma casa melhor, não pediu nada pra si mesma. Pediu pelo irmão.
 
@@ -184,7 +180,7 @@ Selina considerou aquilo, e a lembrança da própria pergunta feita a Elis, dias
 
 — Você acabou de dizer que a conhece. — Dareth não levantou a voz, mas a insistência não deixava espaço para Selina fechar o assunto com facilidade. — Eu dei minha palavra a essa garota, diante de metade da Cidade Exterior. Não vim aqui pedir um milagre. Vim descobrir por onde começar.
 
-Selina ficou em silêncio por um momento, menos irritada com a insistência do que gostaria. Havia algo incômodo em ver um homem daquele tamanho, com aquela reputação, sentado ali insistindo por uma garota Nular como se ela importasse tanto quanto qualquer conselheiro, e o incômodo, ela reconheceu, não vinha de Dareth. Vinha do fato de que ela própria já tinha pensado naquele caso antes, depois do encontro com Elis no pátio, e decidido que não valia o esforço de investigar mais fundo.
+Selina se lembrou de Elis atrás dos caixotes, perguntando para que servia o poder dela. Dareth não estava exigindo que soltasse Kalan por decreto. Queria que ela tentasse.
 
 — Se querem mudar a posição do irmão dela — disse, por fim, mais para si mesma do que para Dareth —, primeiro precisamos entender por que o Culto continua tratando esse caso como algo tão grave. Uma agressão comum já teria se resolvido com multa. O que sustenta tudo isso é a caixa desaparecida.
 
@@ -238,7 +234,7 @@ Kalan ficou em silêncio por um momento, algo entre alívio e descrença atraves
 
 — Eu não sei. Já disse isso várias vezes. — A voz de Kalan saiu mais dura do que pretendia, o cansaço de repetir a mesma frase sem nunca ser acreditado transbordando por cima da educação. — Ninguém acredita, mas eu não sei.
 
-— Eu acredito que você não sabe onde ela está agora — disse Selina, sem se alterar. — Isso não é a mesma coisa que dizer que ninguém sabe.
+— Acredito que você não saiba onde ela está agora. Mas alguém pode ter encontrado os papéis depois que você os escondeu.
 
 Kalan não respondeu na hora, e Selina deixou o silêncio correr antes de mudar de direção, do jeito que fazia quando pressionar diretamente parava de render. Não adiantava insistir na pergunta que Hadris já fizera dezenas de vezes. Adiantava reconstruir.
 
@@ -246,15 +242,15 @@ Kalan não respondeu na hora, e Selina deixou o silêncio correr antes de mudar 
 
 Kalan pareceu pego de surpresa pela mudança, mas respondeu.
 
-— Tair. Orel. Minha irmã. Karesis, quando estava por perto.
+— Tair, Orel, a Elis... E o Karesis, quando aparecia em casa.
 
 — Tair primeiro. Se ele tivesse visto alguma coisa, teria falado?
 
-— Provavelmente. — Um traço de tristeza atravessou o rosto de Kalan ao dizer aquilo, como se a própria resposta já doesse antes de terminar de ser dita. — Ele acha que contar a verdade resolve as coisas. Sempre achou.
+— Falava, sim. — Kalan baixou o olhar. — O Tair acredita que contar tudo resolve. Sempre acreditou.
 
 — Orel?
 
-— Ele nem repararia. Não é o jeito dele prestar atenção em fundo falso de caixote de grão.
+— Ele nem ia notar. Não liga pra fundo falso em caixote de grão.
 
 — Karesis?
 
@@ -308,7 +304,7 @@ Ele suspirou, o tipo de suspiro de quem já desistiu de decidir sozinho o que im
 
 — Não sei os nomes de todos. Filhos da Raiz, dois ou três. — Kalan hesitou de novo, como quem decide se vale a pena acrescentar mais alguma coisa. — Tinha uma caixa, naquele mesmo dia, que pesava menos do que o registro dizia. O selo estava intacto. Achei estranho na hora, mas também achei que fosse só gente importante encontrando um jeito de trabalhar mais rápido, porque o cais tinha ficado impossível com o torneio chegando. Não pensei muito além disso.
 
-Selina ouviu tudo em silêncio, mantendo o rosto tão parado quanto em qualquer reunião onde precisava pensar mais rápido do que deixava transparecer, mas por dentro sentiu a informação se instalar num lugar que não tinha nada a ver com Kalan, nem com a caixa de Roven. Para ele, aquilo era só mais uma peça da bagunça que o torneio espalhara por Kaeliran. Para ela, que vivia administrando fluxos, autorizações e responsabilidades, aquilo significava outra coisa: alguém tinha conseguido criar uma camada inteira de circulação na cidade em que uma autoridade confiava cegamente no selo de outra, sem verificar nunca o que realmente estava dentro.
+Selina pensou nas autorizações de circulação noturna que Amira lhe mostrara, nos selos repetidos e nas cargas cujos destinos mudavam depois da entrada. O que Kalan ouvira explicava como uma caixa podia sair da Balança Azul sem ser aberta novamente pela Raiz. Ainda não provava que alguém tivesse usado o acordo para esconder coisa alguma.
 
 Não puxou o fio ali. Não perguntou mais nomes, nem datas exatas. Guardou o que tinha ouvido e voltou, deliberadamente, para o que a tinha levado até ali.
 
@@ -324,7 +320,7 @@ Selina olhou para ele por um instante mais longo do que a frase exigia. Não est
 
 Kalan pareceu genuinamente surpreso.
 
-— Você claramente não está bem — disse Selina, sem crueldade, só com a clareza seca de quem diz o que precisa ser dito sem enfeite. — Não vou mentir pra ela sobre isso. Se quiser, posso dizer outra coisa.
+— Olhe para você, Kalan. Se eu disser que está bem, ela não vai acreditar. Posso levar outro recado.
 
 Kalan considerou aquilo por um momento, algo se ajustando devagar no próprio pedido.
 

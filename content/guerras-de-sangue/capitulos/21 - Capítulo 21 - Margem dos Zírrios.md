@@ -1,16 +1,14 @@
-Os Glydar sempre tinham acreditado que uma margem baixa era melhor do que uma cabeça erguida demais.
+Na Margem dos Zírrios, crianças aprendiam a respeitar a cheia antes mesmo de saber remar. Barco pequeno não avançava contra corrente forte. Água parada podia esconder nharca de escama negra e ninguém enfiava a mão num poço onde vivia bocarra. Era assim que os mais velhos ensinavam prudência, com exemplos que às vezes terminavam em dedos perdidos. Aprendiam a observar as duas luas antes de confiar numa estaca de amarração. Quando se aproximavam no céu, a maré dupla fazia o Rio Grande subir sobre o lodo e empurrava embarcações contra pontos que, horas antes, pareciam seguros. Também evitavam os ninhos de lurélia presos às raízes. As aves defendiam os ovos com o bico e com gritos que acordavam metade da margem. Para os Glydar, sobreviver à próxima cheia já era razão suficiente para escutar os mais velhos.
 
-Não diziam isso em voz alta diante de estrangeiros, porque estrangeiro gostava de transformar prudência em insulto. Mas toda criança da Margem dos Zírrios aprendia cedo que barco pequeno não desafia cheia, que água imóvel pode esconder nharca de escama negra, que quem não tem cais não grita com dono de ponte, que mão descuidada não procura fundo em poço onde vive bocarra, e que o rio engolia mais depressa os orgulhosos do que os humildes. Aprendia também a olhar para as duas luas antes de confiar numa estaca de amarração: quando se aproximavam no céu, a maré dupla fazia o Rio Grande subir mais sobre o lodo e empurrava embarcações contra lugares que, horas antes, pareciam seguros. Também aprendiam a não tocar nos ninhos de lurélia presos às raízes, porque as aves defendiam os ovos com o bico e com um grito capaz de acordar metade da margem. Para os Glydar, sobreviver à próxima cheia já era razão suficiente para escutar os mais velhos.
+Antes de uma viagem longa, os Glydar molhavam uma fibra no rio de casa e a levavam presa ao pulso ou ao cinto. Se secasse, procuravam outra água corrente. Não chamavam aquilo de amuleto. Era apenas o cordão de quem saíra da margem.
 
-Aprendiam outra coisa quando chegava a idade de sair dali. Antes de uma viagem longa, molhavam no rio um cordão curto de fibra de margem e o prendiam ao pulso ou ao cinto. Não chamavam aquilo de amuleto. Glydar desconfiavam de palavras grandes demais. Diziam apenas que era mais difícil esquecer de onde se vinha quando ainda se carregava um pouco da água de casa. Em estrada seca, apertavam a fibra antes de decisões importantes e procuravam água corrente para umedecê-la de novo quando secava.
-
-Naquela manhã, porém, a vida parecia mais cara do que o costume permitia pagar. O óleo não manchava a Margem dos Zírrios. Nharcas de escama negra ainda rompiam a superfície junto aos pilares, caçando nas águas que continuavam limpas. Garças de lodo caminhavam entre as estacas com as pernas mergulhadas até a metade, indiferentes ao medo dos homens. Esse era justamente o problema.
+Naquela manhã, nenhuma dessas lições ajudava a explicar os homens de Kaendar que vinham pela estrada. O óleo não manchava a Margem dos Zírrios. Nharcas de escama negra ainda rompiam a superfície junto aos pilares, caçando nas águas que continuavam limpas. Garças de lodo caminhavam entre as estacas com as pernas mergulhadas até a metade, indiferentes ao medo dos homens. Esse era justamente o problema.
 
 A água diante da aldeia ainda corria com a cor escura e verdeada de sempre, embora a erva-de-cheia estivesse florescendo cedo demais nas margens. Numa das casas próximas ao cais, uma panela de alga-de-zírrio com raiz esfriava sem que ninguém se lembrasse de comê-la. Os barcos balançavam no cais menor, as redes de fibra de margem secavam mal estendidas por causa da umidade, e os nharvos pequenos ainda brilhavam nos cestos como se o rio não tivesse sido ferido em lugar algum.
 
 Mas rio abaixo, já depois das curvas que levavam às terras controladas pelos Polar, o Rio Grande chegara a Kaendar sujo.
 
-Placas escuras, grossas e lentas tinham descido pela água como pele morta, prendendo folhas, bichos de margem, penas, pequenos peixes e restos de lodo numa película que cheirava a forno apagado, couro queimado e forja distante. Para os Polar, o fato de a Margem dos Zírrios estar limpa não inocentava os Glydar. Tornava-os mais suspeitos. Varael Glydar estava no cais menor quando viu os homens Polar chegarem. Não eram poucos.
+Placas escuras, grossas e lentas tinham descido pela água como pele morta, prendendo folhas, bichos de margem, penas, pequenos peixes e restos de lodo numa película que cheirava a forno apagado, couro queimado e forja distante. Para os homens de Kaendar, a água limpa diante das casas Glydar só aumentava as suspeitas. Varael Glydar estava no cais menor quando viu os homens Polar chegarem. Não eram poucos.
 
 Vieram pela margem alta em linhas escuras, montados em tarraks, com capas pesadas de chuva seca, lanças curtas, escudos de Kaendar e a postura de quem pisa em terra alheia como se estivesse medindo onde colocará a próxima estaca. A primeira fila desceu pela estrada de barro batido. A segunda abriu-se perto dos depósitos de rede. Outra foi direto para as pontes laterais. Homens com cordas tomaram posição junto aos barcos maiores antes que qualquer Glydar entendesse se aquilo era visita, acusação ou começo de guerra.
 
@@ -90,11 +88,11 @@ Lutharus virou o rosto para ele.
 
 Varael sentiu o calor subir pelo pescoço. Era raiva. E era medo de que todos vissem.
 
-— Por que os Glydar enviariam aviso a Kaendar, se Kaendar não envia nada aos Glydar há anos, exceto cobrança e acordo que só beneficia suas terras?
+— Kaendar só lembra da gente para cobrar. Agora quer que a gente vigie o rio por vocês também?
 
 O silêncio que veio depois não foi medo apenas. Foi o som de uma margem inteira percebendo que Varael dissera uma coisa verdadeira no pior momento possível. Lutharus aproximou-se mais um passo. Então Saela Glydar apareceu.
 
-Ela vinha da ponte lateral, com a saia úmida presa para não arrastar no lodo, cabelo escuro enrolado em cordas finas, rosto pálido de quem já ouvira o suficiente. Era irmã de Ossar e mãe de Varael, embora naquele instante tentasse parecer apenas alguém mais velha, menos perigosa, mais aceitável para homens que preferiam bater em jovens.
+Ela vinha da ponte lateral, com a saia úmida presa para não arrastar no lodo, cabelo escuro enrolado em cordas finas, rosto pálido de quem já ouvira o suficiente. Era irmã de Ossar e mãe de Varael. Aproximou-se com as mãos à vista, tentando falar antes que algum guarda puxasse uma lâmina.
 
 — Meu filho quis dizer que a mensagem estava sendo preparada — disse ela. — O rio mudou depressa. Não há vilas grandes abaixo, mas há pessoas que vivem às margens. Há velhos doentes, redes perdidas, peixe morto. Não somos inimigos de Kaendar.
 
@@ -118,7 +116,7 @@ Dois homens avançaram. Varael não recuou, talvez porque fossem minoria ou porq
 
 Ninguém obedeceu de imediato.
 
-— Abaixem as armas! — A voz dela quebrou no meio, mas continuou forte. — Não vamos causar problemas.
+— Abaixem as armas! — A voz dela quebrou no meio, mas continuou forte. — Tem criança atrás de vocês. Guardem isso!
 
 Varael olhou para ela, ferido.
 
@@ -146,7 +144,7 @@ Mandou amarrá-lo. Saela tentou se soltar das mulheres que a seguravam, mas algu
 
 — Estes barcos ficam sob custódia de Kaendar. Os grandes, os médios e os de carga leve. Quero os remos marcados, as cordas recolhidas, os depósitos de sal abertos e os mantimentos contados.
 
-Um rumor de horror atravessou os Glydar. Não os barcos grandes apenas, mas também os médios, os de carga leve, os de rede profunda, os que carregavam peixe, sal, criança, morto e promessa. Para um Polar, tomar barco era medida militar. Para um Glydar, era arrancar perna de povo inteiro.
+Os Glydar olharam para os barcos maiores, depois para os menores, os de rede profunda e os de carga leve. Era com eles que pescavam, levavam mantimentos, atravessavam crianças e transportavam os mortos. Confiscá-los deixaria a aldeia quase sem trabalho e sem passagem.
 
 — Não podem — disse Saela, com a voz rouca.
 
@@ -160,7 +158,7 @@ O que não podiam levar inteiro, marcaram. O que não podiam remar, prenderam. O
 
 A Margem dos Zírrios ficou parada vendo. Ninguém disparou flecha, ninguém saltou sobre os guardas, ninguém se atirou no rio para cortar caminho.
 
-Os Glydar fizeram aquilo que tinham feito por gerações quando um clã maior mostrava dentes: sobreviveram ao instante. Só que, desta vez, sobreviver parecia muito parecido com morrer devagar. Saela ficou no cais até os últimos barcos desaparecerem rio abaixo.
+Ninguém enfrentou os guardas. Enquanto os barcos desapareciam, os pescadores começaram a contar quantos dias de comida restavam. Saela ficou no cais até os últimos barcos desaparecerem rio abaixo.
 
 A água escura batia nas estacas, dobrando as pequenas flores da erva-de-cheia sem arrancá-las do lodo.
 
@@ -294,7 +292,7 @@ Ossar olhou para ela.
 
 — Então não irão perceber.
 
-Era uma frase fraca tentando vestir roupa de plano. Mesmo assim, foi o que fizeram.
+Saela percebeu que Ossar não tinha outro plano. Mesmo assim, deixou que os homens partissem.
 
 Durante três dias, Ossar preparou uma tentativa de resgate com cuidado demais. Escolheu homens que nadavam contra a corrente, barqueiros de Veyra-d’Água que sabiam atravessar canais sem lanterna, dois jovens das Pontes Suspensas que cortavam corda sem fazer madeira gemer e uma mulher de Mavren Baixa que conhecia lodo pelo cheiro.
 
@@ -304,7 +302,7 @@ Saela observou tudo. Não criticou, nem elogiou, apenas observou. Na terceira no
 
 Ele não respondeu de imediato.
 
-— Se eu for e morrer, a Margem fica sem voz.
+— Se eu morrer, quem vai responder pelos outros quando Kaendar voltar?
 
 — A Margem já está sem barcos. Até as redes de nharca foram cortadas para reforçar amarras e carregar feridos.
 
@@ -392,9 +390,9 @@ A frase acertou Ossar com mais força do que insulto.
 
 Lutharus sorriu.
 
-— Tenho algumas perguntinhas a fazê-lo.
+— Tenho perguntas. E você vai responder.
 
-Mandou que o levassem para o meio do acampamento. Lorde Ossar não foi amarrado de início. Isso era pior. Homens sem corda às vezes ainda achavam que tinham escolha. Lutharus parou diante dele, perto bastante para que todos ouvissem.
+Mandou que levassem Ossar para o meio do acampamento. Não o amarraram de início. Ossar olhou para os guardas em volta e percebeu que não teria para onde correr. Lutharus parou diante dele, perto bastante para que todos ouvissem.
 
 — Quem está com vocês?
 
@@ -436,7 +434,7 @@ Ossar falou. Falou porque tinha medo, porque queria Varael solto, porque ainda a
 
 Disse que Rendar juntara Tondrar, que Buldar tinham ido até Varkhama, que os Vendrar tinham prometido armas, óleo, metal, talvez homens, que os Glydar foram pressionados, enganados, arrastados. Mentiu onde pôde.
 
-Aumentou a ameaça de Rendar. Diminuiu a vontade dos Glydar. Colocou culpa nas mãos dos outros clãs como quem distribui peso sobre tábuas diferentes para que nenhuma quebre sozinha. Lutharus ouviu tudo. Depois mandou chamar três cavaleiros.
+Aumentou a ameaça de Rendar. Diminuiu a vontade dos Glydar. Colocou culpa nas mãos dos outros clãs como quem distribui peso sobre tábuas diferentes para que nenhuma quebre sozinha. Lutharus ouviu tudo. Depois mandou chamar três mensageiros montados em tarraks.
 
 — Para Kaendar — disse. — Direto. Sem parar em vila. Digam à soberana Alyra que o lorde Glydar confirmou aliança entre o último Fendelar, Tondrar, Buldar e apoio Vendrar. Digam que os Glydar alegam coerção, e que Ossar e o rapaz serão levados para julgamento por traição assim que eu terminar a contagem dos barcos.
 
@@ -494,11 +492,11 @@ Não vinham em linha bonita. Vinham como homens que tinham esperado tempo demais
 
 Um Polar espetou um Tondrar no ombro. O Tondrar segurou a lança com a própria mão, avançou sobre a dor e quebrou o nariz do homem com a testa. Depois vieram os Buldar. A terra tremeu antes deles aparecerem.
 
-Bravões entraram pela parte sul do acampamento, pesados, assustados pelo fogo, conduzidos por homens de couro grosso e capas presas ao corpo. Não vinham como cavalaria. Vinham como parede viva empurrando caos. Atrás deles, Ceifadores de Campo mantinham formação curta, escudos simples, espadas médias, arcos protegendo os flancos. Moviam-se com método, sem a ferocidade dos Tondrar ou a alegria terrível dos Vendrar. Fechavam caminho. Cortavam retirada. Protegiam carroças de mantimento que já mudavam de dono.
+Bravões entraram pela parte sul do acampamento, pesados, assustados pelo fogo, conduzidos por homens de couro grosso e capas presas ao corpo. Não avançavam numa formação de montaria. Os bravões abriam caminho com o próprio peso, enquanto seus condutores tentavam manter a direção. Atrás deles, Ceifadores de Campo mantinham formação curta, escudos simples, espadas médias, arcos protegendo os flancos. Moviam-se com método, sem a ferocidade dos Tondrar ou a alegria terrível dos Vendrar. Fechavam caminho. Cortavam retirada. Protegiam carroças de mantimento que já mudavam de dono.
 
 Um Polar tentou correr entre dois bravões. Um deles girou a cabeça pesada e lançou o homem contra uma tenda.
 
-Ossar viu tudo preso à estaca. Não como líder, mas como homem pequeno diante de uma cheia.
+Ossar acompanhou o combate preso à estaca, incapaz de alcançar Varael ou os próprios homens.
 
 Os Polar lutaram bem onde conseguiram juntar-se. Eram homens de Kaendar. Tinham treino, disciplina, aço melhor que a maioria, e uma arrogância fundada em vitórias antigas. Um grupo fechou escudos perto dos barcos e segurou três investidas. Outro recuou para a margem elevada e abriu espaço com lanças. Um terceiro Kae cortou dois Tondrar antes de uma flecha Buldar entrar pela lateral do pescoço.
 
@@ -574,7 +572,9 @@ A palavra saiu pequena. Depois saiu de novo, menor ainda.
 
 Pegou a mão de Varael. Estava fria demais para uma noite de fogo.
 
-— Meu sobrinho… não, por favor… meu menino… — disse ele, embora Varael não fosse seu filho. Talvez, naquele instante, fosse. Ossar encostou a testa nos dedos do rapaz.
+— Varael… não, por favor… meu menino…
+
+Ossar encostou a testa nos dedos do sobrinho.
 
 — Desculpa. Desculpa. Desculpa.
 
@@ -626,11 +626,11 @@ Rendar tocou o braço dele. Não com força. Com aviso. O Tondrar soltou. Rendar
 
 Rendar levantou-se. O fogo iluminava metade de seu rosto. A outra metade ficava escura demais. Ele olhou para os Buldar.
 
-— Se Nynestra não voltou, os Buldar estão sem mão.
+— Se Nynestra não voltar, quem vai falar pelos Buldar?
 
 Depois olhou para os Tondrar.
 
-— Torgun sabia dos riscos. É só mais uma razão para Tondrar queimar Kaendar.
+— Se Torgun morreu nessa emboscada, os Tondrar vão querer resposta. Precisamos descobrir o que houve antes que os Urtistar escapem.
 
 Os Tondrar trocaram olhares duros. Rendar continuou:
 
@@ -660,7 +660,7 @@ Hadrun olhou para o acampamento destruído.
 
 Rendar encarou-o.
 
-— Então diga que os Polar sangraram esta noite e que os Buldar participaram disso. Isso compra atenção.
+— Diga que tomamos de volta os barcos Glydar e derrotamos os homens de Lutharus. Os Buldar lutaram aqui. Eles vão querer ouvir como.
 
 O velho ficou em silêncio. Depois assentiu uma vez. Rendar virou-se para os Tondrar.
 
@@ -706,11 +706,11 @@ O fogo estalou atrás dele.
 
 Ele desceu da carroça com um salto curto e caminhou até o corpo de Lutharus. Pegou o anel escuro do dedo queimado com um pano. Ergueu-o.
 
-— Isto é o dedo de uma lenda?
+— Era esse anel que tornava Lutharus invencível?
 
 Ninguém respondeu. Rendar jogou o anel na lama.
 
-— Não. É ferro. E ferro afunda.
+— Não. Era um homem. E morreu aqui.
 
 Um murmúrio cresceu.
 
@@ -724,7 +724,7 @@ Rendar sustentou o olhar.
 
 — Mas ouça bem, Ossar Glydar. Chore por teu morto. Lave tua cara. Enterre ou entregue ao rio como tua gente faz. Depois escolha pela última vez. Ou a Margem dos Zírrios entra nisto de pé, ou será tratada como qualquer margem que sirva a Kaendar.
 
-Ossar apertou a mão morta de Varael. Por um instante, pareceu que fosse quebrar. Então olhou para o sobrinho, depois para os barcos, e por fim para o corpo de Lutharus. A voz dele saiu rouca.
+Ossar apertou a mão fria de Varael. Seus ombros tremeram, mas não soltou os dedos. Então olhou para o sobrinho, depois para os barcos, e por fim para o corpo de Lutharus. A voz dele saiu rouca.
 
 — Glydar está com você.
 
@@ -732,6 +732,6 @@ Rendar assentiu. Tavra desceu do barril e chutou de leve o corpo de um soldado P
 
 — Quantos cabem num barco? — perguntou.
 
-Rendar olhou para o rio. Rio abaixo ficava Kaendar. A cidade dos anéis, dos registros, das soberanas, das portas antigas, dos conselheiros que ainda talvez discutissem palavras enquanto a noite começava a trazer corpos. O fogo refletia na água em linhas quebradas. Parecia que o Rio Grande aprendia a arder.
+Rendar olhou rio abaixo, na direção de Kaendar. O fogo dos barris queimados tremia na água, entre cordas rompidas e pedaços de madeira.
 
 — Preparem os barcos — disse Rendar. — É hora do cerco.

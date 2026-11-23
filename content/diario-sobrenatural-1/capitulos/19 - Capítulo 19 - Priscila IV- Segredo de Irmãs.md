@@ -134,7 +134,7 @@ No intervalo, Jason veio atrás de mim.
 
 Aquilo me pegou de surpresa. Olhei para ele.
 
-— Era só uma criança. Morava com meu pai no Rio, e você sabe como as coisas são por lá. Levou uma bala perdida. Morreu na hora. Todo dia me pergunto por que uma criança foi levada de forma tão bruta, e às vezes penso que seja lá qual for a força que governa o mundo, ela nunca tá do lado de quem precisa.
+— Era só uma criança. Morava com minha mãe no Rio, e você sabe como as coisas são por lá. Levou uma bala perdida. Morreu na hora. Todo dia me pergunto por que uma criança foi levada de forma tão bruta, e às vezes penso que seja lá qual for a força que governa o mundo, ela nunca tá do lado de quem precisa.
 
 — Por que você tá me falando isso? — joguei o corpo para trás na cadeira.
 

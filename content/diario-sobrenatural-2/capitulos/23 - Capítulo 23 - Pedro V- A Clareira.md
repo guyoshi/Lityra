@@ -336,41 +336,79 @@ Ele apareceu na escada, confuso, abrindo a boca para perguntar qualquer coisa.
 
 Saímos da casa quase correndo.
 
-Do lado de fora, o ar estava diferente. Mais pesado. A garoa fina começava a cair, formando um véu cinzento entre as árvores. Jennifer parou, os olhos varrendo o espaço ao redor. Eu não via nada além da floresta, mas pelo modo como os ombros dela se tensionaram, eu soube.
+Do lado de fora, o ar estava diferente. A garoa caía fina sobre os degraus, e os vidrinhos pendurados no portão tilintavam com o vento. Ouvi aquele som até começarmos a atravessar o caminho. Depois ele parou de uma vez, embora o vento continuasse batendo nas árvores.
 
-Ela estava os vendo.
+Jennifer diminuiu o passo e olhou para a floresta. Filipo passou à frente dela.
 
-Então corremos. A floresta parecia maior agora, como se tivesse crescido enquanto não olhávamos. A garoa virou chuva fina, o chão escorregadio. Eu corria tentando acompanhar, mas o corpo começou a cobrar. O ar faltava, as pernas pesavam.
+— O que foi? — perguntei.
 
-— Gente… — eu chamei, arfando. — Peraí…
+— Nada que eu consiga explicar agora — ela respondeu. — Só não fica para trás.
 
-Eles continuaram por alguns metros e se afastaram. A neblina se fechou rápido demais. Em segundos, eu já não os via mais.
+Claro. Uma das melhores frases para se dizer a um sujeito que já tinha dificuldade de acompanhar duas pessoas caminhando, quanto mais correndo.
 
-— Jennifer? Filipo? — chamei, a voz ecoando errada entre as árvores.
+Entramos entre as árvores. A chuva engrossou depressa. Meu tênis afundava na terra, saía com um estalo molhado e afundava outra vez. Jennifer e Filipo corriam poucos passos adiante. Eu conseguia distinguir a voz dos dois, mas não as palavras; o barulho da chuva engolia as sílabas no meio.
 
-Só o som da chuva respondia.
+— Gente... — chamei, tentando recuperar o fôlego. — Espera!
 
-Então ouvi.
+Uma pontada atravessou meu peito. Parei junto a um tronco, com a mão sobre as costelas, contando as respirações até poder dar outro passo. Quando ergui os olhos, não vi mais ninguém.
+
+— Jennifer? Filipo?
+
+Ouvi três passos à minha direita. Apressados, claros, como os de alguém voltando para me buscar.
+
+— Jen?
+
+Os passos pararam. Esperei ouvir uma resposta ou o barulho de um galho. Em vez disso, veio um ruído pequeno e arrastado, como um sapato sendo puxado pelo chão. Olhei para onde o som tinha vindo. A chuva caía sobre folhas imóveis. Não havia ninguém ali.
+
+Dei alguns passos para trás. O ruído mudou de lugar e surgiu à minha esquerda, perto demais. Senti a pele da nuca arrepiar. Eu conhecia o som da Jennifer correndo e o passo mais pesado do Filipo. Aquilo não era nenhum dos dois.
+
+A mata ficou silenciosa. Não a chuva, que continuava molhando meu rosto, mas todos os ruídos por baixo dela. Não havia bichos, nem folhas raspando umas nas outras. A minha respiração parecia alta demais. Então ouvi duas pancadas, secas, vindo de algum lugar onde não havia árvore nem parede.
 
 TUM. TUM.
 
-Um som que parecia vir de dentro da minha cabeça. Era ele. Imediatamente corri.
+Corri.
 
-As árvores se abriram de repente e eu entrei numa clareira. A lua aparecia entre as nuvens, pálida, iluminando o espaço com uma luz doente. A relva estava achatada em círculos estranhos, como se algo tivesse se arrastado ali repetidas vezes. Meus olhos pararam em uma sombra escura perto das árvores. Não era uma sombra. Ele se mexia, caminhava em minha direção.
+Saí da mata tão depressa que nem percebi quando o terreno mudou. A relva de uma clareira estava achatada em círculos, como se alguma coisa pesada tivesse sido arrastada ali repetidas vezes. A lua aparecia entre as nuvens. Parei para procurar uma trilha, uma cerca, qualquer coisa que me dissesse para onde ir.
 
-A pele úmida refletia a luz da lua. O rosto pingava larvas. Quando ele começou a se aproximar, foi em passos largos demais para o tamanho do corpo.
+Atrás de mim, um galho estalou.
+
+Virei. Não havia ninguém entre as árvores. Um segundo depois, algo escorreu de um ramo baixo e caiu no chão com um ruído úmido. Uma larva. Depois outra.
+
+O corpo estava na clareira. Eu não o tinha visto chegar. Era alto, pálido, nu, com a pele aberta em lugares onde não deveria haver abertura nenhuma. A massa de larvas no lugar do rosto se moveu na minha direção antes que o resto dele desse o primeiro passo.
+
+O Cara-de-Larva não vinha pela trilha. Estava a poucos metros de mim.
 
 As pernas obedeceram por instinto, não por coragem. Entrei de novo na floresta, a chuva agora forte, batendo no rosto. Corri até escorregar em uma poça e cair de joelhos.
 
 Senti mãos. Fortes e geladas.
 
-O Cara-de-Larva me agarrou pelas pernas e começou a me arrastar pelo barro. Eu gritei, a garganta queimando, o mundo virando lama e pânico. Por um segundo, o barro sob as minhas unhas foi azulejo, o azulejo azul e frio da cozinha da minha mãe. Ela estava de costas, servindo bolo, e na minha cadeira, à mesa, havia um garoto magro que ria das piadas que eu ainda ia contar, as melhores, as que eu nunca consigo contar direito. A minha mãe passou a mão no cabelo dele. Depois voltou a ser barro, e eu continuei gritando, e não por causa das pernas.
+O Cara-de-Larva me agarrou pelas pernas e começou a me arrastar. Eu enfiei os dedos na terra, tentando segurar alguma raiz, alguma pedra, qualquer coisa. As unhas rasparam uma superfície lisa.
+
+Azulejo azul. Frio. Eu estava estendido no chão da cozinha de casa.
+
+Minha mãe cantarolava perto do fogão, com a colher de pau na mão. O cheiro de bolo de laranja saiu do forno, e o rádio tocava uma música que eu conhecia de cor. Havia uma cadeira ocupada à mesa. Um garoto de uns dezesseis anos, alto, magro, vestindo uma camisa da minha escola, ria de alguma coisa. Tinha o meu cabelo, o meu jeito de mexer os dedos. Mas não era eu.
+
+— Mãe? — chamei.
+
+Ela não olhou. Serviu um pedaço de bolo para o garoto e passou a mão no cabelo dele. Eu me levantei, pronto para dizer que estava ali, que aquela cadeira era minha. O ar entrou inteiro nos meus pulmões. Puxei outra vez, até o fundo, e não senti chiado nenhum.
+
+O garoto se virou. Tinha o meu rosto, só que mais fino, os olhos secos. Levantou-se da cadeira e caminhou até mim. Quando parou, percebi que seus tênis não tocavam o chão. Ele abriu a boca, e a voz que saiu foi a minha, sem nenhuma falta de ar:
+
+— Ela nem percebeu que você foi embora.
+
+Eu quis responder, mas o azulejo começou a se mover sob os meus pés. Não eram os ladrilhos. Eram coisas brancas saindo pelas juntas, uma atrás da outra, empilhando-se até alcançarem meus tornozelos. Minha mãe continuou cantarolando. A colher bateu duas vezes na borda da panela.
+
+TUM. TUM.
+
+O chão me puxou pelos calcanhares. O forno apagou e, por um instante, vi a barriga rasgada do Cara-de-Larva onde devia estar a mesa. O barro voltou contra a minha boca. Eu ainda estava sendo arrastado, os dedos cheios de terra, a chuva batendo na nuca. Não sabia quanto daquilo eu tinha gritado de verdade.
 
 — NÃO! NÃO!
 
-Alguém colidiu com ele.
+Ouvi galhos se partirem no meio da chuva e a voz de Filipo, mais perto do que eu esperava.
 
-Vi Filipo surgir do nada, acertando o monstro com um tronco de árvore. O impacto o fez largar uma perna minha, mas Filipo levou uma pancada forte e caiu para o lado, gemendo, imóvel.
+— Pedro! Abaixa a cabeça!
+
+Tentei obedecer. Filipo vinha correndo entre as árvores, segurando um tronco caído com as duas mãos. Acertou o Cara-de-Larva antes que ele se virasse. A pancada fez a criatura soltar uma das minhas pernas, mas Filipo recebeu um golpe no peito e caiu na lama, gemendo, sem conseguir se levantar.
 
 O Cara-de-Larva me levantou do chão.
 
@@ -386,7 +424,7 @@ A voz da Jennifer cortou a chuva.
 
 Consegui virar o rosto a tempo de vê-la parada entre as árvores, os olhos brilhando de um jeito errado. Seus cabelos estavam colados no rosto molhado. Luzes surgiam ao redor dela: rostos deformados, espíritos no nevoeiro, dezenas, talvez mais. Eles não pareciam perdidos. Pareciam furiosos.
 
-Jennifer ergueu a mão e os espíritos avançaram.
+Jennifer avançou um passo na chuva e gritou para que parassem. Os espíritos se precipitaram sobre a criatura antes que ela conseguisse me arrastar outra vez.
 
 O Cara-de-Larva foi empurrado para trás, o corpo rasgado por mãos invisíveis, larvas se espalhando no ar. Ele me soltou e recuou, se arrastando pelo chão enquanto se contorcia de forma anormal para qualquer ser humano.
 

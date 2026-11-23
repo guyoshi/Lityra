@@ -60,7 +60,7 @@ Eu contei. Contei sem enfeite, na ordem: as criaturas, o livro, a igreja, a Manu
 
 O Filipo pensou. Eu o vi pensar: o queixo mexendo de leve, os olhos contando alguma coisa que não estava ali.
 
-— Há duas hipóteses — ele disse. — Ou ela mente, ou diz a verdade. Se mente, a gente descobre dentro da igreja, e o custo é o mesmo que o de não ter vindo. Se diz a verdade, cada minuto que a gente gasta aqui é um minuto a menos para a Manu. — Ele guardou a chave no bolso. — Eu prefiro errar andando.
+— Há duas hipóteses — ele disse. — Se ela mente, estamos indo para uma armadilha. Eu sei. Mas, se diz a verdade, cada minuto aqui fora é um minuto a menos para a Manu. — Guardou a chave no bolso, sem olhar para mim. — Eu não tenho uma opção segura, Pedro. Tenho uma irmã lá dentro. Prefiro errar andando.
 
 — Então anda — eu falei, e não falei mais nada, porque o resto era segurança de quem nunca ficou sozinho no escuro.
 
@@ -76,7 +76,7 @@ Estavam nas soleiras, nas esquinas, nos pés dos postes, e pareciam gente, mas g
 
 Eu parei. O Filipo parou. O ar entrou fino no meu peito. As criaturas nos viram. Todas ao mesmo tempo, virando a cabeça na nossa direção. E correram.
 
-Não vieram. Correram para longe, para dentro das vielas, por cima de muros, em quatro patas quando as duas pernas não serviam, tropeçando umas nas outras, deixando para trás um ruído de coisas que arrastam e de coisas que escorregam. O homem de sobretudo se meteu entre duas casas como uma barata quando acendem a luz. As crianças em fila se desfizeram de uma vez, correndo pra todo lado. A mulher de blusa largou o que arrastava e sumiu, a blusa esvoaçando como bandeira de feira.
+Não vieram. Correram para longe, para dentro das vielas, por cima de muros, em quatro patas quando as duas pernas não serviam, tropeçando umas nas outras, deixando para trás um ruído de coisas que arrastam e de coisas que escorregam. Nenhuma tentou nos atacar. Foi tão repentino que olhei para a Mel, esperando que ela dissesse o que tinha feito. Ela continuava de olhos fixos na igreja. O homem de sobretudo se meteu entre duas casas como uma barata quando acendem a luz. As crianças em fila se desfizeram de uma vez, correndo pra todo lado. A mulher de blusa largou o que arrastava e sumiu, a blusa esvoaçando como bandeira de feira.
 
 — Quarenta e dois — o Filipo disse. — Parei de contar nesse.
 
@@ -403,7 +403,7 @@ Estava dentro da igreja. No meio da nave, entre dois bancos, de vestido azul, a 
 
 — Pedro — ela disse. — Eu consegui entrar. O vidro quebrou. Foi por tua causa.
 
-O ar entrou em mim inteiro, fundo, fácil. Fácil demais. Eu sabia o que era. *Quando fica fácil é mentira*, eu tinha acabado de dizer, e eu sabia, do jeito que a gente sabe uma conta de cabeça e deixa quieta. Já tinha sido enganado uma vez naquela noite. Aquilo era diferente: era a mentira que vinha me consolar.
+O ar entrou em mim inteiro, fundo, fácil. Fácil demais. *Quando fica fácil é mentira*, eu tinha acabado de dizer. Só que, desta vez, a mentira vinha me consolar.
 
 O Junior pesava no meu ombro e tinha parado de ajudar com as pernas. Encostei ele no pé de um banco, ao lado de um morto de camisa de domingo, e ele deixou, e isso era o pior sinal, e eu também sabia.
 
@@ -569,7 +569,7 @@ Sorriu. Eu conhecia todos os sorrisos dela, o de piada, o de poema, o de depois 
 
 Eu quis dizer o nome dela outra vez. A palavra foi na minha garganta e não saiu. Ela se levantou, o vestido movendo a poeira, e andou para o campo, e eu a segui com os olhos até a luz fazer dela um brilho, e o brilho, nada.
 
-O Filipo se levantou primeiro. Foi até o carro, apoiando uma mão no capô, e abriu a porta de trás para o Junior. Eu fiquei sentado na estrada, com a bombinha vazia numa mão e o celular da Jennifer na outra. Queria que ela estivesse ali. Ela saberia dizer se o que eu senti no beijo valia alguma coisa, vindo de uma mentira. Ela sempre soube ver o que os outros não viam, e eu tinha a vontade tola de ligar e perguntar.
+O Filipo se levantou primeiro. Foi até o carro, apoiando uma mão no capô, e abriu a porta de trás para o Junior. Eu fiquei sentado na estrada, com a bombinha vazia numa mão e o celular da Jennifer na outra. Queria que ela estivesse ali. Talvez soubesse dizer se o que eu senti no beijo valia alguma coisa, vindo de uma mentira. Tive vontade de ligar e perguntar.
 
 Guardei o celular da Jennifer no bolso com a tela para baixo. Pensei nos meus pais. A minha mãe devia ter ligado para a polícia havia muito tempo, e meu pai provavelmente estava tentando decidir entre me abraçar ou me dar a maior bronca do século quando voltasse. Queria ouvir os dois reclamando de mim. Nunca senti tanta falta disso.
 

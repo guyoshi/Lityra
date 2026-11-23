@@ -101,7 +101,7 @@ Velho-Sábio se agachou à altura dela e pousou a mão em seu ombro.
 
 — Mais um pedaço que a gente só descobre pelo senhor — disse Bruno, de pé, com os braços cruzados. — Ela escondeu isso a vida inteira.
 
-— O rádio do papai tem o mesmo símbolo do arco — disse Breno, devagar. — Foi ele que abriu o caminho até aqui. Eles sabiam de tudo isso, não sabiam?
+— O rádio do papai abriu o caminho até aqui — disse Breno, devagar. Eles sabiam de tudo isso, não sabiam?
 
 — O resto, eu ainda não sei contar — disse Velho-Sábio, baixo.
 

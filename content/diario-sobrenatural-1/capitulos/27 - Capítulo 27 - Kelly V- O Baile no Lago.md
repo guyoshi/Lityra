@@ -186,7 +186,7 @@ Meus olhos se encheram de lágrimas. Sentei, peguei os óculos com as mãos trê
 
 Virei-me para Ingrid.
 
-— Ele está aqui. Uma alma pura, de coração aberto. Agora diga ao seu senhor que eu quero meu irmão. E, por favor, não faça mal ao Junior.
+— Eu trouxe o Junior, como você pediu. Agora diga ao seu senhor que eu quero ver o meu irmão. E, por favor, não faça mal a ele.
 
 — Eu não preciso chamá-lo — respondeu Ingrid, com voz de vento em folhas secas. — Ele já está aqui.
 
@@ -314,7 +314,7 @@ Quando me virei para sair, ouvi:
 
 — Kelly, obrigada por ter vindo aqui.
 
-Assenti e fechei a porta. Antes de sair de casa, fui até o armário debaixo da escada, onde ainda estavam as coisas do Enzo: o berço desmontado, alguns brinquedos, o ursinho esfarrapado, com a costura azul aparecendo numa das orelhas. A vovó o tinha trazido de uma viagem, mas eu nunca soube de onde ele veio antes disso. Enzo dormia agarrado àquela coisa.
+Assenti e fechei a porta. Antes de sair de casa, fui até o armário debaixo da escada, onde ainda estavam as coisas do Enzo: o berço desmontado, alguns brinquedos, o ursinho esfarrapado, com a costura azul aparecendo numa das orelhas. Eu nunca soube de onde ele tinha vindo, nem quem o dera ao Enzo. Enzo dormia agarrado àquela coisa.
 
 — Me desculpa, Enzo, mas eu não posso continuar — falei, e fechei a porta.
 

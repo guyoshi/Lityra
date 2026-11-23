@@ -1,57 +1,141 @@
-O embrulho que o Velho-Sábio deixara no banco do pátio ficou em cima da mesa da cozinha até Lioro desatar o barbante, na quinta de manhã, e foi o assunto do café inteiro antes de ser aberto. Breno achava que era um recado. Beatriz achava que era comida. Bruno, com a testa apoiada na mão e os olhos meio fechados, achava que qualquer coisa que o Velho deixasse para trás sem avisar vinha com consequência, e que consequência àquela hora da manhã era injusto.
+Na quinta-feira de manhã, Lioro pôs sobre a mesa o embrulho que Velho-Sábio deixara no banco do pátio. Os irmãos discutiram o que poderia haver dentro até ele começar a desatar o barbante. Breno apostava num recado sobre o desafio; Beatriz, em pão. Bruno, ainda meio dormindo, pediu que, fosse o que fosse, deixassem para abrir depois do café.
 
-Lioro desfez o laço, abriu o papel pardo e puxou de dentro quatro pares de luvas forradas, quatro gorros de lã grossa e, por baixo, quatro agasalhos pesados, dobrados com a barra para dentro. Em cima de tudo havia um bilhete de duas linhas. Lioro leu em voz alta, com a sobrancelha subindo a cada palavra.
+Lioro abriu o papel pardo. Havia quatro pares de luvas forradas, quatro gorros de lã grossa e quatro agasalhos pesados, todos cuidadosamente dobrados. Em cima de tudo havia um bilhete de duas linhas. Lioro leu em voz alta, com a sobrancelha subindo a cada palavra.
 
-— "Faz frio onde vocês vão. Luva não é fraqueza, é luva. V.S." — Dobrou o papel e olhou para os quatro. — Ele não disse mais nada sobre o desafio. Só mandou o embrulho e o recado de que ninguém saísse sem ele.
+— "Faz frio onde vocês vão. Luva não é fraqueza, é luva. V.S." — Lioro dobrou o bilhete e olhou para os quatro. — E pediu que nenhum de vocês fosse ao desafio sem os agasalhos.
+
+— Pô, custava mandar pão junto das luvas? — resmungou Bruno.
+
+— Pelo menos a gente sabe que ele pensa na gente quando faz frio — respondeu Banjo.
 
 — Verna é a encosta que fica ao norte, não é? — perguntou Breno, já separando o agasalho menor para Beatriz. — A que o Grimaldus mencionou na terça, com os números de altura.
 
-— Quinhentos e quarenta passos de subida. Ele fez questão que eu repetisse o número. — Lioro esfregou o rosto com a toalha do ombro. — A carruagem sai em meia hora. O desafio junta todas as alas do ciclo, e ninguém vai poder fazer sozinho o que for pedido.
+— Quinhentos e quarenta passos de subida, segundo o juiz. — Lioro esfregou o rosto com a toalha do ombro. — A carruagem sai em meia hora. Todas as alas do ciclo vão participar.
 
-Beatriz estava de pé na cadeira, enfiando um braço no agasalho, e foi ela quem falou primeiro depois que Lioro terminou, com a voz alta de quem não percebe que o assunto já passou.
+A mãe de Lioro entrou na cozinha com uma tigela de pão quente. Atrás dela vinha Velho-Sábio, que aparecera para conferir as mãos de Breno. A velha pousou a tigela, examinou as ataduras e virou-se para o visitante.
 
-— Breno, eu treinei hoje de manhã, antes de todo mundo acordar. Fiz a chama do tamanho de uma mesa e apaguei, um palmo de cada vez, como o Velho falou. Estou te contando porque falei que ia contar.
+— E o senhor deixou esse menino segurar a irmã no meio das chamas, com os braços transformados em metal?
 
-Breno parou com o gorro na mão. O zumbido grave que ele sempre soltava quando se continha encheu a cozinha, baixo, como um trem a quilômetros dali. Bruno viu o irmão abrir a boca para perguntar quem tinha estado lá, onde exatamente e com que tamanho de chama, e viu a pergunta ficar parada na garganta dele sem sair.
+— Na verdade, eu cheguei quando os braços dele já estavam queimando — respondeu Velho-Sábio.
 
-— Obrigado por contar — disse Breno. — Eu não vou conferir.
+— Então chegou tarde.
 
-— Eu sei. — Beatriz sorriu e fechou o agasalho até o queixo. — Eu só queria que você soubesse que eu apaguei tudo.
+Bruno baixou o rosto sobre a caneca para esconder o sorriso.
 
-Ela desceu da cadeira cantarolando, e o ar em volta dela cheirou por um segundo a pão esquecido no forno. Eram as três notas, as mesmas de sempre, subindo e voltando, e ela as repetia amarrando a bota e procurando o outro gorro debaixo da mesa e saindo para o corredor. Bruno percebeu que estava batendo o ritmo dela no tampo, com dois dedos, quando Banjo olhou para a mão dele e depois para o rosto dele sem dizer nada. Bruno tirou a mão da mesa e a enfiou na luva nova.
+— Minha senhora, a Beatriz conseguiu dominar o fogo. Agora temos de ajudar o Breno a cuidar das mãos.
+
+— Isso eu já estou fazendo. O senhor vai garantir que, se doer, ele pare a prova?
+
+Velho-Sábio olhou para Breno, depois para as ataduras.
+
+— Vou.
+
+— Ótimo. Porque ele obedece mais ao senhor do que a mim.
+
+— Não é verdade — murmurou Breno.
+
+— Então tire esse gorro da tigela de pão e sente-se direito — ordenou ela.
+
+Breno afastou o gorro imediatamente. Velho-Sábio fingiu interessar-se muito pelo próprio cajado.
+
+O sol bateu na neve do lado de fora da janela. Velho-Sábio apertou os olhos e virou o rosto.
+
+— O senhor devia usar óculos escuros — comentou Banjo. — Fica reclamando da claridade toda vez que saímos.
+
+— Na minha idade, a gente aprende a conviver com o sol — respondeu o mentor, pegando a xícara.
+
+— Convive com ele de olhos fechados — disse a mãe de Lioro, sem levantar a cabeça do pão.
+
+Velho-Sábio tomou um gole de chá e não respondeu.
+
+Lioro aproveitou que o pão tinha chegado e abriu um aviso dobrado ao lado do prato.
+
+— O Beker pediu que suspendessem todas as entradas e saídas da cidade — contou. — Depois do ataque em Brisália, quer controlar quem passa pela Central.
+
+— Mas ele pode fechar Tayo? — perguntou Banjo.
+
+— Não sozinho — respondeu Velho-Sábio. — Lucan Veline ainda é o chefe governante. Recusou a proposta.
+
+— A Erla também não gostava muito da gente — lembrou Bruno.
+
+— Erla desconfiava dos dimensais e foi dura demais muitas vezes — respondeu o mentor. — Mas Beker quer impedir que circulem. Vigiar e trancar são coisas diferentes.
+
+— Se trancar, quem traz farinha para cá? — perguntou a mãe de Lioro, cortando mais pão. — Ou o conselheiro vai aprender a plantar trigo antes do almoço?
+
+Bruno pensou em responder, mas Lioro já empurrara a manteiga na direção dele.
+
+Beatriz tentava vestir o agasalho sem descer da cadeira. Quando conseguiu passar o braço pela manga, virou-se para Breno.
+
+— Breno, hoje cedo eu consegui! Fiz uma chama do tamanho da mesa e fui diminuindo, igual o Velho-Sábio ensinou. Apaguei tudo sozinha. Eu tinha prometido contar, lembra?
+
+Breno parou com o gorro nas mãos. Olhou para a irmã e quase perguntou se alguém tinha acompanhado o treino. Em vez disso, respirou fundo e guardou o gorro na mochila.
+
+— Que bom, Bia. Obrigado por me contar.
+
+— E você não perguntou se o Velho estava lá! — ela apontou, contente.
+
+— Eu ia perguntar, mas lembrei do que você disse — respondeu Breno, ajeitando as luvas sobre as faixas.
+
+— Eu consegui parar antes de crescer demais! — Beatriz fechou o agasalho até o queixo, sorrindo.
+
+Ela desceu da cadeira cantarolando. Bruno sentiu um cheiro leve de coisa tostada, mas não havia fogo aceso na cozinha. Eram as três notas, as mesmas de sempre, subindo e voltando, e ela as repetia amarrando a bota e procurando o outro gorro debaixo da mesa e saindo para o corredor. Bruno acompanhava a música com dois dedos sobre a mesa. Quando Banjo reparou no gesto, ele parou e enfiou a mão na luva nova.
 
 Foi no corredor, com os quatro já agasalhados e Lioro procurando a prancheta, que Ivy desceu a escada. Trazia nos braços uma capa curta de lã cinza-esverdeada, com capuz, dobrada em quatro, e a trazia do jeito de quem não quer ser vista segurando uma coisa. Parou diante de Beatriz. Não olhou para os outros três.
 
-— Está ventando muito em Verna — disse. — Eu não quero que ela adoeça debaixo do meu teto, porque a culpa cai sobre esta casa e não sobre quem deixou. Veste.
+— Está ventando muito em Verna — disse. — Eu não quero que ela adoeça debaixo do meu teto. A culpa ia cair nesta casa e não em quem deixou. Veste.
 
-Beatriz vestiu. A capa caiu nos ombros dela sem sobrar um dedo, a barra parou onde devia, e o capuz serviu na cabeça como se tivesse sido feito com a cabeça ali. Bruno pensou na oferenda da noite anterior, na bota de Ivy perto do nariz dele, na terra vermelha pingando no peitoril, e pensou que ninguém costura uma capa assim em uma noite. Aquilo estava pronto havia dias.
+Beatriz vestiu. A barra parou na altura certa, o capuz encaixou direitinho. Bruno lembrou-se de Ivy na Campina de Talven, na noite anterior, e olhou para a costura da capa mais uma vez.
 
-— Obrigada, Ivy — disse Beatriz, girando para ver a barra. — Cheira a casa de vovó.
+— Obrigada, Ivy — disse Beatriz, girando para ver a barra. — Tem cheiro de casa de vovó.
 
 Ivy ficou parada um instante. Depois ajeitou o capuz de Beatriz com dois dedos, rápido, e subiu a escada sem dizer mais nada. Os olhos dela passaram por Bruno no meio do caminho e não se demoraram, e ele soube que os dois fingiriam que a noite anterior não tinha acontecido pelo tempo que fosse possível.
 
-— Fato — disse Breno, baixo, perto do ouvido dele. — Ela fez a capa antes.
+— Ela já tinha essa capa pronta — comentou Breno, perto do ouvido de Bruno.
 
-— E palpite, que ela não é tão ruim quanto o símbolo que ela tocou — murmurou Bruno. — Eu odeio quando você me dá razão em voz baixa.
+— Pois é. — Bruno olhou para a escada por onde Ivy desaparecera. — E ontem ela estava deixando coisa naquele marco.
 
-— Eu ainda não dei.
+— Uma coisa não prova a outra — lembrou Breno.
 
-Lioro apareceu com a prancheta e a carruagem apitou na rua. Beatriz perguntou da porta, com o capuz já na cabeça, se a Mereditha tinha voltado, e Lioro disse que ainda não, que a missão dela estava passando do prazo, mas que ela tinha mandado dizer que faltava pouco. Beatriz respondeu "tá bom" sem perguntar mais nada, e saiu cantando.
+— Foi o que o Banjo falou — resmungou Bruno, ainda olhando para a escada.
+
+Lioro apareceu com a prancheta, e a carruagem apitou lá fora. Já à porta, Beatriz perguntou por Mereditha. Lioro respondeu que a missão dela tinha demorado mais do que o previsto, mas que recebera um recado dizendo que faltava pouco para voltar. Beatriz respondeu "tá bom" sem perguntar mais nada, e saiu cantando.
 
 
-A encosta de Verna começava como um prado branco e terminava, lá em cima, numa linha de rocha escura, e entre as duas coisas havia tanta neve que o primeiro passo de Bruno afundou até o tornozelo e o segundo até o joelho. Pequenas hastes de cobre marcavam os patamares. Cada uma tinha uma conta de gelo azulado na ponta, e as contas tilintavam quando o vento mudava de lado. Bruno deu um peteleco na mais próxima. O som correu pelas hastes encosta acima e voltou em intervalos, permitindo-lhe contar três patamares antes de perder a sequência. Grimaldus Graven esperava no pé da subida com a tábua de contas debaixo do braço e a capa abotoada até o pescoço, rodeado por um grupo de tutores que Bruno só reconheceu pela metade. Havia gente de todas as alas, em fila, soprando as mãos. Em um dos lados, em cima de uma pedra achatada, Garmande Koraveli observava tudo com o manto dourado por cima de um casaco escuro, sem tirar os olhos da tábua em que anotava.
+A encosta de Verna começava num prado coberto de neve e subia até uma linha de rochas escuras. Bruno mal saiu da carruagem e afundou o pé até o tornozelo. No passo seguinte, a neve chegou ao joelho. Pequenas hastes de cobre marcavam os patamares. Cada uma tinha uma conta de gelo azulado na ponta, e as contas tilintavam quando o vento mudava de lado. Bruno deu um peteleco na mais próxima. O som correu pelas hastes encosta acima e voltou em intervalos, permitindo-lhe contar três patamares antes de perder a sequência. Grimaldus Graven esperava no pé da subida com a tábua de contas debaixo do braço e a capa abotoada até o pescoço, rodeado por um grupo de tutores que Bruno só reconheceu pela metade. Havia gente de todas as alas, em fila, soprando as mãos. Em um dos lados, em cima de uma pedra achatada, Garmande Koraveli observava tudo com o manto dourado por cima de um casaco escuro, sem tirar os olhos da tábua em que anotava.
 
-— Seis correntes por ala — disse Grimaldus, e sua voz atravessou o ar frio sem esforço. — Seis elos por corrente. Noventa passos por elo, quinhentos e quarenta ao todo, em subida. Cada corrente leva uma brasa de gelo do pé da encosta até a rocha, passando de mão em mão. Quem a recebe caminha os seus noventa passos e entrega ao seguinte.
+Dois vigilantes da Central esperavam junto às carruagens, debaixo de capas cinzentas, enquanto uma tutora conferia cada corrente pelo nome. Um deles perguntou a Grimaldus se os irmãos Lins precisavam de uma posição separada. O juiz fechou a tábua de contas com um estalo.
+
+— Precisam de luvas, como os outros. E de alguém que venha buscá-los se houver acidente. É para isso que meus tutores estão aqui.
+
+O vigilante tornou à carruagem. Bruno sorriu para dentro do cachecol; era a primeira resposta da manhã que o tinha aquecido.
+
+— Seis correntes por ala — anunciou Grimaldus. — Cada corrente tem seis integrantes. Serão noventa passos para cada um, quinhentos e quarenta até a rocha. Vocês levarão uma brasa de gelo até o alto, passando-a de mão em mão.
 
 Ele ergueu a esfera. Era do tamanho de um punho fechado, de um gelo tão claro que parecia vidro, e dentro dela havia uma luz dourada pequena, firme, que não vinha de fora.
 
-— A luz dentro do gelo se alimenta do foco de quem segura. Se o portador pensa em outra coisa, ela esmorece. O gelo escuta o calor da mão. Se o portador aperta, congela por inteiro e a luz se apaga. Se esquenta demais, derrete e a luz escapa. — Fez uma pausa para a tábua de contas. — O elo que deixar a luz morrer ou o gelo ceder está eliminado. A corrente continua sem ele, e cada elo a menos pesa mais, porque os passos que faltam são divididos entre os que restam.
+— Vocês acham que o Garmande tem namorada? — cochichou Denis, olhando para a pedra em que o tutor observava a prova.
+
+— Por quê? — perguntou Beatriz.
+
+— Imagina ele chamando alguém pra sair: "Senhorita, apresente-se para jantar às dezenove horas. Pontualidade obrigatória!"
+
+Beatriz precisou tapar a boca para não rir.
+
+— E o Grimaldus? — continuou Denis. — "O seu jantar ganhou sete pontos, mas perdeu dois porque o arroz chegou atrasado."
+
+— Senhor Denis — chamou Grimaldus, sem sequer se virar. — O senhor prefere aquecer-se correndo até o topo antes dos outros?
+
+— Não, senhor. Eu amo esperar minha vez — respondeu Denis, endireitando as costas.
+
+Bruno mordeu a borda da luva para segurar a risada.
+
+— A luz dentro do gelo depende da concentração de quem segura a esfera. Se vocês apertarem demais, o gelo fecha e a luz se apaga. Se esquentarem demais, ela derrete. Quem perder a brasa será eliminado, mas a corrente continua e os outros dividem os passos que faltarem.
 
 Alguém levantou a mão no meio do grupo. Era Amadou, com um gorro enterrado até as sobrancelhas, e a pergunta saiu antes que Grimaldus autorizasse.
 
 — O regulamento diz alguma coisa sobre empurrar a corrente do outro com magia? Eu pergunto por curiosidade acadêmica.
 
-— O regulamento proíbe qualquer magia sobre elos de outras correntes. — Grimaldus olhou para ele sem mudar a expressão. — Sobre palavras, não se manifesta. Fiz a lista na terça e não pensei nisso. Fica a critério do bom senso de cada um.
+— Não podem usar magia contra outra corrente — respondeu Grimaldus. — Quanto a provocações, o regulamento não prevê punição específica. Espero que não seja preciso acrescentar uma.
 
 Bruno ouviu e guardou aquilo no mesmo lugar em que guardava as coisas que um dia ia usar.
 
@@ -59,7 +143,7 @@ As correntes foram lidas em voz alta. A de Bruno era a quarta da ala e levava Te
 
 — A terceira posição das duas correntes vai ficar no mesmo patamar — observou Yuri, desenhando um mapa mental com a ponta do dedo enluvado. — A gente espera a brasa a quinze passos deles, mais ou menos. A crista separa.
 
-— Quinze passos e uma duna de neve — disse Bruno. — Vai ser a espera mais longa da minha vida, véi.
+— Pô, é logo do lado do Dário — murmurou Bruno, espiando a outra corrente.
 
 Os gêmeos já brigavam antes de a corrente sair do lugar.
 
@@ -67,92 +151,72 @@ Os gêmeos já brigavam antes de a corrente sair do lugar.
 
 — Se derreter, é o fogo dele — disse Nicolas, sem levantar a voz, apontando para o irmão com o dedo enluvado. — A gente combinou que ele começa e eu termino. Ele quer fazer o meu pedaço.
 
-— Vocês são o quinto e o sexto — disse Eshley, olhando para o céu e contando nos dedos. — Dá meia hora de espera. Se brigarem desse jeito o tempo todo, pelo menos a espera passa mais rápido!
+— Vocês nem vão começar agora! — reclamou Eshley. — Falta um tempão até chegar a vez de vocês. Dá pra parar de brigar?
 
-— Ninguém combinou nada — resumiu Ferris, sem soltar o agasalho de Erick, e foi o fim do assunto.
+— Ninguém vai trocar de posição — decidiu Ferris, segurando Erick pelo agasalho. — Acabou a discussão.
 
-Foi enquanto os tutores distribuíam as posições que Bruno viu Dário. Estava longe da fila, atrás da carruagem da ala, com as costas na roda e o capuz da jaqueta puxado para trás, lendo uma coisa pequena e cinza que segurava com as duas mãos. Era o envelope. Estava aberto, e o papel de dentro tinha sido dobrado e desdobrado tantas vezes que as dobras tinham ficado brancas. Dário o lia sem mexer os lábios, devagar, a mesma folha de cima a baixo, e quando terminou virou a folha e começou de novo.
+Foi enquanto os tutores distribuíam as posições que Bruno viu Dário. Estava atrás da carruagem da ala, com as costas apoiadas na roda e o envelope cinza aberto entre as mãos. Lia a mesma folha que tentara esconder na quarta-feira. Tinha as pálpebras inchadas e a jaqueta mal abotoada. Dobrou o papel, guardou-o no bolso do peito e ficou ali um instante, sem notar que a fila já começava a andar.
 
-Bruno ficou parado com a luva na boca, olhando. Dário dobrou o papel com o cuidado de quem guarda vidro, enfiou o envelope por dentro da jaqueta, do lado do coração, e passou a mão sobre o lugar duas vezes, para sentir se estava ali.
+— O Vanterre tá esquisito — comentou Amadou, chegando ao lado de Bruno. — Nem discutiu com os gêmeos.
 
-— Seis — disse Amadou, aparecendo ao lado dele sem ser chamado, de nariz vermelho de frio. — O sexto motivo pra não gostar do Vanterre. Ele lê carta escondido atrás de uma carruagem. Carta de amor de outra, eu aposto. Uma moça do Largo dos Ponteiros, filha de comerciante, com tinta perfumada.
+Bruno lembrava-se do corredor do Arcano e da última coisa que ouvira Brenda dizer. Queria que Amadou se calasse antes de lhe perguntar mais alguma coisa.
 
-— Você sempre aposta e sempre erra, mano — disse Bruno. Mas guardou aquilo também.
+— Deve estar com frio — respondeu.
 
-Cada um subiu para o seu patamar, e Bruno chegou ao terceiro com a respiração curta e o nariz dormente. Dali via a encosta inteira, as correntes espalhadas em pontos escuros sobre a neve e, a quinze passos dele, do outro lado da crista, o patamar onde Dário esperava de braços cruzados, de costas para o vento. Quando o apito de osso soou lá embaixo, Temi partiu de braços firmes, as tranças presas dentro do capuz, com a esfera segura entre as duas mãos e a luz dourada firme, e Bruno a viu subir devagar, um passo de cada vez.
+Cada um subiu para o seu patamar, e Bruno chegou ao terceiro com a respiração curta e o nariz dormente. Dali via a encosta inteira, as correntes espalhadas em pontos escuros sobre a neve e, a quinze passos dele, do outro lado da crista, o patamar onde Dário esperava de braços cruzados, de costas para o vento. Quando o apito soou, Temi começou a subir. Levava a esfera entre as duas mãos e pisava com cuidado para não escorregar na neve.
 
-Yuri recebeu a brasa de Temi no segundo patamar e começou a subir. Bruno viu o amigo andar com o corpo muito reto e a esfera diante do peito, quase sem balançar, e viu a luz dentro dela inchar um pouco, depois voltar ao tamanho certo. Quando Yuri chegou ao terceiro patamar, onde Bruno esperava, estava vermelho de esforço e sorrindo de lado.
+Yuri recebeu a brasa de Temi no segundo patamar e começou a subir. Bruno viu Yuri avançar com a esfera diante do peito. A luz dentro dela cresceu por um instante, depois voltou ao tamanho certo. Quando Yuri chegou ao terceiro patamar, onde Bruno esperava, estava vermelho de esforço e sorrindo de lado.
 
 — Não aperta — disse, estendendo a esfera. — Segura como um copo cheio até a borda que você não quer derramar. Não empurra o frio. Deixa ele ficar onde está.
 
-— Um copo cheio — repetiu Bruno. Pegou a esfera, e o gelo mordeu a palma por cima da luva. — Pô, isso é a cara do Banjo falando.
+— Segurar sem apertar — repetiu Bruno, recebendo a esfera. — Isso parece coisa que o Banjo diria.
+
+O gelo gelou a ponta de seus dedos mesmo através das luvas. Ele pensou no treino da gota, quando Velho-Sábio o fizera recomeçar por congelar três de uma vez.
 
 — Foi o que o Banjo me falou ontem à noite. Eu roubei.
 
-Bruno riu uma vez só, pelo nariz, e fixou os olhos na luz. Ela era pequena e redonda, de um dourado que não tremia, e quando ele soprou o frio para dentro do gelo ela encolheu na mesma hora, assustada. Ele soltou o ar, recuou a vontade de apertar e deixou o frio parado. A luz cresceu de novo. Contou três respirações e deu o primeiro passo.
+Bruno riu uma vez só, pelo nariz, e fixou os olhos na luz. Ela era pequena e redonda, de um dourado que não tremia, e quando ele soprou o frio para dentro do gelo ela encolheu na mesma hora, assustada. Ele soltou o ar, recuou a vontade de apertar e deixou o frio parado. A luz recuperou o tamanho. Bruno respirou fundo três vezes e começou a andar.
 
 Foi no quinto passo que ouviu a voz de Brenda, do outro lado da crista.
 
-— Dário, a brasa é sua. Segura firme, que eu estou aqui.
+— Dário, a brasa é sua. Segura firme.
 
-Bruno parou e olhou por cima do ombro. Brenda estendia a esfera de gelo para Dário com as duas mãos, o rabo alto desfeito pelo vento, e Dário a recebia com o rosto calmo e os dedos muito firmes. Era a posição certa para ele, e Bruno viu que sabia disso. Dário não precisava pensar para segurar. Prendia uma coisa no mesmo lugar sem esforço, e ficou parado um instante com a esfera nas mãos e a luz perfeitamente redonda lá dentro, a coisa mais firme da encosta inteira. Brenda sorriu para ele, e o gelo na palma de Bruno rangeu.
+Bruno olhou por cima do ombro. Brenda entregava a esfera de gelo a Dário com as duas mãos. Não havia raiva no rosto dela, apenas a atenção de quem não queria prejudicar a própria corrente. Dário recebeu a brasa. Seus dedos estavam firmes, e a luz dourada permaneceu redonda por três passos.
 
-A luz dele encolheu um fio. Bruno soltou o ar. Estava com a brasa na mão, tinha oitenta e cinco passos pela frente, e a corrente inteira dependia dos pés dele.
+Foi quando ele olhou para Brenda. Ela já se virava para o patamar, esperando que ele avançasse. Dário pareceu querer dizer alguma coisa. A boca se abriu, mas ele não a chamou. Continuou olhando para o lugar onde Brenda estivera. A luz dentro da esfera vacilou.
 
-Pensou na carta.
+— Dário! — chamou Eshley, do patamar seguinte. — A brasa!
 
-Pensou no envelope cinza, nas dobras brancas do papel, na mão passando duas vezes sobre o peito para conferir se estava no lugar. Pensou em Brenda dizendo "você não vai falar dele assim na minha frente", e pensou que ela falaria muito pior se soubesse. Pensou que alguém ia contar a ela, cedo ou tarde, e que podia ser ele. Era justo. Era a coisa certa.
+Ele baixou os olhos tarde demais. A luz encolheu até virar uma semente e apagou-se. Uma rachadura abriu o gelo de lado a lado.
 
-— Ei, Vanterre! — gritou, e o vento levou a voz inteira até o outro lado da crista. — Cuidado aí em cima, que você segura tudo no lugar, menos o que está no bolso! Aquela carta cinza que você lê atrás da carruagem, quem escreve? A Brenda sabe o nome, ou é segredo de outra moça?
+Lá embaixo, o apito de Grimaldus cortou o vento.
 
-Brenda levantou o rosto. Dário não se mexeu. Ficou com os olhos fixos na esfera, e foi a esfera que se mexeu. A luz dourada tremeu no centro do gelo, encolheu até o tamanho de uma semente e se apagou. Uma rachadura fina correu pelo gelo de ponta a ponta, e dentro do peito de Bruno o sino de gelo tilintou uma vez só, fino e feio, como vidro que racha na pia, e o apito de Grimaldus soou lá embaixo, comprido e seco, e ecoou pela encosta.
+— Dário Vanterre, eliminado. Corrente cinco, terceiro elo. Os demais continuarão com a distância redistribuída.
 
-— Dário Vanterre, eliminado — anunciou Grimaldus, sem pressa, e a voz dele chegou fraca até o patamar. — Corrente cinco, posição três.
+Dário não protestou. Ficou de pé por um instante com os cacos nas luvas, enquanto Brenda descia um degrau, preocupada apesar de tudo.
 
-Dário ficou parado na neve, segurando os cacos, com os olhos muito abertos em Bruno. A boca se afrouxou, mas nenhuma palavra saiu.
+— Você se machucou?
 
-— Que carta? — perguntou Brenda.
+Ele balançou a cabeça. Tentou responder, mas as palavras não vieram. Entregou os cacos à tutora que se aproximava e começou a descer a encosta sozinho. Brenda ainda o acompanhou com os olhos, até Eshley chamá-la para receber a nova brasa.
 
-A voz dela chegou baixa, mas a crista era curta e o ar da encosta carregava tudo. Dário abriu a boca. Fechou. Passou a mão pelo peito, devagar, sobre o lugar do envelope, e Brenda viu o gesto.
+Do outro lado da crista, Bruno continuava com a própria brasa nas mãos. Na quarta-feira, a notícia do fim do namoro o fizera sorrir. Agora a lembrança desse sorriso o incomodou. Baixou os olhos para a encosta e viu Dário.
 
-— Não é nada com que você precise se preocupar — respondeu ele, enfim. — Eu te explico depois.
+Dário havia parado no meio da descida, a mais de trinta passos dali. Tinha neve até a cintura e mantinha as mãos apertadas contra o peito. Seus ombros tremiam. Bruno observou por alguns segundos até perceber que ele estava chorando. Um homem de casaco escuro subiu até ele, vindo da carruagem, de passo lento. Não tinha pressa nem pergunta no rosto. Pôs uma das mãos no ombro de Dário e ficou ao lado dele, olhando para a encosta, sem dizer nada que Bruno pudesse ouvir.
 
-— Você tem uma carta que lê escondido, e eu fico sabendo pelo garoto que passou o ciclo me olhando torto? — Brenda largou as mãos ao lado do corpo, e a neve debaixo dos pés dela estalou. — Eu defendi você na frente dele. E você me deixou sem saber de que lado eu estava.
+Bruno apertou a esfera. O sino de gelo tilintou, baixinho, dentro do peito, e a superfície da brasa rangeu entre suas luvas. Ele olhou para baixo e viu a luz do tamanho de um grão, quase perdida, e apertou os dentes, e lembrou da voz de Yuri dizendo para segurar sem empurrar.
 
-— Brenda, não é o que você está pensando, e eu não posso...
+Soltou o ar. Deixou o frio parado. Foi difícil recuperar a concentração. A imagem de Dário na encosta voltava sempre que ele baixava os olhos; a luz da esfera encolhia junto. A luz voltou devagar, do tamanho de uma semente, de uma conta, de um dedo. Ele deu o primeiro passo. Caminhou os oitenta e cinco, olhando só para a esfera, e quando chegou ao quarto patamar, onde Amadou esperava de gorro enterrado até as sobrancelhas, entregou a brasa com as mãos tremendo dentro das luvas.
 
-— Não pode? — Ela riu, uma risada curta que não tinha nada de riso. — Você nunca pode. Eu passei meses achando que era timidez, ou pai difícil. E era uma carta. E eu esperando você me contar.
+— O Vanterre perdeu! — Amadou recebeu a esfera, arregalando os olhos. — Nunca vi aquele cara perder uma prova. O que aconteceu com ele?
 
-— Eu não conto porque prometi a quem escreveu — disse Dário, e a voz dele subiu pela primeira vez, rouca, quase um grito. — Eu não escolho o que carrego! Você não sabe o que está me cobrando!
+— Não sei. Anda, Amadou. Não perde tempo — respondeu Bruno, sem encarar o amigo.
 
-— Então não explica. — Brenda recolheu a mão, e uma cortina fina de água subiu do chão entre os dois e ficou de pé, trêmula e transparente, separando-os. — Vai para baixo. Eu termino a corrente sem você, e você pensa em quantas vezes eu perguntei.
+Amadou foi, e Bruno ficou parado ali, de luvas nos bolsos, vendo a corrente subir sem ele. O canto distante de Beatriz chegou com o vento, as mesmas três notas de sempre. Bruno percebeu que acompanhava o ritmo com os dedos sobre a coxa e parou.
 
-Dário olhou a cortina. Olhou para ela, que já tinha virado o rosto, e depois para o chão. Desceu o declive sozinho, de ombros baixos, afundando até o joelho na neve, com a mão colada ao peito como quem protege uma ferida.
-
-A cortina caiu em gotas, devagar, com um pingar fino, e Brenda ficou sozinha no patamar sem se mexer. Lá de baixo, Grimaldus mandou subir uma esfera nova. Ela a recebeu sem olhar para os lados.
-
-Bruno continuava parado com a brasa na mão. A luz dentro dela estava mais viva do que nunca, dourada e redonda, e ele pensou, com um pequeno espanto, que jamais tinha segurado nada com tanta firmeza. A alegria subiu pelo peito, quente, boa, a coisa que esperava sentir desde o campo de treino, desde o riso de Brenda que acabara no sorriso contido, desde o dia em que decidira que ia procurar um motivo. Tinha um motivo. Tinha a luz apagada, a rachadura no gelo, a cortina de água entre os dois e, em algum lugar embaixo, uma carta cinza que o tinha feito ganhar.
-
-— Foi justiça — disse, baixinho, e o vento levou a palavra.
-
-Foi então que olhou para baixo e viu Dário.
-
-Ele tinha parado no meio da descida, a mais de trinta passos do patamar, com a jaqueta azul-escura coberta de neve até a cintura. Estava de costas para a subida, as duas mãos sobre o peito, a cabeça curvada, e os ombros se mexiam de um jeito curto e irregular que Bruno só conhecia de quem estava chorando e não queria. Um homem de casaco escuro subiu até ele, vindo da carruagem, de passo lento. Não tinha pressa nem pergunta no rosto. Pôs uma das mãos no ombro de Dário e ficou ao lado dele, olhando para a encosta, sem dizer nada que Bruno pudesse ouvir.
-
-A alegria falhou. Bruno nem soube em que momento. Ela não acabou de uma vez, foi se retirando do peito aos poucos, igual à luz dentro da esfera, e deixou no lugar um frio que ele conhecia bem porque era dele. O sino de gelo tilintou outra vez, baixinho, no fundo do peito, e o gelo na palma da mão rangeu. Ele olhou para baixo e viu a luz do tamanho de um grão, quase perdida, e apertou os dentes, e lembrou da voz de Yuri dizendo para segurar sem empurrar.
-
-Soltou o ar. Deixou o frio parado. Foi a coisa mais difícil que tinha feito desde que chegara a Brisália, mais difícil que congelar a mesa e mais difícil que a areia, porque a areia pedia que ele separasse o que era seu e agora o desafio pedia que ele parasse de pensar em outra coisa. A luz voltou devagar, do tamanho de uma semente, de uma conta, de um dedo. Ele deu o primeiro passo. Caminhou os oitenta e cinco, olhando só para a esfera, e quando chegou ao quarto patamar, onde Amadou esperava de gorro enterrado até as sobrancelhas, entregou a brasa com as mãos tremendo dentro das luvas.
-
-— Isso foi cruel — disse Amadou, com a voz embargada de admiração. — E genial. Eu nunca vi o Vanterre perder uma luz, nem no ano passado, quando ele segurou a prova de equilíbrio inteira sem tremer. Você devia ganhar um prêmio.
-
-— Não foi nada, véi — respondeu Bruno, e não conseguiu olhar para o amigo. — Bora, que a luz tá esperando.
-
-Amadou foi, e Bruno ficou parado ali, de luvas nos bolsos, vendo a corrente subir sem ele. O vento da encosta trazia o canto de Beatriz de muito longe, as três notas curtas, e foi só ao ouvir a última que ele percebeu que o dedo batia o ritmo na coxa, sem parar, desde antes da brasa.
-
-Voltou a olhar para baixo. O homem de casaco escuro tinha virado a cabeça na direção dele. Era alto, de barba curta e cabelo grisalho cortado rente, com um cachecol azul enrolado duas vezes no pescoço, e não parecia zangado. Olhava para Bruno com uma expressão cansada e atenta, a de quem já passou pela mesma cena muitas vezes e não tem vontade de passar de novo, e manteve a mão no ombro de Dário até Bruno desviar o rosto primeiro.
+Voltou a olhar para baixo. O homem de casaco escuro tinha virado a cabeça na direção dele. Era alto, de barba curta e cabelo grisalho cortado rente, com um cachecol azul enrolado duas vezes no pescoço, e não parecia zangado. O homem manteve a mão no ombro de Dário e olhou diretamente para Bruno, que acabou desviando o rosto.
 
 — É o Tango — disse Yuri, que tinha subido atrás dele sem pressa e parara ao lado, de mãos nos bolsos. — Tutor do Dário. Dizem que fala pouco, escuta tudo, e não esquece quem mexe com os alunos dele. Eu estaria preocupado.
 
-Lá em cima, na pedra achatada, Garmande tinha baixado a tábua. Olhava para a encosta, para a linha da descida, e Bruno demorou a entender que ele não olhava para a filha, que seguia com a corrente, nem para o patamar onde estavam todos. Olhava para Dário. Era um olhar longo e sem expressão, o olhar de quem conhece uma coisa que os outros ainda não sabem, e quando Garmande percebeu que estava sendo observado, levantou a tábua de novo e voltou a anotar.
+Lá em cima, na pedra achatada, Garmande tinha baixado a tábua. Olhava para a encosta, para a linha da descida, e Bruno demorou a entender que ele não olhava para a filha, que seguia com a corrente, nem para o patamar onde estavam todos. Olhava para Dário. Garmande observou Dário por vários segundos. Quando percebeu que Bruno o estava olhando, ergueu a tábua e voltou a fazer anotações.
 
-A corrente de Breno chegou à rocha primeiro, com Beatriz entregando a brasa a Denis na última posição e cantarolando as três notas de sempre, tão baixo que só quem estava perto ouviu. Chegou em segundo a corrente de Bruno, com Nayra fechando e erguendo a esfera acima da cabeça. A de Brenda chegou por último, com cinco elos, e Brenda desceu da rocha sem olhar para ninguém.
+A corrente de Breno chegou à rocha primeiro. Ele tirou as luvas com cuidado, conferiu as ataduras e constatou que as mãos ainda estavam bem. Beatriz entregou a brasa a Denis na última posição, cantarolando as três notas de sempre, tão baixo que só quem estava perto ouviu. Chegou em segundo a corrente de Bruno, com Nayra fechando e erguendo a esfera acima da cabeça. A de Brenda chegou por último, com cinco elos, e Brenda desceu da rocha sem olhar para ninguém.

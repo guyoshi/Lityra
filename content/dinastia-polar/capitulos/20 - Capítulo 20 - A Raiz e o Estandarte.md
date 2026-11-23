@@ -1,4 +1,4 @@
-A Câmara dos Onze se reunia em Kaendar havia séculos, e a sala ainda carregava aquele hábito de peso: teto alto, colunas grossas, uma mesa longa o bastante para que ninguém precisasse erguer a voz e ainda assim ser ouvido. Dareth não gostava de salas assim. Gostava menos ainda de ser convidado para dentro delas.
+A Câmara dos Onze ocupava uma das maiores salas de Kaendar, com colunas antigas e uma mesa na qual os conselheiros podiam se ouvir sem se aproximar. Dareth detestava reuniões. Detestava ainda mais ser chamado a uma delas como se sua presença fosse parte da decoração.
 
 Mas era campeão Polar agora, gostasse ou não, e boa parte da pauta daquela manhã dizia respeito à partida. Sentou-se onde indicaram, perto o bastante da cabeceira para ouvir tudo, longe o bastante para que ninguém esperasse que falasse primeiro.
 
@@ -16,11 +16,7 @@ Vetarius não pareceu se importar.
 
 Dareth lançou um último olhar para a cadeira vazia de Hadris e deixou o assunto passar.
 
-Não apresentaram nenhum dos onze por nome, e ninguém sentiu falta. Dareth reconhecia gente assim havia décadas: pelo hábito, não pela ficha.
-
-O conselheiro dos Celeiros falava de sacos, cabeças de gado e bocas para alimentar como quem soletra um problema que já resolveu mil vezes e vai continuar resolvendo até morrer na cadeira. Uma senhora de uma das cadeiras de linhagem tratava cada decisão como questão de prestígio Polar e inclinava a cabeça de um jeito específico sempre que discordava, como se discordar fosse uma ofensa que ela perdoava por educação. O responsável por Obras, Águas e Cidade interrompia cada proposta para perguntar quem consertaria os estragos. O responsável pelas Contagens, Tributos e Dívidas girava os anéis enquanto falava de dinheiro, um após o outro.
-
-Todos pareciam ricos do mesmo jeito genérico: tecidos bons, um pouco de dravenito em algum lugar do corpo, gente acostumada a decidir coisas que outras pessoas executavam.
+Dareth reconhecia os conselheiros pelos hábitos. O dos Celeiros contava sacos e bocas a alimentar. A senhora de linhagem falava de prestígio. O de Obras queria saber quem consertaria os estragos. O dos Tributos girava anéis nos dedos enquanto calculava despesas. Todos usavam bons tecidos e algum adorno de dravenito. Dareth se perguntava quantos já haviam descarregado uma carroça com as próprias mãos.
 
 Perto da porta, Nessa servia água e recolhia copos sem participar de conversa nenhuma. Oren, mais velho, entrava e saía com pastas, selos e mensagens entre a Câmara e os aposentos internos. Dareth conhecia os dois de vista havia anos. Conhecia também os cordões cinzentos nos pulsos deles, com pequenos nós de metal.
 
@@ -34,17 +30,17 @@ O torneio aconteceria em duas semanas, e a partida precisava ocorrer bem antes: 
 
 A delegação Polar teria mais de mil pessoas.
 
-Não mil soldados. Dareth ouviu a lista sendo lida e tentou, por hábito militar, organizá-la numa formação mental: Vigias e a força de proteção, Amaric e seus oficiais, Dareth e o pequeno apoio que lhe fora destacado, tratadores e tarraks, carregadores, cozinheiros, curadores, ferreiros e reparadores, escribas, servidores administrativos, representantes políticos, comerciantes autorizados, Selina e sua comitiva, quando se juntasse à marcha, e, por fim, famílias ricas que tinham comprado lugar na tribuna Polar.
+Eram mais de mil pessoas, não soldados. Havia guardas sob comando de Amaric, auxiliares de Dareth, tratadores e tarraks, carregadores, cozinheiros, curadores, ferreiros, escribas, mensageiros, representantes políticos e comerciantes. Selina seguiria com sua própria comitiva. Famílias ricas tinham pago por lugares na tribuna Polar, ajudando a financiar a viagem, os alojamentos e as estruturas que seriam montadas pelo caminho.
 
-O dinheiro dessas famílias, alguém explicou, custearia boa parte da própria marcha: alojamento, comida, transporte, estruturas temporárias erguidas e desmontadas ao longo do caminho. O torneio já era economia antes de o primeiro tarrak sair pelos portões, e Dareth guardou aquilo sem comentar, como guardava a maior parte do que o incomodava sem saber ainda por quê.
+Os relatórios também traziam o custo do dravenito de Khar-Kaelyr. Dareth conhecia a história daquele nome: Kaelyr dera à metrópole o nome de Kaeliran, tomara a antiga Khar-Tondr e a renomeara depois da conquista. As minas exploradas desde seu reinado ainda abasteciam oficinas e cofres Polar. Na Câmara, porém, só discutiam o preço do metal para a marcha.
 
 Vetarius propôs levar algumas crianças gratuitamente.
 
 — Não centenas — disse, antecipando a objeção que já via se formar em metade dos rostos. — Talvez quarenta. Escolhidas entre escolas, aprendizes, famílias que nunca teriam meio de bancar isso sozinhas. — Abriu as mãos, como se a ideia fosse simples demais para precisar de defesa. — Para verem um estandarte Polar entrar no Altar dos Dez Estandartes. Vão contar isso aos netos.
 
-O conselheiro dos Celeiros reclamou quase antes de Vetarius terminar. Mais gente significava mais comida, mais água, mais transporte, numa marcha que já ia levar mais de mil bocas por terras pouco generosas naquela época do ano.
+O conselheiro dos Celeiros objetou que já faltavam carroças, água e provisões para a comitiva. Levar quarenta crianças significaria tirar espaço e comida de quem tinha obrigação de estar na marcha.
 
-Vetarius achou aquilo mesquinho, e disse isso sem meias palavras.
+Vetarius chamou a objeção de mesquinharia e insistiu na proposta.
 
 Foi Dareth quem interveio.
 
@@ -58,7 +54,7 @@ Vetarius balançou a cabeça, paciente, como quem já ouvira aquele argumento e 
 
 — O torneio existe justamente para evitar guerras, Dareth. É isso que elas vão ver. Paz sendo escolhida em vez de sangue.
 
-— Então mostre a elas a paz que vier depois — respondeu Dareth. — Não o que for preciso pra chegar até ela.
+— Então mostre a paz depois, quando ela vier — respondeu Dareth. — Não leve criança pra ver homem morrer por ela.
 
 A discussão perdeu força e, como tantas outras naquela Câmara, acabou adiada.
 
@@ -72,7 +68,7 @@ Khalir Buldar, Ceifador da Terra de Ardel, confirmado. Orven Vendrar, testador d
 
 Alguém, Dareth nem reparou quem, perguntou se ele estava preocupado. Dareth respondeu pouco, como sempre respondia quando a pergunta era sobre ele.
 
-Khalir não desperdiçava movimento e vencia por cansar o outro antes de se cansar. Orven provavelmente trocaria de método no meio da luta, porque testava tudo, inclusive adversários. Saren parecia construído para resistência mais do que para ataque, como só aprende a resistir quem passa a vida tirando gente da água.
+Dareth respondeu conforme os relatos disponíveis: Khalir Buldar economizava movimentos para cansar o adversário. Orven Vendrar podia mudar de método no meio da luta. Saren Lusdar, acostumado a resgates na água, parecia ter resistência fora do comum. Nada daquilo substituía vê-los lutar, mas era melhor do que entrar na arena sem preparação.
 
 — Como sabe tanto sobre gente que nunca encontrou? — perguntou a senhora da cadeira de linhagem, curiosa de verdade, ou fingindo bem.
 
@@ -100,7 +96,7 @@ Esse era exatamente o problema.
 
 Alveris esperou o silêncio se assentar antes de falar, com a pausa de quem está acostumado a ser ouvido.
 
-— O maior inimigo de uma carga não é a distância — disse, devagar, como quem enuncia algo óbvio demais para discordância. — É o número de pessoas autorizadas a pará-la.
+— Uma carga não atrasa só por causa da estrada — disse Alveris. — Atrasa porque cinco pessoas diferentes precisam autorizar sua passagem.
 
 Alguns conselheiros se mexeram nas cadeiras. Alveris continuou, sem pressa.
 
@@ -110,7 +106,7 @@ Propôs uma cadeia especial de circulação exclusiva para o torneio: pesagem in
 
 Dareth não reagiu.
 
-Mas guardou tudo, palavra por palavra, como um soldado guarda o formato de um terreno antes de saber se vai precisar dele.
+Dareth se lembrou da carga de peso errado que Kalan questionara. Uma autorização especial podia ser necessária para a marcha, mas também tornaria mais difícil saber onde alguma coisa desaparecera.
 
 Como o responsável pelos Registros não estava ali para levantar a questão, foi outro conselheiro quem tentou, por uma preocupação que soava mais administrativa do que pessoal.
 
@@ -134,11 +130,7 @@ E era também, Dareth pensou, exatamente o que alguém precisaria dizer se quise
 
 A discussão crescia até que Vetarius, entediado o bastante para deixar isso transparecer, ergueu uma mão.
 
-— Chega.
-
-Silêncio.
-
-— Eu o chamei porque precisamos partir, não porque precisamos descobrir quantas pessoas conseguem impedir uma carroça de andar. — Olhou ao redor da mesa, um a um, como se cada rosto fosse responsável por a reunião ter durado mais do que devia. — A decisão está tomada.
+— Chega. — Vetarius bateu a palma na mesa. — Chamei Alveris para fazer a marcha partir no prazo. Não para ouvir quantas vezes nossos funcionários conseguem parar uma carroça. A proposta está aprovada.
 
 Fez uma pausa, e acrescentou, quase como um favor final:
 
@@ -164,15 +156,9 @@ Kerath esperava do lado de fora, junto à porta, onde seria de esperar que uma C
 
 Não interferiu.
 
-Teral o conduziu até o pátio externo, onde já havia tarraks preparados, e os dois partiram sem grande conversa. Desceram pelo Caminho da Permanência, passaram sob a sombra comprida da estátua de Teryon, atravessaram as vias mais estreitas de Kaelyr. Dareth começou a imaginar o destino antes de vê-lo, e não gostou da certeza que se formava.
+Teral o conduziu até o pátio externo, onde já havia tarraks preparados, e os dois partiram sem grande conversa. Desceram pelo Caminho da Permanência, passaram sob a sombra comprida da estátua de Teryon, atravessaram as vias mais estreitas de Kaelyr. Dareth reconheceu o caminho do Santuário e não gostou. Não era a primeira vez que o Culto o chamava para prestar contas depois de ter protegido Elis.
 
-Teral não falou muito pelo caminho.
-
-Ao chegarem ao Santuário da Raiz Eterna, Teral não entrou.
-
-Quem esperava no alto da escadaria era Hadris.
-
-Ele sorriu ao ver Dareth desmontar, não um sorriso largo, só a satisfação de quem via uma peça chegar onde esperava.
+Durante o trajeto, Teral falou apenas o necessário para orientar os tarraks. Ao chegarem ao Santuário da Raiz Eterna, ele permaneceu no pátio de entrada. Hadris esperava no alto da escadaria e sorriu quando Dareth desmontou, satisfeito demais para a ocasião.
 
 — Senhor Dareth.
 
@@ -202,11 +188,11 @@ Encontrou o Sumo Vigia de costas, parado diante de uma das inscrições mais ant
 
 — Estas paredes, sim. — O Sumo não se virou de imediato. — Mas Vaelyr não criou a fé. Foi inteligente o bastante para entender que Kaeliran precisava construir alguma coisa ao redor dela. — Só então se virou, devagar. — Homens gostam de acreditar que uma coisa começa quando alguém escreve seu nome numa pedra. A Raiz não começou com Vaelyr.
 
-Falou de Odrivar. Do soberano-criança. Da fome que quase quebrou a cidade no começo do reinado dele. Dos religiosos que saíram distribuindo comida antes de qualquer decreto formal existir. Não contou aquilo como origem de nada, mas como um momento em que os homens reconheceram, com mais clareza, algo que já estava ali havia muito mais tempo.
+O Sumo Vigia recordou Odrivar, ainda criança quando assumira o trono, e a fome que atingira os novos anéis. Antes de qualquer ordem do palácio, homens e mulheres da Raiz tinham distribuído comida aos que esperavam nas ruas. Para o Sumo, aquela era a prova de que a fé já sustentava Kaeliran antes de se tornar uma instituição.
 
 — Quando a cidade teve fome — disse —, não inventou a Raiz. Lembrou dela.
 
-Só depois falou de Vaelyr propriamente: como transformara crença solta em instituição, reconhecera o primeiro Sumo Vigia, unificara Casas dispersas sob um único nome, criara os Preceitos do Solo, erguera aquele Santuário pedra sobre pedra, reunira escribas e juristas, histórias e orações num único Livro da Permanência que ainda se consultava.
+Vaelyr, explicou, dera forma ao que existia disperso: reconhecera o primeiro Sumo Vigia, reunira as Casas sob uma autoridade, estabelecera os Preceitos do Solo, mandara erguer o Santuário e organizara o Livro da Permanência. Dareth conhecia aqueles fatos desde jovem, mas, ouvindo-os ali, percebeu como o Sumo costurava séculos de assistência e poder numa única história.
 
 Passou a mão, de leve, sobre uma inscrição específica, sem precisar olhar para lê-la.
 
@@ -234,9 +220,7 @@ O Sumo não se abalou.
 
 Dareth não respondeu. Não tinha certeza se discordava.
 
-O Sumo lembrou, então, de Ilyra. Da Dissolução. Da fome daquele período, diferente da fome de Odrivar. Dos mortos que ninguém conseguiu contar direito. Da tentativa que ela fizera, mais tarde, de retirar poder religioso do próprio Culto. Da abdicação que se seguiu.
-
-Não contou aquilo como demonstração de força.
+O Sumo citou Ilyra, a Dissolução e a fome que a acompanhara, distinta da fome dos tempos de Odrivar. A soberana tentara retirar poder religioso das Casas e acabara abdicando. Ele contou a história com a serenidade de quem esperava que o destino de Ilyra falasse por si.
 
 — Ilyra confundiu soberania com autoridade sobre aquilo em que o povo acredita — disse, simplesmente.
 
@@ -280,9 +264,7 @@ O Sumo olhou para uma das inscrições distantes, como se a resposta estivesse e
 
 Dareth não respondeu de imediato.
 
-Essa era a resposta.
-
-Se fosse irrelevante, o Sumo teria dito. Se fosse um punhado aleatório de papéis, teria explicado sem hesitar, pela vantagem de parecer transparente. Mas não queria dizer o que existia ali dentro, e isso já dizia mais do que qualquer lista.
+Dareth observou o rosto do Sumo. Se os papéis fossem tão banais quanto ele afirmava, por que se recusava a dizer quais eram?
 
 — Então por que tanta gente atrás dela? — tentou Dareth, mais uma vez.
 
@@ -290,7 +272,7 @@ Se fosse irrelevante, o Sumo teria dito. Se fosse um punhado aleatório de papé
 
 Ainda defensável. Ainda perfeitamente religioso.
 
-Mas Dareth já entendera uma coisa: aquela caixa importava. Não necessariamente ao Culto inteiro, como instituição. A alguém, especificamente. E muito.
+Dareth ainda não sabia o que havia nos registros, mas tinha certeza de que alguém se importava demais com seu desaparecimento. Talvez fosse a própria Raiz. Talvez uma pessoa que podia dar ordens em nome dela.
 
 O Sumo deixou o silêncio se esticar antes de falar de novo.
 
@@ -340,11 +322,11 @@ Não demonstrou nada daquilo no rosto.
 
 — A fé pode acolher quem retorna ao caminho — disse o Sumo, quando Dareth já se preparava para sair. — O que ela não pode fazer é aprender a recuar diante de quem a desafia.
 
-Era uma frase terrível, e o pior era que soava, na boca dele, como princípio. Dareth ouviu e sentiu outra coisa por trás das palavras: orgulho vestido de convicção, o tipo mais perigoso, porque nem sempre sabe se distinguir de dentro.
+Dareth conhecia aquele tom. Homens que acreditavam ter sempre razão podiam dizer coisas cruéis sem perceber que eram ameaças.
 
 Dareth não ameaçou. Não discutiu até transformar aquilo em espetáculo.
 
-Entendia guerra bem demais para não reconhecer quando não havia inimigo físico para atacar. Se puxasse a espada, perdia. Se tocasse em Hadris, perdia. Se erguesse a voz contra o próprio Sumo, transformaria Kalan e Elis em prova viva de que a Raiz estivera certa sobre homens que desafiavam sua autoridade.
+Se atacasse Hadris ou desafiasse o Sumo diante dos fiéis, acabaria confirmando todas as acusações contra si. O Culto ainda tinha Kalan e Elis sob custódia, e uma espada não resolveria isso.
 
 Então saiu.
 
@@ -394,9 +376,7 @@ Ele olhou para o joelho.
 
 — Eu caí — disse Elis, depois de um instante. — Fugindo deles.
 
-Dareth examinou as marcas com mais cuidado. Não havia sinal de espancamento, nenhum hematoma no formato de mão ou correia.
-
-Pelo menos ainda não.
+Dareth olhou os arranhões no rosto e os ferimentos do joelho. Não viu marcas de espancamento. Ainda assim, ela estava trancada numa cela fria, com homens armados do lado de fora.
 
 — O que fazia em Maelya?
 
@@ -446,7 +426,7 @@ Só então Dareth entendeu, ao menos em parte.
 
 Elis olhou para o chão.
 
-— Eu fui lá porque... achei que talvez fosse por isso que ela nunca reconheceu a gente. Queria saber. — Engoliu em seco. — Ela disse que eu parecia com minha mãe.
+— Fui lá porque achei que ela nem sabia que a gente existia. Eu só queria perguntar — disse Elis, engolindo em seco. — Aí ela falou que eu parecia com a minha mãe.
 
 Um sorriso pequeno tentou se formar e morreu antes de existir de verdade.
 
@@ -464,7 +444,7 @@ Não chorou muito. Só enxugou os olhos depressa, com as costas da mão, irritad
 
 Dareth nunca fora bom consolando ninguém, e sabia disso o bastante para não tentar uma frase perfeita.
 
-— Tem gente que gosta de chamar de família aquilo que só aceita quando obedece.
+— Tem gente que chama de família só quem obedece tudo que ela manda.
 
 Elis olhou para ele.
 
@@ -494,7 +474,7 @@ Uma pausa.
 
 — Eu prometo.
 
-A palavra pesou entre os dois como nenhuma outra até ali.
+Elis ficou olhando para ele. Dareth não desviou os olhos, embora ainda não soubesse como cumpriria a promessa.
 
 Quando voltou a Kaendar, a Câmara já estava vazia. Serviçais recolhiam taças esquecidas pela mesa. Alguém enrolava o mapa da viagem que horas antes decidira o destino de mil pessoas.
 
@@ -514,13 +494,7 @@ Ele a encarou.
 
 — Se ele não sair, pode tirar meu nome da comitiva.
 
-Kerath entendeu na hora. Servira sob o comando dele tempo suficiente para saber a diferença entre ameaça e decisão já tomada, apenas informada. Aquilo era a segunda coisa.
-
-Hesitou por um instante.
-
-Depois bateu.
-
-A porta se abriu.
+Kerath servira sob as ordens de Dareth tempo suficiente para reconhecer quando uma ameaça era uma decisão. Olhou-o mais uma vez e bateu à porta. A fechadura se moveu do lado de dentro.
 
 Vetarius apareceu irritado.
 
@@ -534,7 +508,7 @@ Parou.
 
 Vetarius franziu a testa.
 
-— O mesmo que eu pedi que Selina investigasse.
+— Aquele de Maruva, sobre o qual mandei Selina se informar?
 
 Agora Vetarius conseguiu localizar do que se tratava.
 

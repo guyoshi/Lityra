@@ -98,15 +98,13 @@ Vetarius riu, um som seco que quase virou tosse.
 
 — Então... você já escolheu sem discutir com eles os nomes?
 
-— Discuti. Comigo mesmo, que é a única discussão que nunca me faz perder tempo. — Ele se inclinou para frente, cotovelos nos joelhos, e por um instante pareceu mais o homem que subira numa plataforma e fizera Kaeliran inteira gritar seu nome do que o homem largado numa poltrona bebendo sozinho. — Quer ouvir os nomes que descartei? Rendal é bom com a espada e péssimo com gente. Halvor tem prestígio e nenhuma experiência real de sangue, e perderia na primeira vez que sangrasse de verdade. Ossian é devoto demais do Culto pra representar um Polar, lutaria pela Raiz Eterna antes de lutar por mim. E Maren é bom, mas a família dele já tem prestígio demais dentro de Kaendar. Se ele vencer, vou passar o próximo ciclo decenal segurando um sobrinho ambicioso que se acha dono de metade do meu Conselho.
+— Discuti comigo mesmo. É bem mais rápido. — Vetarius apoiou os cotovelos nos joelhos. — Rendal sabe lutar, mas consegue arrumar inimigos até numa festa. Halvor tem prestígio e nunca precisou derramar sangue numa batalha. Ossian obedeceria ao Sumo Vigia antes de obedecer a mim. E Maren é bom, disso eu não duvido. Só que a família dele já tem poder demais em Kaendar. Se vencer, vou passar os próximos dez ciclos aguentando um sobrinho ambicioso que acha que manda no Conselho.
 
 Selina deixou que ele terminasse antes de perguntar.
 
 — Então quem sobrou?
 
-— Ninguém que já esteja vivo e ativo hoje que eu confie o suficiente pra representar os Polar numa arena, diante de nove outras dinastias, sem envergonhar meu nome ou o seu. — Vetarius se recostou de novo, e algo na voz dele mudou, ficou mais baixo, quase gentil, do jeito que só ficava quando falava de alguma coisa que realmente importava para ele. — Vou mandar buscar Dareth.
-
-O nome pousou na sala como uma pedra pousaria num tanque raso.
+— Nenhum desses. — Vetarius bebeu um gole. — Vou mandar buscar Dareth.
 
 Selina conhecia a reputação havia anos sem nunca ter conhecido o homem. Quatro-Dedos. Havia quem contasse a Passagem de Arven como lenda e quem lembrasse apenas que Dareth se afastara da vida pública e nunca parecera interessado em voltar. Em Kaendar, seu nome ainda pesava.
 
@@ -114,7 +112,7 @@ Selina conhecia a reputação havia anos sem nunca ter conhecido o homem. Quatro
 
 — Não. Ninguém é melhor que Dareth.
 
-— E você acredita que ele na idade que tem ainda continua tão bom? 
+— Você acha mesmo que ele ainda luta como antes? 
 
 — Eu acredito que ele lutaria por Kaeliran de verdade. E isso basta. — Vetarius ergueu um dedo, o gesto de quem vai repetir uma história que já contou tantas vezes que só precisa sentir de novo o peso dela. — Foi o melhor Calandrir que eu já tive. Não o melhor de uma geração, Selina. O melhor que passou por baixo do meu comando em trinta e cinco ciclos de soberania.
 
@@ -146,7 +144,7 @@ Vetarius sorriu. Selina conhecia aquele sorriso, porque já o usara.
 
 Selina percebeu o que ele fazia antes de responder. Não estava apenas escolhendo Dareth. Estava fechando a porta atrás dele antes mesmo de lhe perguntar se queria entrar.
 
-— Você entende que, depois de registrado, ele não pode simplesmente dizer não — disse Selina, devagar, dando à frase todo o peso que Vetarius parecia decidido a ignorar. — Se recusar depois disso, os Polar ficam sem substituto. Perdemos o torneio antes mesmo de começar.
+— Depois que o nome for registrado, não haverá possibilidade de substituição — advertiu Selina. — Se Dareth recusar, perderemos o Torneio antes de começar. Entende a gravidade disso?
 
 — Eu sei o que a regra diz. Ajudei a escrevê-la, lembra? — Vetarius se levantou e foi até a mesa dos mapas. — Vou registrar o nome antes de perguntar. Se eu perguntar primeiro e ele hesitar, passo semanas tentando convencer um homem de cinquenta ciclos a fazer o que já devia querer fazer por mim. Com o nome entregue, ele discute o como. Não o se.
 
@@ -194,9 +192,9 @@ Selina devolveu o papel.
 
 — Então autorize. Já temos carroças demais brigando com gente durante o dia.
 
-— Mas se os destinos estão se repetindo por pedidos diferentes...
+— Mas os mesmos destinos aparecem em solicitações de pessoas diferentes...
 
-— Amira. — Selina não elevou a voz. Não precisou. — Não transforme volume em mistério. Resolva o que precisa ser resolvido enquanto eu estiver fora.
+— Amira. — Selina manteve a voz firme. — Não podemos tratar cada repetição como indício de fraude. Autorize os pedidos regulares e deixe os casos pendentes separados para minha volta.
 
 Amira fechou a boca. Assentiu uma vez e recolheu o papel sem responder.
 

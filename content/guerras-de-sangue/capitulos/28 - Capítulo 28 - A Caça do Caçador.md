@@ -1,4 +1,4 @@
-Kaelina deixou os túneis carregando sangue que não podia explicar.
+Kaelina saiu dos túneis com as mãos ainda cobertas de sangue.
 
 Havia sangue em suas mãos, nos braços, na parte da roupa que roçara o chão e no lado do rosto onde Ylvena a atingira. O corte no pescoço voltara a abrir durante a luta, formando uma linha escura que desaparecia por baixo do tecido. Parte daquilo lhe pertencia. Parte pertencia à mulher que continuava estendida no quarto escondido sob Kaendar.
 
@@ -42,7 +42,7 @@ Varron aproximou-se, olhando o sangue em Kaelina.
 
 — Não é todo meu.
 
-A resposta fez os homens se entreolharem. Varron observou suas mãos, o corte no pescoço e a espada retirada de um morto. O olho restante endureceu, mas ele não perguntou. Um ruído de passos veio da rua lateral.
+Varron olhou para os ferimentos dela, mas não perguntou de quem era o sangue. Varron observou suas mãos, o corte no pescoço e a espada retirada de um morto. O olho restante endureceu, mas ele não perguntou. Um ruído de passos veio da rua lateral.
 
 — Depois — disse Varron. — Primeiro saímos daqui.
 
@@ -52,7 +52,7 @@ Cinco Vendrar entraram na passagem, acompanhados por três Glydar. Os ribeirinho
 
 Varron lançou a própria lança. A arma atingiu o Glydar no peito e o empurrou contra a parede. Os soldados Polar fecharam-se diante de Kaelina. O primeiro Vendrar bateu a lâmina contra um escudo, tentando abri-lo por força. Varron passou pela lateral da formação, recebeu o segundo golpe na placa do braço e enfiou a espada entre as costelas do homem.
 
-O conselheiro não lutava como Cal Edran. Edran parecia uma muralha escolhendo onde cair. Varron lutava como patrulheiro de fronteira, acostumado a emboscadas, espaço ruim e inimigos que não anunciavam intenção. Não procurava duelo. Procurava joelho, pulso, garganta e qualquer erro que encerrasse a luta depressa. Dois Glydar tentaram alcançar Kaelina pela esquerda.
+O conselheiro lutava de um jeito diferente de Cal Edran. Edran mantinha a guarda alta e protegia quem estivesse ao seu lado. Varron lutava como patrulheiro de fronteira, acostumado a emboscadas, espaço ruim e inimigos que não anunciavam intenção. Não procurava duelo. Procurava joelho, pulso, garganta e qualquer erro que encerrasse a luta depressa. Dois Glydar tentaram alcançar Kaelina pela esquerda.
 
 Ela recebeu a primeira lança com a espada. O impacto quase arrancou a arma de sua mão. Kaelina recuou, desviou a ponta e atingiu o cabo, sem força suficiente para quebrá-lo. O Glydar puxou a lança para outra estocada. Varron não conseguiria alcançá-la. Kaelina avançou em vez de recuar.
 
@@ -74,7 +74,7 @@ O caminho até as muralhas tornou-se uma sucessão de combates pequenos demais p
 
 Kaelina viu um garoto do Anel Baixo tentando apagar o fogo de uma porta com uma panela. Uma mulher puxou-o para trás quando uma flecha atravessou a rua. Dois homens carregavam um ferido que continuava dando ordens mesmo sem perceber que parte de sua barriga estava aberta. Um velho estava ajoelhado diante da própria casa, não rezando, mas recolhendo com as mãos aquilo que ainda podia ser salvo antes que as chamas chegassem ao teto.
 
-Kaelina sentiu o peso do que Alyra desejara.
+Kaelina viu o resultado das ordens que Alyra dera sem consultar ninguém.
 
 Não a guerra imaginada na Mesa da Raiz, feita de mapas, inimigos nomeados e decisões que terminavam quando alguém batia o selo sobre uma tábua. Aquilo era a guerra depois que saía da boca dos soberanos: peixe esmagado no chão, crianças respirando fumaça, homens morrendo sem saber qual ordem obedeciam e mulheres tentando decidir se carregavam água para a casa ou para o marido ferido.
 
@@ -256,7 +256,7 @@ Nynestra não se moveu, mas Kaelina percebeu quando a atenção dela deixou de o
 
 — Vocês são assassinos covardes! — gritou um Tondrar.
 
-— Eu não sou — disse Kaelina. — Por isso estou aqui fora e não escondida atrás da pedra.
+— Estou aqui. Podem me acusar olhando para mim, sem atacar os homens nos portões.
 
 Kharvok aproximou-se.
 
@@ -274,7 +274,7 @@ Depois apontou para a parte da aliança próxima ao rio.
 
 Seu olhar encontrou o fogo deixado pelos Vendrar.
 
-— Os Vendrar vieram porque guerra transforma metal em riqueza.
+— Os Vendrar vieram por motivos diferentes. Alguns querem enfraquecer Kaendar, outros seguem Tavra, outros esperam ganhar com as armas que trouxeram.
 
 Por fim, encarou Nynestra.
 
@@ -298,7 +298,7 @@ Alguns Buldar desviaram o olhar. Nynestra apertou a mão sobre o punho da espada
 
 — Acho que você não entendeu sobre o que é essa guerra, garota. Isso vai muito além de uma guerra por fome. É uma guerra por liberdade.
 
-— E quem está os prendendo? Chegaram até aqui, nas muralhas de Kaendar, sem impedimento, sem dificuldade. A visão que vocês têm de Kaendar... de que é uma fortaleza impenetrável... não existe. Somos um como vocês. Meu pai foi duro, assim como os soberanos anteriores. Não posso pedir que confiem que será diferente comigo ou Alyra...
+— E quanto custou chegar até aqui? Quantos homens perderam, quantas aldeias atravessaram, e os portões continuam fechados. Não vou fingir que meu pai tratou os campos de vocês com justiça. Nem pedir que confiem em mim só porque digo que farei diferente.
 
 A frase atravessou a formação Buldar. Kaelina continuou:
 
@@ -320,13 +320,13 @@ Kaelina apontou para Kharvok. Murmúrios atravessaram os Tondrar. Kaelina olhou 
 
 — Você vive porque uma Buldar decidiu que sua morte custava mais do que seu ódio.
 
-Alguns Tondrar bateram lanças no chão. Outros olharam para Kharvok como se a cicatriz em seu ventre tivesse acabado de receber uma história nova e humilhante. Nynestra deu um passo à frente.
+Alguns Tondrar bateram lanças no chão. Outros procuraram Kharvok, aguardando sua reação. Nynestra deu um passo à frente.
 
 — O que você quer?
 
 A pergunta silenciou parte do campo. Kaelina respondeu sem demora:
 
-— Um pedido. Que não sacrifique inocentes pela razão errada. Há guerras que não precisam ser travadas com homens. Os Buldar controlam o alimento de toda Jesed. E os Polar... precisam comer. Estamos todos em uma roda... todos dependendo uns dos outros. Mas há um equilíbrio. Não deixe que isso acabe.
+— Não mande os teus morrerem para abrir caminho para quem vai saquear Kaendar. Os Buldar têm campos para proteger e gente esperando a próxima colheita. Eu sei que precisamos dos seus alimentos. Isso dá a vocês uma força que não depende de vencer esta batalha.
 
 A raiva surgiu nos olhos da Buldar, mas não havia apenas raiva. Havia cálculo, rápido e involuntário. Kaelina conhecia aquele olhar. Nynestra estava contando.
 
@@ -338,7 +338,7 @@ Kharvok riu.
 
 — Aí está.
 
-— Não estou oferecendo amizade, perdão ou confiança. Estou oferecendo uma escolha que ainda preserva alguma coisa. Retire os Buldar, e levarei diante da Mesa da Raiz os nomes de quem fabricou esta guerra. Os acordos impostos aos seus campos serão revistos diante de testemunhas de outros clãs.
+— Não estou pedindo confiança. Retire os Buldar e eu apresentarei à Mesa da Raiz as provas sobre quem provocou esta guerra. Os acordos impostos aos seus campos terão de ser revistos, com testemunhas de outros clãs.
 
 — Não acredito em você, Polar — disse Nynestra.
 
@@ -368,7 +368,7 @@ Um rugido de revolta veio dos Tondrar. Kharvok segurou o braço dela.
 
 Nynestra baixou os olhos para a mão dele. Kharvok soltou.
 
-— Decido onde meus mortos deixam de servir aos vivos — disse ela. — Esta muralha não cairá antes que metade dos nossos esteja embaixo dela. E, se cair, vocês entrarão primeiro, matarão primeiro e escolherão primeiro. Os Buldar não vieram entregar filhos para que a Boca Seca possa decorar outra parede com crânios.
+— Decido quantos homens ainda posso levar de volta vivos — disse ela. — Esta muralha não cairá antes que metade dos nossos esteja embaixo dela. E, se cair, vocês entrarão primeiro, matarão primeiro e escolherão primeiro. Os Buldar não vieram entregar filhos para que a Boca Seca possa decorar outra parede com crânios.
 
 — Fizemos um acordo.
 
@@ -380,7 +380,7 @@ Kharvok mostrou os dentes. Nynestra virou-se para seus homens.
 
 Hadrun soltou o ar que parecia prender desde o início do discurso. Os Buldar começaram a se mover.
 
-Não foi uma retirada desordenada. Escudos formaram corredores. Feridos foram colocados em carroças. Arqueiros mantiveram-se voltados para Kaendar e para os Tondrar ao mesmo tempo, deixando claro que não confiavam em nenhum dos lados. Kharvok avançou para cima de Kaelina.
+Os Buldar recuaram em formação. Escudos abriram corredores, feridos foram colocados em carroças e arqueiros vigiaram Kaendar e os Tondrar ao mesmo tempo. Kharvok avançou para cima de Kaelina.
 
 Ela percebeu tarde demais. Kharvok atravessou o espaço entre os dois exércitos com o rosto tomado pela fúria e ergueu o punho. Nynestra entrou na frente e segurou-lhe o braço antes que o golpe alcançasse Kaelina.
 
@@ -432,7 +432,7 @@ Usavam couro gasto, tecidos enrolados contra areia e poeira, armas sem brasão e
 
 Kaelina reconheceu as tranças grossas, a mecha grisalha sobre o ombro e a cicatriz que abria o rosto da boca até perto da orelha. O homem que Daryon humilhara diante das pedras voltava agora no momento em que Kaendar mais precisava de alguém sem permissão para entrar. Sarkan disparou uma flecha contra um Tondrar e gritou:
 
-— Abram espaço para a soberana!
+— Abram caminho! Protejam a mulher da Ramagem!
 
 Os Homens das Areias desceram sobre a lateral da formação Tondrar. Não eram numerosos o bastante para vencer Kharvok. Não precisavam. O ataque obrigou os Tondrar a dividir a frente, desviou arcos e abriu um corredor irregular entre Kaelina e o portão. Ela correu por ele. A pequena passagem na muralha estava aberta.
 
@@ -488,7 +488,7 @@ Sarkan olhou para a ponta.
 
 — E por que escolher Kaendar?
 
-— Porque os homens do lado de fora já têm aliados. Vocês têm portões fechados, conselheiros desesperados e uma dívida antiga. Ainda assim... são o mais próximo que temos de sangue.
+— Porque os homens do lado de fora não vão nos deixar voltar para as terras Polar. Vocês talvez deixem. E Kaendar ainda nos deve uma resposta.
 
 Kaelina afastou-se da parede.
 
@@ -502,9 +502,9 @@ Sarkan reconheceu que ela sabia e assentiu.
 
 Um impacto maior atingiu a passagem externa. Os Tondrar haviam trazido uma árvore derrubada, ou parte dela. A madeira bateu no portão com força suficiente para espalhar poeira pelas juntas. Varron chamou guardas para reforçar as travas. Sarkan continuou olhando para Kaelina.
 
-— Diga onde sua cidade sangra, soberana.
+— Por onde quer que meus homens comecem?
 
-Kaelina não gostava dele. Isso ajudava. Homens que precisavam ser amados eram mais difíceis de negociar do que homens que declaravam o preço antes de fingir lealdade.
+Kaelina sabia que Sarkan exigiria pagamento depois da batalha. Pelo menos não disfarçava isso.
 
 — O cais — disse ela. — Entraram pelo Cais dos Zírrios. Há homens nossos impedindo que alcancem os anéis superiores, mas não vão resistir por muito tempo. Feche a passagem, empurre os invasores de volta para os barcos e mantenha seus homens fora dos depósitos.
 
@@ -516,13 +516,13 @@ Sarkan inclinou a cabeça.
 
 — Julgamento?
 
-— Provem que são Polar.
+— Seus homens ajudaram a defender este portão. Se quiserem voltar, vão ter de responder também pelo que fizeram antes de sair.
 
 Sarkan sorriu. Era quase a mesma resposta que Daryon lhe dera. A diferença era que Kaelina não fingia que o momento político apareceria sozinho.
 
 Sarkan soltou uma risada e ergueu a mão. Os Homens das Areias reuniram-se ao redor dele.
 
-— Para o cais! — ordenou. — Não roubem nada que não consigam carregar depois de receber perdão!
+— Para o cais! — ordenou. — Nada de saquear as casas! Quero todo mundo no cais!
 
 Varron fechou o rosto. Sarkan passou por ele.
 
@@ -552,7 +552,7 @@ Varron respirou fundo, irritado.
 
 — Até agora, conhecer sua irmã não parece ter ajudado muito.
 
-A frase teria ferido em outro momento. Naquela noite, apenas confirmou que Varron ainda possuía coragem para dizer coisas inúteis.
+A frase teria ferido em outro momento. Kaelina não respondeu. Varron podia continuar irritado. Precisavam encontrar Alyra.
 
 — O Fendelar entrou na cidade — disse Kaelina. — Ele está atrás dela.
 
@@ -566,7 +566,7 @@ Varron quase riu.
 
 — Este homem matou Cal Edran em Alestir.
 
-O nome matou o riso antes que nascesse. Kaelina continuou:
+Varron deixou de sorrir. Ordenou que os soldados preparassem as armas. Kaelina continuou:
 
 — Ele reuniu Tondrar e Buldar. Ele não veio conquistar muralhas. Veio encontrar Alyra. Se ela deixou a Câmara, os dois podem estar caminhando um para o outro.
 
@@ -608,7 +608,7 @@ Rendar não demonstrou surpresa.
 
 Kadrir aproveitou a resposta e atacou. Rendar bloqueou, mas o impacto o empurrou para perto da entrada da fortaleza. Varron ordenou que os homens avançassem pelos lados.
 
-Rendar olhou para a porta aberta atrás de si. Daryon montara a situação como dois garraventos: um se mostrava para obrigar a presa a esquecer o outro. Depois para Alyra, ou para o lugar onde acreditava que ela estaria. Kadrir atacou outra vez.
+Rendar olhou para a porta aberta atrás de si. A porta aberta atrás de Rendar era a sua chance de escapar de Kadrir e chegar às salas onde acreditava encontrar Alyra. Kadrir atacou outra vez.
 
 Rendar não tentou vencer o golpe. Deixou a lâmina deslizar pela própria espada, girou o corpo e chutou a lateral do joelho ferido de Kadrir. O Primeiro Kae caiu por um instante. Rendar passou por ele. Entrou na fortaleza. Cal Kadrir levantou-se antes que qualquer homem pudesse ajudá-lo e correu.
 
@@ -734,11 +734,11 @@ Ela permaneceu. Daryon atacou outra vez. Rendar recuou para perto de uma coluna.
 
 Rendar bateu-lhe no rosto com o cotovelo. O conselheiro cambaleou, mas não caiu. Recuou e voltou à posição, sangue saindo do nariz.
 
-— Você luta bem — disse Rendar.
+— Não esperava que um conselheiro soubesse lutar — disse Rendar.
 
 Daryon limpou o sangue com o dorso da mão.
 
-— Sempre fui melhor com palavras.
+— Não era a minha primeira escolha.
 
 A frase pareceu inquietá-lo mais do que qualquer golpe. Daryon investiu. Rendar entrou por baixo da espada, atingiu-lhe as costelas com o punho e prendeu o braço armado. Daryon tentou usar o peso do corpo para escapar, mas Rendar torceu o pulso até a espada cair. O conselheiro acertou-lhe o joelho. Rendar perdeu o equilíbrio.
 
@@ -802,13 +802,13 @@ Daryon apoiou a outra mão no assento e forçou o corpo a ficar de pé. O corte 
 
 — Cale-se — respondeu ele, mas não era a ela que falava. Era ao próprio cálculo, ainda correndo atrás da frase certa.
 
-— Ela não sabia de Veyr. Mas eu sabia.
+— Eu não sabia como Veyr morreu. Mas sabia que não tínhamos prova de que os Fendelar o mataram. Deixei Alyra acreditar que eram culpados.
 
 Rendar deu um passo na direção dele e a espada foi junto, saindo do alcance de Alyra.
 
 — Eu deixei que o mundo acreditasse que os Fendelar começaram.
 
-Alyra sabia que não era verdade. Não tinha como Daryon saber disso. Daryon recuou meio passo e os olhos de Rendar o seguiram.
+Alyra lembrava que Daryon sugerira atacar Velarim sem brasão, mas fora ela quem autorizara o massacre. Agora ele tentava atrair a atenção de Rendar para si. Daryon recuou meio passo, e os olhos do caçador o seguiram.
 
 — Porque um emissário morto por mãos Fendelar une um povo mais depressa que qualquer tratado. Vocês eram poucos. Serviriam de aviso pros demais.
 
@@ -824,11 +824,11 @@ Atrás dele, Alyra apoiou um joelho no chão. Rendar não viu. Estava olhando pa
 
 No chão, Alyra parou de tentar se levantar. Daryon não olhou para ela. Olhar seria devolver a espada ao pescoço dela.
 
-— Envenenei Yvenn para que os Tondrar duvidassem de si mesmos e para que Alyra... tivesse sua força. O veneno, a água, a acusação aos Tondrar. Eles não começaram esta guerra. Eu comecei cada parte dela.
+— Eu sabia que Ylvena havia matado os rapazes. Escondi o que sabia e envenenei Yvenn para acabar com a trégua. Os Tondrar não começaram esta guerra. Eu ajudei a levar Alyra até ela.
 
 Rendar avançou até ele. Daryon ergueu os olhos, ainda medindo quanto valia cada palavra que lhe restava.
 
-— E eu fiz tudo isso... por nós — disse, olhando para Alyra, não para ele.
+— Achei que estava fazendo isso por nós — disse, olhando para Alyra, não para Rendar.
 
 A confissão era a última carta de um homem que contava havia muito quanto tempo a raiva de um caçador levava para virar hesitação.
 

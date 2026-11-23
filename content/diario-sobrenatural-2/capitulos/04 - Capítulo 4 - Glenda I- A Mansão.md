@@ -16,33 +16,33 @@ Eu recusei.
 
 Eu queria ficar sozinha em casa, sair com minhas amigas e não prestar contas de cada passo. Dois meses sem ouvir minha mãe perguntar aonde eu ia já seria uma viagem maravilhosa.
 
-A minha mãe, claro, achou isso “perigoso”. Duas palavras que ela usa para tudo: perigoso e sensato. O sensato, para ela, era eu não ficar sozinha. Então ela teve a sua ideia sensata: me mandar para a casa do “tio” Diego, marido da minha tia Muriel.
+A minha mãe, claro, achou isso “perigoso”. Duas palavras que ela usa para tudo: perigoso e sensato. O sensato, para ela, era eu não ficar sozinha. Então teve a sua ideia sensata: me mandar para a casa do “tio” Diego, ex-marido da minha tia Muriel. Muriel era minha tia de sangue. Diego continuava sendo chamado de tio por uma dessas conveniências familiares que ninguém se dá ao trabalho de rever. A separação também não abalou a confiança dos meus pais nele. Dinheiro e boas maneiras, pelo visto, valiam como atestado de caráter.
 
 Nunca gostei muito de Diego, embora não soubesse explicar aquilo aos meus pais sem começar uma discussão inútil. Mas aceitei. A localização da casa era boa e Jason estaria lá. Eu podia aguentar o resto.
 
 A mansão dele ficava no Morumbi, a poucos minutos da Paper, o jornal que eu leio como se fosse mapa e religião desde que eu era um filhote de gente. Para mim, a Paper era uma porta. E eu estava cansada de viver do lado de fora.
 
-Eu cresci praticamente dentro da casa do Diego e da tia Muriel no Rio, em grande parte por causa do Jason. Naquela época, era como se nós dois estivéssemos sempre “sobrando” na casa dos adultos: ele porque precisava de alguém da idade dele por perto, eu porque meus pais achavam mais fácil delegar a minha presença do que lidar com ela. Criança é isso: é alguém que os outros estacionam.
+Naquela época, Diego e tia Muriel moravam em São Paulo, no Morumbi, e era Jason quem passava boa parte do tempo na nossa casa, no Rio. Às vezes vinha para o fim de semana e acabava ficando vários dias. Outras vezes, passava as férias quase inteiras comigo. Eu nunca tinha ido à casa de Diego, nem quando ele ainda vivia com tia Muriel. Os adultos combinavam onde deixar a gente, e a nossa casa costumava ganhar. Era como se nós dois estivéssemos sempre “sobrando”: ele porque precisava de alguém da idade dele por perto, eu porque meus pais achavam mais fácil delegar a minha presença do que lidar com ela. Criança é isso: é alguém que os outros estacionam.
 
 Então crescemos como irmãos. Corríamos na chuva, inventávamos regras para jogos que não precisavam de regras, apostávamos corrida contra carros na rua como se a vida fosse um vídeo-game e não um risco real. Eu lembro do cheiro do corredor depois de limpar o chão, do barulho da TV ligada sem ninguém assistir.
 
-Meus pais sempre estiveram ocupados com a empresa. Reuniões, viagens, “pessoas importantes”. Por isso eu passei tempo demais sob os cuidados do Diego. E, para ser justa com a parte da história que as famílias gostam de contar, eu até achava normal. Diego sabia desempenhar o papel certo com perfeição: falava baixo quando devia, sorria no momento exato, dizia meu nome como se eu fosse uma responsabilidade que ele carregava com orgulho.
+Meus pais sempre estiveram ocupados com a empresa. Reuniões, viagens, “pessoas importantes”. Quando Jason vinha, ficávamos juntos por horas, inventando maneiras de não atrapalhar os adultos. Diego aparecia nos almoços, nas festas, às vezes em reuniões que tinham cara de negócio e eram chamadas de encontros de família. Para os meus pais, era impecável. Sabia desempenhar o papel certo com perfeição: falava baixo quando devia, sorria no momento exato, dizia meu nome como se fosse uma responsabilidade que ele carregava com orgulho.
 
 Aos meus quinze anos, as coisas mudaram. Quinze anos é uma idade curiosa: é quando você deixa de ser “menina” no olhar do mundo e, de repente, o mundo inteiro começa a te olhar de um jeito que ele acha que tem direito. Você começa a notar o que antes passava despercebido: o tempo de uma mão no ombro, um comentário que parece brincadeira mas não é, um olhar que dura um segundo a mais do que deveria, uma porta que fecha com calma demais.
 
 Foi mais ou menos nessa época que eu simplesmente parei de ver meu primo.
 
-Eu decidi. Disse para os meus pais que estava ocupada, inventei desculpas, evitei visitas. Jason sentiu minha falta, eu senti a dele, mas eu sabia que seria melhor assim. E às vezes “melhor” não tem explicação bonita, só tem instinto.
+Eu decidi. Disse para os meus pais que estava ocupada, inventei desculpas para não receber Jason e passei a evitar as reuniões em que Diego pudesse aparecer. Jason sentiu minha falta, eu senti a dele, mas eu sabia que seria melhor assim. E às vezes “melhor” não tem explicação bonita, só tem instinto.
 
-Depois disso, tudo mudou rápido. Tia Muriel se separou do Diego quando o Lucas, irmão mais novo de Jason, ainda era pequeno. Jason foi morar com a mãe em Vila Velha, e eu nunca mais o vi direito. A distância virou hábito, e hábito vira silêncio sem a gente perceber.
+Depois disso, tudo mudou rápido. Tia Muriel se separou do Diego quando Lucas, irmão mais novo de Jason, ainda era pequeno. Ela se mudou com os dois para um sítio em Vila Velha, enquanto Diego continuou em São Paulo. Jason passou o resto dos anos de escola lá com a mãe. Eu nunca mais o vi direito. A distância virou hábito, e hábito vira silêncio sem a gente perceber.
 
 Dois anos atrás, ele me ligou com a notícia que ninguém sabe como receber: o Lucas tinha levado um tiro e não resistiu. Nove anos. Nove. 
 
-Até então, o Jason era um rapaz feliz, que sonhava alto. Mas, depois do Lucas, ele ficou sozinho de um jeito que eu não sabia consertar com conversa. Disse que o pai se mudaria de vez para São Paulo, para uma casa “com mais segurança”.
+Até então, Jason era um rapaz feliz, que sonhava alto. Mas, depois do Lucas, ficou sozinho de um jeito que eu não sabia consertar com conversa. Diego queria que ele voltasse para São Paulo, para a casa “com mais segurança” que nunca deixara de ser dele. Jason preferiu ficar no sítio com a mãe até terminar o ensino médio.
 
 Desde então, eu e Jason quase não nos falávamos. Não por falta de assunto. Por falta de espaço.
 
-Quando meus pais anunciaram que eu ficaria com o Diego, eu relutei, claro. Mas o Morumbi e a Paper fizeram a decisão ficar mais simples. Contei ao Jason sobre a vaga que eu poderia ter, e ele disse que também iria passar um tempo com o pai. “Uns dias.” O suficiente para ele não parecer abandonado, e o suficiente para eu não parecer sozinha.
+Quando meus pais anunciaram que eu ficaria com Diego, eu relutei, claro. Mas o Morumbi e a Paper fizeram a decisão ficar mais simples. Jason já tinha terminado o colégio e voltaria a morar com o pai para prestar vestibulares em São Paulo. Contei a ele da vaga que eu poderia conseguir na Paper, e ele disse que seria bom ter companhia. Não falamos em quanto tempo ficaríamos. Eu só queria não estar sozinha naquela casa.
 
 No táxi, eu gravei um diário em vídeo no meu estilo. Um tipo de registro que parece espontâneo para quem assiste e calculado para quem faz. 
 
@@ -56,7 +56,7 @@ Eu finalizei com um beijo rápido e desliguei.
 
 O taxista me olhou pelo retrovisor como se eu tivesse acabado de confessar um crime. Deixei que achasse. Pessoas relaxam quando te colocam numa caixinha simples: “menina dramática”, “metida a jornalista”.
 
-Quando desci do táxi e fiquei em frente à mansão do Diego, algo em mim recuou. Veio com a clareza seca de um aviso. A ideia de voltar para o Rio veio clara e prática, como uma porta ainda destrancada: eu posso ir embora agora e ninguém vai me impedir.
+Quando desci do táxi e vi a mansão de Diego pela primeira vez, algo em mim recuou. Veio com a clareza seca de um aviso. A ideia de voltar para o Rio veio clara e prática, como uma porta ainda destrancada: eu posso ir embora agora e ninguém vai me impedir.
 
 Só que então eu o vi vindo na minha direção.
 
@@ -220,7 +220,9 @@ Quarto grande, paredes em tom marrom-claro, cama de casal com cortinas laterais 
 
 Jason sorriu, sem perceber o que eu tinha acabado de elogiar.
 
-— A D. Tereza deu uma limpada quando soube que você vinha. Faz tempo que ninguém dorme aqui.
+— A D. Tereza deu uma limpada quando soube que você vinha. Faz tempo que ninguém dorme aqui. Ah, e eu pedi pra cobrir o espelho grande. Tua mãe comentou que você não gosta muito de se olhar. Não sei por quê, mas achei melhor deixar do teu jeito.
+
+— Que eficiência. Agora só falta colocar um mordomo na porta — respondi. Ele riu, satisfeito por ter ajudado.
 
 — Quanta gentileza!
 
@@ -230,7 +232,7 @@ Quando fiquei sozinha, eu não fiz a típica coisa de “jogar malas no chão e 
 
 Sentei na cama. O colchão era tão bom que me deu raiva.
 
-Eu levantei e, sem pensar muito, cobri os espelhos do guarda-roupa com uma toalha. Cobri por inteiro, até não sobrar brilho. Só depois respirei como se tivesse feito algo óbvio.
+O espelho maior já estava debaixo de um lençol claro. Jason tinha cumprido o que prometera. Mas havia uma superfície estreita e descoberta na porta lateral do guarda-roupa. Tirei uma toalha da mala e cobri também aquela faixa. Verifiquei se não sobrara nenhum pedaço de vidro à mostra. Só então consegui desfazer a tensão dos ombros.
 
 À tarde, Jason fez batatas fritas e filé mignon para almoçarmos, um almoço de “bem-vinda”, desses que servem de fotografia mental. Eu mexi no prato mais do que comi. Jason não reparou. Ou escolheu não reparar.
 

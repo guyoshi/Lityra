@@ -1,100 +1,98 @@
-Um grito comprido e rouco acordou Beatriz. Veio de fora, entrou pela chaminé e desceu pela casa inteira. Ela se sentou na cama, arrepiada.
+Um grito acordou Beatriz. Veio de algum lugar além das árvores e atravessou a casa. Ela se sentou de repente, puxando a coberta até o peito.
 
-Ela ficou parada debaixo da coberta, contando as vigas do teto, que continuavam no lugar. O fogão estava aceso no outro cômodo, com um estalo de lenha de vez em quando, e Breno dormia na cama ao lado, de botas, de boca aberta, com uma das mãos caída em cima do peito que subia e descia. Beatriz achou aquilo estranho. Breno acordava até com o barulho de Banjo virando a página de um livro, e agora um homem inteiro gritava no meio da neve e ele só franzia a testa, sem acordar.
+Ela ficou parada debaixo da coberta, contando as vigas do teto, que continuavam no lugar. O fogão estava aceso no outro cômodo, com um estalo de lenha de vez em quando, e Breno dormia na cama ao lado, de botas, de boca aberta, com uma das mãos caída em cima do peito que subia e descia. Beatriz franziu a testa. Breno acordava com qualquer barulhinho em casa, até com Banjo virando as páginas de um livro. Mas aquele grito não parecia incomodá-lo.
 
 O grito veio de novo, mais curto, e dessa vez tinha uma palavra dentro, ou quase uma. Parecia "para". Parecia "para, para, para".
 
-— Breno. — Ela sacudiu o ombro dele. — Tem um moço gritando lá fora, e ele está mandando uma coisa parar, e eu acho que a coisa não está obedecendo, porque ele continua gritando.
+— Breno, acorda! — Ela sacudiu o ombro dele. — Tem alguém gritando lá fora. Acho que tá pedindo ajuda!
 
-— Primeiro as botas — murmurou Breno, de olho fechado, e virou o rosto para a parede.
+— Cadê as botas? — murmurou Breno, de olhos fechados, virando para a parede.
 
 — Você já está de bota.
 
-— Então segundo as botas.
+— Então... pega as suas — respondeu ele, sem acordar.
 
-Ela tentou mais uma vez, com as duas mãos, e conseguiu só que ele agarrasse o travesseiro. Tinham combinado de noite que decidiam as coisas juntos, e ela estava tentando, de verdade, só que a metade da combinação não colaborava. Beatriz calçou as botas sentada na beira da cama, sem fazer barulho, e foi até a porta do cômodo.
+Ela o sacudiu outra vez. Breno abraçou o travesseiro e voltou a roncar. Beatriz ficou olhando para ele. Tinham combinado de decidir juntos, mas não podia deixá-lo dormir se alguém estava precisando de ajuda. Beatriz calçou as botas sentada na beira da cama, sem fazer barulho, e foi até a porta do cômodo.
 
-A Velha estava na cadeira junto do fogão, de costas, com o rosto virado para a janela e as duas mãos apertadas nos braços da cadeira. A madeira estalava de leve debaixo dos dedos dela.
+A Velha estava na cadeira perto do fogão, com a chaleira ao alcance da mão. Quando ouviu o grito, interrompeu o chá que servia. Um pouco de água transbordou da xícara, e ela a afastou com cuidado.
 
-— Volte para a cama, minha flor. — Ela não se virou. — É o vento. Aqui ele aprendeu a imitar gente, e sai gritando pela neve de madrugada, e não adianta dar atenção, que ele só faz mais.
+— Volte pra cama, minha flor. É o vento — disse a Velha, sem virar o rosto. — Às vezes ele imita vozes. Quanto mais escuta, mais ele grita.
 
-Beatriz olhou a janela. Os flocos caíam retos, um atrás do outro, como fio de linha pendurado do céu. Nenhum balançava. Ela tinha onze anos e conhecia o jeito de mentir de quem não gosta de mentir, porque era o dela: a pessoa fala baixo, fala devagar e arruma as mãos em algum lugar para elas não denunciarem.
+Beatriz olhou pela janela. Os flocos caíam em linha reta, sem serem levados para os lados. Que vento era aquele que não mexia nem a neve? Olhou de novo para a Velha, que continuava segurando a xícara com as duas mãos.
 
 — Eu só vou até a porta olhar a neve — disse. — Eu nunca vi tanta neve de uma vez que não estivesse tentando me comer.
 
-— Fique na porta, então. — A Velha demorou um pouco. — E feche a capa até o queixo.
+— Fica na porta, então. — A Velha demorou um pouco. — E fecha a capa até o queixo.
 
-Beatriz fechou a capa até o queixo, abriu a porta e ficou na porta por exatamente quatro respirações. Depois desceu o degrau, porque a quinta respiração pedia isso. O ar da madrugada tinha cheiro de pedra molhada, e o céu era cinza-claro, sem lua nem estrela, e a casa atrás dela soltava uma luz amarela que ia ficando fraca à medida que ela se afastava.
+Beatriz fechou a capa até o queixo e abriu a porta. Ficou olhando a neve por alguns segundos. Então ouviu outro grito e desceu o primeiro degrau. O ar da madrugada tinha cheiro de pedra molhada, e o céu era cinza-claro, sem lua nem estrela, e a casa atrás dela soltava uma luz amarela que ia ficando fraca à medida que ela se afastava.
 
-O grito veio outra vez, à direita, atrás de uma colina baixa. Ela contou dez passos e parou na beira da luz da casa. O grito pediu mais dez. Beatriz fez o que fazia com toda promessa mal dita e entendeu do jeito que dava para continuar. Tinha ficado na porta. Agora estava fora dela, o que era outra coisa.
+O grito soou à direita, atrás de uma colina baixa. Beatriz contou dez passos e parou na borda da luz da casa. Repetiu-se, mais fraco. Ela olhou para trás. Não queria desobedecer à Velha, mas e se houvesse alguém machucado? Seguiu adiante.
 
-No décimo passo a música passou por cima dela.
+Poucos passos depois, a música passou por cima dela.
 
 Foi bem de leve, um tom acima do vento que não havia, e o chão mudou debaixo das botas sem pedir licença. A colina virou um cogumelo, e o cogumelo era do tamanho de uma casa, de chapéu largo e cinzento carregado de neve, e atrás dele havia outro, e outro, até onde a vista alcançava. Era um bosque de cogumelos gigantes, de pé torto, e debaixo de cada chapéu pendiam lâminas claras que brilhavam de leve, feito vitrine de loja fechada. A neve caía por entre eles, e Beatriz esticou a língua para apanhar um floco, porque aquela era a única parte da situação de que ela entendia.
 
 Cem passos adiante, entre dois pés de cogumelo, havia uma cabana.
 
-Era uma cabana feia, torta, feita de pedras de cores diferentes empilhadas sem cimento, e entre uma pedra e outra alguém tinha enfiado ossos compridos, de bicho grande, para segurar a parede. Do buraco da janela saía luz de fogo. Beatriz notou uma coisa que só uma pessoa que tinha passado o dia anterior olhando tudo virar outra coisa notaria: a cabana não estava mudando. Quando a música passou, o bosque trocou, e a cabana ficou onde estava, igual, com a mesma pedra azul na quina.
+Era uma cabana feia, torta, feita de pedras de cores diferentes empilhadas sem cimento, e entre uma pedra e outra alguém tinha enfiado ossos compridos, de bicho grande, para segurar a parede. Do buraco da janela saía luz de fogo. A música passou outra vez, e o bosque mudou ao redor da cabana. O bosque mudou outra vez, mas a cabana permaneceu no lugar, até com a mesma pedra azul na quina.
 
 O grito veio de dentro, e tinha parado de dizer "para". Dizia só um nome, que ela não entendeu, e depois se desfez num choro seco.
 
 Ela bateu na porta com dois nós dos dedos, o que sempre achou educado.
 
-— Com licença — disse. — O senhor está gritando porque está doendo, ou porque está bravo?
+— Oi! — chamou Beatriz. — O senhor tá machucado? Eu ouvi alguém gritando.
 
-A porta cedeu sozinha, e dentro havia um homem sentado no chão, de costas na parede, com os joelhos dobrados e uma barba tão comprida e suja que escondia o peito inteiro. Era uma barba grisalha, cheia de nós, com uma folha seca presa perto da orelha. Tinha um casaco escuro com a manga direita queimada, botas amarradas com tiras de pano, e uma das mãos enrolada num trapo que um dia tinha sido camisa. Na outra mão segurava um graveto, e com ele raspava uma pedra da parede, devagar, fazendo riscos. A parede inteira atrás dele estava coberta de grupos de sete riscos, sempre com um laço no fim, linha por cima de linha, até a pedra ficar branca de tanto raspar.
+A porta cedeu sozinha. Dentro, um homem estava sentado no chão, encostado à parede, os joelhos dobrados e uma barba grisalha tão comprida e suja que escondia o peito inteiro. Havia nós nos fios e uma folha seca perto da orelha. Tinha um casaco escuro com a manga direita queimada, botas amarradas com tiras de pano, e uma das mãos enrolada num trapo que um dia tinha sido camisa. Na outra mão segurava um graveto, e com ele raspava uma pedra da parede, devagar, fazendo riscos. A parede inteira atrás dele estava coberta de grupos de sete riscos, sempre com um laço no fim, linha por cima de linha, até a pedra ficar branca de tanto raspar.
 
 — Vai embora, Ardêncio — disse o homem, sem levantar a cabeça. A voz saiu cheia de areia. — Eu já falei que não decido quem ganha. Nem o gelo, nem o fogo. Os dois estão errados, e eu não tenho mais espaço na cabeça para os dois.
 
-— Eu não sou o Ardêncio. — Beatriz entrou meio passo, e o chão de pedra estava quente debaixo das botas. — Ele é muito mais vermelho e muito mais alto, e quando anda deixa o chão queimado. Eu sou a Beatriz, e tenho onze anos, e moro em Tayo, numa casa que tem um quintal e uma cadela velha.
+— Eu não sou Ardêncio! — Beatriz entrou meio passo. — Eu sou Beatriz. Tenho onze anos. A gente veio de Tayo, mas estamos presos aqui. O senhor conhece uma Velha que mora numa casa de pedra?
 
 O homem levantou o rosto. Os olhos eram claros, fundos, com uma vermelhidão de quem não dorme havia muito, e passaram por ela devagar, sem acreditar, até parar na mão dela. Ele olhou o anel por bastante tempo.
 
 — A máscara agora faz criança — disse. — Faz com cachorro e tudo. É caprichosa, ela. Quando eu cheguei só sabia fazer neve.
 
-— Eu não fui feita por ela. Eu cheguei por um buraco, e o meu irmão também. — Beatriz franziu a testa. — Ele está dormindo na casa da Velha e não me escutou chamar. O senhor tem alguma coisa para comer? A gente só tomou chá ontem.
+— Eu não fui inventada pela máscara! Meu irmão tá dormindo lá na casa da Velha. — Beatriz olhou ao redor. — O senhor mora aqui sozinho? Faz quanto tempo que está gritando?
 
 O homem soltou uma risada que não chegou a ser risada, um som de pedra arrastada. Depois a cara dele mudou, e o corpo todo se dobrou para a frente, e ele apertou as duas mãos na cabeça.
 
 — Ela está cantando de novo — disse, em voz baixa. — Por dentro. É uma parte só, sempre a mesma, e depois a parte seguinte, e eu consigo contar o tempo que falta para ela chegar. Eu escrevi isso no caderno e não escutei o que eu mesmo estava escrevendo. Faz parar. Faz parar, menina, por favor.
 
-— Eu não sei fazer parar. — Beatriz ficou sem se mexer, com o peito apertado. — Mas eu posso ficar aqui e conversar, se o senhor quiser. Quando o Banjo está com medo eu converso até ele esquecer do que tinha medo. Funciona quase sempre.
+— Eu não sei fazer a música parar — respondeu Beatriz. — Mas posso ficar aqui um pouquinho. O Banjo sempre diz que conversar ajuda quando a gente tá com medo.
 
 — Beatriz!
 
 A porta bateu na parede. Breno estava lá, de peito subindo e descendo, de cabelo em pé de um lado, com a camisa do avesso e as botas desamarradas, e no rosto dele havia uma coisa que Beatriz só tinha visto uma vez, na clareira. Ele entrou de uma vez e a puxou pelos ombros para trás de si, de um jeito que não tinha nada de delicado.
 
-— Você prometeu. Ontem à noite, na cama, você prometeu que a gente decidia junto.
-
-— Eu tentei decidir com você. — Beatriz botou a cabeça de lado, por baixo do braço dele. — Você disse que primeiro as botas e que depois segundo as botas, e eu não sei o que isso quer dizer, então eu decidi com a minha metade.
+— Você prometeu que a gente ia decidir junto! — protestou Beatriz, tentando escapar do braço dele. — Eu tentei te acordar! Você só falava das botas. Gritei, sacudi você, fiz tudo!
 
 Breno abriu a boca e fechou. Respirou, e os ombros dele baixaram um dedo. Ele esfregou o rosto com a manga, e nesse tempo todo não tirou os olhos do homem do chão.
 
-— Depois a gente conversa sobre isso — disse, baixo. — Eu fiquei muito, muito assustado, Beatriz. Eu acordei e a sua cama estava vazia e as botas tinham sumido.
+— Depois a gente conversa, Bia. — Breno soltou os ombros dela. — Eu acordei e você não estava mais lá. Fiquei morrendo de medo.
 
-— Eu estava de botas.
+— Eu calcei as botas pra não pisar na neve de meia — respondeu Beatriz.
 
-— Eu sei. Foi isso que me deixou mais assustado.
+— Não era isso que eu queria dizer. — Breno passou a mão pelo rosto.
 
-O homem tinha parado de apertar a cabeça e olhava Breno com atenção nova, os olhos indo do rosto dele para o chão e do chão para a parede riscada. Breno olhou também. Olhou os grupos de sete traços, olhou o laço que fechava cada grupo, com a ponta passando por cima da linha em vez de parar antes, e a mão dele foi sozinha até o bolso onde guardava o diapasão. Ficou ali, parada, no pano.
+O homem tinha parado de apertar a cabeça e olhava Breno com atenção nova, os olhos indo do rosto dele para o chão e do chão para a parede riscada. Breno olhou também. Olhou os grupos de sete traços, olhou o laço que fechava cada grupo, com a ponta passando por cima da linha em vez de parar antes, e a mão dele foi até o diapasão preso ao pulso pelo fio azul. Seus dedos se fecharam sobre o metal.
 
-— Esse laço — disse Breno, bem devagar. — Eu vi um igual num caderno, na Casa de Pesquisa. Capa gasta, sem risca azul, cheio de espirais, e os laços fechavam assim, com a ponta por cima da linha. — Ele olhou a barba, o casaco queimado, o trapo na mão. — O senhor é o Kalev?
+— Essas marcas... — Breno se aproximou da parede. — Vi um símbolo igual num caderno da Casa de Pesquisa. — Olhou para a barba grisalha do homem e para o casaco queimado. — O senhor é o Kalev Montfort?
 
 O homem não respondeu logo. Os dedos dele largaram o graveto, que rolou pelo chão de pedra com um barulhinho seco.
 
 — Quem pergunta?
 
-— Breno Lins. Esta é a minha irmã, Beatriz. Nós entramos na máscara por acidente, faz algum tempo que eu não sei contar. — Breno engoliu. — O seu filho está vivo e bem. Ele está procurando o senhor.
+— Breno Lins. Esta é minha irmã Beatriz. A gente foi puxado pela máscara. — Breno hesitou. — Se o senhor for o Kalev, eu conheço seu filho. O Ferris está vivo. Ele está procurando o senhor.
 
-Kalev desabou por dentro. Apoiou a testa na parede e ficou ali, com os ombros sacudindo, sem fazer barulho nenhum, e a cabana inteira pareceu esperar com ele. Beatriz se aproximou, devagar, e sentou no chão do lado dele. Ela não sabia o que se fazia nessas horas, e fez o que sabia, que era ficar perto.
+Kalev apoiou a testa na parede. Os ombros começaram a tremer, e ele não fez nenhum esforço para esconder o choro. Beatriz se aproximou, devagar, e sentou no chão do lado dele. Ela não sabia o que se fazia nessas horas, e fez o que sabia, que era ficar perto.
 
 — Ele cresceu? — perguntou Kalev, enfim, ainda de cabeça baixa.
 
-— Eu acho que não. — Beatriz pensou com seriedade. — Ele ainda é do tamanho que era, e anda de capacete debaixo do braço, e fala pouco, só que quando fala todo mundo escuta.
+— Acho que não muito — respondeu Beatriz. — Ele tá quase do tamanho do Breno. E continua carregando aquele capacete pra todo lado.
 
 — É assim mesmo. — Ele limpou o rosto na manga queimada. — Que dia é lá fora?
 
-— Faz cinco semanas e uns dias que o senhor sumiu da sala — respondeu Breno. — Para a gente, o tempo aqui dentro anda de um jeito que eu não consegui entender.
+— A porta da sala estava lacrada fazia cinco semanas — respondeu Breno. — Mas não sabemos quanto tempo passou aqui dentro.
 
 — Cinco semanas. — Kalev levantou os olhos para a parede, para os grupos de sete traços, para a pedra branca de tanto raspar. — Eu parei de contar no meio da parede. Achei que fossem anos.
 
@@ -104,33 +102,33 @@ Houve um som de bengala batendo de leve na soleira. Beatriz virou o rosto, e a V
 
 — Eu fiquei, por quatro respirações.
 
-— Quatro. — A Velha entrou, tateando o ar com os dedos, e parou onde a luz do fogo batia na barba de Kalev. — A máscara guardou esse homem em segredo de mim, e eu entendo. É um homem com muita coisa dentro. Uma terra como esta tenta engolir gente com tanta coisa dentro.
+— Quatro respirações... — repetiu a Velha, entrando. Parou perto da parede coberta de riscos. — Eu sabia que havia alguém gritando. Mas a máscara nunca me deixou perceber quem era.
 
 — A senhora sabia que ele estava aqui — disse Breno.
 
-— Sabia que alguém gritava. Sabia há muito tempo. Não sabia quem, nem quis saber, porque o que eu sei aqui dentro tem custo, e é caro.
+— Sabia que alguém gritava, sim. Mas não sabia quem. E há coisas que prefiro não perguntar à máscara — respondeu a Velha.
 
-Kalev ergueu o rosto, devagar. Olhou a Velha por um bom tempo, com uma ruga funda entre as sobrancelhas, e Beatriz percebeu que ele não olhava para o rosto dela. Olhava um pouco ao lado, para o ombro dela, e depois, num movimento curto, para o ombro de Beatriz. Voltou os olhos para a Velha e franziu mais a testa.
+Kalev ergueu o rosto. Estudou a Velha com a testa franzida, mas seus olhos deslizavam para o ombro dela e, por um instante, para o de Beatriz. Tornou a encarar a mulher, ainda mais desconfiado.
 
 — Tem uma coisa na senhora — disse. — E tem outra, parecida, na menina. As duas têm o mesmo som baixo, fino, de quando ela canta por dentro.
 
 — Eu não zumbo — disse Beatriz, ofendida.
 
-— É o frio, meu jovem. — A Velha sorriu, e o sorriso voltou ao rosto como se nunca tivesse saído. — O senhor passou tanto tempo escutando música no silêncio que agora escuta música no resto também. Isso passa. Passa com chá e com gente por perto, que é o que eu tenho em casa.
+— O senhor deve estar cansado, meu filho — respondeu a Velha, sorrindo. — Escutou música demais enquanto estava sozinho. Talvez esteja confundindo os sons. Na minha casa podemos tomar chá e descansar.
 
 Kalev não respondeu. Ficou olhando as próprias mãos, a enrolada e a solta, e Beatriz percebeu, pela primeira vez, que ele tinha medo da Velha. Medo pequeno, dos que a pessoa guarda quando não tem certeza ainda se são medo ou só cansaço.
 
 — A gente precisa ir buscar uma coisa — disse Breno, de pé, olhando de um para o outro. — A senhora falou ontem de um objeto que ajuda a sair. O seu Kalev também precisa sair, então ele vem junto.
 
-— Ele não pode. — A Velha respondeu antes de ele terminar. — Perdão, meu jovem, mas a Partitura mora num lugar que sente a gente chegar, e a gente que a procura precisa chegar de mansinho. Este homem tem uma força do tamanho da máscara dentro dele. Eu a sinto daqui, como sinto o fogo do fogão. A caverna vai acordar inteira.
+— Eu teria cuidado. — A Velha respondeu antes de ele terminar. — Desculpa, garoto, mas dizem que a criatura que guarda a Partitura acorda quando sente uma magia muito forte se aproximar. E este homem tem um som dentro dele que chega até mim, mesmo daqui. Tenho medo de que a caverna o escute também.
 
 — Impossível — disse Kalev, rouco. — Senhora, eu não consigo acender uma vela. A máscara me deixou sem nada, só com a cabeça e uma música que eu não pedi. Se eu tivesse força, eu mesmo teria saído daqui há muito tempo.
 
-— Não é impossível. — A Velha inclinou a cabeça, a voz mais mansa do que tudo o que tinha dito antes. — O senhor só não sabe onde ela está guardada. Ela dorme fundo e dorme leve, e eu estou dizendo que sente quando alguém assim acorda perto.
+— Não é impossível. — A Velha inclinou a cabeça, a voz mais mansa do que tudo o que tinha dito antes. — O senhor só não sabe onde ela está guardada. Ela dorme fundo, mas dorme leve. Sente quando alguém assim chega perto.
 
-Breno olhou para Kalev, depois para Beatriz, e Beatriz reconheceu o rosto dele de quando ele fazia lista na cabeça. Mas desta vez a lista parecia ter só um item.
+Breno olhou para Kalev e depois para Beatriz. Segurou o diapasão pendurado no pulso, embora soubesse que ele continuava mudo.
 
-— Eu não vou deixar um pai de alguém sozinho numa cabana — disse. — Ele vem com a gente, vai por último, e se a caverna acordar a gente resolve do jeito que der. Eu decido, e eu aviso a senhora com antecedência, que é para não ficar mais ofendida do que o necessário.
+— Não vou deixá-lo aqui sozinho — disse Breno. — Se a caverna for perigosa, a gente vê o que fazer. Mas o Kalev vem com a gente, nem que seja só até a entrada. Ele conhece este lugar melhor do que nós, e ninguém vai decidir por ele sem perguntar.
 
 — O senhor é teimoso — disse a Velha.
 
@@ -138,17 +136,17 @@ Breno olhou para Kalev, depois para Beatriz, e Beatriz reconheceu o rosto dele d
 
 Kalev riu pela segunda vez, e agora foi quase uma risada de verdade, curta, torta. Levantou-se com esforço, apoiado na parede, e Beatriz viu que ele era mais alto do que parecia sentado, e mais magro. Ela procurou, pelo canto do olho, o que ele tinha no cinto. Era um caderno pequeno, sem risca azul na capa, preso por uma tira de couro. Ele o apertou contra o corpo antes de sair, e o vento de dentro da cabana apagou o fogo atrás dele, sem barulho.
 
-O caminho até a caverna foi comprido, e Beatriz aprendeu três coisas dele.
+Caminharam durante muito tempo até a caverna. A Velha seguia à frente, sem parecer se incomodar com a neve.
 
-A primeira foi que a Velha andava mais depressa do que qualquer pessoa cega que ela conhecia, sem bengala batendo, e que ficava o tempo todo uns passos à frente, de costas, como quem guia sem precisar olhar. A segunda foi que Kalev caminhava devagar e olhava para cima toda vez que a música passava, esperando o cenário trocar. Trocou duas vezes. Na primeira, o bosque de cogumelos virou uma cidade de torres tortas, de paredes cheias de buracos, com neve em cima de cada telhado, e as torres eram de pão. Pão de verdade, de casca crocante e miolo mole. Beatriz soltou um grito de alegria, e já tinha estendido a mão para uma muralha, quando Kalev segurou o pulso dela com a mão boa.
+Mesmo sem usar a bengala a todo momento, a Velha encontrava o caminho mais depressa do que qualquer um. Beatriz olhava para seus pés, tentando entender como não tropeçava. Kalev caminhava devagar e erguia a cabeça sempre que a música tocava. Durante o percurso, a paisagem mudou duas vezes. Na primeira, o bosque de cogumelos virou uma cidade de torres tortas, de paredes cheias de buracos, com neve em cima de cada telhado, e as torres eram de pão. Pão de verdade, de casca crocante e miolo mole. Beatriz soltou um grito de alegria, e já tinha estendido a mão para uma muralha, quando Kalev segurou o pulso dela com a mão boa.
 
-— Não coma o que o canto faz — disse, e a voz dele era a de um professor que estava de volta de uma viagem muito comprida. — Eu comi, no primeiro dia. Parece pão, tem cheiro de pão, e passa a tarde inteira na sua barriga como se fosse pedra.
+— Não come isso — avisou Kalev, segurando o pulso da menina. — Eu comi quando cheguei. Tem gosto de pão, mas depois passei horas com dor de barriga.
 
 — Que sem graça. — Beatriz puxou a mão de volta. — Eu estava tão a fim de pão.
 
 — Eu também estava, menina.
 
-A terceira coisa que ela aprendeu foi sobre o Breno. Ele andava logo atrás da Velha, sem tirar os olhos dela, de queixo para a frente, e Beatriz achou que ele estava com a lista na cabeça outra vez, só que agora uma lista sobre pessoas, e que aquela era mais difícil de fazer.
+Breno caminhava logo atrás da Velha, observando cada passo dela. Quando o caminho mudou pela segunda vez, foi o primeiro a perguntar se ainda estavam indo na direção certa.
 
 Na segunda troca, a cidade de pão sumiu e virou um deserto de gelo escuro, sem uma pedra, onde o chão parecia espelho e a neve caía para cima. Beatriz parou, olhou os flocos subindo, e riu tão alto que a voz voltou do outro lado do mundo. Kalev também olhou. A Velha não olhou, e foi o único momento em que Beatriz sentiu inveja dela.
 
@@ -158,11 +156,11 @@ A caverna ficava no pé de uma montanha de vidro preto, lisa, sem uma rachadura,
 
 — Por quê? — perguntou Beatriz.
 
-— Porque eu cheguei primeiro, minha flor, e ela nunca me perdoou por isso. — A Velha virou o rosto para a fenda. — A Partitura está no fundo, numa sala redonda, em cima de um pedestal. Quem toma conta dela dorme em cima, e dorme fundo, mas dorme leve. Quando acorda, acorda irritado.
+— Porque eu cheguei primeiro, minha flor, e ela nunca me perdoou por isso. — A Velha virou o rosto para a fenda. — Pelo que ouvi de quem passou por aqui, a Partitura fica numa sala de gelo, sobre um pedestal. Há uma criatura que costuma dormir em cima dela. Não sei o que vocês vão encontrar hoje. Só sei que, quando acorda, não gosta de visitas.
 
 — Quem toma conta? — perguntou Breno.
 
-— Uma criatura. Não vai atacar enquanto estiver dormindo, e dorme porque não tem ninguém por perto de quem ter medo. — Ela sorriu para o vazio. — Vão em silêncio.
+— Uma criatura que gosta muito de ficar sozinha — respondeu a Velha. — Se conseguir ficar dormindo, melhor pra vocês.
 
 Entraram. A fenda se abriu em um corredor de gelo azul-escuro, que subia e descia como a garganta de um bicho, e a luz vinha de dentro das paredes, uma luz sem fonte, fraca, que fazia as sombras deles parecerem mais compridas do que eram. Breno foi na frente, depois Beatriz, e Kalev por último, com a mão na parede e a respiração curta. Eles andaram muito, e em algum momento Beatriz começou a ouvir o próprio coração, e depois ouviu outra coisa, bem funda, que subia e descia devagar: uma respiração enorme.
 
@@ -174,35 +172,37 @@ A sala redonda era do tamanho do pátio de Lioro, com o teto alto, em abóbada, 
 
 A Partitura estava debaixo dela. Beatriz viu a ponta, saindo entre as patas da criatura: uma tira comprida de pergaminho claro, enrolada num cilindro de osso polido, com cinco linhas finas desenhadas ao longo e, em cima das linhas, pontinhos escuros que se mexiam devagar, para frente e para trás, feito formiga em fila. Do pergaminho saía um zumbido tão baixo que Beatriz só o sentiu nos dentes.
 
-— Primeiro — disse Breno, e fez uma pausa, e Beatriz entendeu que ele estava inventando a lista na hora. — Alguém precisa tirar aquilo de debaixo dela sem acordar. Segundo, quem faz isso precisa ser leve e pequeno, e não pode ter força nem barulho. Terceiro, eu não gosto disso. Nem um pouco.
+Breno estendeu a ponta solta da própria capa para medir a distância até o pedestal. Mesmo avançando agachado, esbarraria numa das asas abertas. Recolheu o tecido antes que tocasse o chão.
+
+— O cilindro está debaixo da pata dela — sussurrou. — Eu não consigo chegar sem encostar nas asas. Você é menor... mas não vou pedir que faça isso.
 
 — Eu sou leve e pequena — disse Beatriz.
 
-— Eu sei. Foi por isso que eu cheguei no terceiro.
+— Eu sei — respondeu Breno, sem parecer nada satisfeito.
 
 Ele se virou para ela, e ela viu o esforço que ele fazia para não puxá-la para trás de si. Breno segurou os dois ombros dela, abaixou até ficar da altura dos olhos e falou baixinho, devagar, escolhendo as palavras.
 
-— Eu estou avisando que é perigoso. Se ela acordar, eu não sei o que a gente faz, e eu tenho medo, e eu quero que você me escute. — Ele respirou. — Agora você escolhe, e eu vou atrás.
+— Eu estou com medo, Bia — admitiu Breno. — Se aquela criatura acordar, talvez não consigamos sair daqui. Você tem certeza de que quer tentar?
 
 Beatriz ficou olhando o rosto dele. Ele não tinha mandado. Fazia tempo que ela esperava esse momento, e agora que ele tinha chegado, ele pesava mais do que ela tinha imaginado.
 
-— Eu quero ir — disse. — Eu fico com medo, mas eu quero ir. Eu faço devagar e não respiro.
+— Eu quero tentar — respondeu Beatriz. — Vou bem devagar. Nem vou respirar.
 
 — Respira, senão você desmaia. — Breno soltou um pouquinho de ar pelo nariz, quase um riso. — Só respira baixo.
 
-Ela tirou as botas, porque sapato faz barulho em gelo, e foi, na ponta dos pés. O chão queimava de frio através da meia, e o pedestal ficava a mais ou menos trinta passos, que ela contou, um a um. Aos vinte, a criatura soltou um suspiro e uma das asas se abriu um dedo, mostrando por dentro um desenho de nervuras azuis que parecia um mapa de rios. Beatriz parou, com um pé no ar, até a asa fechar. Aos vinte e cinco, o zumbido da Partitura subiu um pouco, e a pele dela arrepiou inteira.
+Tirou as botas para não fazer barulho no gelo e avançou na ponta dos pés. O chão queimava de frio através da meia, e o pedestal ficava a mais ou menos trinta passos, que ela contou, um a um. Aos vinte, a criatura soltou um suspiro e uma das asas se abriu um dedo, mostrando por dentro um desenho de nervuras azuis que parecia um mapa de rios. Beatriz parou, com um pé no ar, até a asa fechar. Aos vinte e cinco, o zumbido da Partitura subiu um pouco, e a pele dela arrepiou inteira.
 
 Chegou ao pedestal. A ponta do cilindro de osso estava pra fora, entre duas patas brancas, e ela esticou a mão, devagar, e fechou os dedos em volta dele.
 
 O zumbido virou música.
 
-Foi como se o pergaminho tivesse esperado séculos para ser tocado por alguém. Em vez de uma nota só, ela escutou muitas, de longe, vindas de todos os lados, cada uma de um jeito: uma que parecia gelada e firme, de vidro, e que ela reconheceu sem saber por quê como a de Breno. Outra fina e quente, de brasa, que era dela mesma. Uma terceira, longe, longe, torta e baixa, que começava sempre um pouco abaixo do lugar onde devia começar e depois se arrumava sozinha. Beatriz sentiu o coração dar um pulo tão forte que quase tirou a mão.
+Beatriz quase soltou o cilindro. Muitas notas soaram ao mesmo tempo, cada uma vindo de um lugar diferente. Em vez de uma nota só, ela escutou muitas, de longe, vindas de todos os lados, cada uma de um jeito: uma que parecia gelada e firme, de vidro, e que ela reconheceu sem saber por quê como a de Breno. Outra fina e quente, de brasa, que era dela mesma. Uma terceira, longe, longe, torta e baixa, que começava sempre um pouco abaixo do lugar onde devia começar e depois se arrumava sozinha. Beatriz sentiu o coração dar um pulo tão forte que quase tirou a mão.
 
-Era o Banjo. Era a flauta dele, tocando no meio de um mundo muito longe, e logo atrás dela, fora do tempo de propósito, batia um tambor que só podia ser do Bruno.
+Parecia o Banjo. A nota lembrava tanto a flauta dele que Beatriz quase o chamou pelo nome. Logo atrás, fora do tempo de propósito, vinha uma batida que parecia a do tambor de Bruno.
 
-Ela sorriu de um jeito que doía na bochecha. Estavam vivos. Estavam em algum lugar, tocando, e a Partitura trazia o som deles até ali, fino como um fio de cabelo, mas inteiro.
+Beatriz sorriu e apertou a Partitura contra o peito. Pareciam mesmo os instrumentos de Bruno e Banjo. Podia ser uma lembrança que a máscara imitava, mas, por um instante, ela conseguiu imaginá-los juntos, tocando em algum lugar do lado de fora.
 
-— O Banjo está tocando — sussurrou, sem controlar a voz. — Breno, ele está...
+— Parece a flauta do Banjo — sussurrou, sem controlar a voz. — Breno, parece que ele está...
 
 A criatura abriu os olhos.
 
@@ -218,15 +218,15 @@ Beatriz correu, com a Partitura apertada no peito, de meia no chão escorregadio
 
 Já era tarde. A criatura abriu a boca, e um vento branco, gelado, saiu dela e bateu no corredor de gelo, e o gelo se fechou com um estalo comprido, selando a saída de uma ponta a outra, grosso como parede de casa. Os três ficaram parados diante dele, e atrás deles a criatura caminhava, devagar, sem pressa, com as garras fazendo clique no chão.
 
-Breno puxou os dois para trás de si, e Beatriz viu que ele estava tremendo. Ele passou a mão pelos bolsos, procurando alguma coisa, e não achou. Não havia ferro naquele lugar, nem um prego.
+Breno puxou os dois para trás de si, e Beatriz viu que ele estava tremendo. A mão dele adquiriu um brilho cinza metálico, mas logo voltou ao normal. Mesmo que atravessasse a parede de gelo, não conseguiria levar os três para fora daquele jeito.
 
 Foi então que Beatriz fez a coisa que menos tinha pensado em fazer, que foi enfiar a mão no bolso da capa e puxar a gaita.
 
 — Beatriz, não...
 
-— Ela está com medo, Breno. — Beatriz limpou a gaita na capa e soprou, e a primeira nota saiu tremida. — Ela estava dormindo, e a gente chegou e roubou a coisa dela. Ela não quer machucar ninguém. Só está com muito medo.
+— Acho que ela ficou assustada, Breno. — Beatriz limpou a gaita na capa e soprou, e a primeira nota saiu tremida. — Ela estava dormindo, e a gente pegou a coisa dela sem pedir. Não sei se ela vai deixar a gente sair, mas quero tentar conversar.
 
-Soprou as três notas, as de sempre, as que subiam, voltavam, subiam de novo e paravam no ar esperando um fim. Só que dessa vez, pela primeira vez na vida, ela não parou onde sempre parava. Continuou, e a quarta nota nasceu sozinha, quente, vinda de debaixo da língua.
+Soprou as três notas, as de sempre, as que subiam, voltavam, subiam de novo e paravam no ar esperando um fim. A criatura continuou a mostrar os dentes. Beatriz quase guardou a gaita. Lembrou-se de Gabrielle repetindo um trecho difícil até o fim, sem desistir por causa de uma nota errada. Em vez de tocar as três outra vez, procurou uma quarta, um pouco mais baixa, e soprou devagar. Saiu tremida, mas saiu.
 
 A criatura parou.
 
@@ -236,9 +236,9 @@ Os olhos azuis se estreitaram, e a cabeça comprida inclinou para um lado. Uma d
 
 — Continua — sussurrou Breno. — Seja lá o que você estiver fazendo, continua.
 
-Beatriz continuou. A música foi crescendo sem ela mandar, as notas se emendando, e a criatura rodou, rodou, abriu as asas inteiras e soltou um som que não era rugido. Era mais parecido com uma risada de cachorro grande, e o chão da sala tremeu de leve. Ela abaixou a cabeça diante de Beatriz, devagar, e roçou o focinho gelado na mão dela, e o gelo do focinho derreteu um pouco, e ficou só um bafo úmido.
+Beatriz continuou, embora o ar já faltasse. Precisou parar um instante para respirar, e a criatura ergueu o focinho, inquieta. Beatriz retomou a melodia sem aumentar o volume. Só então o animal rodou, abriu as asas inteiras e soltou um som que não era rugido. Era mais parecido com uma risada de cachorro grande, e o chão da sala tremeu de leve. A criatura abaixou a cabeça diante dela, devagar, e roçou o focinho gelado na mão da menina. O gelo do focinho derreteu um pouco, e ficou só um bafo úmido.
 
-— Ela quer que eu suba — disse Beatriz, entre duas notas.
+— Acho que ela quer que eu suba — disse Beatriz, entre duas notas.
 
 — Não — disseram Breno e Kalev, ao mesmo tempo.
 
@@ -246,11 +246,11 @@ Beatriz continuou. A música foi crescendo sem ela mandar, as notas se emendando
 
 Breno abriu a boca para responder, e a criatura, que já tinha entendido a conversa melhor do que ele, pegou Beatriz com o focinho pela capa e a jogou nas costas dela, entre as asas, como quem arruma um ovo no ninho. Em seguida abaixou o ombro de novo, para os dois homens, e esperou. Kalev subiu primeiro, rindo sem conseguir parar, e Breno por último, pálido, de olhos fechados, agarrado ao braço de Beatriz com uma força que ia deixar marca.
 
-— Eu nunca, nunca mais — disse ele — vou deixar você escolher.
+— Na próxima vez, Bia, a gente vai pensar num jeito menos perigoso! — gritou Breno, agarrado à pelagem da criatura.
 
-— Você prometeu que ia atrás.
+— Você prometeu que ia comigo!
 
-— Eu estou indo atrás! Eu estou literalmente atrás!
+— E eu estou aqui! — respondeu Breno. — Só não precisa ser voando desse jeito!
 
 A criatura abriu as asas, deu três passos de corrida, e saltou.
 
@@ -262,15 +262,15 @@ O teto de gelo estourou como vidro de janela, em mil pedaços que caíram brilha
 
 — Eu estou segurando com a Partitura!
 
-— Isso não conta como mão!
+— Então segura com a outra também!
 
-Lá embaixo, o mundo da máscara inteiro se estendia, e a música passou, e Beatriz viu o que ninguém vê de baixo. O deserto de gelo se dobrou como toalha puxada por baixo, a cidade de pão voltou por um segundo e depois virou um mar branco, e o mar branco virou uma floresta de agulhas de cristal, tudo dobrando e desdobrando, sem parar, com os flocos de neve caindo por cima de cada coisa como uma cobertura. Atrás dela, Kalev ria, ria sem som, com a barba cheia de neve, e as lágrimas caíam e viravam gelo na barba. Era a primeira vez em muito tempo, ela percebeu, que ele não escutava a música por dentro.
+Lá embaixo, o mundo da máscara inteiro se estendia, e a música passou, e Beatriz viu o que ninguém vê de baixo. O deserto de gelo se dobrou como toalha puxada por baixo. A cidade de pão voltou por um segundo e depois virou um mar branco, e o mar branco virou uma floresta de agulhas de cristal. Tudo dobrava e desdobrava, sem parar, com os flocos de neve caindo por cima de cada coisa como uma cobertura. Atrás dela, Kalev ria, ria sem som, com a barba cheia de neve, e as lágrimas caíam e viravam gelo na barba. Era a primeira vez em muito tempo, ela percebeu, que ele não escutava a música por dentro.
 
 A criatura os levou em volta da montanha, desceu em círculo e pousou, com as quatro patas ao mesmo tempo, a vinte passos da Velha, que esperava no mesmo lugar, de bengala, de rosto erguido, com o lenço soltando um fio de cabelo branco ao vento.
 
 Beatriz escorregou do lombo da criatura e caiu sentada na neve, com a Partitura no colo. Breno desceu depois, devagar, pôs os dois pés no chão e ficou quieto, com a mão no peito, respirando. Kalev ficou em cima mais um segundo, passou a mão no pelo branco do pescoço da criatura, que se deitou na neve, de olhos fechados, ronronando feito gato do tamanho de uma casa.
 
-— Eu vi — disse a Velha. — Quer dizer, eu escutei. Os três vivos, e a Partitura intacta, e essa menina com uma gaita que tocou uma quarta nota que não é dela. — Ela sorriu, e agora o sorriso era largo, o mais largo que Beatriz tinha visto nela. — Eu tinha razão numa coisa. É uma criatura que acorda irritada. Mas só porque ninguém nunca perguntou o que ela queria.
+— Eu vi — disse a Velha. — Quer dizer, eu escutei. Os três vivos, e a Partitura intacta, e essa menina com uma gaita que tocou uma nota que eu nunca tinha ouvido. — Ela sorriu, e agora o sorriso era largo, o mais largo que Beatriz tinha visto nela. — Eu tinha razão numa coisa. É uma criatura que acorda irritada. Mas parece que vocês encontraram um jeito de não continuar brigando com ela.
 
 — A senhora não avisou que ela fechava a saída — disse Breno, de pé, sacudindo a neve da capa. A voz dele ainda tremia.
 
@@ -278,14 +278,14 @@ Beatriz escorregou do lombo da criatura e caiu sentada na neve, com a Partitura 
 
 — A gente achou que irritada era bravo!
 
-— E era, meu jovem. De outro jeito. — A Velha virou o rosto para o céu, onde a neve continuava a cair, reta, sem vento. — O que está na mão da menina é o que vai tirar vocês daqui, mas só serve se alguém lá fora vestir a máscara. Alguém vai libertar vocês. Eu sinto isso desde ontem, na ponta dos dedos. Alguém está vindo.
+— E era, garoto. De outro jeito. — A Velha virou o rosto para o céu, onde a neve continuava a cair, reta, sem vento. — Pelo que conheço da máscara, alguém lá fora precisa vesti-la para que a saída apareça. Se seus irmãos estão procurando vocês, talvez já estejam perto. Eu espero que alguém venha libertar todos nós.
 
-— Como a senhora sabe? — Breno se aproximou um passo. — A senhora disse que aqui dentro só escuta o que a máscara escuta. A máscara não sabe de quem está lá fora, a senhora mesma disse.
+— A senhora tem certeza? — Breno se aproximou um passo.
 
-— Eu sinto, meu jovem. É só o que eu posso dizer, e eu sou velha demais para inventar uma explicação que combine com o que eu sinto. — Ela estendeu a mão cega no ar, e encontrou o ombro de Beatriz sem errar, e o apertou de leve. — Sua gaita fez a criatura dançar. A senhorita sabe o que isso quer dizer?
+— Não, garoto. Eu não posso ouvir o que acontece lá fora. — Ela estendeu a mão cega no ar e encontrou o ombro de Beatriz, apertando-o de leve. — Mas sua irmã encontrou um jeito de conversar com uma criatura apavorada sem machucá-la. Ainda posso ter esperança, não posso?
 
 — Que ela gosta de dançar? — Beatriz levantou os olhos, e a vontade que tinha de perguntar subiu de uma vez, mais forte que o cansaço. — Velha, escuta. Antes de eu cair aqui dentro, tinha uma voz na minha cabeça, que falou "escuta até o fim" e "não repara tanto", de um jeito miudinho, que eu achei que era eu. E ontem à noite, na casa, ela falou "dorme". Era a senhora?
 
 A Velha não respondeu. Ficou com o rosto virado para ela, e o sorriso, que não tinha nenhuma pressa de se desfazer, ficou mais fundo, mais quieto, e os dedos no ombro de Beatriz apertaram uma vez, bem de leve, e soltaram.
 
-Beatriz esperou. Ela sabia esperar uma resposta, quando queria muito. Mas a resposta não veio, e atrás da Velha o céu cinzento continuou a despejar neve em cima da neve, e a criatura de vidro roncou na neve, e no cilindro de osso, entre os dedos dela, a Partitura zumbiu mais uma vez, baixinho, e trouxe de longe, no meio de todos os sons do mundo, o fio torto de uma flauta que começava abaixo e se arrumava sozinha.
+Beatriz esperou. Ela sabia esperar uma resposta, quando queria muito. Mas a resposta não veio. Atrás da Velha, o céu cinzento continuou a despejar neve em cima da neve, e a criatura de vidro roncou. No cilindro de osso, entre os dedos dela, a Partitura zumbiu mais uma vez, baixinho, e trouxe de longe, no meio de todos os sons do mundo, o som torto de uma flauta que começava abaixo e se arrumava sozinha.

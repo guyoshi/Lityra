@@ -154,7 +154,7 @@ A frase não foi cruel. Por isso doeu mais. Kaelina sentou-se devagar.
 
 Iressa não respondeu depressa. Pegou uma colher, mexeu o caldo e empurrou a tigela para perto dela.
 
-— Não. Os Tondrar mataram Yvenn.
+— Não. Quem envenenou Yvenn o matou. Você não sabe quem foi.
 
 — Eu o trouxe comigo.
 
@@ -184,7 +184,7 @@ Kaelina ergueu os olhos.
 
 Iressa olhou para a janela estreita.
 
-— Há uma coisa que as histórias de Orionus esquecem porque parece pequena demais. Ele era visto. Passava pelos depósitos, entrava nas filas, falava com quem pesava sal. Depois de virar soberano, continuou aparecendo antes de precisarem chamá-lo.
+— Teu pai aparecia nos depósitos sem mandar avisar. Ouvia os carregadores, perguntava por onde o sal entrava e onde sumia. Depois ia conferir com os próprios olhos. Até quando todos preferiam que ele ficasse nos salões.
 
 Kaelina baixou os olhos.
 
@@ -204,7 +204,7 @@ A colher na mão de Kaelina tremia.
 
 Kaelina ficou imóvel. Iressa levantou-se.
 
-— Coma antes que esfrie. Depois saia.
+— Coma antes que esfrie. E depois volte a andar por Kaendar.
 
 — Para onde?
 
@@ -266,7 +266,7 @@ O título saiu fino. Kaelina olhou para a bola, depois para eles.
 
 — Então ajam normalmente.
 
-Os seis olharam uns para os outros, em pânico absoluto diante da ordem mais impossível que já tinham recebido.
+Os seis se entreolharam, ainda menos à vontade do que antes.
 
 — Sim, minha soberana.
 
@@ -320,9 +320,9 @@ Veio correndo, chutou a bola torto, acertou o tornozelo de Kaelina, tentou parar
 
 — Minha mãe vai me matar!
 
-Kaelina ficou no chão por um instante, olhando para o céu estreito entre os telhados. Depois começou a rir. Riu de verdade.
+Kaelina ficou no chão, olhando para o céu estreito entre os telhados. Então começou a rir.
 
-A poeira entrou-lhe no cabelo. O cotovelo doeu. Uma parte da túnica rasgou perto do joelho. E, pela primeira vez em dias, a culpa não conseguiu ocupar todo o espaço dentro dela. Os meninos se aproximaram, aterrados.
+Havia poeira no cabelo, o cotovelo doía e a túnica rasgara no joelho. O menino que a derrubara parecia prestes a chorar, e isso a fez rir ainda mais. Os meninos se aproximaram, aterrados.
 
 — Estou viva, rapazes — disse ela.
 
@@ -406,7 +406,7 @@ Kaelina tocou a borda fria da laje. A frase de Iressa voltou: não tente parecer
 
 — Pai… — disse, e a voz saiu baixa demais, quase engolida pela pedra.
 
-O túmulo não respondeu. Ela soltou uma respiração curta, amarga.
+O som da água continuou vindo da fonte, no canto da câmara. Kaelina respirou fundo.
 
 — Eu tentei fazer como o senhor faria — disse. — Talvez esse tenha sido o erro.
 
@@ -444,7 +444,7 @@ Kaelina tentou gritar, mas ele se lançou sobre ela, prendendo-lhe a boca com um
 
 Um jovem surgiu do escuro e atingiu o assassino de lado, arrancando-o de cima dela. Os dois rolaram pela pedra enquanto Kaelina tentava recuperar o ar.
 
-O recém-chegado parecia ter pouco mais de vinte ciclos, tranças escuras e longas soltas sobre os ombros, roupas simples e pés descalços, de sola grossa como couro. Seus movimentos, porém, eram rápidos e medidos.
+O recém-chegado parecia ter pouco mais de vinte ciclos. Tinha tranças escuras sobre os ombros, roupas simples e pés descalços, de sola grossa. Agia com rapidez, sem desperdiçar movimentos.
 
 O assassino golpeou. O jovem desviou, agarrou-lhe o pulso, acertou o rosto e sacou uma lâmina curta, cortando braço e lateral antes que ele recuasse.
 
@@ -452,7 +452,7 @@ O homem de preto lançou uma segunda lâmina, escondida até então na outra mã
 
 O jovem puxou a lâmina e o assassino caiu.
 
-Kaelina tentou levantar-se, mas o corpo não obedeceu de imediato. O jovem virou-se para ela. Pareceu prestes a aproximar-se, mas parou, como se lembrasse que salvar uma soberana não lhe dava direito de tocá-la.
+Kaelina tentou levantar-se, mas o corpo não obedeceu de imediato. O jovem virou-se para ela. O jovem deu um passo em sua direção, mas parou quando Kaelina ergueu o rosto.
 
 — Está ferida — disse ele.
 
@@ -462,7 +462,7 @@ A voz era baixa, sem reverência ensaiada. Kaelina olhou para o próprio braço.
 
 Antes que ele respondesse, passos começaram a ecoar pelo túnel. Vinham de vários lados, multiplicados pela pedra. Luzes de tochas surgiram entre os pilares, acompanhadas por vozes tensas e pelo som de guardas correndo.
 
-Daryon Polar apareceu primeiro, acompanhado por dois homens do Conselho e pelos guardas dos túneis. Ao ver a cena, parou. Por um breve instante, o rosto dele falhou.
+Daryon Polar apareceu primeiro, acompanhado por dois homens do Conselho e pelos guardas dos túneis. Parou ao ver o corpo no chão, a arma ensanguentada e Kaelina ferida.
 
 Kaelina estava de pé com dificuldade, a túnica rasgada e o braço ensanguentado. O homem de preto jazia morto e o jovem ainda segurava a lâmina vermelha.
 
@@ -476,7 +476,7 @@ Os homens avançaram imediatamente. O jovem ergueu as mãos, mas não largou a l
 
 — Esperem — disse Kaelina.
 
-Ninguém ouviu. Mais passos vieram do corredor. Desta vez, mais pesados. Edran surgiu como se tivesse sido chamado pelo sangue.
+Ninguém ouviu. Passos mais pesados vieram do corredor. Edran surgiu.
 
 Edran viu o braço ferido de Kaelina, depois o corpo e o jovem preso pelos guardas.
 

@@ -1,98 +1,98 @@
-A chuva tinha começado na noite de sexta e, no sábado de manhã, escorria pela janela da cozinha em fios tão retos que Banjo passou o café inteiro tentando adivinhar qual deles chegaria primeiro ao peitoril. Perdeu três vezes e culpou o vento, que não estava soprando.
+A chuva começara na sexta à noite. No sábado de manhã, Banjo passou o café apostando consigo mesmo qual gota chegaria primeiro ao peitoril. Errou três vezes. Na quarta, culpou a inclinação da janela.
 
-Breno comia de pé, ao lado da pia, com o caderno aberto sobre a bancada. No alto da página tinha escrito Segunda, desafio 2, e embaixo uma lista de coisas a levar e a perguntar ao juiz. A linha da dupla, Breno e Ferris, ele tinha feito a lápis, por costume, e já a tinha repassado duas vezes sem saber por quê.
+Breno tomava café de pé, com o caderno aberto junto à pia. Anotara o horário do segundo desafio, o material que precisava levar e o nome de Ferris ao lado do seu. Ainda queria conversar com o rapaz antes de segunda-feira.
 
-— O senhor Graven mandou o aviso da segunda prova às sete e quarenta — disse a tela de Kali, que flutuava rente ao teto, perto da lâmpada. — Segunda-feira, às nove, no Bosque de Sorevan, que ele descreve como silencioso por fora e barulhento por dentro. As duplas devem levar um cantil, uma lanterna de mão e, cito, ouvidos descansados. Pelas minhas contas, ninguém nesta casa dormiu o bastante para cumprir a última exigência.
+— Mensagem do senhor Graven, enviada às sete e quarenta — anunciou Kali, flutuando perto do teto. — Segundo desafio: segunda-feira, às nove horas, no Bosque de Sorevan. Cada dupla deverá levar cantil, lanterna de mão e, nas palavras dele, ouvidos descansados. Informo que nenhum dos quatro dormiu o suficiente para cumprir a última recomendação.
 
-— Barulhento por dentro — repetiu Banjo, e largou a torrada. — Eu gosto de lugar barulhento por dentro. Quer dizer, depende de quem faz o barulho. Se for árvore, eu gosto. Se for gente, eu fico meio... deixa.
+— Ouvidos descansados? — Banjo largou a torrada. — Será que tem algum bicho fazendo barulho lá dentro?
 
 — E a lanterna é para quê? — perguntou Beatriz, de boca cheia. — Se é bosque de dia, não precisa de luz.
 
-— Se o Grimaldus pediu lanterna, é porque vai ficar escuro em algum ponto, Bia, e ele não ia explicar isso por escrito para não estragar a surpresa. — Breno apagou uma palavra do caderno e escreveu outra no lugar. — Leva a sua e a reserva. A reserva fica na minha mochila, que você perde as coisas.
+— Se pediu lanterna, a gente leva — respondeu Breno, anotando no caderno. — Vou pôr uma reserva na mochila. Bia, lembra onde guardou a sua?
 
-— Eu não perco, eu esqueço onde ponho. É diferente.
+— Lembro, sim. Quer dizer, lembro onde estava ontem.
 
-Átila levantou a cabeça do tapete, apontou as orelhas para a porta da frente e deu um latido só, curto, de quem avisa e não de quem ataca. Kali girou a tela devagar na direção do corredor.
+Átila ergueu as orelhas e latiu uma vez para a porta. Kali girou a tela devagar na direção do corredor.
 
-— É o Ferris, no portão. Está encharcado e não tocou a campainha. Faz quatro minutos que está parado, de pé, olhando a casa. Eu abriria, mas acho que ele ainda está decidindo.
+— Ferris está no portão há quatro minutos — informou Kali. — Não tocou a campainha. Está encharcado. Querem que eu abra?
 
 Breno fechou o caderno. Banjo fez menção de levantar, e ele estendeu a mão com a palma aberta, sem olhar para trás.
 
-— Fica. É comigo.
+— Eu vou falar com ele — disse Breno.
 
 A varanda tinha um beiral largo, e Ferris estava debaixo dele, não porque tivesse entrado, mas porque a chuva tinha obrigado. A água escorria do cabelo ruivo para dentro da gola, e ele segurava o capacete debaixo do braço, com a viseira virada para a parede. Quando Breno saiu, ele olhou primeiro para a porta, depois para ele, e só então falou.
 
-— Vim avisar antes que você descubra pelo Grimaldus. Eu vou desfazer a dupla.
+— Vim avisar pessoalmente. Não vou fazer a prova com você, Breno.
 
-— Dois dias antes da prova, Ferris? — Breno cruzou os braços. — Eu perco seis pontos e você ainda aparece ensopado na minha varanda. Entra logo. O Denis vai ficar feliz, pelo menos.
+— Faltam dois dias pra prova, Ferris! — Breno olhou a água escorrendo da gola dele. — Entra pelo menos. Você vai ficar doente aí fora.
 
-— Se eu entrar, a Kali me oferece alguma coisa, você me manda sentar e eu não saio mais. — O canto da boca dele se mexeu, uma coisa pequena e quase sem humor. — Eu sei de tudo isso. Pensei nisso a noite inteira, e a conta fecha do mesmo jeito.
+— Se eu entrar, vou acabar ficando pra conversar, e não vim pra isso. — Ferris ajustou o capacete debaixo do braço. — Já decidi.
 
 — Que conta?
 
-— Tem versões do meu pai, e nenhuma bate com a outra. No Largo dos Ponteiros dizem que ele se cansou e foi embora. Pedi os relatórios na Central e no prédio de pesquisa; um manda procurar o outro, e nenhum deixa ver os cadernos. E a Shirley contou que a porta da sala do fundo se fechou atrás dele e não abriu mais. — Ferris olhou a chuva por um momento, em vez de olhar para Breno. — Eu vou ficar na frente do prédio de pesquisa até alguém me dizer qual delas é a verdadeira. Se for preciso, durmo no degrau.
+— Estão dizendo por aí que meu pai fugiu. Fui à Central pedir os relatórios e me mandaram pra Casa de Pesquisa. Lá disseram que precisava falar com a Central. Ninguém me mostra nada. — Ferris olhou para a chuva. — Velho-Sábio encontrou um caderno, mas aquele caderno não diz quando meu pai entrou lá pela última vez. Vou ficar na frente da Casa de Pesquisa até alguém me mostrar o registro. Se for preciso, passo a noite lá.
 
 — Eles não vão te deixar entrar.
 
 — Eu não preciso entrar. Preciso que me vejam esperando.
 
-Breno pensou em perguntar quanto tempo ele pretendia ficar, em oferecer o casaco, em dizer que um plano daqueles tinha pelo menos três furos e que ele conseguia listar todos. Conhecia aquela maneira de esperar na frente de uma porta, e por isso não listou nenhum.
+Breno ia protestar. Ferris poderia passar dias debaixo da chuva sem conseguir nada. Mas viu o cansaço no rosto dele e guardou a discussão.
 
-— Eu posso ir com você. Quatro horas, de manhã, antes do treino do Velho-Sábio. Eu levo um banquinho e um livro.
+— Posso ir junto amanhã cedo. O Velho-Sábio só começa o treino depois. Pelo menos você não fica lá sozinho.
 
-— Você tem três para cuidar, e eles já dão trabalho suficiente. — Ferris pôs o capacete na cabeça e ajeitou a fivela com dois dedos. — Fica com o Denis na segunda. Ele aceita qualquer um, é o único jeito de ficar quieto. E não precisa me achar covarde se eu não aparecer.
+— Você já tem seus irmãos, Breno. — Ferris pôs o capacete e apertou a fivela. — Pede pra ficar com Denis na segunda. Ele aceita fazer dupla com qualquer um. Eu vou estar na Casa de Pesquisa quando abrirem, mesmo que descontem os pontos.
 
 — Eu não ia achar.
 
-— Ia. Um pouquinho. Eu também achava, de você, no começo do ciclo. — Ele desceu o primeiro degrau e parou. — Foi bom ter sido sua dupla, Lins. Você é chato na hora de conferir, e eu nunca perdi um passo por causa disso.
+— No ano passado eu acharia, no seu lugar. — Ferris desceu o primeiro degrau e parou. — Você conferia tudo duas vezes, Lins. Era irritante. Mas eu nunca perdi um passo nos treinos.
 
-Desceu os degraus de dois em dois e atravessou o jardim sem correr. O portão rangeu, e a figura dele ficou do outro lado da rua, cinza dentro da chuva cinza, até dobrar a esquina e sumir. Breno ficou mais um minuto na varanda. Quando voltou à cozinha, pegou a borracha, passou-a pela linha da dupla até o papel esfarelar e escreveu embaixo, com mais força do que precisava, o nome de Denis.
+Ferris desceu os degraus e atravessou o jardim sem correr. Ficou um instante parado do outro lado da rua, depois desapareceu na esquina, debaixo da chuva. Breno ficou mais um minuto na varanda. Quando voltou à cozinha, pegou a borracha, passou-a pela linha da dupla até o papel esfarelar e escreveu embaixo, com mais força do que precisava, o nome de Denis.
 
-— O Ferris pediu para desfazer a dupla, Breno — disse Kali, mais baixo do que de costume. — O senhor Graven respondeu em três minutos e dez segundos. Desconta seis pontos de cada lado e põe você de novo com o Denis, que tinha ficado sem parceira. O Denis já mandou duas mensagens de agradecimento. A segunda tem um desenho de um cachorro.
+— O Ferris pediu para desfazer a dupla, Breno — informou Kali. — O senhor Graven aceitou. Descontará seis pontos de cada um, e o Denis será seu novo parceiro. Ele já mandou duas mensagens de agradecimento. A segunda tem um desenho de um cachorro.
 
 — O Denis desenhou um cachorro? — perguntou Bruno, da porta, de pijama, com o cabelo em pé.
 
 — Dois cachorros. Um mais feliz.
 
-Breno pensou que, quando tivesse tempo, ia explicar ao irmão por que nem toda mensagem de gratidão precisava de comentário. Não teve tempo.
+Breno fechou o caderno. Não ia discutir os desenhos de Denis.
 
-O Velho-Sábio saiu às duas da tarde, com o cajado e um casaco impermeável que a chuva ia vencer em meia hora. Tinha recebido um selo da Central pouco depois do almoço, uma convocação do conselho para uma reunião de urgência, e leu o papel de pé, ao lado da escada, com as sobrancelhas levantadas, como quem confere uma conta cujo resultado já imagina.
+Às duas da tarde, Velho-Sábio saiu de casa com o cajado e um casaco impermeável. Recebera uma convocação urgente do Conselho pouco depois do almoço. Leu o selo da Central duas vezes, de pé junto à escada, antes de guardar o papel. Desde cedo havia notícias de pessoas reunindo assinaturas contra a presença de dimensais na região.
 
 — Reunião de urgência num sábado de chuva — disse, e dobrou o papel em quatro. — Ou é nomeação, ou é desastre, e nomeação eu não recebo há uns trinta anos. Kali, a casa.
 
 — A casa está em ordem, senhor Auream. A barreira está em cem por cento.
 
-— Ótimo. Breno. — Ele parou diante do mais velho e baixou a voz. — Ninguém abre a porta, ninguém responde se bater, e as janelas ficam fechadas. Eu volto antes do jantar. Se me demorar, o Átila sabe mais da casa do que vocês quatro juntos.
+— Ótimo. Breno. — Ele parou diante do mais velho e baixou a voz. — Ninguém abre a porta, ninguém responde se bater, e as janelas ficam fechadas. Já pedi ao McCroys que apareça antes do anoitecer. Volto antes do jantar. Se eu demorar, o Átila sabe mais da casa do que vocês quatro juntos.
 
 — O senhor quer que a gente faça o quê, se acontecer alguma coisa?
 
-— Que esperem. É a parte mais difícil, eu sei. — Bateu duas vezes no ombro dele com a mão livre. — Cuida do chá do Banjo, que ele esquece de beber.
+— Esperem. É a parte mais difícil, eu sei. — Bateu duas vezes no ombro dele com a mão livre. — Cuida do chá do Banjo, que ele esquece de beber.
 
 Saiu pelo portão, e o cajado marcou o passo no molhado até a esquina. O resto da tarde começou do jeito que as tardes de chuva começam, sem pressa. Bruno e Banjo jogaram cartas na sala, com Farol enrolado no pescoço de Banjo, e Bruno trapaceou de um jeito tão escancarado que Banjo achou que era brincadeira e perdeu de propósito. Beatriz sentou-se perto da lareira com uma tira de pano, tentando fazer um nó que a mãe sabia e que ela só lembrava até a metade.
 
 Foi Kali quem avisou, às três e doze, numa voz baixa que ela quase nunca usava.
 
-— Breno. Tem doze pessoas na rua, em frente ao portão. Ninguém as convidou.
+— Breno. Tem doze pessoas na rua, em frente ao portão. Ninguém convidou.
 
 Breno largou o livro. Bruno, na sala, virou a carta que tinha na mão.
 
-— Doze fazendo o quê? — perguntou Breno.
+— Quem são? O que estão fazendo? — perguntou Breno.
 
 — Estão parados e falam entre si. Um deles carrega uma tábua com letras, mas a chuva borrou. Acabam de chegar mais cinco.
 
 Quando ele chegou à janela do corredor, no andar de cima, eram vinte. A cortina estava puxada, e ele separou uma ponta com dois dedos. Debaixo da chuva, na calçada, havia gente de todo tipo e não só o tipo que ele esperava. Duas mulheres com a mesma capa, uma criança de colo enrolada numa manta, um senhor de guarda-chuva preto que ficou no fundo, sem gritar, e atrás deles um grupo de rapazes que não segurava guarda-chuva nenhum e conversava alto. Um deles levava uma barra de ferro apoiada no ombro.
 
-— Onde está o Kalev? — gritou alguém, e a pergunta foi pegando, quatro, cinco vozes. — Quem abriu o buraco? Desde que eles chegaram, as coisas somem!
+— E o Kalev? Por que ninguém conta o que aconteceu com ele? — gritou alguém, e outras vozes repetiram a pergunta. — Eles voltaram e começou tudo de novo!
 
-Era a frase que Denis tinha repetido na mesa de jantar. Dita ali, em coro, debaixo da chuva, não tinha mais nenhuma graça.
+Breno reconheceu o boato que Denis tinha contado no refeitório. Agora, com dezenas de pessoas gritando do outro lado do portão, a história parecia muito menos absurda.
 
 — Voltem para a casa de vocês! — gritou um dos rapazes, e outros responderam. — Tayo é nossa!
 
-— Trinta e quatro — disse Kali, na parede ao lado dele. — A barreira da casa está em cem por cento. Ninguém lá fora consegue encostar em nenhum de vocês. — O brilho dela baixou. — Ela nunca foi testada contra mais de seis pessoas ao mesmo tempo.
+— Trinta e quatro pessoas — informou Kali, flutuando ao lado dele. — A barreira está ativa e protegendo os quatro. Nunca houve tanta gente tentando entrar nesta casa ao mesmo tempo.
 
 — Por que você está me falando isso?
 
-— Porque você ia perguntar. E porque o Velho-Sábio me pediu para dizer a verdade quando vocês perguntassem. Você já perguntou, Breno. Com o rosto.
+— Porque o Velho-Sábio pediu que eu informasse qualquer risco — respondeu Kali.
 
 Do primeiro andar subiu um barulho de passos, e Bruno apareceu no alto da escada, com Banjo atrás e Beatriz no fim, de olhos enormes, agarrada na tira de pano. Átila veio junto, rente à perna de Breno, com o corpo duro.
 
@@ -100,49 +100,55 @@ Do primeiro andar subiu um barulho de passos, e Bruno apareceu no alto da escada
 
 — Você vai ficar aqui.
 
-— Eu sou só gelo, Breno. Eu não vou machucar ninguém.
+— Eu só vou fazer eles escorregarem, pô!
 
-— Bruno, para. — Breno se virou para ele, falando tão baixo que o irmão teve de chegar perto. — É só você fazer uma pontinha de gelo lá fora e amanhã dizem que a gente atacou primeiro. Fica aqui comigo.
+— E o Nathan bateu o cotovelo quando você fez isso na escola — lembrou Banjo.
+
+Bruno abriu a boca, mas Breno falou primeiro:
+
+— É só você fazer um pouco de gelo lá fora e amanhã dizem que a gente atacou primeiro. Fica aqui comigo.
+
+Bruno afastou as mãos do corrimão. Lá embaixo, os gritos aumentaram.
 
 Uma pedra bateu na vidraça da frente, no andar de baixo, com um estalo seco que fez Banjo encolher os ombros. O vidro não quebrou. A pedra ficou parada um instante a um palmo da superfície, suspensa, como se o ar tivesse mudado de ideia, e depois caiu na grama. Lá fora, alguém soltou um palavrão, e outra pedra veio atrás.
 
 — Isso é a barreira — disse Banjo, com a voz fina. — Não é? Quer dizer, é a barreira.
 
-— É — respondeu Breno, e esperou que a palavra soasse mais firme do que tinha soado.
+— É, Banjo. A barreira segurou a pedra. Fiquem longe das janelas.
 
 — Quarenta e um — disse Kali. — O senhor McCroys deve chegar às quatro. A chance de ele chegar antes é de nove por cento. Eu refiz a conta três vezes.
 
-— O McCroys? — Bruno quase gritou, e levou a mão à boca. — O McCroys do anel? O que jurou negar tudo se alguém contasse que ele foi educado? O Velho-Sábio chamou o McCroys?
+— O McCroys? — Bruno arregalou os olhos. — Pô, logo ele? O Velho-Sábio chamou aquele sujeito?
 
 — O Velho-Sábio disse que o senhor McCroys tem uma dívida e uma reputação e que as duas o fazem pontual. Foram as palavras dele, às treze e quarenta, antes de sair.
 
-— Que ótimo. Estamos salvos pelo cara mais mal-humorado de Tayo.
+— Ótimo. Justo o cara mais rabugento da Sociedade.
 
-— Ele não é mal-humorado com a gente — disse Breno, sem saber ao certo se acreditava. — É com todo mundo. É diferente.
+— Pelo menos ele é da Sociedade — respondeu Breno. — O Velho-Sábio deve ter um motivo pra confiar nele.
 
-Às três e quarenta e uma, o portão cedeu. Foi um barulho de dobradiça arrancada, e depois o jardim se encheu de vozes mais próximas, de passos na grama, de botas no caminho de pedra. Kali avisou, depressa, que o portão nunca tinha feito parte da barreira e que a casa continuava inteira. Beatriz soltou um som que não chegou a ser palavra e se sentou no último degrau, com as mãos entre os joelhos. Na pele da palma, perto do pulso, subia uma fumaça fina.
+Às três e quarenta e uma, o portão cedeu. Uma dobradiça se arrancou com um estalo, e logo o jardim se encheu de gritos e botas pisando a grama e o caminho de pedra. Kali avisou, depressa, que o portão nunca tinha feito parte da barreira e que a casa continuava inteira. Beatriz soltou um som que não chegou a ser palavra e se sentou no último degrau, com as mãos entre os joelhos. Na pele da palma, perto do pulso, subia uma fumaça fina.
 
-— Bia. — Breno se agachou diante dela, e tirou a tira de pano do punho dela com cuidado. — Olha para mim. Não é para você fazer nada. Você ouviu? Nada. A casa faz.
+— Bia. — Breno se agachou diante dela, afastando a tira de pano que lhe cobria a mão. — Não usa fogo. A casa está protegida. Fica aqui comigo.
 
 — E se eles botarem fogo? — A voz saiu miúda. — Eu sei apagar. Ou eu faço pior. Eu não sei qual.
 
-— Ninguém vai botar fogo. Respira devagar. Por dentro do nariz, e solta pela boca, que nem a Eshley ensinou.
+— A Kali está vendo tudo. Se alguém tentar alguma coisa, ela avisa. Olha pra mim, Bia. Respira comigo.
 
-Ela respirou. Depois, sem perceber, começou a cantarolar, baixinho, três notas que voltavam sempre ao começo, como quem procura uma porta numa casa escura. Breno reconheceu o som da mesa do café de casa e não mandou parar. A fumaça das mãos dela foi baixando.
+Beatriz acompanhou a respiração dele. Aos poucos, começou a cantarolar as três notas que a mãe costumava cantar. Breno ouviu a melodia e ficou perto dela, sem interromper. A fumaça nas mãos da menina diminuiu.
 
 Às três e quarenta e oito começaram a bater na porta da frente. Não era soco, era algo mais pesado, um tronco ou um poste, com um ritmo de homens contando juntos. A madeira rangeu a cada pancada, e a cada pancada Átila rosnou no fundo do peito.
 
-— A porta está em setenta por cento — disse Kali. — Vou apagar as luzes da frente, para que de fora ninguém veja onde vocês estão.
+— As dobradiças da porta estão cedendo — avisou Kali. — A barreira ainda segura a passagem para os quartos. Vou apagar as luzes da frente, para que ninguém veja onde vocês estão.
 
 As luzes do andar de baixo se apagaram uma a uma. A de cima continuou acesa, e foi aí que Beatriz, com os olhos úmidos, se levantou e foi até a janela do corredor.
 
 — Bia, volta.
 
-— Eu só quero ver quantos são. Eu conto melhor se eu ver.
+— Eu quero ver se eles já foram embora.
 
-Foi atrás dela, e Bruno foi atrás dele, e Banjo atrás dos dois, com Farol a piscar no pescoço, num escuro mal iluminado de chuva. Os quatro pararam na janela, ombro com ombro, sem ter combinado nada. O vidro estava molhado do lado de fora e embaçado do lado de dentro, e no meio dos fios da chuva Breno viu primeiro os rostos deles mesmos, sobrepostos ao jardim: o de Bruno, com o queixo duro e a testa franzida, o de Banjo, com os óculos embaçados e os olhos muito abertos, o de Beatriz, pequeno e pálido, o dele, de cenho puxado, que ele não se lembrava de ter feito. Quatro rostos preocupados, numa janela, olhando para baixo.
+Breno foi atrás dela. Bruno e Banjo o seguiram, com Farol piscando no pescoço do mais novo. O corredor mal recebia luz do jardim encharcado. Os quatro pararam na janela, ombro com ombro, sem ter combinado nada. O vidro estava molhado por fora e embaçado por dentro. No vidro, o reflexo dos quatro se misturava ao jardim. Breno viu Bruno cerrar o maxilar; Banjo tentou limpar os óculos com a manga, sem resultado. Beatriz parecia ainda menor entre eles. Seu próprio reflexo mal aparecia, mas estava lá, atrás dos irmãos, olhando a multidão que se apertava no portão.
 
-No jardim, alguém levantou a cabeça. Depois outro. O grito de uma das mulheres de capa falhou no meio de uma palavra. Um dos rapazes, o da barra de ferro, ficou parado no meio do caminho com o braço meio erguido, olhando para cima, e a criança de colo, nos braços da outra mulher, soltou um choro fino de quem acorda. Foi um segundo, talvez dois. Depois o rapaz de trás gritou "Eles estão olhando!", como se aquilo fosse a ofensa, e o tronco bateu outra vez.
+No jardim, alguém levantou a cabeça. Depois outro. O grito de uma das mulheres de capa falhou no meio de uma palavra. O rapaz da barra de ferro ficou parado, olhando para cima. A criança no colo de uma mulher começou a chorar. Foi um segundo, talvez dois. Depois o rapaz de trás gritou "Eles estão olhando!", como se aquilo fosse a ofensa, e o tronco bateu outra vez.
 
 — Para trás — disse Breno, e puxou os três da janela. — Para o corredor do meio, onde não tem vidro. Agora.
 
@@ -150,25 +156,27 @@ A porta de baixo cedeu às três e cinquenta e dois. Não caiu inteira, abriu pa
 
 Um homem de barba e jaqueta marrom subiu os três primeiros degraus com a mão estendida, os olhos fixos em Beatriz, e a mão parou. Parou no ar, a um palmo do ombro dela, e não adiantou empurrar. Ele tentou de novo. A palma se achatou contra uma superfície que ninguém via, como a de quem encosta numa vidraça, e o rosto dele passou do ódio ao espanto, e do espanto a um medo cru, de criança. Atrás dele, o povo não entendeu. Alguém gritou "É feitiço!" e todo o vestíbulo avançou de uma vez.
 
-O homem ficou preso entre a barreira e a multidão. Breno viu o rosto dele ficar roxo, viu um braço ficar preso num ângulo ruim, ouviu o ar sair do peito dele num som de fole. Os de trás empurravam sem saber o que empurravam.
+O homem ficou preso entre a barreira invisível e os que entravam atrás dele. O rosto começou a ficar roxo. Breno ouviu um estalo vindo do braço do sujeito, e depois a respiração falhar. Os de trás continuavam a empurrar, sem perceber o que acontecia.
 
 — Breno — disse Bruno, na voz de quem pedia uma ordem.
 
-Breno desceu quatro degraus de uma vez. A barreira o deixou passar, porque era dele, e ele agarrou o homem pelas costas do casaco e puxou com todo o peso do corpo. Os dois caíram para trás, no degrau, e o homem tossiu em cima dele, sem fôlego, olhando-o com a boca aberta. Breno ia dizer qualquer coisa, qualquer uma, quando a porta escureceu.
+Breno desceu quatro degraus de uma vez. Passou pela barreira da casa sem resistência e agarrou o homem pelo casaco, puxando-o para longe da multidão. Os dois caíram para trás, no degrau, e o homem tossiu em cima dele, sem fôlego, olhando-o com a boca aberta. Breno ia dizer qualquer coisa, qualquer uma, quando a porta escureceu.
 
 William McCroys estava parado na soleira, com a água escorrendo do chapéu e as duas mãos juntas às costas. Era menor do que Breno lembrava e mais seco, com o rosto de quem tinha passado o ano inteiro ouvindo explicações sobre si mesmo. Olhou o vestíbulo cheio, os degraus, o homem caído, os quatro irmãos no alto da escada, e na face dele não passou nada.
 
-— Senhores — disse, e a voz atravessou o barulho sem subir de volume. — A casa pertence ao Auream, que não está, e eu estou aqui a pedido dele, como tutor da Sociedade de Tayo e como convidado. O próximo que passar do capacho responde a mim. Os vigilantes estão na esquina desde as três e meia. Esperaram uma ordem que não chegou, e eu me dispensei de esperar por ela.
+— Senhores — disse, e a voz atravessou o barulho sem subir de volume. — A casa pertence ao Auream, que não está, e eu estou aqui a pedido dele, como tutor da Sociedade de Tayo e como convidado. O próximo que passar do capacho responde a mim. Os vigilantes estão na esquina desde as três e meia. Esperaram uma ordem que não chegou. Eu não esperei.
 
 — Isso aqui é perseguição! — gritou alguém no fundo. — Esses meninos...
 
-— Esses são quatro meninos, e o senhor está dentro da casa deles sem ter sido chamado. — McCroys deu um passo. — Eu não perdi a minha reputação neste ano para ver a casa de um colega quebrada por uma tarde de cólera. Para fora, em fila, com calma, que o chão está molhado.
+— Esses são quatro meninos, e o senhor está dentro da casa deles sem ter sido chamado. — McCroys deu um passo. — Eu não perdi a minha reputação neste ano para ver a casa de um colega quebrada por uma tarde de raiva. Para fora, em fila, com calma, que o chão está molhado.
 
-O vestíbulo foi esvaziando aos poucos, devagar, com resmungos e tropeços, e na porta, com o apito dos vigilantes ao longe, os últimos recuaram pelo caminho de pedra. O senhor de guarda-chuva preto, que não tinha entrado, tirou o chapéu por um segundo na direção da janela de cima e foi embora sem olhar para trás. O homem de jaqueta marrom se levantou sozinho, segurando o braço, e saiu sem dizer nada. Quando passou por Breno, parou.
+O vestíbulo esvaziou-se entre resmungos e tropeços. Com o apito dos vigilantes ao longe, os últimos invasores recuaram pelo caminho de pedra. O senhor de guarda-chuva preto, que não tinha entrado, tirou o chapéu por um segundo na direção da janela de cima e foi embora sem olhar para trás. O homem de jaqueta marrom se levantou sozinho, segurando o braço, e saiu sem dizer nada. Quando passou por Breno, parou.
 
-— Eu não ia machucar ela — disse, baixo, com voz rouca. — Eu só queria... eu só queria entender por que as coisas somem.
+— Eu não ia machucar a menina — murmurou o homem. — Só queria saber o que aconteceu com o Kalev. Ninguém conta nada pra gente.
 
-— Eu sei — respondeu Breno, embora não soubesse de nada. — Vai ver o braço, senhor. Ele não está bom.
+Breno olhou a porta arrancada e a escada suja de lama.
+
+— Vai cuidar desse braço, senhor. Você pode ter quebrado.
 
 O homem foi. McCroys ficou parado na soleira, olhando para a chuva, com as mãos ainda às costas, e quando Breno chegou perto para agradecer, não o deixou terminar.
 
@@ -184,17 +192,23 @@ Saiu para a chuva, com passos medidos, e Bruno, ao lado de Breno, disse a coisa 
 
 — Eu sei. — Breno olhou a porta quebrada, a lama no assoalho, as marcas de bota nas escadas. — Eu também.
 
-O Velho-Sábio voltou às seis, com a água escorrendo do casaco e uma expressão que Breno nunca tinha visto, uma calma tão apertada que parecia uma corda esticada. Atravessou o vestíbulo e olhou a porta, depois o chão, depois cada um deles, na ordem em que estavam sentados no sofá. Chegou a Beatriz, encolhida na ponta, com uma xícara de chá que Banjo tinha feito e que ela ainda não tinha bebido, e ficou mais tempo.
+Velho-Sábio voltou às seis, ensopado, com uma calma tão apertada que parecia uma corda esticada. Atravessou o vestíbulo e conferiu a porta, o chão e os irmãos sentados no sofá. Chegou a Beatriz, encolhida na ponta, com uma xícara de chá que Banjo tinha feito e que ela ainda não tinha bebido, e ficou mais tempo.
 
-— Kali. O registro.
+— Kali, me diga o que aconteceu enquanto eu estava fora.
 
-— Quinze horas e doze minutos, primeira presença na rua. Cinquenta e sete pessoas no máximo. Três pedras, duas barras, um tronco. A barreira ficou a cem por cento durante toda a ocorrência. Ninguém encostou em nenhum dos quatro. Zero toques. Eu contei.
+— Quinze e doze, as primeiras pessoas chegaram. No auge, contei cinquenta e sete. Jogaram três pedras e usaram um tronco para derrubar a porta. A proteção dos quartos não se rompeu. — Kali fez uma pausa. — Mas Breno atravessou a barreira para ajudar um homem que estava sendo esmagado na escada.
 
-— Zero. — Velho-Sábio se sentou na poltrona devagar, estendendo a perna ruim. — Eu desenhei essa casa para que ninguém pudesse encostar em vocês, nem que viesse o conselho inteiro com ordem assinada. O que ela não evita é o susto, e o susto eu devo a vocês, e não vou pagar com desculpa. Pedi ao William que viesse às quatro, porque a reunião devia acabar às três. Ele chegou às quatro menos cinco, pontual como sempre, e o conselho me segurou na sala até as cinco.
+— Você atravessou a barreira? — perguntou Velho-Sábio, olhando para Breno.
+
+— O homem estava ficando sem ar. Os outros não paravam de empurrar.
+
+Velho-Sábio pousou a mão no ombro dele e demorou um instante antes de voltar a falar.
+
+— Pedi ao William que viesse às quatro, porque a reunião devia acabar às três. Ele chegou antes. O Conselho me segurou na sala até as cinco. Vocês passaram por tudo isso sem mim.
 
 — O conselho não deixou? — perguntou Breno.
 
-— Havia uma reunião de urgência, e ninguém sabia dizer por quê. Passou duas horas, falaram da segurança do Coração Branco e do preço das lamparinas. — Ele esfregou o joelho. — Quem me convocou mandou lembranças. Eu agradeci, com o meu melhor sorriso.
+— Havia uma reunião de urgência. Ficamos duas horas discutindo a segurança do Coração Branco, sem sair do lugar. — Ele esfregou o joelho. — Quando me deixaram ir, já sabia que McCroys tinha sido chamado para cá.
 
 Na parede, a tela de Kali acendeu sozinha, e a voz dela falou antes que ele terminasse.
 
@@ -202,63 +216,65 @@ Na parede, a tela de Kali acendeu sozinha, e a voz dela falou antes que ele term
 
 — Reproduza.
 
-A tela se abriu em dois, e no rosto de Beker, um homem de sorriso enviesado e olhar demorado, a luz de uma sala de pedra batia de lado. Ele falou com uma calma lenta, olhando para um ponto acima da câmera. A Central lamentava profundamente os acontecimentos de Brisália e compreendia o receio legítimo da população diante de episódios recentes. Para proteger os jovens aprendizes e os moradores do bairro, determinara a transferência dos quatro irmãos Lins para uma residência sob vigilância, a partir da manhã seguinte. Segurança, repetiu duas vezes. A frase final era uma frase de cortesia.
+A tela se abriu em dois, e no rosto de Beker, um homem de sorriso enviesado e olhar demorado, a luz de uma sala de pedra batia de lado. Ele falou com uma calma lenta, olhando para um ponto acima da câmera. A Central lamentava profundamente os acontecimentos de Brisália e compreendia o receio legítimo da população diante de episódios recentes. Para proteger os jovens aprendizes e os moradores do bairro, determinara que os quatro irmãos Lins deixassem Brisália na manhã seguinte. O novo endereço deveria ser comunicado à Vigilância, que poderia realizar visitas de acompanhamento. Segurança, repetiu duas vezes. A frase final era uma frase de cortesia.
 
-— Segurança — repetiu Bruno, quando a tela se fechou. — Ele disse segurança como quem diz "bom dia". Dois minutos depois de a gente quase morrer, ele já tinha resposta.
+— Segurança, é? — Bruno se levantou. — O portão foi arrancado, a porta quase caiu na cabeça da gente, e o sujeito só fala em segurança?
 
-— Ninguém quase morreu, Bruno — disse Breno. Depois se lembrou do braço do homem de jaqueta e acrescentou, mais baixo: — Quase ninguém.
+— Um homem quase morreu esmagado na escada — respondeu Breno, olhando para a porta. — E a Central anunciou a transferência sem nem perguntar se a gente estava bem. Chamam isso de proteção.
 
-— O primeiro informe dos vigilantes sobre gente combinando uma manifestação chegou ao gabinete de Beker às quatorze e quarenta e seis — disse Kali. — A declaração foi preparada às quatorze e cinquenta e oito. A primeira pedra bateu no vidro às quinze e vinte e três. Ele tinha informações antes da agressão; tinha homens nas ruas. Mesmo assim, não enviou ninguém para proteger a casa.
+Velho-Sábio olhou para a tela e depois para a porta quebrada.
 
-Um silêncio pesado caiu sobre a sala. Velho-Sábio olhou para a parede, depois para o teto, e por fim pegou a xícara de Beatriz, que estava intocada, e bebeu o chá dela de um gole.
+— Vou querer saber por que os vigilantes demoraram tanto — respondeu. — Mas não vamos descobrir isso hoje.
 
-— Os vigilantes avisaram. Beker preferiu preparar a resposta para depois — disse Velho-Sábio, pousando a xícara. — Amanhã vocês vão para a casa do Lioro, em Camporil. Não vou discutir isso com o Conselho; ele transformaria a conversa em mais uma acusação. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso saber o que acontece nela.
+Velho-Sábio apoiou a xícara na mesa.
+
+— Amanhã vocês vão para a casa do Lioro, em Camporil. Vou informar o endereço, como exigiram. Pelo menos lá terão alguém de confiança para cuidar de vocês. Não vou discutir a mudança com o Conselho agora, porque eles transformariam a conversa em mais uma acusação. A Kali e o Átila ficam aqui. A casa precisa parecer habitada, e eu preciso saber o que acontece nela.
 
 — O senhor vai ficar sozinho? — perguntou Banjo, e a voz saiu mais fraca do que ele queria.
 
-— Com a Kali e o Átila eu nunca fico sozinho, nem quando quero. — Velho-Sábio sorriu pela primeira vez no dia, curto. — E eu passo em Camporil de vez em quando, para reclamar do chá do Lioro, como faz todo tio ranzinza. Para o conselho, isso é visita de família. O que a gente fizer quando eu passar, ninguém precisa anotar.
+— Vou ficar com a Kali e o Átila. E posso ir visitar vocês em Camporil. — Velho-Sábio pousou a xícara. — O Conselho não pode me impedir de visitar o Lioro. Só não quero que vocês saiam sozinhos até tudo isso se acalmar.
 
-Breno entendeu antes dos outros, porque era o único que estava olhando para o rosto dele e não para as palavras. Guardou o que tinha entendido, sem repetir, e foi arrumar a mochila.
+Breno subiu para arrumar a mochila, sem fazer perguntas.
 
-Bug chegou às nove da manhã de domingo, empurrando um carrinho de bagagem de duas rodas cheio de etiquetas, debaixo de uma capa de chuva que era grande demais para ele e se arrastava no chão. Ficou parado na porta quebrada, olhando para as dobradiças soltas com uma expressão de pesar, e só depois se lembrou de falar.
+Bug chegou na manhã de domingo com um carrinho de bagagem coberto de etiquetas e uma capa de chuva grande demais. O portão continuava caído, e ele precisou passar pelo canteiro. Parou diante das dobradiças arrancadas, sem saber o que dizer.
 
-— Eu vim buscar as... as malas das mochilas. A Central pediu que eu levasse. Eu disse que levava, porque eu levo bem. É o resto que eu perco.
+— Vim buscar as malas. Quer dizer, as mochilas. A Central mandou. — Bug sacudiu as etiquetas presas ao carrinho. — Anotei o nome de todo mundo, então acho que não vou trocar nenhuma.
 
 — Bom dia, Bug — disse Beatriz, que já estava de casaco, abraçada à tira de pano, e apareceu atrás de Breno. — Você veio de longe?
 
-— Eu vim de perto, só que o caminho estava com mais chuva do que o de ontem. — Ele tirou uma etiqueta de um bolso, olhou, guardou no outro, tirou outra. — Esta é a do Breno. Um de quatro. A da Beatriz é dois de quatro. Eu tenho um jeito para não trocar, que é colar na alça e olhar depois.
+— De perto, mas a chuva atrapalhou. — Bug tirou uma etiqueta do bolso, olhou e guardou no outro. — Breno, um de quatro. Beatriz, dois de quatro. Agora só falta descobrir onde pus as outras duas.
 
 — Obrigado. — Breno entregou a mochila a ele com mais cuidado do que o necessário. — Você dormiu?
 
-— Eu durmo de dia, que é quando ninguém precisa de mim. — Bug sorriu, mostrando os dentes pequenos. — Eu gostava de entregar nesta casa. Tinha um cachorro que me cheirava a mão toda vez, e uma voz na parede que me chamava de senhor Bug.
+— Dormi um pouco. — Bug mostrou os dentes pequenos num sorriso. — Era fácil chegar até aqui com as encomendas. O cachorro vinha cheirar a minha mão, e a Kali sempre me chamava de senhor Bug.
 
 — Eu continuo chamando — disse Kali, da tela, e a voz soou um pouco diferente do habitual. — O senhor é sempre cordial, senhor Bug.
 
-A despedida foi curta, porque eles não tinham prática em fazer uma mais comprida. Banjo se ajoelhou em frente a Átila, enterrou o rosto no pescoço do cão e ficou ali, sem falar. Beatriz deixou a tira de pano no encosto do sofá, "para a Kali não ficar sem ter o que olhar". Bruno foi o último a sair e parou na porta, com a mochila de um lado, de costas para a sala.
+A despedida foi curta. As mochilas já estavam no carrinho, e Beatriz não queria olhar para a porta arrombada outra vez. Banjo se ajoelhou em frente a Átila, enterrou o rosto no pescoço do cão e ficou ali, sem falar. Beatriz deixou a tira de pano no encosto do sofá, "para a Kali não ficar sem ter o que olhar". Bruno foi o último a sair e parou na porta, com a mochila de um lado, de costas para a sala.
 
 — Kali.
 
 — Estou aqui, Bruno.
 
-— Não deixa o vizinho do lado entrar na cozinha. Ele rouba pão quando ninguém está olhando. — Pigarreou. — E toma conta do velho. Ele ronca, mas não conta.
+— Não deixa o velho esquecer de comer, tá? Ele finge que chá resolve tudo. — Bruno pigarreou. — E fica de olho no Átila.
 
 — Anotado. As duas coisas. — A tela ficou parada um instante. — Que a luz encontre vocês.
 
 Ela disse a frase como todas as manhãs, com a mesma cadência, mas a luz do rosto dela demorou um segundo a mais para se apagar.
 
-Camporil ficava do outro lado da cidade, e a viagem durou quase uma hora, de túbula e depois de karto, sob uma chuva que não tinha pressa de acabar. O karto os deixou perto do Largo da Fonte, uma pracinha redonda com quatro bancos de pedra. A fonte do meio estava seca, mas um dos plátanos pingava no banco de baixo, e Beatriz pulou três poças para experimentar se as pedras eram escorregadias. A casa de Lioro ficava do outro lado, baixa e comprida, de pedra clara, rodeada de muro, com um portão de ferro que se abria para um pátio de lajotas lisas e uma árvore velha de galhos retorcidos. Cheirava a lenha e a sopa, e no cabide da entrada uma capa escura pingava no tapete, com a barra suja de terra vermelha. Lioro os esperava na porta, de barba molhada, com toalhas penduradas no braço e a calma de quem leva visitas para dentro há muitos anos.
+Camporil ficava do outro lado da cidade. A viagem, primeiro de túbula e depois de karto, durou quase uma hora. Velho-Sábio entregara a Lioro um cartão com as rotas que deveriam usar nos próximos dias; desde a invasão, não queria os quatro a atravessar bairros desconhecidos sozinhos. No embarque, um vigilante conferiu os nomes um a um, embora o carro tivesse lugares vazios. Bruno reclamou que estavam a tratar uma ida de casa para casa como uma viagem ao fim do mundo. Breno guardou o cartão sem responder. A chuva não parou durante o trajeto. O karto os deixou perto do Largo da Fonte, uma pracinha redonda com quatro bancos de pedra. A fonte do meio estava seca, mas um dos plátanos pingava no banco de baixo, e Beatriz pulou três poças para experimentar se as pedras eram escorregadias. A casa de Lioro ficava do outro lado, baixa e comprida, de pedra clara, rodeada de muro, com um portão de ferro que se abria para um pátio de lajotas lisas e uma árvore velha de galhos retorcidos. Cheirava a lenha e a sopa, e no cabide da entrada uma capa escura pingava no tapete, com a barra suja de terra vermelha. Lioro os esperava à porta com a barba molhada e várias toalhas no braço. Sorriu ao ver os quatro.
 
-— Meus jovens, entrem antes que a chuva resolva entrar junto. — Distribuiu as toalhas uma a uma, olhando cada um nos olhos. — A casa é de pedra, e pedra é lenta para se aquecer, mas depois não perde o calor. Os quartos são em cima. Vocês dividem como quiserem, e eu só peço que não discutam em voz alta antes do café. A Nayra chegou ontem à noite e dorme no quarto dos fundos, no térreo. Pediu que eu dissesse que está melhor, o que quer dizer que está igual, mas com mais opinião.
+— Garotada, entrem antes que a chuva resolva entrar junto. — Distribuiu as toalhas uma a uma, olhando cada um nos olhos. — A casa é de pedra, e pedra é lenta para se aquecer, mas depois não perde o calor. Os quartos são em cima. Vocês dividem como quiserem, e eu só peço que não discutam em voz alta antes do café. A Nayra chegou ontem à noite e dorme no quarto dos fundos, no térreo. Pediu que eu dissesse que está melhor. Comeu bastante no jantar, mas ainda se cansa depressa.
 
 Foi quando Breno, olhando para o alto da escada, viu uma moça de cabelo escuro preso numa trança grossa, parada no patamar, de braços cruzados, olhando os quatro. Ela não disse nada. Quando percebeu que Breno a tinha visto, virou-se e entrou numa porta do corredor, e a porta se fechou sem bater.
 
-— É a Ivy — disse Lioro, no tom de quem avisa o nome de um móvel. — Ela é assim com gente nova. Passa. Dê uns dias.
+— É a Ivy — disse Lioro, no tom de quem avisa o nome de um móvel. — Ela é assim com gente nova. Passa. Dá uns dias.
 
 Banjo, que ainda carregava Farol no pescoço, olhou o corredor vazio com a boca meio aberta.
 
 À tarde, Lioro os levou ao Lago Miralume. Disse que era para a casa nova deixar de parecer estranha, mas Breno desconfiou que o passeio tinha mais a ver com a cara fechada de Bruno. O caminho descia até um píer de madeira escura, diante de um lago cinzento de neblina. Do outro lado erguiam-se três torres, e a do meio desaparecia dentro das nuvens.
 
-— As Torres de Velur — disse Lioro. — Um dia ainda conto os degraus da torre mais alta. Vou falar com o guarda do canal. Fiquem onde posso vê-los.
+— As Torres de Velur — disse Lioro. — Um dia ainda conto os degraus da torre mais alta. Vou falar com o guarda do canal. Fiquem onde eu veja vocês.
 
 Bruno largou o casaco e as botas num banco para sentir a garoa nos braços. Beatriz e Banjo foram até o fim do píer. Breno ficou a meio caminho, de onde podia ver os três, quando ouviu uma voz conhecida.
 
@@ -270,7 +286,7 @@ Bruno caiu de costas na água. Quando emergiu, cuspindo e prometendo congelar o 
 
 — Vem — disse Breno, de joelhos na borda do píer. — Se congelar alguma coisa aqui, quem vai explicar sou eu.
 
-Puxou-o de volta. Beatriz cobriu os ombros do irmão com a própria capa; Banjo virou o rosto para esconder o riso de susto e falhou.
+Puxou-o de volta. Beatriz cobriu os ombros do irmão com a própria capa. Banjo virou o rosto para esconder o riso de susto e falhou.
 
 Do barracão, os gêmeos discutiam em voz alta.
 
@@ -284,27 +300,27 @@ Do barracão, os gêmeos discutiam em voz alta.
 
 Breno foi até o barracão. Encontrou as botas caídas junto ao casco de um barco virado e o casaco enfiado por baixo dele. Erick e Nicolas pararam de discutir assim que o viram.
 
-— A gente não queria machucar ninguém — disse Nicolas, antes de sair correndo atrás do irmão.
+— A gente só queria brincar — disse Nicolas, antes de sair correndo atrás do irmão.
 
-Breno voltou com as roupas. Bruno vestiu o casaco encharcado, tremendo, enquanto Banjo tentava explicar que o som que fizera fora «metade riso, metade susto».
+Breno voltou com as roupas. Bruno vestiu o casaco encharcado, tremendo, enquanto Banjo tentava explicar que o som que fizera fora "metade riso, metade susto".
 
-— Vou me vingar — anunciou Bruno. — Sem sobrancelhas. Os dois.
+— Vou me vingar — anunciou Bruno, tirando água de dentro da bota. — Os dois vão pagar.
 
-— Hoje vai tomar sopa e dormir — respondeu Breno. — Amanhã me conta seu plano.
+— Hoje não — respondeu Breno. — Primeiro pega roupa seca.
 
-— E você diz quais partes são boas?
+Bruno olhou para a água do lago. Bastava um movimento do dedo para congelar a borda do píer. As pontas dos dedos ficaram brancas, mas ele fechou as mãos.
 
-— Não prometi nenhuma.
+— Tá bom. Hoje não — resmungou.
 
-Beatriz riu, e Bruno acabou rindo também, embora fingisse estar com frio demais para admitir.
+Beatriz tinha passado tanto tempo assustada na véspera que Breno ficou aliviado quando a viu rir da água escorrendo das botas do irmão. Bruno fingiu estar ofendido, mas acabou rindo também.
 
-O quarto que Lioro tinha dado aos três irmãos tinha uma janela voltada para o pátio, três camas de ferro e um tapete que cheirava a fibra seca. Beatriz dormia no quarto ao lado, com a porta aberta uma fresta, e Banjo caiu no sono antes de Bruno tirar os fones do pescoço. Do corredor entrava uma risca de luz amarela por baixo da porta, uma linha fina e firme no assoalho, da lamparina que Lioro deixava acesa na parede. Breno olhou para ela até as pálpebras pesarem. Contou até vinte, e depois perdeu a conta.
+O quarto que Lioro tinha dado aos três irmãos tinha uma janela voltada para o pátio, três camas de ferro e um tapete que cheirava a fibra seca. Beatriz dormia no quarto ao lado, com a porta aberta uma fresta, e Banjo caiu no sono antes de Bruno tirar os fones do pescoço. Do corredor entrava uma risca de luz amarela por baixo da porta, uma linha fina e firme no assoalho, da lamparina que Lioro deixava acesa na parede. Breno olhou para ela até as pálpebras pesarem. Tentou dormir, mas o som da chuva o manteve acordado por mais algum tempo.
 
-O corredor era de pedra úmida, e ele sabia disso antes de abrir os olhos, porque o frio subia pela sola dos pés. Reconhecia o cheiro de cal e de água parada. Dessa vez não perguntou onde estava. Disse a si mesmo, com a voz clara de quem fala sozinho num lugar vazio, que aquilo ficava na Presália, e que ele já tinha estado diante daquela porta de olhos abertos, de dia, com Korvo avisando atrás dele.
+O corredor era de pedra úmida, e ele sabia disso antes de abrir os olhos, porque o frio subia pela sola dos pés. Reconhecia o cheiro de cal e de água parada. Reconheceu a Presália. Já estivera diante daquela porta durante o dia, com Korvo atrás dele. Mesmo sabendo que sonhava, não conseguiu acordar.
 
 Andou. Na parede da direita, à altura dos olhos, estava o símbolo do círculo dividido, de um lado a chama e do outro a flor. Da última vez a flor era uma só linha, fechada, e agora estava aberta pela metade. Ele pôs a mão em cima, e a pedra estava morna, como a de um corpo que acabou de sair do lugar.
 
-A porta alta estava à frente, entalhada, com a mão de metal que segurava o crânio. Dessa vez a mão estava aberta e o crânio não estava nela. Estava no chão, de lado, e olhava para ele com as órbitas viradas para cima. A porta, entreaberta uma palma, não rangeu quando ele a empurrou. Zumbiu, num som grave, comprido, parecido com o de uma nota presa dentro de um tubo.
+A porta alta estava à frente, entalhada, com a mão de metal que segurava o crânio, e dessa vez ele reconheceu o ferro das juntas, o mesmo que subia nos braços dele quando endurecia. Era a mão dele. Estava aberta e o crânio não estava nela. Estava no chão, de lado, e olhava para ele com as órbitas viradas para cima. A porta, entreaberta uma palma, não rangeu quando ele a empurrou. Zumbiu, num som grave, comprido, parecido com o de uma nota presa dentro de um tubo.
 
 Do outro lado, o campo era o mesmo. Árvores mortas, o sol branco sem calor no alto, a terra cinzenta. Os corvos tinham ido embora, e o silêncio no lugar deles zumbia nos ouvidos. As árvores estavam em fileiras agora, retas, a distâncias iguais, como as de um pomar que alguém cuidava. Em cada galho mais baixo estava pendurada uma coisa pequena e comum, uma chaleira amassada, um chapéu de pano, uma bota de criança, uma mochila de escola. Ele andou entre elas sem tocar em nenhuma.
 
@@ -324,7 +340,7 @@ Foi então que viu, no fundo do corredor, uma porta pequena, escura, de madeira 
 
 Deu um passo. A luz por baixo da porta diminuiu. Deu outro, e diminuiu mais, afinando-se até ser só um fio, e o martelo parou de repente, e o silêncio que ficou foi do tamanho do corredor inteiro.
 
-Acordou com o coração batendo na garganta. O quarto estava escuro e a chuva batia no teto. Por um instante, a batida do sonho continuou, surda, no peito dele e na madeira da cabeceira. Depois reconheceu o som e soube que era só o próprio pulso.
+Breno acordou com o coração disparado. O quarto estava escuro e a chuva batia no teto. Por um instante, a batida do sonho continuou, surda, no peito dele e na madeira da cabeceira. Depois reconheceu o som e soube que era só o próprio pulso.
 
 Do corredor já não vinha luz por baixo da porta.
 

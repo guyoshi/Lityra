@@ -66,6 +66,16 @@ Ele não disse “igual você quer”, mas ele pensou. Eu vi no jeito como a fra
 
 Bati palmas fingidas.
 
+— Já prestei duas provas — ele disse. — Numa, acho que fui bem. Na outra, deu branco numa questão que eu sabia responder. Ainda tenho mais uma pela frente.
+
+— Então vai fazer a terceira. E, se precisar, a quarta. Você não costuma abandonar um jogo porque perdeu o primeiro tempo.
+
+Jason me olhou, surpreso.
+
+— Isso foi um incentivo?
+
+— Foi uma ordem. Não se acostuma.
+
 — Você sabe que nem todo mundo precisa ser… — ele mexeu a colher como se procurasse a palavra — …assim?
 
 Eu inclinei a cabeça, quase curiosa.
@@ -382,7 +392,7 @@ Levantei e me aproximei. O sábado estava circulado em vermelho, com a minha let
 
 A minha matéria. A minha chance de expor a verdade.
 
-Eu encostei a ponta dos dedos no círculo vermelho e senti uma raiva limpa subir, uma raiva que passava longe do jornal e do prazo e apontava para mim, por ter deixado a minha vida virar uma sequência de prazos que eu usava como desculpa para não encarar o que realmente me movia.
+Passei o dedo sobre o círculo vermelho. A caneta tinha marcado o papel com tanta força que a tinta atravessara a folha.
 
 Voltei para a cama com o celular na mão. A última mensagem de Jennifer continuava aberta. Eu estava exausta, irritada e com tudo para dar errado na Paper. Podia ter respondido antes. Ela não tinha culpa de nada disso.
 
@@ -398,6 +408,6 @@ Enviei e fiquei olhando a tela, depois larguei o celular e voltei pro notebook. 
 
 Peguei a filmadora e gravei um trecho curto para o diário em vídeo. Tive que repetir a primeira frase porque a voz saiu cansada.
 
-— No sábado eu apresento a matéria na Paper. — Eu deixei um meio sorriso aparecer, controlado. — E hoje… hoje eu percebi que eu não tenho mais o direito de ficar só curiosa. Eu preciso terminar isso. Eu preciso… fechar.
+— No sábado eu apresento a matéria na Paper. — Tentei continuar, mas o resto não saiu.
 
 Eu parei a gravação antes que outra palavra aparecesse e me deitei na cama pensando no que iria fazer.

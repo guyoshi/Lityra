@@ -578,11 +578,11 @@ Os miados estavam ficando mais frequentes, e um gato começou a morder a barra d
 
 — Sai daí, bichano.
 
-— Li uma coisa que a Luiza escreveu sobre uma “alma de coração aberto” — comentou Kelly.
+— Mas não se animem demais — disse D. Maria, e um gato aproveitou para subir no colo dela. — A Lu dizia que a força não faz nada à toa. Ela procura uma coisa, e por isso persegue uns e ignora outros. Procura uma alma de coração aberto.
+
+— Alma de coração aberto — repetiu Kelly, baixo. — Eu li isso numa das anotações da Luiza, mas achei que fosse só um jeito de falar.
 
 Por que ela não tinha falado disso antes?, pensei.
-
-— Ela mencionava que a força procurava uma alma de coração aberto — confirmou D. Maria.
 
 — O que isso quer dizer?
 

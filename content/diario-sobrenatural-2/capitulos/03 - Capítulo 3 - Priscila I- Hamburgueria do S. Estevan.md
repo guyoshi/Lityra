@@ -54,7 +54,7 @@ Um sorriso bobo apareceu no meu rosto sem pedir autorização.
 
 Foi aí que eu vi os outros dois de verdade.
 
-O pai dele era alto, magro, cabelo comprido preso. Usava um terno muito bonito e caro e um relógio prateado. O tipo de homem que parece relaxado e consegue. Ele tinha aquele ar de quem nunca se apressa e nunca se desculpa. E a garota era mais baixa que Jason, com uma aparência bizarra: um olho verde, o outro castanho, uma mecha branca no cabelo como assinatura. O que me prendeu foi o olhar.
+O pai dele era alto, magro, cabelo comprido preso. Usava um terno muito bonito e caro e um relógio prateado. O tipo de homem que parece relaxado e consegue. Ele tinha aquele ar de quem nunca se apressa e nunca se desculpa. Eu conhecia Jason da escola e do baile, mas praticamente nada da vida dele fora dali. Nunca tinha conhecido o pai. Olhei outra vez para aquele relógio, depois para Jason, tentando entender como nunca tinha reparado que havia tanto sobre ele que eu não sabia. E a garota era mais baixa que Jason, com uma aparência bizarra: um olho verde, o outro castanho, uma mecha branca no cabelo como assinatura. O que me prendeu foi o olhar.
 
 Ela me observava como se eu fosse um osso de frango que deveria ser descartado.
 
@@ -134,7 +134,7 @@ Eu sentei e o barulho do salão continuou normal, talheres, gente rindo, cadeira
 
 — O que você faz aqui na cidade? — perguntei a Jason.
 
-— Vim passar uns dias com meu pai. Vou tentar prestar vestibular aqui.
+— Terminei o colégio lá em Vila Velha, no sítio com minha mãe. Agora vim ficar com meu pai em São Paulo, pra prestar vestibular.
 
 — Sério? Eu também.
 
@@ -164,7 +164,7 @@ Diego inclinou a cabeça, como quem guarda um comentário no bolso.
 
 — A fase da rebeldia passou — riu Diego. 
 
-Jason riu meio sem graça e começou a falar do vestibular, da mãe, da cidade. 
+Jason riu meio sem graça e começou a falar das inscrições que tinha feito, das provas que ainda ia prestar, do sítio onde morara com a mãe. Eu escutei mais do que esperava. Era bom ouvir alguém falando de um futuro que ainda parecia possível. 
 
 Até que a prima me olhou com uma calma que parecia treinada e falou:
 

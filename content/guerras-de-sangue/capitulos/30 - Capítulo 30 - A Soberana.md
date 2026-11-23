@@ -30,7 +30,7 @@ Kaelina não corrigira o pensamento de ninguém. Nem mesmo o Conselho sabia o qu
 
 Varron havia perguntado duas vezes durante os dias anteriores. Lurok perguntara de maneira mais cuidadosa. Maelis solicitara as palavras exatas para os registros. Kaelina recusara a todos.
 
-O que acontecera fora dos portões pertencia a ela, a Nynestra e aos homens que haviam escutado. O silêncio permitia que cada pessoa imaginasse aquilo de que mais precisava. Naquela Câmara, Kaelina começava a compreender o valor de uma história incompleta.
+O que acontecera fora dos portões fora ouvido por muitos homens, mas ela não repetiria diante da Mesa as ameaças que fizera a Nynestra. Cada conselheiro poderia continuar acreditando na versão que mais lhe convinha.
 
 — Onde estava o corpo? — perguntou Seron.
 
@@ -82,7 +82,7 @@ Maelis colocou outras tábuas sobre a mesa.
 
 Havia alterações nos registros da morte de Orionus. Ervas descritas de forma diferente entre a acusação inicial e os anexos. O nome de Daryon aparecendo em correções que deveriam ter passado por outros escribas. Ordens de pagamento sem destino declarado. Saídas de sal, metal e grão feitas em quantidades pequenas, espalhadas durante muitos ciclos da lua maior para não chamarem atenção. Declarações corrigidas depois que as testemunhas já haviam deixado Kaendar.
 
-Nada, isoladamente, bastaria. Juntos, os registros formavam o contorno de uma mão.
+Nenhum documento provava tudo sozinho. Juntos, mostravam que Daryon modificara testemunhos e registros em momentos decisivos da investigação.
 
 — Ylvena confessou a participação na morte de Orionus? — perguntou Nalia.
 
@@ -98,7 +98,7 @@ Lurok soltou o ar.
 
 — Mas por que Ylvena matou os garotos, então? E por que ajudaria Daryon a matar Yvenn?
 
-— Exatamente por isso. Ela amava Daryon. Mesmo sem estar com ele, queria permanecer perto. E sabia que, ao ajudar Alyra a chegar ao poder, manteria Daryon por perto também.
+— Ylvena continuava amando Daryon. Achou que, se o ajudasse a dar poder a Alyra, ele não a abandonaria. Mas ele a escondeu de todo mundo.
 
 Thoren deixou a tábua escorregar sobre a mesa.
 
@@ -168,7 +168,7 @@ Varron fez uma careta.
 
 — Isso parecerá fraqueza.
 
-— Depois desta semana, ninguém confundirá uma mensagem de Kaendar com incapacidade de usar soldados.
+— Vamos mandar uma convocação formal. Se Ossar se recusar a responder, decidiremos depois como agir.
 
 Varron não gostou. Também não discutiu. Nalia apontou para o caminho sudeste.
 
@@ -302,7 +302,7 @@ Lurok aproximou a cadeira.
 
 — Então, quando souberem, exigirão sangue.
 
-— Povo exige muitas coisas quando está ferido.
+— A cidade está ferida, mas não posso governar só pelo que gritam nas ruas.
 
 — E soberanos sobrevivem ignorando até quando?
 
@@ -318,9 +318,9 @@ A lembrança da humilhação sofrida por Alyra estava ali. Ele tentava revestir 
 
 Lurok virou-se para Kaelina.
 
-— Soberana. Seu pai provou que a lei estava acima do amor. Prove o mesmo.
+— Soberana. Seu pai não teria poupado Lirron só porque era alguém próximo. A lei precisa valer também para Alyra.
 
-Kaelina sentiu o nome do pai pousar sobre seus ombros outra vez. Era sempre assim. Quando hesitava, perguntavam o que Orionus faria. Quando agia, comparavam a firmeza. Quando oferecia paz, lembravam que ele soubera punir. Quando pensava em punir, lembravam que ele mantivera quarenta ciclos sem guerra. Orionus estava morto, mas continuava votando em todas as reuniões.
+Kaelina sentiu o nome do pai pousar sobre seus ombros outra vez. Quando hesitava, perguntavam o que Orionus faria. Se propunha paz, lembravam suas punições. Se defendia castigo, lembravam os anos sem guerra. A memória de Orionus servia a qualquer argumento.
 
 Maelis organizou duas tábuas diante de si.
 
@@ -382,7 +382,7 @@ Maelis marcou os votos.
 
 — Resultado: sete pela execução. Cinco pelo exílio.
 
-A decisão estava tomada. A Mesa da Raiz havia escolhido a morte de Alyra Polar. Por alguns instantes, ninguém falou. O procedimento fizera aquilo que procedimentos faziam melhor: transformara medo, vingança, tradição, justiça e cálculo em duas colunas limpas. Maelis colocou a tábua no centro.
+A decisão estava tomada. A Mesa da Raiz havia escolhido a morte de Alyra Polar. Por alguns instantes, ninguém falou. Maelis pôs a tábua de votos no centro. A decisão estava registrada. Agora alguém precisaria executá-la. Maelis colocou a tábua no centro.
 
 — A decisão deve ser confirmada pela soberania para execução.
 
@@ -472,7 +472,7 @@ Iressa apontou para os guardas.
 
 Kaelina não procurou uma palavra mais bonita.
 
-— Um controle.
+— Estou tomando o controle da Câmara.
 
 O silêncio foi absoluto. Até Lurok deixou de calcular por um instante. Kaelina continuou:
 
@@ -484,9 +484,9 @@ Maelis não tocou o estilete.
 
 — Sim.
 
-— A Mesa não pode ser suspensa por perder uma votação.
+— Você não pode suspender a Mesa só porque perdeu uma votação.
 
-— Acabou de ser.
+— Não vou apagar a votação, Maelis. Registre os sete votos pela execução. E registre que não deixarei a sentença ser cumprida.
 
 Brokan levantou-se. Os guardas junto à parede moveram as mãos para as armas. Kadrir não desembainhou a espada, mas colocou-se entre Brokan e Kaelina.
 
@@ -502,9 +502,9 @@ Kadrir ergueu dois dedos, num gesto curto. Dois guardas deixaram a parede e se p
 
 Seron levantou-se também.
 
-— A Mesa existe para balancear suas decisões, soberana.
+— A Mesa existe para limitar suas decisões, soberana.
 
-— A partir de agora a Mesa existe para aconselhar. As decisões partem de mim.
+— De agora em diante, a Mesa pode aconselhar. As decisões executivas serão minhas.
 
 Iressa ficou pálida.
 
@@ -540,7 +540,7 @@ Seron apertou os lábios.
 
 — Saberá que Alyra foi punida, removida e proibida de regressar.
 
-— Saberá tudo?
+— Vai contar tudo?
 
 Kaelina olhou para Maelis.
 
@@ -558,7 +558,7 @@ Kaelina sustentou o olhar da conselheira.
 
 — Saberão que me atacou quando descobri a verdade e que morreu durante a luta.
 
-Iressa compreendeu o limite da confissão. Não o atravessou. Maelis continuou a escrever.
+Iressa olhou para as mãos de Kaelina, que ainda tinham cortes da luta, e não perguntou mais. Maelis continuou a escrever.
 
 — Rendar Fendelar será incluído no Registro do Portão — ordenou Kaelina. — A morte dele será reconhecida como quebra de palavra soberana. Os nomes de Vita, Nara e Ilo também serão registrados entre as vítimas da decisão de Kaendar, assim como todos os Fendelar que pudermos identificar.
 
@@ -582,7 +582,7 @@ Odran assentiu.
 
 Sarkan estava alojado com seus homens numa área externa do Anel Baixo, sob guarda suficiente para lembrá-lo de que a reintegração ainda não era vitória. Durante sete dias, ele perguntara quando poderia chamar Kaendar de casa e recebera sempre a mesma resposta: quando Kaendar decidisse quanto custava a ajuda dele.
 
-— Todos os decretos de exílio emitidos por Orionus serão suspensos para revisão individual — disse Kaelina. — Não anulados. Revistos. Nenhum homem regressa apenas porque meu pai pode ter errado. Nenhum permanece fora apenas porque ele morreu antes de admitir isso.
+— Todos os decretos de exílio emitidos por Orionus serão suspensos para revisão individual — disse Kaelina. — Não anulados. Revistos. Nenhum homem regressa apenas porque meu pai pode ter errado. Nenhum continuará exilado só porque nunca teve direito a outro julgamento.
 
 Lurok pareceu inquieto.
 
@@ -628,7 +628,7 @@ Iressa aproximou o rosto, falando baixo o suficiente para que os outros não esc
 
 Kaelina sustentou o olhar. Iressa saiu sem se curvar. Lurok curvou-se o dobro do necessário.
 
-Kaelina percebeu que golpes não escolhiam apenas inimigos. Também atraíam homens que gostavam de sobreviver perto de quem vencia.
+Kaelina viu Lurok curvar-se mais do que antes. A mudança de poder já alterava o comportamento da Mesa.
 
 Alyra estava acordada quando Kaelina entrou.
 
@@ -720,7 +720,7 @@ Alyra moveu a cabeça sobre o travesseiro.
 
 — Eu poderia ter deixado que a matassem.
 
-— Não. Poderia ter obedecido à Mesa. Em vez disso, roubou minha execução porque até minha morte precisava servir à tua soberania.
+— Não. Você podia ter respeitado a votação. Preferiu decidir por todos porque não aceitava que me matassem sem a tua permissão.
 
 Kaelina sentiu a acusação encontrar algum lugar verdadeiro. Alyra viu.
 
@@ -738,7 +738,7 @@ Alyra sorriu com metade do rosto. A deformidade tornava o gesto mais doloroso, n
 
 — E se eu me recusar?
 
-— Irá à força!
+— Então será levada mesmo assim.
 
 — Agora parece uma Polar.
 
@@ -760,7 +760,7 @@ Kaelina lembrou-se de Cal Edran diante do novo Primeiro Kae: “Um título novo 
 
 Alyra ficou em silêncio. Kaelina abriu a porta.
 
-— Quando ele nascer — disse, sem se virar —, conte que o pai dele morreu dizendo a verdade. A única vez na vida em que o fez.
+— Quando ele nascer — disse, sem se virar —, conte quem foi o pai dele. Não esconda o que Daryon fez, mas também não deixe que o menino só conheça o nome pelos crimes.
 
 — Saia.
 
@@ -822,15 +822,15 @@ Nos vinte ciclos do sol que se seguiram, Kaelina governou Kaendar sem dividir a 
 
 As casas queimadas ergueram-se novamente. O Cais dos Zírrios ganhou novas correntes, passagens e guardas. Iressa reorganizou os depósitos para que nenhum anel dependesse de uma única rota de alimento. Nalia refez parte dos acordos do rio, lentamente, sem esperar que os Glydar esquecessem aquilo que os Polar fizeram. Maelis preencheu tábuas suficientes para que ninguém pudesse dizer que a guerra começara por acaso.
 
-Em pouco tempo, o Conselho retornou, mas sem o mesmo poder. Kaelina exercia soberania absoluta.
+Em pouco tempo, o Conselho voltou a reunir-se, mas suas decisões já não dependiam dos votos. Kaelina exercia soberania absoluta. Havia quem chamasse aquilo de segurança, e quem se lembrasse dos guardas parados à porta da Mesa da Raiz.
 
-Sarkan conseguiu o que queria. O julgamento confirmou seu retorno provisório. Seus homens receberam espaço fora dos anéis internos, direito de comércio e obrigação de responder às patrulhas Polar. Sarkan chamou aquilo de perdão. Kaelina chamou de vigilância útil. Ambos sabiam que era vantagem.
+Sarkan conseguiu o que queria. O julgamento confirmou seu retorno provisório. Seus homens receberam espaço fora dos anéis internos, direito de comércio e obrigação de responder às patrulhas Polar. Sarkan dizia que conseguira perdão. Kaelina exigia relatórios das patrulhas e mantinha a reintegração sob revisão.
 
 Os exílios de Orionus foram revistos um por um. Alguns regressaram. Outros descobriram que um novo julgamento podia chegar à mesma condenação por caminhos diferentes.
 
 Os Buldar retomaram comércio depois de longas negociações. Nynestra jamais contou publicamente o que Kaelina lhe dissera diante do exército. Kaelina também não. Entre as duas permaneceu uma dívida sem amizade, feita de homens preservados, ameaças lembradas e campos que voltaram a alimentar uma cidade que ainda os tratava com cuidado arrogante.
 
-Não foram vinte ciclos de paz. Os Tondrar não esqueceram. Outros conflitos surgiram. Os Glydar não voltaram a baixar a cabeça da mesma maneira. Os Polar não compravam mais dos Vendrar.
+Não foram vinte ciclos de paz. Os Tondrar não esqueceram as mortes nem a quebra dos acordos. Outros conflitos surgiram. Os Glydar não voltaram a baixar a cabeça da mesma maneira. Os Polar não compravam mais dos Vendrar.
 
 Mas acima de tudo, Kaendar cresceu. Novas casas ocuparam espaços além dos antigos anéis. As muralhas foram ampliadas. Os portões multiplicaram-se. Mercadores atravessaram a Garganta trazendo grão, sal, peixe, couro, metal e histórias. Crianças que haviam passado a noite da guerra escondidas sob mesas cresceram acreditando que Kaelina saíra sozinha diante de um exército e fizera milhares de homens recuarem apenas com a voz.
 

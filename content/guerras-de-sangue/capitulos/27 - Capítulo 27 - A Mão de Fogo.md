@@ -8,7 +8,7 @@ A pintura negra em seu rosto havia sido rachada pelo suor, e uma lança curta pe
 
 O Tondrar virou-se quando ouviu um grito na rua seguinte e correu na direção contrária.
 
-Rendar não se ofendeu. Povos que haviam aprendido a sobreviver não estendiam a mão quando a outra ainda podia sustentar o próprio peso. Levantou-se sozinho.
+Rendar observou o Tondrar desaparecer na fumaça. Depois apoiou a mão boa numa viga e conseguiu levantar-se.
 
 Kaendar ardia em pontos separados, como se muitas mãos tivessem tentado acender a mesma cidade sem concordar sobre onde começar. O fogo subia pela lateral de um depósito de peixe, consumia o telhado de uma oficina de cordas e agarrava as roupas estendidas entre duas casas. Mais adiante, uma carroça inteira queimava atravessada numa passagem, obrigando todos a contorná-la por um corredor estreito entre pedra e fumaça.
 
@@ -22,7 +22,7 @@ Um Vendrar tentou atravessar a linha com um pote de óleo preso ao peito. A flec
 
 Rendar alcançou o primeiro antes que a espada descesse. Prendeu o pulso do homem, girou-o para fora e usou seu próprio movimento para lançá-lo contra o escudo do companheiro. A pancada abriu a formação. Rendar enfiou a faca sob a lateral do primeiro escudo, encontrou carne e puxou de volta. O segundo tentou recuar para ganhar espaço, mas tropeçou num cesto esmagado. Rendar atingiu-lhe o joelho com o calcanhar, tomou a espada curta de sua mão e bateu a guarda contra seu rosto.
 
-O terceiro guarda abandonou a passagem e veio com a lança baixa. Rendar empurrou o homem ferido na frente. A lança entrou no corpo do próprio companheiro. Por um instante, o guarda hesitou, horrorizado com o que fizera. Rendar não. Passou pela lateral da haste e cortou sua garganta.
+O terceiro guarda veio com a lança baixa. Rendar empurrou o homem ferido para o caminho da haste. A ponta atingiu o companheiro. O guarda hesitou e Rendar passou pela lateral, cortando sua garganta.
 
 O Vendrar atingido pela flecha ainda respirava. Olhou para Rendar como se esperasse agradecimento por ter sido salvo.
 
@@ -30,7 +30,7 @@ O Vendrar atingido pela flecha ainda respirava. Olhou para Rendar como se espera
 
 O homem tentou. Não conseguiu. Rendar deixou-o.
 
-No alto, os sinos continuavam. O toque do cais já havia sido absorvido pelos outros. Não anunciavam mais uma possível invasão. Anunciavam que o inimigo estava dentro. Homens corriam em direção ao Anel Baixo vindos das passagens superiores. Outros subiam, levando a notícia de que o Cais dos Zírrios havia sido rompido. Os capitães podiam esconder uma derrota durante algum tempo. Sinos não sabiam mentir com delicadeza.
+No alto, os sinos continuavam. O toque do cais já havia sido absorvido pelos outros. Não anunciavam mais uma possível invasão. Anunciavam que o inimigo estava dentro. Homens corriam em direção ao Anel Baixo vindos das passagens superiores. Outros subiam, levando a notícia de que o Cais dos Zírrios havia sido rompido. Os capitães podiam esconder uma derrota durante algum tempo. O som alcançava até os corredores onde os defensores ainda tentavam organizar a retirada.
 
 Rendar olhou para o alto da fortaleza.
 
@@ -50,7 +50,7 @@ Rendar virou-se com a faca erguida. Tavra estava escondida na parte escura do me
 
 O fogo que entrava pela porta quebrada refletia na armadura Vendrar e fazia cada placa parecer recém-retirada de uma forja. A proteção era assimétrica, feita de placas escuras e sobrepostas sobre couro tratado, mais pesada no ombro direito e reforçada ao redor do lado esquerdo, onde o antebraço terminava. O tubo de fogo estava preso ao coto por arreios de metal e tiras grossas, integrado à armadura de tal modo que parecia menos uma arma carregada por ela do que uma parte do corpo que os Vendrar haviam construído depois que o primeiro falhara. Pequenas marcas de queimadura cobriam as bordas das placas, mas nenhuma estava deformada. As placas escurecidas protegiam o corpo nas áreas em que as chamas chegavam mais perto.
 
-— Se eu fosse tua inimiga, você já estaria morto — disse ela.
+— Demorou para me notar — disse ela.
 
 Rendar abaixou a faca.
 
@@ -80,7 +80,7 @@ Rendar não respondeu. O sorriso de Tavra não desapareceu. Mudou. Ela soltou um
 
 Tavra tocou a ponta do tubo de fogo contra a parede. Uma pequena faísca saltou, iluminando a fuligem em seu rosto.
 
-— Você atravessou o cais, colocou uma faca no pescoço de uma Polar, obrigou os guardas a abrirem o portão e, quando finalmente entrou, deixou outro homem roubá-la.
+— Você entrou com uma soberana de refém e conseguiu perdê-la no meio da própria cidade.
 
 Rendar olhou para ela.
 
@@ -110,7 +110,7 @@ Eles alcançaram a sombra de um depósito. Rendar se agachou e olhou em direçã
 
 — Isso não é número.
 
-— É o número que eu trouxe.
+— O bastante para chegar até aqui. Perdi alguns na passagem.
 
 Rendar voltou o olhar para ela.
 
@@ -140,7 +140,7 @@ O corpo de Rendar ficou imóvel. Tavra continuou antes que ele decidisse interro
 
 — Quem contou?
 
-— Homens contam tudo quando acreditam que o fogo ao lado é maior do que a boca deles.
+— Ouvi os teus homens falando enquanto esperávamos o ataque. Eles te conhecem melhor do que você imagina.
 
 — E o que pretende fazer com isso?
 
@@ -254,11 +254,11 @@ Tavra se aproximou até o tubo preso ao braço quase tocar o peito dele.
 
 — Seus homens precisam de você aqui.
 
-— Meus homens precisam acreditar que sei onde está a parte mais divertida.
+— Meus homens sabem a tarefa deles. Eu vou com você.
 
 Rendar olhou para os Vendrar sobreviventes. Nenhum deles pareceu surpreso. Um até riu, como se já esperasse ser abandonado pela própria líder no momento menos conveniente.
 
-— Reúnam os outros — ordenou Tavra. — Abram o portão ou morram tentando parecer úteis.
+— Reúnam os outros — ordenou Tavra. — Quero as galerias tomadas e as correntes cortadas. Se não conseguirem abrir o portão, não fiquem esperando por mim.
 
 O homem assentiu. Rendar começou a recuar pela passagem de onde haviam vindo. Tavra o acompanhou.
 
@@ -276,7 +276,7 @@ Na Câmara do Primeiro Abrigo, Alyra escutou o quinto toque dos sinos e decidiu 
 
 Quando empurrou a porta, os guardas do lado de fora endireitaram as lanças. Um deles deu um passo para impedir a passagem, mas não teve coragem de cruzar a arma diante dela.
 
-— Minha soberana, deve retornar.
+— Minha soberana, precisa voltar.
 
 Alyra parou. O corredor era baixo e antigo. Poeira caía das juntas da pedra cada vez que algo atingia as muralhas. Havia sangue no chão, deixado por alguém que fora carregado dali, e uma lamparina tremia dentro do nicho como se também desejasse abandonar o lugar.
 
@@ -286,7 +286,7 @@ O guarda engoliu.
 
 — Ordem do Primeiro Kae. O cais foi atacado. Não sabemos quantos entraram.
 
-— Se vocês sabem que o cais foi atacado, toda Kaendar já sabe.
+— O cais foi atacado e vocês querem que eu continue escondida?
 
 — É por isso que precisa permanecer protegida.
 
@@ -372,11 +372,11 @@ Kadrir olhou para a barriga dela, depois para as placas. A compreensão e o deve
 
 Kadrir não se moveu. Alyra aproximou-se até que apenas a armadura desmontada permanecesse entre os dois.
 
-— Eu o ergui como Primeiro Kae porque precisava de alguém que executasse ordens quando todos os outros começassem a discutir consequências. Não me obrigue a descobrir que escolhi outro homem que só sabe obedecer enquanto concorda.
+— Eu te nomeei Primeiro Kae porque precisava de alguém que agisse quando os outros começassem a discutir. Se quer me proteger, venha comigo.
 
 A frase atingiu. Kadrir baixou o olhar, não em submissão completa, mas porque havia perdido o espaço para continuar negando sem transformar proteção em insubordinação. Ele pegou a primeira peça.
 
-Alyra tirou o manto e ergueu os braços. Kadrir colocou a proteção sobre o gibão, fechando as placas laterais sem apertar a parte baixa. Depois vieram as ombreiras, as braçadeiras, as placas das coxas e o reforço das costas. Cada peça aumentava o peso sobre o corpo. A criança dentro dela não se moveu, ou Alyra não percebeu. Preferiu acreditar que ambos entendiam o momento.
+Alyra tirou o manto e ergueu os braços. Kadrir colocou a proteção sobre o gibão, fechando as placas laterais sem apertar a parte baixa. Depois vieram as ombreiras, as braçadeiras, as placas das coxas e o reforço das costas. Cada peça aumentava o peso sobre o corpo. Alyra apoiou a mão na parte baixa da armadura, verificou se conseguia respirar sem dificuldade e mandou apertar a última correia.
 
 Quando Kadrir terminou, Alyra testou os ombros. A armadura acompanhou o movimento sem prender a respiração.
 
@@ -398,15 +398,15 @@ Alyra apertou a mandíbula.
 
 — E eu tenho você.
 
-Kadrir recebeu a frase como honra e condenação. Ela colocou a mão sobre o punho da espada.
+Kadrir baixou a cabeça e abriu caminho para ela. Ela colocou a mão sobre o punho da espada.
 
-— O que seria de mim se não fosse ao menos parte do que Orionus foi?
+— Não posso pedir aos meus homens uma coragem que não mostro.
 
 Kadrir não respondeu. Eles deixaram os aposentos.
 
 Os três homens abriram caminho, enquanto Kadrir permanecia ao lado de Alyra. Desceram pelas passagens do Anel Alto em direção à entrada principal da fortaleza. Quanto mais avançavam, mais homens encontravam: feridos subindo, guardas descendo, mensageiros carregando ordens contraditórias. Alguns paravam ao ver Alyra armada. Outros endireitavam o corpo. Era por isso que ela saíra.
 
-Não precisava vencer diante deles ainda. Precisava ser vista caminhando na direção de onde todos os outros fugiam.
+Precisava que os homens a vissem seguindo em direção às partes atacadas da cidade.
 
 A entrada da fortaleza abria-se para um pátio comprido, cercado por paredes altas e passagens que conduziam aos anéis inferiores. A fumaça já havia alcançado o lugar. Entrava por um arco lateral, formando camadas baixas sobre a pedra. As tochas presas às paredes ardiam em luz instável. Corpos de dois guardas permaneciam junto a uma escada, e um terceiro homem, ferido na barriga, tentava arrastar-se até a proteção da porta.
 
@@ -430,9 +430,9 @@ Mesmo lutando com quatro homens, não tirava os olhos de Alyra por mais de um in
 
 Uma chama curta atravessou o pátio e atingiu a pedra diante dos pés dela. Alyra recuou. O calor subiu pela armadura, entrou sob as placas e agarrou a pele. Virou-se. Uma mulher estava parada sobre a mureta lateral do pátio.
 
-A armadura dela brilhava sob as chamas. Placas negras protegiam o corpo como escamas de metal, reforçadas no ombro e presas por couro grosso. O lado esquerdo terminava num mecanismo de fogo acoplado ao braço incompleto. Havia sangue em seu rosto e tranças queimadas nas pontas. Mesmo de longe, tudo nela parecia bem construído demais para ser simples loucura: a postura equilibrada, o peso distribuído pelas pernas, a proteção articulada que permitia movimento rápido, o mecanismo alinhado com o olhar.
+A armadura dela brilhava sob as chamas. Placas negras protegiam o corpo como escamas de metal, reforçadas no ombro e presas por couro grosso. O lado esquerdo terminava num mecanismo de fogo acoplado ao braço incompleto. Havia sangue em seu rosto e tranças queimadas nas pontas. Tavra pousou com os joelhos flexionados e o mecanismo do braço apontado na direção de Alyra. As placas se moveram sem prender seus movimentos.
 
-A mulher sorria para Alyra. Elas nunca tinham se visto. Ainda assim, reconheceram imediatamente aquilo que a outra representava. Alyra levantou o arco. Tavra saltou da mureta.
+A mulher sorria para Alyra. Alyra reconheceu a armadura Vendrar e o tubo de fogo que os seus soldados descreviam nos relatórios de Alestir. Alyra levantou o arco. Tavra saltou da mureta.
 
 A flecha saiu enquanto ela caía. Atingiu a placa sobre o ombro direito e desviou com um som agudo, deixando apenas um risco na armadura. Tavra aterrissou agachada. Olhou para a marca. Depois para Alyra.
 
@@ -478,7 +478,7 @@ Alyra disparou outra. Tavra ergueu o braço protegido. A flecha bateu no mecanis
 
 O jato de fogo atravessou a galeria. Alyra jogou-se atrás de uma coluna. A chama lambeu sua ombreira, escurecendo o metal e aquecendo a placa até a pele gritar por baixo. Ela bateu o ombro contra a parede para apagar o fogo que agarrara a tira de couro. Tavra veio pela direita.
 
-Alyra largou o arco por meio instante, recebeu a lâmina dela com a espada e quase perdeu o equilíbrio. Tavra lutava com uma só mão, mas não parecia incompleta. O mecanismo preso ao outro braço obrigava Alyra a escolher entre observar a lâmina ou o fogo. Quando defendia o corte, o tubo se alinhava com seu rosto. Quando recuava do fogo, Tavra encontrava espaço para avançar.
+Alyra largou o arco por meio instante, recebeu a lâmina dela com a espada e quase perdeu o equilíbrio. Tavra manejava a lâmina na mão direita e usava o mecanismo preso ao braço esquerdo para obrigar Alyra a recuar. O mecanismo preso ao outro braço obrigava Alyra a escolher entre observar a lâmina ou o fogo. Quando defendia o corte, o tubo se alinhava com seu rosto. Quando recuava do fogo, Tavra encontrava espaço para avançar.
 
 A armadura Vendrar recebia os golpes menores sem ceder. A espada de Alyra riscou placas, cortou tiras superficiais e produziu faíscas, mas a proteção havia sido construída por gente que testava metal onde outros povos mal conseguiam respirar. Tavra golpeou de baixo.
 
@@ -534,15 +534,15 @@ Iressa Mão-de-Sal atravessou a sala sem arma, sem armadura e sem qualquer razã
 
 Ela bateu o corpo inteiro contra Tavra. A Vendrar não esperava. O impacto não a derrubou, mas afastou o tubo do rosto de Alyra e abriu espaço entre as duas. Tavra girou para Iressa, surpresa demais para sorrir. Alyra levantou a espada. Golpeou o arreio preso ao lado esquerdo da armadura.
 
-A lâmina atravessou uma correia já danificada, bateu na haste de metal e cortou a segunda tira junto ao ombro. O mecanismo de fogo soltou-se do coto com um ruído seco. Tubos, fivelas e couro rasgado caíram juntos, ainda ligados por uma última faixa. Tavra gritou. Tavra gritou, tentando prender ao coto as correias que já não sustentavam o mecanismo.
+A lâmina atravessou uma correia já danificada, bateu na haste de metal e cortou a segunda tira junto ao ombro. O mecanismo de fogo soltou-se do coto com um ruído seco. Tubos, fivelas e couro rasgado caíram juntos, ainda ligados por uma última faixa. Tavra gritou e tentou prender ao coto as correias que já não sustentavam o mecanismo.
 
 Ela tentou recuperar o equilíbrio. O pé pisou numa das cordas soltas. A faixa ainda presa ao mecanismo puxou seu lado esquerdo para baixo. Tavra bateu contra a borda da janela, tentou segurar-se com a única mão, mas a lâmina que carregava escorregou de seus dedos e caiu primeiro. Alyra viu o espanto atravessar o rosto dela. Depois Tavra caiu.
 
-A armadura bateu uma vez na pedra externa antes de seu corpo desaparecer pela abertura. O som da queda chegou do pátio pouco depois, metal, carne e osso encontrando o chão ao mesmo tempo. Alyra aproximou-se da janela.
+Uma das placas da armadura bateu na borda externa antes de Tavra desaparecer pela janela. O som da queda chegou do pátio pouco depois, metal, carne e osso encontrando o chão ao mesmo tempo. Alyra aproximou-se da janela.
 
 Tavra estava no pátio abaixo, entre pedra, sangue e fumaça. Uma das pernas permanecia dobrada sob o corpo. As placas escuras da armadura ainda refletiam o fogo de Kaendar.
 
-Iressa respirava atrás dela, apoiada no mecanismo central. Havia incredulidade em seu rosto, como se só então percebesse contra o que havia lançado o próprio corpo. Alyra olhou para o chão da torre.
+Iressa respirava atrás dela, apoiada no mecanismo central. Os dedos ainda tremiam sobre o metal. Alyra olhou para o chão da torre.
 
 O tubo de fogo permanecia ali, preso a partes cortadas do arreio. Uma chama pequena ardia na ponta e morreu quando o mecanismo perdeu pressão. O metal estava quente, marcado pelo golpe de sua espada e pela pancada contra a escada. Óleo escorria lentamente de uma das junções.
 

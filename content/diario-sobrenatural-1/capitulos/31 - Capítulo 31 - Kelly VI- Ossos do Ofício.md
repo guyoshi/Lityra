@@ -54,13 +54,13 @@ Aquela palavra carregava o peso de todas as minhas noites mal dormidas.
 
 — E o que o seu Senhor quer em troca?
 
-— Que você entregue a ele uma alma de coração aberto, com um desejo muito forte. Ele não sobrevive em qualquer corpo, porque se alimenta de desejos e sonhos. Precisa do corpo por um tempo curto, para trazer o seu irmão.
+— Que você ajude um garoto a confiar nele. Meu Senhor precisa que o garoto aceite um acordo por vontade própria. Vai usar o corpo dele por pouco tempo, só para conseguir chegar até onde seu irmão está.
 
 A ideia entrou em mim devagar, veneno doce. Ela falava de trocar uma vida por outra, de entregar alguém.
 
 — Você quer que eu condene alguém para ter o meu irmão de volta? — a palavra “condenar” me saiu antes que eu pudesse suavizá-la.
 
-— Ninguém será condenado. O meu Senhor vai usar o corpo só por um momento — disse, com uma sinceridade terrível. — Ele está fraco. Vive numa cidade perto daqui, chamada Vila Velha, e quando vocês chegarem lá vai conseguir despertar. Depois, quer que você traga alguém que tenha o que ele precisa. Seus pais vão mudar de cidade. Você sabe o que fazer.
+— Ninguém será condenado. O meu Senhor só precisa que ele concorde, e vai usar o corpo dele por um momento — disse, com uma segurança que eu queria acreditar. — O garoto se chama Junior. Mora numa casa grande, perto da praça de Vila Velha, e escreve num caderno de capa azul. Sua irmã quer morar perto do Vinicius, não quer? Ajude-a a convencer seus pais. Quando forem procurar casa, tente a rua dele. Depois se aproxime do garoto. Meu Senhor lhe dirá a hora de trazê-lo.
 
 Eu sabia, e isso era o pior. Hesitei. Aquilo me assustava mais que qualquer história de terror, mas a visão do Enzo não era normal, e a possibilidade de tê-lo de volta, por mais absurda…
 
@@ -112,7 +112,7 @@ Fagulha. Incêndio. As palavras dela se misturaram às da menina do beco, como s
 
 — Eu não sabia disso… — murmurou, com uma sombra de preocupação. — A sua mãe não me fala nada. Ela acha que sou maluca, que escolhi ser assim. Ninguém escolhe ser médium, você sabe. Se um dia descobrir ser como eu, não tenha medo deles. Um dia eles foram como nós.
 
-Assenti, com um sorriso torto. Ela se levantou e saiu, me deixando com um nome na cabeça, uma decisão no peito e um peso na consciência. A Priscila já procurava um jeito de morar perto do Vini. Quando começou a mostrar casas, ajudei a escolher a que parecia melhor. Falei bem da rua, da escola, da vizinhança. Ela achou que tinha convencido todo mundo sozinha. Nunca perguntei a mim mesma por que a menina do beco parecia tão certa de que iríamos parar naquela cidade.
+Assenti, com um sorriso torto. Ela se levantou e saiu, me deixando com um nome na cabeça, uma decisão no peito e um peso na consciência. Priscila já procurava um jeito de morar perto do Vini. Quando começou a mostrar casas, reconheci a rua que Ingrid descrevera. Havia uma casa à venda bem ao lado da que eu procurava. Falei bem da vizinhança, da escola, do espaço. Priscila achou que tinha convencido todo mundo sozinha. Não me ocorreu perguntar por que aquela casa tinha ficado vaga justo quando precisávamos dela.
 
 A partir dali eu sabia o que ia fazer e, pior, sabia que ia fazer mesmo assim.
 
@@ -163,7 +163,7 @@ Cada frase acertava um lugar diferente em mim, e eu sabia que merecia ouvir, o q
 — Traga todos os que ainda tiver — disse Jennifer. — A gente só vai saber qual é qual quando tentar destruir.
 
 — Vão destruir todos os relógios do meu pai? — resmungou Vini. Jennifer o encarou, e ele bufou e assentiu.
-Tirei da mochila o ursinho do Enzo. Havia uma costura azul na orelha, meio solta. Ninguém lá em casa lembrava direito quem o tinha dado ao meu irmão. Eu o trouxera porque, desde aquela conversa sobre Ingrid, deixar o brinquedo sozinho em casa me incomodava. Jennifer o pegou com cuidado.
+Tirei da mochila o ursinho do Enzo. Havia uma costura azul na orelha, meio solta. Ninguém lá em casa lembrava direito quando ele tinha aparecido entre as coisas do meu irmão. Eu o trouxera porque, desde aquela conversa sobre Ingrid, deixar o brinquedo sozinho em casa me incomodava. Jennifer o pegou com cuidado.
 
 — A Kelly está com o Elo da casa dela — continuou. — Melhor destruir antes de ir atrás dos outros.
 

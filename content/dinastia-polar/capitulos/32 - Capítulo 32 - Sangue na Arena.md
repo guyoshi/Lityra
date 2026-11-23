@@ -1,4 +1,4 @@
-# Capítulo 32 — Sangue na Arena
+# Capítulo 32: Sangue na Arena
 
 Os dez estandartes tremulavam acima da arena. Dareth contou os campeões ao redor sem precisar mover muito a cabeça. Nove rostos, nove posturas.
 
@@ -8,7 +8,7 @@ A multidão continuava de pé. Bandeiras pequenas batiam nas mãos de crianças 
 
 Dareth ouviu, mas não respondeu.
 
-O cheiro da arena era outra coisa que nenhum relatório transmitia: terra seca, suor, óleo de couro, e algo mais doce vindo dos vendedores que já circulavam pelas fileiras mais altas. Dareth sentiu tudo de uma vez, misturado ao barulho, e achou estranho que o corpo ainda reparasse em detalhes tão pequenos num momento daquele tamanho.
+Cheirava a terra seca, couro oleado e suor. Dareth respirou fundo para se acostumar ao peso da armadura e acompanhou os funcionários que preparavam o sorteio.
 
 Funcionários Braedar já esperavam no centro da arena, ao lado de um mecanismo pensado para parecer simples e à prova de trapaça ao mesmo tempo: peças idênticas, do tamanho de um punho fechado, cada uma marcada por um símbolo diferente, guardadas em três recipientes lacrados com cera. Representantes de várias dinastias se aproximaram para conferir os lacres. Nareva Mardrar examinou um dos selos de perto, sem pressa. Um homem Lusdar fez o mesmo com outro. Ninguém pareceu satisfeito só de ver. Todos tocaram, viraram, checaram.
 
@@ -62,11 +62,11 @@ Antes do primeiro golpe, os gritos diminuíram nas arquibancadas. Dareth ouviu o
 
 Ele já conhecia aquilo pelos relatórios. Conhecer não era o mesmo que enfrentar.
 
-O primeiro erro veio rápido. Dareth ainda pensava com a velocidade de sempre, talvez até mais rápido, mas o problema nunca fora pensar. Era responder. Viu Serka mudar o apoio, entendeu o que aquilo significava, começou a se mover. Tarde. Não dramaticamente tarde. Uma fração de segundo, mas suficiente. A corda pegou seu braço, ou o gancho alterou o equilíbrio dele, e Dareth precisou recuperar a postura num movimento que, dez anos antes, nem teria contado como esforço.
+O primeiro erro veio rápido. Dareth percebeu Serka mudar o apoio e soube o que vinha. O corpo reagiu uma fração de segundo tarde demais. A corda pegou seu braço, ou o gancho alterou o equilíbrio dele, e Dareth precisou recuperar a postura num movimento que, dez anos antes, nem teria contado como esforço.
 
 A multidão vibrou sem entender o movimento inteiro, apenas o perigo que passara perto demais.
 
-Os pulmões ainda enchiam, só demoravam mais depois de um esforço rápido. A perna obedecia, mas chegava um instante tarde. O ombro recuperava devagar. Movimentos repetidos milhares de vezes agora exigiam atenção consciente, como se o corpo cobrasse explicações antes de obedecer.
+A perna e o ombro respondiam, mas cobravam mais esforço do que antes. Serka percebia a diferença. Dareth não podia se dar ao luxo de ignorá-la.
 
 Sabia ler os movimentos de Serka. Nem sempre conseguia responder a tempo.
 
@@ -78,10 +78,9 @@ Dareth levou a mão à lateral por reflexo e viu os dedos vermelhos quando afast
 
 A sequência seguinte quase matou Dareth. O primeiro golpe o derrubou de joelhos, o segundo passou perto da garganta, calando a arena. Ele conseguiu impedir o ataque no último instante ao reconhecer o movimento que o antecedia. Já não tinha a velocidade de antes, mas conhecia aquele tipo de golpe dos combates em que sobrevivera por pouco.
 
-Serka teve, naquele momento, ao menos uma oportunidade real de tornar tudo definitivo. Não usou.
+O gancho de Serka passou perto de sua garganta. Ela poderia ter insistido, mas o movimento de Dareth deixou a espada entre os dois. Serka recuou meio passo para recuperar a distância. Talvez não quisesse arriscar a vantagem tentando terminar a luta tão perto da lâmina.
 
-Recuou meio passo. Reposicionou o corpo. Manteve distância suficiente para garantir a vantagem sem entrar no alcance da espada dele.
-Dareth não teve tempo nem espaço mental para se perguntar por quê. Só sabia que ainda estava vivo, e que precisava fazer alguma coisa com aquilo antes que a chance desaparecesse.
+Dareth mal teve tempo de recuperar o ar. Estava vivo. Precisava aproveitar antes que ela encontrasse outro ângulo.
 
 Entendeu então que não conseguiria competir com Serka no jogo dela, de distância, apoio e leitura estrutural. Parou de tentar. Em vez de resistir à próxima puxada da corda, deixou o corpo seguir o movimento. Serka esperava peso contrário. Recebeu um corpo inteiro avançando na direção dela.
 
@@ -89,7 +88,7 @@ Dareth invadiu a distância que ela sempre controlava.
 
 A vara, o gancho, a corda, tudo se tornava inútil quanto mais perto ele chegava. O combate virou corpo a corpo, território onde a longa experiência de Dareth ainda contava mais do que qualquer arma inteligente.
 
-Ali, ele mostrou por que tinha sido Calandrir. Não ficou jovem de novo, não teria sentido fingir isso nem para si mesmo. Ficou perigoso, de um jeito seco e sem nenhuma beleza. Um golpe curto de joelho. Um encontro de ombro que desequilibrou Serka o suficiente. A espada usada num espaço tão pequeno que parecia quase inútil, até não ser. Nenhum movimento bonito. Só o necessário.
+Ali, ele mostrou por que tinha sido Calandrir. Não recuperou a rapidez que perdera com a idade. Ainda sabia machucar alguém de muito perto. Um golpe curto de joelho. Um encontro de ombro que desequilibrou Serka o suficiente. A espada usada num espaço tão pequeno que parecia quase inútil, até não ser. Nenhum movimento bonito. Só o necessário.
 
 Serka ainda resistiu, e resistiu bem, porque era realmente excelente naquilo que fazia. Mas Dareth conseguiu colocá-la numa posição em que continuar a luta significaria arriscar a própria vida sem necessidade. Ela largou a arma. Abriu os braços, as mãos vazias viradas para cima.
 
@@ -105,11 +104,11 @@ O intervalo mínimo previsto pelas regras. Antes de liberá-lo, precisariam aval
 
 Selina apareceu enquanto ainda cuidavam dele, o rosto controlado demais para ser natural. Perguntou se ele conseguia respirar fundo. Ele disse que sim. Ela não pareceu acreditar completamente, mas não insistiu, porque insistir não mudaria nada e os dois sabiam disso.
 
-— Você não precisa voltar lá se não conseguir — ela disse, baixo, só para ele ouvir.
+— Se não tiver condições de continuar, eu não vou pedir que entre de novo — disse Selina, baixo, para que só ele ouvisse.
 
-— Consigo.
+— Consigo lutar.
 
-— Isso não é resposta.
+— Não é só disso que estou falando.
 
 — É a única que eu tenho — Dareth respondeu, e tentou um meio sorriso que doeu mais do que devia.
 
@@ -117,7 +116,7 @@ Selina não sorriu de volta. Olhou o curativo mais uma vez, como se pudesse enco
 
 Enquanto isso, na arena, Rhevara lutava contra Serka para completar a rodada da chave. Selina soube do resultado só depois, entre um curativo e outro: Rhevara vencera sem grande dificuldade, prendendo o braço de Serka antes que a vara e o gancho encontrassem espaço para funcionar.
 
-A vitória não mudava nada de concreto para Dareth. Ele precisaria vencer as duas adversárias da própria chave, não só uma, e Serka já caíra para o lado errado da conta.
+A derrota de Serka para Rhevara tornou o próximo combate decisivo. Se Dareth vencesse Rhevara, terminaria a chave com duas vitórias.
 
 Depois do intervalo e da nova avaliação, Dareth foi chamado de volta. Rhevara já aguardava do outro lado da arena, pouco armada à primeira vista, o corpo compacto e o rosto impassível de sempre.
 
@@ -137,7 +136,7 @@ Rhevara encontrou o ferimento de Dareth rápido, sem precisar de ajuda: o corte 
 
 Em determinado momento, Rhevara conseguiu o encaixe perfeito: o braço de Dareth controlado, o corpo comprimido contra o dela, a lateral ferida sob pressão suficiente para doer até a respiração. Duas saídas existiam, e nenhuma era boa: ele se render, ou ela completar o movimento e destruir alguma articulação, provavelmente o ombro, talvez o cotovelo.
 
-Selina, representante oficial do estandarte Polar, tinha o direito de declarar a rendição por ele. Preparou-se para isso, o corpo tenso, os olhos fixos na cena. Dareth percebeu o movimento dela sem olhar. Não houve fala entre os dois. Só um instante em que ela esperou, e ele não deu o sinal.
+Imobilizado, Dareth mal conseguia mover os braços para sinalizar rendição. Como representante do estandarte Polar, Selina podia declará-la em seu lugar. Ela se inclinou para a frente, pronta para intervir. Dareth percebeu o movimento dela sem olhar. Não houve fala entre os dois. Só um instante em que ela esperou, e ele não deu o sinal.
 
 Não se rendeu.
 
@@ -157,9 +156,9 @@ Foi Rhevara, então, quem precisou escolher.
 
 Largou o próprio bastão. Abriu os braços.
 
-Rendição.
+Rhevara se rendeu.
 
-Duas vitórias. Primeiro classificado da chave, direto para o Confronto dos Três Estandartes.
+Com duas vitórias, Dareth estava classificado para o Confronto dos Três Estandartes.
 
 A arquibancada Polar explodiu, mas Dareth não conseguiu comemorar. A adrenalina começava a baixar, e com ela vinha tudo o que ficara escondido. Doía respirar. Doía ficar de pé. Doía, principalmente, continuar vivo depois daquilo.
 
@@ -175,7 +174,7 @@ Depois que Dareth foi levado para atendimento definitivo, Selina permaneceu junt
 
 Pessoas discutiam o resultado em voz alta em vários idiomas. Comida circulava entre as fileiras, vendida por preços que subiam a cada hora. Crianças imitavam os golpes que tinham visto, brigando com gravetos no lugar de armas. Homens apostavam abertamente, apesar do desagrado de alguns funcionários da Administração. Representantes reclamavam de marcações que consideravam injustas. Guardas separavam pequenos conflitos antes que virassem coisa maior. Trabalhadores limpavam sangue da areia com a rapidez da prática repetida. A arena recebia preparação mínima para o próximo combate enquanto os feridos ainda eram carregados para fora.
 
-A máquina do Torneio não parava por causa de ninguém, nem mesmo por Dareth.
+Os funcionários nivelaram a areia antes de chamar os próximos campeões. Dareth já seguia para os curadores.
 
 O segundo grupo entrou logo em seguida, e Selina percebeu que aquelas lutas pareciam diferentes das anteriores. Não mais fáceis. Também não falsas, nem no sentido que ela seria capaz de nomear. Só havia menos desespero, mais controle. Ela pensou em experiência. Pensou também que talvez estivessem economizando esforço para a fase seguinte. Antes de pensar mais, algo no público chamou sua atenção: um organizador atravessando o corredor às pressas, Nareva perguntando algo a alguém próximo, Maerys rindo alto de outro ponto da arquibancada. A atenção de Selina se dispersou sem que ela formasse nenhuma conclusão sobre o que notara.
 
@@ -269,7 +268,7 @@ Mavira parecia irritada, a voz mais dura do que Selina jamais ouvira dela. Serka
 
 — Você sabe o que teria acontecido se ele não saísse andando dali — Mavira disse, cada palavra pesada.
 
-— Sei o que aconteceu porque saiu — Serka respondeu, sem hesitar.
+— Ele saiu vivo — respondeu Serka, sem baixar os olhos.
 
 — Não foi o combinado.
 

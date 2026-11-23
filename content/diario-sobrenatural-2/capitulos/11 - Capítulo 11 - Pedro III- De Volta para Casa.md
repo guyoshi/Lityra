@@ -88,7 +88,27 @@ Olhei para o portão da escola, depois para a rua, depois para a cara dele. Pens
 
 — Claro — ele respondeu rápido demais. — Avisa.
 
-O “claro” dele parecia um “não perde tempo”. Mas eu ainda estava preso à esperança de que era só um dia estranho. Ainda no modo “é só um dia ruim”.
+O “claro” dele parecia um “não perde tempo”. Mas eu ainda estava preso à esperança de que era só um dia estranho.
+
+O orelhão ficava ao lado de uma banca de revistas, perto do portão. Tirei o cartão telefônico do estojo e liguei para casa. Minha mãe atendeu quando eu já começava a contar os toques.
+
+— Pedro? Aconteceu alguma coisa? Você não devia estar na escola?
+
+— Cancelaram uma aula. Vou passar na casa de um colega pra fazer um trabalho e volto antes do jantar.
+
+— Que colega?
+
+Olhei para Filipo. Ele esperava na calçada, com as mãos nos bolsos, olhando para a esquina.
+
+— O Filipo. É da minha turma.
+
+— Tá bom. Só me liga se mudar de planos. E confere se está com a bombinha.
+
+Apertei a mochila contra o quadril. A bombinha estava no bolso da frente, onde eu a colocara no intervalo.
+
+— Tá aqui, mãe. Pode deixar.
+
+Ela ainda perguntou se eu tinha almoçado. Respondi que ia comer alguma coisa com o Filipo, outra parte do plano que eu estava inventando na hora. Desliguei e guardei o cartão. Pelo menos agora minha mãe sabia com quem eu tinha saído. Ou achava que sabia.
 
 O carro que parou na frente da escola era preto, simples, comum. Só que a sensação que eu tive quando ele encostou foi de que alguma coisa tinha acabado de me escolher.
 
@@ -526,7 +546,15 @@ Uma figura alta, humana e errada. O rosto branco era um vazio tomado por larvas.
 
 Meu pulmão esqueceu como funciona. O medo virou o animal no peito, raspando as unhas por dentro.
 
-A sala também mudou. Foi só um segundo, mas inteiro: o tapete virou o piso encerado da quadra da minha escola, o sofá virou arquibancada, e a turma toda estava em roda em volta de mim, rindo daquele jeito que não faz barulho. Alguém gritou o meu apelido, o que eu nunca repito. Eu estava de bermuda. O ar não entrava. Aí a luz piscou, era de novo a sala da Jennifer, e a única coisa que ainda ria era o meu pulmão, assobiando.
+Eu ouvi uma bola quicar.
+
+O piso sob meus tênis estava encerado. Havia linhas pintadas de branco no chão, marcas de basquete, e um apito pendurado no pescoço de uma mulher perto da porta. Reconheci a quadra da minha escola. As arquibancadas estavam cheias. Gente da minha turma, rostos que eu via todos os dias, enfileirados como se tivessem sido chamados para assistir.
+
+O apito soou. Tentei perguntar o que estava acontecendo, mas o ar não entrou. Um menino na primeira fila disse meu apelido, aquele que eu odiava ouvir em voz alta. Todos abriram a boca ao mesmo tempo, rindo sem produzir som. A professora apontou para o centro da quadra. Eu estava ali, de bermuda, sozinho, e tinha algo me segurando pela cintura. Não vi mãos, só senti a pressão.
+
+Dei um passo para sair e encontrei a arquibancada mais perto. Dei outro e bati contra a parede. Alguém me chamava de longe. Havia um cheiro estranho no ginásio, azedo, como toalha molhada esquecida numa mochila. Uma coisa branca caiu no meu ombro. Arranquei-a com a mão e vi uma larva se dobrar entre meus dedos.
+
+A luz piscou. Eu estava na sala da Jennifer, encostado no sofá, as unhas marcadas no tecido. O Cara-de-Larva continuava onde estivera. A arquibancada tinha sumido, mas a falta de ar não. Não consegui saber quanto tempo tinha passado.
 
 Jennifer ficou imóvel, mas a voz dela continuou por instinto, falhando no fim das palavras. O olho dela estava preso no canto da sala, e o rosto relaxou um centímetro, como o de quem ouve alguém dizer que já é hora de dormir. Isso me deu mais medo do que o monstro.
 
@@ -540,11 +568,19 @@ O Cara-de-Larva se mexeu.
 
 E quando ele se mexeu, eu entendi uma coisa que não dava pra explicar: ele não estava com pressa. Ele tinha tempo. Ele era tempo.
 
-O Mike olhava para a porta do corredor com um sorriso que eu nunca vou esquecer, o de um pai que abre a porta de madrugada e encontra a filha voltando. Eu olhei para o mesmo ponto e não vi nada, só a sombra e as larvas caindo.
+Mike estava olhando para a porta do corredor com um sorriso que eu nunca vou esquecer. Estendeu a mão, a palma voltada para cima, como quem chama uma criança que acabou de chegar em casa.
+
+— Manu? — disse.
+
+Eu olhei para a mesma porta. Não havia ninguém. Mike acariciou o ar na altura da cabeça de uma menina, sem tirar os olhos do corredor.
+
+— Tá tudo bem, filha. O papai tá aqui.
+
+Filipo agarrou o ombro dele. Mike o afastou sem sequer olhar. De onde eu estava, vi a sombra da mão do Cara-de-Larva subir pela parede atrás dos dois. Mike sorria para alguma coisa que não podíamos ver. A sombra já estava alcançando o pescoço dele.
 
 Ele deu um passo pra frente, sem querer, com a arma já quase saindo, não pra atirar, mas como reflexo de desespero.
 
-— Filha… — ele sussurrou, e eu juro que aquela palavra partiu o ar. — Manu? Vem cá, filha.
+— Ela tá tão gelada, Filipo — ele sussurrou, sem baixar a mão. — Tem alguma coisa errada com ela.
 
 — Pai, não tem ninguém aí! — o Filipo gritou. — Ela não está aí!
 
@@ -668,7 +704,9 @@ Jennifer ficou rígida.
 
 — Ele tá vindo — ela falou, e eu vi o medo dela finalmente perder a máscara.
 
-Na frente do “homem e da mulher”, que pra mim era o nada, a sombra do quarto pareceu engrossar. As larvas vieram primeiro, caindo no chão como chuva errada. Depois, a forma se mostrou, alta, humana e impossível, e o Cara-de-Larva surgiu no meio do quarto como se tivesse atravessado a parede.
+Na frente do homem e da mulher que Jennifer dizia enxergar, a sombra do quarto pareceu engrossar. A lâmpada do corredor acendeu, embora eu tivesse certeza de que a víramos apagar. Por um segundo escutei minha mãe chamando lá de baixo para eu não me atrasar para a escola. Era a voz dela, com a impaciência de toda manhã. Dei até meio passo na direção da escada.
+
+Uma larva caiu no corrimão. Depois outra. A voz da minha mãe parou no meio de uma palavra, como uma fita cortada com tesoura. A lâmpada estava apagada outra vez. No quarto, entre Jennifer e a parede, uma figura alta e pálida ganhou contorno. O rosto tomado por larvas abriu-se numa massa viva de insetos e dentes. O Cara-de-Larva não tinha subido a escada. Estava ali, ao alcance do braço.
 
 O meu estômago virou. Eu dei um passo pra trás, sem perceber. Filipo fez um som engasgado, como se fosse vomitar e gritar ao mesmo tempo.
 

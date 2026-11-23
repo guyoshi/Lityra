@@ -1,10 +1,10 @@
-Daryon. Se havia uma ligação entre os talismãs, Yvenn, os Fendelar e a pressa por Khar-Tondr, Kaelina precisava procurar nos movimentos privados dele. À noite, deixou o quarto por uma passagem lateral.
+Kaelina voltou a pensar em Daryon. Se havia uma ligação entre o talismã desaparecido, a morte de Yvenn, os Fendelar e a pressa em atacar Khar-Tondr, o conselheiro poderia conhecer essa ligação. À noite, ela deixou o quarto por uma passagem lateral.
 
 Foi sem escolta, de manto escuro e capuz sobre a Ramagem. Precisaria dos traços brancos se algum guarda exigisse identificação, mas não queria anunciá-los pelos corredores.
 
 Usou uma antiga galeria de escuta que conhecia desde a infância, quando ela e Alyra se escondiam ali para ouvir reuniões.
 
-Agora Alyra estava no salão. Daryon também.
+Naquela noite, Alyra e Daryon estavam no salão.
 
 Estavam apenas os dois e dois guardas afastados, que fingiam não ouvir. Alyra estava sentada no trono dela, uma mão sobre o braço de madeira, a outra apoiada no próprio ventre por um instante tão curto que qualquer pessoa teria ignorado. Daryon falava baixo. Kaelina não ouvia as palavras. Via a inclinação dele, o modo como ele oferecia frases como quem oferece instrumentos. Alyra respondia pouco.
 
@@ -46,7 +46,7 @@ O guarda olhou para a porta, depois para ela.
 
 — Então verifique a minha ordem também. Abra.
 
-A desconfiança passou pelo rosto dele, mas ordem de soberana ainda era ordem de soberana quando Alyra não estava por perto para disputar o ar.
+O guarda olhou para o colega, depois para a Ramagem de Kaelina. Não havia outra soberana ali para contestar a ordem.
 
 O portão abriu e Kaelina saiu. Do lado de fora, a lua maior se escondia atrás das nuvens e a menor ainda não nascera. O escuro tinha cheiro de pedra úmida, mato pisado e rio doente.
 
@@ -70,13 +70,13 @@ Foi seguindo essa rota, mantendo distância suficiente para que o tarrak de Dary
 
 Kaelina deixou o tarrak mais atrás, amarrou-o a uma raiz seca e seguiu a pé. O chão rangia sob pequenas pedras. Cada passo parecia alto demais. Aproximou-se por trás de uma formação baixa, abaixando-se até conseguir ver. Havia homens ali.
 
-Cinco, talvez seis. Não usavam marca Polar, mas isso não significava ausência de origem. Alguns traços não se arrancavam com exílio: o modo de prender faca, o gesto de tocar dois dedos na testa sem completar o peito, a maneira de medir muralha mesmo longe dela. Homens das Areias. Exilados antigos, filhos de exilados, netos de vergonha transformada em ofício.
+Cinco, talvez seis. Não usavam marca Polar, mas isso não significava ausência de origem. Alguns traços não se arrancavam com exílio: o modo de prender faca, o gesto de tocar dois dedos na testa sem completar o peito, a maneira de medir muralha mesmo longe dela. Homens das Areias. Alguns pareciam velhos o bastante para ter sido expulsos de Kaendar. Outros deviam ter nascido longe das muralhas, filhos de exilados.
 
 Pela cicatriz na boca de um deles e pelo espaço que os outros deixavam ao redor dele, Kaelina concluiu que era Sarkan.
 
 Homens das Areias não tinham permissão para chegar tão perto de Kaendar. Daryon parou diante deles. Kaelina não ouvia tudo.
 
-À distância, o vento e a posição das rochas roubavam partes da conversa. Vinham palavras soltas, frases quebradas, intenções suficientes para ferir e insuficientes para provar.
+O vento e as rochas encobriam partes da conversa. Kaelina conseguia ouvir frases soltas, não o suficiente para atribuir a Daryon uma ordem específica.
 
 —...segunda parte — dizia Daryon, entregando algo pequeno, talvez uma bolsa, talvez selos de metal. — Como prometido.
 
@@ -138,7 +138,7 @@ Daryon inclinou a cabeça.
 
 Os exilados começaram a recuar. Não com pânico. Com ódio disciplinado. Sarkan foi o último a afastar-se. Olhou para Daryon como alguém que não encerrava uma conversa, apenas guardava a última frase para uma lâmina futura.
 
-— Dívida de sangue não seca na areia.
+— Ainda vai nos pagar o que deve, Daryon.
 
 Sarkan desapareceu entre as pedras com os outros. Kaelina ficou imóvel por mais alguns segundos.
 
@@ -158,7 +158,7 @@ Desceu do tarrak a alguma distância do portão, entregou-o a um rapaz assustado
 
 — Então espere.
 
-Ela encostou-se à muralha, tentando controlar a respiração. O coração ainda batia depressa demais. As mãos tinham pó de pedra. Limpou-as no manto. A noite parecia observá-la de todos os lados. Não demorou muito.
+Ela encostou-se à muralha, tentando controlar a respiração. O coração ainda batia depressa demais. As mãos tinham pó de pedra. Limpou-as no manto. Ela manteve os olhos na curva por onde Daryon deveria voltar. Não demorou muito.
 
 O tarrak escuro de Daryon surgiu na curva, andando devagar. Ele diminuiu ainda mais o passo ao vê-la e desmontou antes do portão.
 
@@ -170,7 +170,7 @@ A voz dele parecia levemente surpresa. Kaelina sorriu.
 
 Daryon olhou para o portão, depois para ela.
 
-— Que estranho acaso nos encontrarmos aqui, fora das muralhas a essa hora?
+— Não esperava encontrar a senhora aqui, fora das muralhas.
 
 — Disseram-me que você tinha saído. Eu precisava entregar algo.
 
@@ -182,7 +182,7 @@ Daryon parecia desconfiado.
 
 Ele reconheceu a própria frase. O olhar estreitou pouco. Kaelina aproximou-se um passo.
 
-Naquele instante, poderia acusá-lo. Poderia dizer que o seguira. Poderia mencionar Sarkan, pagamento, reintegração, Homens das Areias. Mas não tinha prova suficiente. E Daryon era um homem que transformava prova incompleta em erro completo. Então escolheu outra lâmina.
+Kaelina poderia acusá-lo de ter encontrado Sarkan e mencionar os pagamentos, o talismã e a promessa de reintegração. Mas ouvira apenas trechos da conversa. Daryon negaria o resto e exigiria provas que ela ainda não tinha. Preferiu testar outra suspeita.
 
 — Acho que já deve ter percebido, não é?
 
@@ -194,9 +194,9 @@ Kaelina inclinou a cabeça, observando cada detalhe do rosto dele.
 
 — Alyra está grávida.
 
-O mundo não fez som. A mudança em Daryon foi mínima. Para outro olhar, talvez fosse nada. Um leve atraso na respiração. A cor sumindo sob a pele. Os dedos ficando imóveis demais junto à rédea. Os olhos, por um instante, não calcularam. Apenas receberam.
+Daryon demorou a respirar. Os dedos ficaram imóveis junto à rédea, e ele perdeu a cor. A reação durou pouco, mas Kaelina estava perto o bastante para perceber.
 
-Daryon empalidecera porque não tinha percebido antes. Kaelina recebeu a confirmação.
+A surpresa dele confirmou que a notícia o atingira. Não confirmava quem era o pai, nem sequer se já suspeitava. Kaelina guardou a reação.
 
 Daryon abriu a boca, mas nenhuma frase veio pronta. Kaelina sorriu sem alegria.
 

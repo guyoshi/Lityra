@@ -20,7 +20,7 @@ Ela tinha sentado perto dele enquanto Vita remendava uma correia e Ilo tentava e
 
 — Como se a gente fosse... menor.
 
-Rendar respondera uma coisa simples, porque crianças mereciam verdades que coubessem dentro delas sem quebrá-las.
+Rendar procurara uma resposta que Nara entenderia.
 
 — Porque eles vivem atrás de pedra alta e acham que altura é tamanho.
 
@@ -60,7 +60,7 @@ Velarim ainda tinha árvores, plataformas e casas suspensas, mas as defesas havi
 
 Não fora caos. Os invasores tinham treinamento e informação suficiente para usar a própria aldeia contra seus moradores.
 
-Rendar atravessou a primeira plataforma com a faca na mão. Viu Joren pendurado de lado entre duas cordas, o peito aberto por uma lança curta que não era Fendelar. Viu Maira caída junto à entrada de casa, os dedos ainda presos a uma pedra de fogo, como se tivesse tentado acender fumaça de aviso tarde demais, e dois corpos de invasores no chão mais baixo — um com uma estaca Fendelar atravessada na barriga, outro com o pescoço torcido depois de cair de uma ponte falsa. Não eram Tondrar. Não tinham cabeça raspada, nem pintura, nem os amuletos de fome. Usavam couro escuro, seco, bem ajustado para mata. Não traziam marca evidente de clã.
+Rendar atravessou a primeira plataforma com a faca na mão. Joren pendia entre duas cordas, o peito aberto por uma lança que não era Fendelar. Maira jazia junto à casa, os dedos ainda presos a uma pedra de fogo. No chão mais baixo havia dois invasores mortos, um atravessado por uma estaca Fendelar, o outro caído da ponte falsa, com o pescoço torcido. Não tinham a cabeça raspada nem a pintura Tondrar. Usavam couro seco ajustado para a mata, sem marca evidente de clã.
 
 Perto de uma raiz alta, viu o talismã. Madeira escura. Linha trançada. Marcas queimadas em pontos e riscos. Tondrar.
 
@@ -112,7 +112,7 @@ Rendar hesitou. Avara apertou-lhe o pulso mais uma vez.
 
 — Clã pequeno não sobrevive por coragem — ela sussurrou. — Sobrevive porque alguém teve medo cedo o bastante... e voltou para ensinar o caminho.
 
-Rendar conhecia aquela frase desde criança. A mão de Avara afrouxou antes que ele pudesse responder.
+Avara repetira aquele aviso tantas vezes que Rendar o conhecia desde criança. A mão dela afrouxou antes que ele pudesse responder.
 
 Rendar tocou-lhe a testa com dois dedos. Não fez prece. Os Fendelar não tinham tempo para palavras bonitas diante de morte fresca. Apenas fechou os olhos dela e se levantou.
 
@@ -120,7 +120,7 @@ A ponte para o setor das famílias estava meio queimada. A parte falsa, aquela q
 
 O primeiro corpo que encontrou ali foi Vita.
 
-Ela estava caída junto ao tronco oco, exatamente onde Avara dissera. Tinha uma faca na mão direita e outra, menor, presa entre os dedos da esquerda. Uma flecha atravessara seu ombro. O corte no pescoço fora feito de frente, por alguém que ela viu. Havia sangue nas unhas dela. Havia pele de outro homem presa sob uma delas. Vita não tinha morrido como coisa indefesa.
+Ela estava caída junto ao tronco oco, exatamente onde Avara dissera. Tinha uma faca na mão direita e outra, menor, presa entre os dedos da esquerda. Uma flecha atravessara seu ombro. O corte no pescoço fora feito de frente, por alguém que ela viu. Havia sangue nas unhas dela. Havia pele de outro homem presa sob uma delas. Vita lutara até perto do esconderijo.
 
 Uma mecha do cabelo de Vita estava colada ao rosto. Rendar a afastou por hábito, com a mesma delicadeza de quando ela ainda podia reclamar que ele voltava tarde da caça.
 
@@ -152,11 +152,11 @@ Chamou baixo primeiro, porque parte dele ainda obedecia às regras da aldeia mes
 
 Rendar afastou as folhas queimadas ao lado do tronco. Havia uma passagem estreita entre duas raízes suspensas, quase invisível, usada apenas por crianças pequenas. Vita havia ensinado Nara a entrar ali. Rendar lembrava-se disso. Lembrava-se de Nara reclamando que era apertado. Lembrava-se de Vita respondendo que coisa apertada salva vida quando o mundo fica grande demais.
 
-Nara estava ali. Não dentro do esconderijo. À frente dele. Como se tivesse tentado impedir que alguém olhasse para trás dela.
+Nara estava na passagem estreita, entre quem entrava pelas raízes e o lugar onde Ilo se escondera.
 
 O corpo pequeno estava de lado, uma perna dobrada sob a outra, o rosto virado para a terra. Havia um corte nas costas e outro no braço. A mão direita ainda segurava um pedaço da manta de Ilo, rasgado entre os dedos. A outra estava estendida para a entrada do tronco, como se, no último instante, ainda tentasse empurrar o irmão mais para dentro. Foi aí que Rendar entendeu.
 
-Vita tinha tentado levá-los até o esconderijo, o velho tronco oco entre as raízes. Ilo entrara. Nara ficara do lado de fora para esconder o irmão primeiro.
+Vita tentara levar os dois até o tronco oco. Ilo entrara. Nara ficara do lado de fora, tentando esconder o irmão.
 
 Rendar ficou imóvel. Tocou o ombro da filha e a virou devagar. O rosto estava sujo de cinza, e a fitinha do Olho da Fera continuava no pulso, manchada de sangue e barro.
 
@@ -214,9 +214,9 @@ Mais adiante, num pequeno declive, encontrou o que restava de um manto, escuro, 
 
 Não encontrou o corpo de Veyr. O Raukhar raramente deixava um corpo inteiro.
 
-Rendar ajoelhou-se junto à fivela. Veyr seguira a trilha sobre a qual Avara o avisara e morrera pelo Raukhar. Depois, sua ausência fora transformada em culpa Fendelar.
+Rendar ajoelhou-se junto à fivela. Veyr desobedecera ao aviso de Avara. Rendar conhecia as marcas de Raukhar e não tinha dúvida de que a fera o matara, mesmo sem encontrar o corpo. Em Kaendar, a ausência do emissário já servira para condenar os Fendelar.
 
-Velarim queimara por uma morte que não provocara.
+Velarim queimara porque alguém transformara o desaparecimento de um emissário numa acusação.
 
 Rendar fechou a mão em torno da fivela até o metal cortar sua pele. A dor pequena ajudou a conter a grande.
 
@@ -232,11 +232,7 @@ Caminhou até a árvore onde enterrara a família e ajoelhou-se. Tirou a fitinha
 
 A fibra era pequena demais, apertada demais, feita para braço de criança. Ele forçou o nó mesmo assim.
 
-Ao lado da raiz que cobria Nara, uma flor pequena, escura, de pétalas fechadas e centro claro, tremia na cinza úmida. Olho de Nara. Era assim que os Fendelar chamavam aquela flor. Não por beleza. Por aviso.
-
-Quando fechada, parecia apenas um botão escuro, quase morto. Mas, ao abrir, mostrava no centro uma mancha pálida em forma de olho, o tipo de olho que a floresta ensinava as crianças a respeitar antes mesmo de entenderem o que era medo.
-
-Vita escolhera o nome porque Nara nascera olhando demais. “Ela vê antes de falar”, costumava dizer.
+Ao lado da raiz que cobria Nara, uma flor de pétalas escuras tremia na cinza úmida. Quando se abria, revelava uma mancha pálida no centro, redonda como um olho. Em Velarim, tinham passado a chamá-la de Olho de Nara depois que Vita inventara o nome. A filha nascera olhando tudo ao redor. “Ela vê antes de falar”, dizia Vita.
 
 Rendar pegou o arco, uma faca de Vita e as provas que recolhera. Antes de partir, olhou uma última vez para Velarim.
 

@@ -4,9 +4,9 @@ Kadrir permanecia de pé junto à mesa, uma mão no punho da espada e a outra no
 
 Mapas de Kaendar cobriam a mesa: rotas, portões, depósitos, cisternas e escadarias. Brokan marcara reforços, Iressa enviara contagens de comida e Nalia, observações sobre a água contaminada.
 
-Alyra olhava para aquilo com o cansaço de quem via pessoas transformarem urgência em tábua.
+Alyra estava cansada de receber novas tábuas enquanto os barris de água desapareciam dos depósitos.
 
-— Se eu ouvir mais um homem do anel médio dizer que precisamos de “procedimento antes de distribuição”, vou mandar ele ferver a própria tábua e beber o caldo — disse ela.
+— Se mais um fiscal disser que precisa contar os barris antes de deixar as pessoas beberem, vou mandar ferver a tábua dele e servir de caldo — disse ela.
 
 Cal não sorriu.
 
@@ -24,7 +24,7 @@ Ela puxou uma pedra pequena sobre o mapa, marcando a escadaria de Cima-Leste.
 
 — Às vezes panela mata mais que lâmina.
 
-Alyra olhou para Cal. Por um instante, quase gostou da resposta. Então a batida veio, duas vezes, secas, e Cal virou-se antes dela.
+Alyra olhou para Cal e conteve um sorriso. Então a batida veio, duas vezes, secas, e Cal virou-se antes dela.
 
 — Entra — disse Alyra.
 
@@ -158,7 +158,7 @@ Daryon não gostou da resposta. A mão dele tocou a borda da mesa, perto demais 
 
 — É melhor você escolher bem em quem confia certas informações.
 
-Alyra percebeu a rigidez incomum de Daryon e, por um instante, pensou nas próprias náuseas e dores que ainda se recusava a nomear.
+Alyra percebeu a rigidez incomum de Daryon. A dor no ventre voltou, breve, e ela apoiou a mão na mesa antes de falar.
 
 — Queria alguma coisa, Daryon?
 
@@ -250,7 +250,7 @@ Marken estava sentado no chão junto à janela estreita, com as costas apoiadas 
 
 Ele olhava para cima. Não se levantou. Cal Kadrir entrou atrás de Alyra e fechou a porta. Marken virou o rosto.
 
-Os olhos dele passaram por Cal, depois voltaram a Alyra. Não havia surpresa suficiente. Isso irritou-a antes mesmo de ele falar.
+Os olhos dele passaram por Cal, depois voltaram a Alyra. Ela esperava que se levantasse. Marken continuou sentado.
 
 — Então este é o homem que salvou a vida de minha irmã — disse Alyra.
 
@@ -268,7 +268,7 @@ Marken olhou para a pintura.
 
 — Uma delas é que Kaendar queime, certo?
 
-— O fogo não pergunta o que eu ou você quer. Ele só está lá pra queimar.
+— Você vê fogo ali. Eu não disse que o queria.
 
 Cal Kadrir endureceu. Alyra sorriu.
 
@@ -304,7 +304,7 @@ Cal deu um passo, mas Alyra ergueu a mão. Não tirou os olhos de Marken.
 
 — Todo mentiroso vem de longe quando não quer explicar a porta.
 
-— Algumas portas só aparecem depois de fechadas.
+— Há caminhos que seus guardas não conhecem.
 
 Alyra riu baixo.
 
@@ -312,7 +312,7 @@ Alyra riu baixo.
 
 Marken olhou para a janela.
 
-— Kaelina escuta porque tem medo. E isso a faz corajosa. Agir apesar do medo.
+— Kaelina tem medo e mesmo assim pergunta. Você manda calar quem a contraria.
 
 Alyra não gostou da resposta.
 
@@ -320,7 +320,7 @@ Alyra não gostou da resposta.
 
 Marken voltou os olhos para ela.
 
-— Você também tem medo. Mas é covarde demais para admitir para si mesma.
+— Você também tem medo. Só prefere descontá-lo em quem não pode responder.
 
 Cal respirou mais fundo. Alyra aproximou-se.
 
@@ -360,7 +360,7 @@ Marken sustentou o olhar dela.
 
 — Quem é você? — perguntou ela, agora sem jogo na voz.
 
-— Alguém que sabe das coisas.
+— Alguém que sabe mais do que deveria.
 
 — Quem é você? — Alyra tocou o cabo da faca. Cal Kadrir percebeu. Não tentou impedi-la. Ainda não.
 
@@ -368,7 +368,7 @@ Marken sustentou o olhar dela.
 
 Alyra não se moveu. Marken continuou, baixo:
 
-— Que sua fome de poder é alimentada pelo medo de sua irmã, a filha favorita de Orionus, ser melhor que você.
+— Que você não suporta a ideia de Kaelina ser mais respeitada do que você. Ainda mais quando alguém lembra o que Orionus esperava das duas.
 
 A faca saiu metade da bainha. Cal Kadrir deu um passo. Marken permaneceu sentado.
 
@@ -420,7 +420,7 @@ Ela parou por um instante.
 
 Marken não reagiu à palavra gravidez como homem curioso. Não perguntou. Não arregalou os olhos. Não olhou para a porta. Apenas esperou.
 
-— Ele não sabia — disse Kaelina. — Daryon não sabia. E aquilo o assustou.
+— Acho que ele não sabia — disse Kaelina. — Ficou sem resposta. E aquilo o assustou.
 
 — E gostou de ver isso? — Marken perguntou.
 
@@ -428,9 +428,9 @@ Kaelina virou-se para ele. Era uma pergunta inesperada. Mas respondeu:
 
 — Gostei de vê-lo assim.
 
-— Homens que sabem tudo não temem o que sabem — disse Marken. — Temem o que descobrem tarde demais.
+— E o que isso prova? — perguntou Marken.
 
-— Porque perdem o controle — completou Kaelina.
+— Que ele não controla tudo. Foi a primeira vez que vi isso.
 
 Lá fora, alguém passou pelo corredor carregando metal. O som ecoou, breve, depois sumiu.
 
@@ -466,7 +466,7 @@ Marken olhou para ela então.
 
 Kaelina não respondeu. Ele continuou:
 
-— E pessoas com medo não procuram verdade primeiro. Procuram o que lhes dá mais conforto.
+— E quando alguém promete protegê-las, nem sempre perguntam de quem.
 
 Kaelina baixou os olhos.
 
@@ -478,7 +478,7 @@ Marken olhou para a janela.
 
 Kaelina perguntou-se novamente quanto Marken sabia sobre Orionus.
 
-— Orionus vencia condições — disse Kaelina, mais para si do que para ele. — Não pessoas. Cal Edran dizia isso. Ele não entrava no campo escolhido pelo inimigo. Fazia o inimigo perceber que o campo já estava errado.
+— Cal Edran dizia que meu pai vencia as condições antes de enfrentar as pessoas. Não entrava numa disputa até saber o que o outro lado precisava. Talvez eu tenha passado tempo demais tentando fazer as pessoas me ouvirem.
 
 Marken não disse nada.
 

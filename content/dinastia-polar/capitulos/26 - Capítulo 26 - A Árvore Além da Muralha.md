@@ -1,6 +1,4 @@
-Elis não soube dizer, depois, quanto tempo tinha ficado longe.
-
-Sabia que a cidade continuara à sua volta o tempo todo: vozes, portas, o som distante de alguém arrumando uma carroça. Nada daquilo alcançara o lugar onde ela estava por dentro. Quando encontrou o caminho de volta para casa, já era noite fechada, e não pensou em explicar onde estivera. Ninguém perguntou. Talvez todos ali também tivessem os próprios buracos de tempo que preferiam não explicar.
+Elis não soube quanto tempo passou andando depois da execução. Quando encontrou o caminho de casa, já estava escuro. Não disse onde tinha ido, e ninguém perguntou. O som das carroças e das pessoas na rua continuava, mas ela quase não o ouvia.
 
 A casa parecia menor sem Kalan dentro dela, e ao mesmo tempo maior demais para o silêncio que sobrava.
 
@@ -14,7 +12,7 @@ Ela olhou para ele.
 
 — Por que fora?
 
-— Porque ele é Nular — Karesis respondeu, sem tentar suavizar. — Quem vive como Nular, sem linhagem reconhecida nos registros da Raiz, não tem direito funerário dentro das muralhas.
+— Porque ele é Nular — respondeu Karesis. — A Raiz não deixa enterrar os nossos dentro da muralha.
 
 Elis já sabia, de um jeito vago, como qualquer pessoa que crescia em Maruva. Ainda assim, ouvir Karesis dizer aquilo, sobre Kalan, doeu de um jeito novo.
 
@@ -26,31 +24,17 @@ Acordaram ainda no escuro.
 
 As duas luas ainda resistiam no céu, pálidas diante do amanhecer. A maior já descia atrás dos telhados, a menor permanecia mais alta, e as duas luzes fracas davam às torres, chaminés e passarelas uma segunda borda de sombra, como se a cidade estivesse ligeiramente deslocada de si mesma.
 
-Elis nunca vira Kaeliran daquele jeito. Vivera ali a vida inteira e conhecia o barulho da cidade em quase todas as horas: o mercado cheio pela manhã, as ruas apinhadas no almoço, o silêncio pesado depois do sino da noite. Nunca estivera acordada e em movimento naquela hora, quando a escuridão ainda dominava tudo e a cidade parecia pertencer só a quem trabalhava enquanto os outros dormiam.
-
-As ruas estavam vazias de um jeito quase errado. Algumas lamparinas tremulavam em janelas isoladas. Numa esquina, uma cozinha acendera o primeiro fogo do dia, o cheiro de pão ainda cru chegando à rua antes do sol. Um padeiro trabalhava atrás de uma janela embaçada, os braços cobertos de farinha, sem notar quem passava. Em outra rua, trabalhadores do turno da noite voltavam para casa arrastando os pés, conversando baixo. Um animal de carga resfolegou no frio, o hálito virando vapor no ar escuro.
-
-Os passos de Elis ecoavam entre as construções silenciosas. Horas antes, uma multidão lotara o pátio para assistir à morte de Kalan, inclusive gente que nunca ouvira o nome dele. Agora as janelas estavam escuras e quase toda a cidade dormia, enquanto os que o conheciam atravessavam as ruas vazias.
-
-Ninguém além deles parecia lembrar.
+Elis conhecia as ruas de Maruva a quase todas as horas, mas nunca fizera aquele caminho antes de o sol nascer. Os padeiros começavam a trabalhar. Homens do turno da noite voltavam para casa, e um tarrak resfolegou no frio. Depois da multidão que comemorara a sentença de Kalan, o silêncio das ruas parecia errado. As janelas estavam fechadas, mas Elis ainda procurava, sem perceber, os rostos que vira no pátio.
 
 Os guardas da Raiz já esperavam no ponto combinado, o corpo de Kalan sobre uma padiola simples, envolto em tecido. Não havia crueldade no jeito como se moviam: cumprimentaram a família com um aceno curto, ergueram a padiola com o cuidado profissional de quem já fizera aquilo antes, e começaram a andar.
 
-Era pior, de certo modo, exatamente por isso. Não havia nada pessoal ali. Para aqueles guardas era só mais um corpo Nular a ser retirado das muralhas antes que o dia começasse, um trabalho encaixado entre outras tarefas da manhã.
-
-Tair olhava para eles com uma raiva que não tentava esconder. Um dos guardas percebeu e pareceu prestes a dizer alguma coisa, um pedido de compostura, uma ordem para manter distância, mas não disse nada. Não havia energia sobrando para discussão, só o suficiente para continuar andando.
+Os guardas não foram cruéis. Tratavam a padiola como mais uma tarefa da manhã, sem olhar para a família. Tair acompanhou cada movimento, os punhos fechados, mas não falou nada.
 
 Orel se mantinha o mais perto que conseguia da padiola, ajustando o passo sempre que os guardas mudavam de ritmo, como se precisasse garantir a cada segundo que Kalan ainda estava ali, ainda coberto, ainda com ele.
 
 Elis quase não falou durante o caminho. Sentia as palavras presas em algum lugar fundo demais para alcançar.
 
-O acesso terrestre para a Cidade Exterior funcionava como sempre funcionara, e Elis, apesar de tudo, estranhou ver aquilo continuar tão normal.
-
-Guardas dos dois lados do portão. Um funcionário verificando registros à luz de uma lamparina, conferindo nomes contra uma lista, perguntando destino e motivo antes de liberar a passagem. Uma carroça de mercadores madrugadores esperava na fila à frente deles, inspecionada com um cuidado quase entediado: um guarda batendo de leve nas laterais, comparando o conteúdo com a autorização. O portão se abria só o suficiente para deixar passar quem tinha permissão, e fechava de novo assim que a passagem terminava.
-
-Quando chegou a vez deles, um dos guardas da Raiz apresentou os papéis, e o funcionário os examinou com a mesma atenção burocrática que dedicara à carroça, talvez até menos, já que o assunto era só um corpo Nular sendo retirado, uma formalidade entre tantas daquela manhã.
-
-Elis ficou parada, esperando, enquanto um homem que nunca vira na vida confirmava, com uma caneta e um carimbo, que era permitido tirar o corpo do irmão dela para fora da cidade que ele ajudara a sustentar a vida inteira.
+No portão, os funcionários já conferiam a carga de uma carroça. Quando chegou a vez da família, um guarda da Raiz apresentou o documento e recebeu a autorização. Elis viu o funcionário marcar a saída do corpo de Kalan no mesmo livro em que anotara as mercadorias.
 
 Os guardas verificaram a autorização e abriram só o espaço necessário para a passagem.
 
@@ -58,7 +42,7 @@ O portão se abriu. Passaram. O portão se fechou atrás deles.
 
 Era a primeira vez que Elis punha os pés fora de Kaeliran.
 
-Vivera a vida inteira dentro daquelas muralhas, entre Maruva e o resto da Cidade Exterior, sem motivo ou permissão para ir além. "Fora" sempre fora abstrato para ela: um espaço nos mapas, um lugar onde aconteciam guerras e viagens de gente importante, nunca um chão real. Agora a terra mudava de textura sob as botas, o ar era diferente de um jeito que não sabia explicar, mais aberto, talvez, sem as paredes de pedra que sempre tinham definido os limites do mundo dela.
+Até então, Elis só conhecia o mundo para lá dos muros pelas conversas de viajantes e pelas poucas imagens que vira. Agora sentia a terra de fora sob as botas. O vento não batia em paredes altas, e havia espaço para caminhar sem precisar desviar de uma casa ou de um guarda.
 
 Saíram pelo lado oeste, por um caminho estreito que os guardas pareciam conhecer bem. O céu mudava acima deles, a escuridão cedendo devagar para um azul mais claro, ainda sem cor de verdade, só a promessa dela.
 
@@ -66,9 +50,7 @@ Quando olhou para trás pela primeira vez, Elis viu Kaeliran inteira.
 
 Nunca vira a cidade assim, de longe, o bastante para que coubesse inteira numa única vista. De dentro, Kaeliran sempre fora ruas, becos, prédios altos demais para enxergar além deles, o mundo reduzido ao quarteirão em que se estava. Dali era outra coisa. As muralhas se erguiam contra o céu que clareava, torres pontuando o contorno, os telhados se sobrepondo numa massa só, enorme, sólida, o tipo de coisa que parecia impossível de derrubar.
 
-A luz nascia no leste, atrás da cidade, e por isso Kaeliran aparecia como uma sombra imensa recortada contra o amanhecer: primeiro só uma linha mais clara no horizonte, depois o contorno dos telhados, depois as torres mais altas, cada detalhe ganhando forma aos poucos enquanto o sol ainda não decidira aparecer.
-
-Era bonito, de um jeito que Elis não queria que fosse. Caminhava para enterrar o irmão porque aquela mesma cidade decidira que ele não merecia um pedaço de terra dentro dos próprios limites, e mesmo assim não conseguia deixar de olhar para trás, de novo e de novo, vendo Kaeliran crescer contra o céu como se quisesse lembrá-la, a cada passo, do tamanho da coisa que os condenara.
+Quando olhou para trás, viu Kaeliran inteira. As muralhas, os telhados de Maruva amontoados na parte baixa, as torres de Kaendar no alto. De dentro, ela só enxergava pedaços de cada vez. Ali dava para ver tudo. O sol nascia atrás da cidade, recortando as muralhas contra a claridade. Era bonito, e Elis ficou com raiva de achar bonito o lugar que nem deixaria Kalan ser enterrado ali.
 
 Os guardas pararam num trecho de terreno aberto, cercado de vegetação baixa e algumas árvores maiores mais além, e puseram a padiola no chão com o mesmo cuidado de antes.
 
@@ -90,7 +72,7 @@ Andou primeiro, olhando ao redor com uma atenção que Elis não conseguia decif
 
 Para Elis, ele só tentava escolher um canto bonito, como qualquer um faria ao decidir onde enterrar alguém que amava. Mas havia algo mais detido no jeito como examinava cada árvore, algo que parecia procurar reconhecimento, não beleza.
 
-Karesis continuou, devagar, de copa em copa, de tronco em tronco, sempre voltando a medir a distância até a muralha. Parou várias vezes, quase escolhendo, e seguiu adiante, como se cada árvore chegasse perto do que procurava sem ser aquilo.
+Karesis foi de árvore em árvore, olhando os troncos e, de vez em quando, a distância até a muralha. Elis achou que ele queria escolher um lugar bonito. Não entendia por que estava demorando tanto.
 
 Até que parou diante de uma árvore alta e antiga, o tronco grosso e retorcido de um jeito que sugeria décadas, talvez séculos, de crescimento lento. A copa se abria larga acima deles, os primeiros galhos altos o bastante para dar sombra a uma área considerável, e havia na forma dela, na maneira como os ramos se torciam antes de se abrirem, algo que a tornava diferente de qualquer outra por ali. Era, sem dúvida, a mais bonita daquele pedaço de terra.
 
@@ -108,11 +90,7 @@ Orel tentou ajudar também, mas as mãos dele voltavam sempre para perto de Kala
 
 Elis ficou perto do irmão o tempo todo, sem cavar, só olhando para a forma coberta que já não parecia Kalan de jeito nenhum e ainda assim era só ele.
 
-Ninguém soube que palavras usar. Não havia sacerdote para recitar nada, nenhuma cerimônia oficial, nenhuma honra pública do tipo que a cidade reservava aos próprios mortos. Kalan não teria nada daquilo.
-
-Tinha eles. Só eles, cavando terra estranha sob o amanhecer, longe de casa, longe da cidade que o expulsara mesmo morto.
-
-Bastava.
+Não tinham sacerdote, cântico nem qualquer cerimônia oficial. Tair e Karesis cavavam, Orel alisava o tecido sobre o corpo e Elis ficava perto, olhando as ferramentas e as mãos dos outros. Tinha vontade de fazer alguma coisa, mas não sabia o quê.
 
 Quando chegou a hora de cobri-lo, ninguém apressou nada.
 
@@ -148,9 +126,7 @@ Um silêncio breve. Depois, quase gentil, mais pergunta de verdade que acusaçã
 
 Elis balançou a cabeça, sem sorrir. Dareth parecia cansado o bastante para notar que, ultimamente, todo mundo ao redor dele estava de partida para algum lugar.
 
-A conversa chegou à morte de Kalan.
-
-Elis ainda não entendia toda a rede de decisões, autoridades e omissões que levara até aquele momento: Vetarius, o Sumo Vigia, Hadris, a Balança Azul, tudo se misturava numa massa confusa demais para separar. O que conseguia era procurar um rosto, alguém específico em quem apontar o dedo.
+Elis tinha ouvido tantos nomes desde a prisão do irmão que já não sabia em quem pensar primeiro. O rosto de Hadris vinha à cabeça. Depois o do Sumo Vigia, o de Vetarius, o de Ladira. Virou para Dareth.
 
 — Foi Vetarius que matou meu irmão, não? — perguntou, olhando direto para Dareth.
 
@@ -176,7 +152,7 @@ Elis não o defendeu. Nem Vetarius, nem Kaeliran, nem o Torneio, nem nada que re
 
 — O Torneio existe pra impedir que as disputas entre as dinastias voltem a ser resolvidas por guerra — Dareth disse. — Sem representação, a disputa continua aberta. E disputa aberta, entre dinastias, tende a terminar de um jeito só.
 
-— E quando elas brigam — Elis perguntou, olhando de novo para a terra onde tinha acabado de enterrar o irmão —, quem morre?
+— E quem é que morre quando elas brigam? — Elis perguntou, olhando para a sepultura.
 
 — Gente demais — Dareth disse. Depois, mais baixo: — Gente que nem escolheu a briga.
 
@@ -208,9 +184,9 @@ Ela lembrou. Depois que Dareth impedira os Filhos da Raiz de levá-la, fora Maru
 
 Olhou de novo para o túmulo antes de continuar.
 
-— Quero que impeça ela de matar mais gente.
+— Quero que os irmãos dos outros voltem pra casa.
 
-— Você chegou tarde pro Kalan — Elis disse, depois de um momento.
+— Você chegou tarde pro Kalan — Elis disse, olhando para a terra recém-revirada.
 
 Dareth não se defendeu. Ficou parado, absorvendo a frase como quem sabia que merecia recebê-la sem resposta.
 

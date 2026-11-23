@@ -1,132 +1,160 @@
-Bruno deu três passos até o nicho antes que alguém pudesse impedir, porque se parasse para pensar não ia. O capim estalava debaixo da bota, a luz laranja não se mexia, e a máscara continuava lá, cinza, de olhos fundos, esperando com a paciência de um colega de sala que sabe a resposta e não vai contar.
+A máscara continuava no nicho, sob o pescoço partido da estátua. O vento do abismo puxava as capas dos quatro para trás. Ferris foi o primeiro a se aproximar.
 
-— Bruno, espera. — Ferris foi atrás dele, sem levantar a voz. — A gente não sabe o que ela faz com quem ela não quer. O senhor Odilon disse que quem toca nela vai embora, e eu acho que essa foi a parte da conversa que mais importava.
+— Eu vou vestir — disse, tirando o capacete.
 
-— Ele disse também que existe uma escada de arco-íris, e eu estou aqui para descobrir se é verdade. — Bruno agachou diante do nicho e esfregou as mãos nas calças, que era o que fazia antes de qualquer coisa que pudesse dar errado. — Se eu ficar parado olhando, o Breno e a Bia ficam lá dentro mais um dia, e o tempo deles passa de um jeito que ninguém entende. Eu prefiro ser o idiota que tentou.
+Bruno segurou seu braço.
 
-— Eu acho você bem corajoso. — Shirley chegou do lado dele, de braços cruzados, com um sorriso de quem acabou de ver alguém se oferecer para lavar a louça de uma festa inteira. — Mas você respirou três vezes seguidas sem soltar o ar, juro que eu contei. Quem vai vestir uma coisa dessas costuma respirar normal.
+— Nem vem. O Breno e a Bia são meus irmãos.
 
-— Eu estou respirando normal.
+— E o Kalev é meu pai — respondeu Ferris. — Eu vim até aqui por ele.
 
-— Está respirando igual a um fole furado, Bruno.
+Ninguém falou por alguns segundos. A máscara era pequena e cinza, com uma rachadura clara perto do olho esquerdo. Parecia leve. Depois do que Odilon contara, nenhum deles conseguia olhar para ela como para uma simples porta. Podia haver gente presa dentro daquela pedra. Se alguém a vestisse e desaparecesse também, talvez passasse a vida inteira à espera de uma saída que ninguém conhecia.
 
-Ele ia responder, e a voz de Odilon chegou antes, de dentro da cabeça, tão nítida que Bruno quase olhou para trás. *Preso quer dizer para sempre. O rosto cola.* Tinha sido a cara mais assustada que ele já tinha visto num adulto, e Odilon ainda tinha acrescentado, com o dedo comprido no ar, que a máscara escutava a diferença. Bruno lembrou da casaca de remendos largada no chão da beirada, onze anos depois de um homem de pé, e olhou para a rachadura clara que descia pelo lado esquerdo da máscara, e entendeu que a coisa que ele tinha achado parecida com um colega de sala não era colega de ninguém.
+— Se ela me levar, vocês precisam continuar procurando — disse Ferris.
 
-— Eu subi a montanha inteira achando que era só uma máscara — disse. — Ele avisou, eu lembro de cada palavra, e mesmo assim eu me sinto como se estivesse na fila de um brinquedo.
+— Não fala isso! — Banjo apertou a alça da mochila.
 
-— Ele também disse que quem se oferece por outro, de verdade, às vezes ela aceita. — Ferris falou devagar, escolhendo cada palavra. — Foi a Bigorna quem disse. Mas ela escuta a diferença entre o de verdade e o que a pessoa só quer que pareça verdade. Pensa bem no que você vai oferecer.
+— Eu sei o risco. — Ferris estendeu a mão para a pedra.
 
-— Então é fácil, eu me ofereço pelo Breno e pela Bia e pronto. — Bruno pegou a máscara.
+Bruno o puxou de volta.
 
-Foi mais rápido do que ele queria. Os dedos fecharam em volta da pedra, e a pedra não pesava nada, parecia a lembrança de uma coisa em vez da coisa, e uma sensação gelada subiu pelos braços dele, mas não era o frio de fora. Era o dele. O frio que só vinha quando ele chamava vinha agora sozinho, correndo dos dedos para os pulsos, e a geada nasceu nas pontas das unhas e se espalhou pela testa lisa da máscara, e a rachadura clareou de dentro para fora. O sino de gelo que ele carregava na cabeça desde pequeno bateu uma vez, bem alto, e ele sentiu a máscara esperar.
+— Pô, o seu pai tá lá dentro. Você não vai conseguir procurar ele se sumir também. Eu vou usar essa coisa.
 
-Ela não puxou e não empurrou. Ela só ouviu.
+— E você vai conseguir procurar seus irmãos se sumir? — perguntou Shirley.
 
-Bruno levantou a máscara até a altura do rosto e quis dizer a frase, pelo Breno, pela Bia, e ela saiu pela metade, porque no meio dela, sem pedir licença, apareceu a cara de Dário. Ele tentou empurrar a imagem para longe. A imagem ficou. O sino bateu de novo, mais fino, mais frio, e a geada nas unhas virou uma coisa que doía.
+— Não vou ficar aqui discutindo até a máscara criar perna e sair andando!
 
-— Bruno. — A voz de Banjo veio de trás dele, baixinha. — Você está com medo.
+Bruno se ajoelhou diante do nicho e tirou uma luva. Podia sentir o frio da pedra antes mesmo de encostar. Lembrou-se de Dário descendo a encosta de Verna, chorando, e do desenho em que Banjo o fizera sorrir com uma espada de gelo. O irmão tinha dobrado a folha sem reclamar. Beatriz, não. Ainda conseguia ouvi-la: *Então por que só você tá rindo?*
 
-— Eu estou com pressa.
+A vontade de dizer alguma besteira para disfarçar o medo subiu à boca. Bruno apertou os dentes até ela passar.
 
-— Você está com medo. O Farol está tremendo, e ele só treme quando alguém perto de mim está com muito medo e finge que não está. — Houve uma pausa curta, e Bruno ouviu o capim estalar, o passo dele se aproximando. — E acho que ela também ouviu isso. Eu acho que ela não quer que você faça isso por causa do Dário.
+— Ferris, você conhece as marcas do seu pai — disse. — Se eu não voltar, leva o Banjo e a Shirley de volta. Procurem o Velho-Sábio. Não entrem atrás de mim.
 
-— Eu não falei do Dário.
+— Bruno... — começou Ferris.
 
-— Falou, na cabeça. Ela escuta. — Banjo respirou fundo, e a voz dele saiu mais firme do que Bruno já tinha escutado. — Desculpa. É que eu ouvi ela me chamar.
+— Tô falando sério, mano.
 
-A máscara saiu das mãos de Bruno como uma folha que o vento pega, de uma vez, sem aviso, e atravessou o espaço entre os dois num risco cinza, e foi parar no rosto de Banjo, ajustando-se nele como se tivesse sido feita à medida. Os olhos de Banjo, atrás das fendas, estavam calmos. Era o rosto mais calmo que Bruno já tinha visto nele, de quem decidiu uma coisa e já está com saudade.
+Olhou para Banjo. O caçula tinha Farol apertado contra o peito e a alça da mochila enrolada nos dedos. Bruno pensou em pedir desculpa pelo desenho, em dizer que ainda queria vê-lo direito. Não era hora de pedir ao irmão que o animasse outra vez. Estendeu a mão e ajeitou a alça, que estava torcida sobre o ombro de Banjo.
 
-— NÃO, BANJO!
+— Fica com eles, tá? — disse, mais baixo.
 
-Bruno se jogou para a frente, e Banjo caiu em cima dele, mole como um saco de roupa, e os óculos entortaram debaixo da pedra.
+Depois voltou para a máscara. Tinha medo de ficar preso, claro que tinha. Mas Breno e Beatriz já estavam lá dentro, e ele não suportava a ideia de ver também Banjo desaparecer enquanto ficava de fora fazendo piada para esconder que não sabia ajudar.
 
-Banjo tinha ouvido a máscara dizer o nome dele quando ainda estava nas mãos de Bruno. Foi um sussurro, igual aos que ele ouvia nos bichos e nas plantas, só que errado no começo, como um gato chamado por alguém que nunca teve gato: *Ban... jo.* E o que veio junto com o nome não era fome nem maldade, que era o que a lenda do Odilon prometia. Era saudade. Banjo nunca tinha sentido saudade numa pedra, e por isso tinha achado que tinha entendido errado, e por isso, pensou, ia ter que ir ver.
+Estendeu os dedos para a rachadura.
 
-Agora a máscara estava no rosto dele, e não doía. Antes de ela cobrir tudo, Banjo disse por dentro, sem palavras, que ia no lugar de Bruno, e pelo Breno e pela Beatriz também, e não tinha nenhuma ideia escondida atrás da frase. Era a coisa mais simples que ele já tinha pensado. A máscara escutou a diferença. O mundo ficou fino, só isso. Como um lençol esticado contra a luz, com as sombras das coisas passando por trás.
+A máscara escapou do nicho antes que Bruno a tocasse. Por um instante ele achou que a tivesse derrubado, mas a pedra subiu em vez de cair. Cruzou o espaço entre eles num único puxão invisível. Só então Bruno viu a mão de Banjo aberta, tremendo.
 
-Ele estava de pé numa planície de neve que não esfriava, e acima de tudo, como uma janela embaçada no céu, dava para ver outro lugar: capim cor de ferrugem, céu laranja, uma estátua sem cabeça. Por baixo da janela, de joelhos, Bruno segurava um menino de óculos tortos que era ele mesmo, e a boca de Bruno se mexia sem fazer som, repetindo uma palavra só, que Banjo entendeu de longe. Era o nome dele, a palavra que Bruno nunca usava inteira, sempre encurtava para qualquer coisa, e agora dizia inteira.
+— BANJO, NÃO!
+
+O caçula agarrou a máscara no ar e a levou ao próprio rosto. Bruno se atirou para alcançá-lo, mas viu a pedra encostar na pele do irmão antes de conseguir chegar.
+
+A chuva começou de uma vez. O céu laranja ficou escuro e um trovão fez a estátua tremer. Banjo sentiu a máscara encostar na pele, fria, e ouviu uma nota tão alta que fechou os olhos.
+
+— BANJO! — gritou Bruno.
+
+O corpo do menino perdeu a força. Bruno o segurou antes que batesse no chão, e a mochila se abriu, deixando Farol escapar para a grama molhada. A máscara continuou no rosto de Banjo.
+
+Banjo ouvira seu nome quando a máscara ainda estava no nicho. Era um sussurro parecido com os que às vezes sentia vindos dos bichos, mas as sílabas saíam hesitantes: *Ban... jo.* Junto com a voz veio uma tristeza tão grande que Banjo quase se afastou. Não parecia raiva. Parecia saudade. Ele nunca sentira aquilo vindo de uma pedra e não sabia se estava entendendo direito.
+
+A máscara cobriu seu rosto, mas não doeu. Banjo só conseguiu pensar em Bruno, que tentara impedi-lo, e em Breno e Beatriz presos lá dentro. Queria que os três ficassem bem. Se a máscara precisasse prender outra pessoa para deixar os três saírem, podia ficar com ele. Preferia perder a própria liberdade a voltar para casa sem Breno e Beatriz. Não tinha certeza de que funcionava assim; era a única coisa que podia oferecer. A neve surgiu diante dele, apagando a chuva e o capim da montanha. Como um lençol esticado contra a luz, com as sombras das coisas passando por trás.
+
+Ele estava de pé numa planície de neve que não esfriava, e acima de tudo, como uma janela embaçada no céu, dava para ver outro lugar: capim cor de ferrugem vergado pela chuva, nuvens escuras e uma estátua sem cabeça. Por baixo da janela, de joelhos, Bruno segurava um menino de óculos tortos que era ele mesmo, e a boca de Bruno se mexia sem fazer som, repetindo uma palavra só, que Banjo entendeu de longe. Era o nome dele, a palavra que Bruno nunca usava inteira, sempre encurtava para qualquer coisa, e agora dizia inteira.
 
 — Desculpa, Bruno — falou, sozinho na neve. — Eu volto. Eu acho que eu volto.
 
-Uma música passou por cima dele, fora do lugar, e a neve virou areia fina, e a areia se dobrou em dunas, e as dunas ficaram mais altas do que ele podia ver até o topo. Banjo andou. Fazia o que ele sempre fazia quando não sabia o que fazer, que era conversar com a coisa que estava na frente, e como a coisa que estava na frente era o chão, disse em voz alta que não tinha trazido nem um pão para agradar, e que desculpava, e que se ela soubesse onde estavam o Breno e a Beatriz ficaria muito grato.
+A música que fazia aquele mundo mudar começou a soar. A neve virou areia fina, e a areia se dobrou em dunas mais altas do que ele podia ver. Banjo deu alguns passos, assustado: estava preso, como os outros. Então ouviu uma segunda música, diferente daquela que fazia os lugares mudarem. Eram sete notas que se respondiam, vindo de muito longe e ficando um pouco mais claras quando ele avançava.
 
-O chão não respondeu. Mas a música passou de novo, e as dunas viraram uma planície de gelo escuro, com o céu cinza cheio de neve que caía para cima, e lá longe, na beira de um desfiladeiro de vidro, havia quatro figuras paradas e uma escada.
+Não sabia se alguém conseguia ouvi-lo, mas falou mesmo assim:
 
-Era uma escada de verdade, e começava ali, no chão, bem aos pés delas, e subia em curva para o céu, e cada degrau era de uma cor. Vermelho, laranja, amarelo, verde, azul, anil, violeta. Dava para ouvir, de longe, que cada um tinha uma nota, e que as sete notas juntas faziam um acorde que ele conhecia e não sabia de onde. No topo ficava uma parede que não era de pedra nem de ar nem de água, um lugar onde as coisas pareciam esquecer o que eram, e a luz que vinha dela era de cima.
+— Desculpa incomodar... Eu vim procurar meus irmãos. Se alguém souber onde eles estão, eu agradeço. Não trouxe nem pão, que é o que sempre ofereço pros bichos.
 
-— Oi, Beatriz — disse Banjo, com o sorriso mais bobo que tinha, o das ocasiões em que tudo dava errado e ele não achava outro jeito de entrar.
+Não houve resposta. A cantiga antiga tornou a mudar o chão; as dunas se transformaram numa planície de gelo escuro, e a neve começou a cair para cima. Mas as sete notas permaneceram, mais nítidas. Banjo seguiu-as como seguia um animal pelo som dos passos. Ao longe, perto de um desfiladeiro de vidro, viu quatro figuras reunidas diante de uma escada colorida.
 
-Beatriz ficou parada, com a Partitura no peito e as meias molhadas, e os olhos dela, que não eram de chorar, encheram. Depois soltou um grito que fez uma pedra rolar longe e se jogou em cima dele com tanta força que os dois foram parar de bunda na neve.
+A escada começava aos pés deles e subia em curva para o céu, um degrau de cada cor. Vermelho, laranja, amarelo, verde, azul, anil, violeta. A pedra parecia vidro molhado: por dentro dela, veios de brilho atravessavam as cores, corriam de um degrau a outro e voltavam como se a própria escada respirasse música. Dava para ouvir, de longe, que cada um tinha uma nota, e que as sete notas juntas faziam um acorde que ele conhecia e não sabia de onde. No topo ficava uma parede que não era de pedra nem de ar nem de água, um lugar onde as coisas pareciam esquecer o que eram, e a luz que vinha dela era de cima.
 
-— BANJO! BANJO! Eu andei num bicho de gelo, uma bicha, que tinha asas, e ela dançou, eu toquei e ela dançou, e a gente voou, eu perdi a bota, e você veio! Você veio e eu sabia, eu falei com o Breno que você vinha, e ele disse que era suposição!
+— Bia? — chamou Banjo, sem acreditar. — Bia, sou eu!
 
-— Era suposição — disse Breno, parado onde estava, branco como a neve. Tinha os braços soltos ao lado do corpo e o diapasão mudo balançando no fio azul do pulso, e olhava para Banjo com a cara que fazia quando uma conta não fechava. — Banjo. Quem está com o seu corpo? Há quanto tempo? Onde fica essa janela por onde você veio?
+Beatriz ficou parada, com a Partitura no peito e as meias molhadas, e os olhos dela se encheram. Depois soltou um grito que fez uma pedra rolar longe e se jogou em Banjo com tanta força que os dois foram parar sentados na neve.
 
-— O Bruno está com ele, e o Ferris e a Shirley. — Banjo tentou sentar, com Beatriz agarrada no pescoço. — O Bruno tentou primeiro, mas ela não quis. Ela chamou foi eu, não sei por quê. E eu fui. Desculpa. Foi rápido.
+— BANJO! — Ela o apertou. — Você veio! Eu sabia! A gente andou num bicho de gelo com asas! Ela dançou quando eu toquei e depois saiu voando, e eu perdi minha bota, e... você veio mesmo!
 
-— Você veio sozinho dentro da máscara. — Breno fechou os olhos um segundo. — Isso não estava na lista.
+— Banjo? — Breno ficou parado, olhando para o irmão. O diapasão mudo pendia do pulso pelo fio azul. — Como você entrou aqui? E o Bruno? Onde ele está?
 
-— Meus jovens. — A voz da Velha cortou a neve, mansa e firme. Ela estava um passo atrás de Kalev, de bengala, com o rosto virado para o alto, para onde a escada sumia no céu. — O contracanto chegou. Eu sei porque a música mudou de lugar. A escada dura poucos minutos, e quem não estiver na parede quando o canto acabar vai esperar o próximo, e o próximo pode demorar muitas luas. Abracem depois. Subam agora.
+— O Bruno está lá fora, com Ferris e Shirley — respondeu Banjo, tentando se sentar com Beatriz ainda agarrada ao pescoço. — Eu ouvi uma voz e levantei a máscara. Vesti antes que o Bruno me impedisse. Depois entrei. Foi muito rápido.
 
-Eles subiram. O primeiro degrau era vermelho e quente, e a sola da meia de Beatriz chiou, e ela soltou um riso de susto. O segundo era laranja e tinha cheiro de pão queimado, que era o cheiro dela, e ela olhou para Banjo com a boca aberta. O terceiro era amarelo, o quarto verde, e debaixo do verde algo crescia, capim ou música, e cada degrau que eles deixavam para trás se apagava com um som de tecla solta. A escada ia sumindo debaixo dos pés deles.
+— Você entrou sozinho nessa coisa? — Breno fechou os olhos por um instante. — Banjo, a gente precisa conversar depois.
 
-— Mais rápido! — gritou Breno, na frente, com Beatriz agarrada na cintura e o diapasão batendo na coxa. — Não olha para baixo! Só para o próximo!
+— Crianças, depois vocês conversam — interrompeu a Velha, apontando a bengala para a escada. — O contracanto chegou. São estas as sete notas que nós ouvimos. Os degraus vão desaparecer em poucos minutos. Subam agora!
 
-No quinto degrau, o azul, Kalev escorregou. As botas amarradas com pano não seguravam, e ele caiu de lado, a mão boa raspando a borda, e o degrau debaixo dele começou a apagar. Banjo nem pensou. Esticou a mão, sentiu o sussurro dentro da cabeça, o mesmo que sentia nos bichos, e puxou, com uma força que não era dele, o casaco queimado do homem para cima, só o suficiente. Breno virou, agarrou o outro braço, e os dois puxaram, e Kalev foi para o sexto degrau de joelhos, arfando, com uma lasca azul de luz ainda grudada na bota.
+Banjo ergueu a cabeça. A música não vinha só da escada: espalhava-se pelo vale inteiro. Muito longe, atrás de uma sucessão de montanhas que mudavam de lugar, ouviu alguém chamar. Outra voz respondeu, ainda mais distante. Ele procurou as pessoas entre os flocos, mas não viu ninguém.
+
+— Tem mais gente ouvindo — disse, olhando para Breno.
+
+— Eu sei — respondeu Breno. — Eles estão longe demais, Banjo. Se formos atrás deles agora, a escada desaparece com a gente aqui.
+
+O primeiro degrau já perdia a cor pelas bordas. Banjo apertou a mão de Beatriz. Queria que aquelas outras vozes estivessem perto. Não estavam.
+
+Eles subiram. O primeiro degrau era vermelho e quente; a meia de Beatriz chiou, arrancando-lhe um riso de susto. O segundo, laranja, tinha cheiro de pão queimado. Ela olhou para Banjo, de boca aberta. Vieram o amarelo e o verde, e debaixo do verde parecia crescer alguma coisa, capim ou música. A cada passo, o degrau abandonado se apagava com um som de tecla solta. A escada desaparecia atrás deles.
+
+— Mais rápido! — gritou Breno, segurando Beatriz pela cintura. — Olha pro próximo degrau, Bia! Não para!
+
+No quinto degrau, o azul, Kalev escorregou. As botas amarradas com pano perderam a aderência; ele caiu de lado, raspou a mão boa na borda e viu o degrau começar a apagar. Banjo esticou a mão por reflexo. Ouviu aquele sussurro na cabeça, parecido com o que às vezes sentia nos bichos, e puxou o casaco queimado de Kalev com a telecinese. Breno se virou a tempo de agarrar o outro braço. Juntos, arrastaram o homem para o sexto degrau, onde ele caiu de joelhos, arfando, com uma lasca azul de luz grudada na bota.
 
 — Obrigado — disse, rouco, para Banjo, sem entender.
 
-— Não foi nada. — Banjo estava tremendo. — Foi meio que sem querer.
+— Eu quase nem consegui — respondeu Banjo, com as mãos tremendo. — Ainda bem que o Breno me ajudou.
 
 O anil e o violeta passaram num piscar de olhos. A parede chegou. Era fria e quente, e não era nada, e Banjo, o último, sentiu um puxão no pé, de longe, como se alguém do outro lado puxasse uma linha que ele tinha dentro do corpo. Atrás dele a última cor se apagou. Não deu tempo de olhar para trás.
 
 Bruno estava no capim, com Banjo no colo, e já tinha tentado de tudo.
 
-Tinha chamado pelo nome, em voz alta e baixa, tinha sacudido de leve e depois nem tanto, tinha batido no rosto de pedra com a palma da mão e se arrependido na hora. Ferris e Shirley seguravam os ombros dele, um de cada lado, e Ferris repetia, baixo, que não era para puxar, que não era para puxar de jeito nenhum, que se a máscara tinha aceitado Banjo então ele estava lá dentro e estava bem. Falava isso com uma voz tão frágil que Bruno achou que ele estivesse falando para se convencer.
+Tinha chamado pelo nome, em voz alta e baixa, tinha sacudido de leve e depois nem tanto, tinha batido no rosto de pedra com a palma da mão e se arrependido na hora. Ferris e Shirley seguravam os ombros dele, um de cada lado, e Ferris repetia, baixo, que não era para puxar, que não era para puxar de jeito nenhum. Não sabiam se a máscara tinha aceitado Banjo nem se ele estava bem, mas arrancá-la à força podia piorar tudo. Ferris falava com uma voz tão frágil que Bruno achou que ele estivesse falando para se convencer.
 
-O sino de gelo batia na cabeça de Bruno num ritmo atrasado, torto, e ele apertou o corpo do irmão com mais força, como quem segura uma balsa. Pensou em Breno. Pensou na voz que dizia "Bruno." sozinha, só o nome, a bronca que ele tinha ouvido a vida inteira e que agora daria qualquer coisa para escutar. Pensou que se aquilo desse errado, de verdade errado, a voz seria a dele a dizer o nome de Breno para ninguém.
+Bruno apertou o irmão contra o peito. O sino de gelo continuava batendo dentro de sua cabeça, fora do ritmo, e ele só queria que Banjo acordasse. Pensou em Breno. Pensou na voz que dizia "Bruno." sozinha, só o nome, a bronca que ele tinha ouvido a vida inteira e que agora daria qualquer coisa para escutar. Pensou que se aquilo desse errado, de verdade errado, a voz seria a dele a dizer o nome de Breno para ninguém.
 
 A máscara saiu do rosto de Banjo sozinha.
 
-Não caiu. Deslizou, tirada de baixo por uma mão invisível, e rolou para o capim, e ficou de lado, com os dois olhos vazios virados para o céu laranja. Nas fendas, por um instante, apareceu uma luz que Bruno nunca tinha visto, fina e sem peso, de sete cores empilhadas, e sumiu. Banjo abriu os olhos.
+Não caiu. Deslizou, tirada de baixo por uma mão invisível, e rolou para o capim, e ficou de lado, com os dois olhos vazios virados para o céu preto, cortado de relâmpagos. Nas fendas, por um instante, apareceu uma luz que Bruno nunca tinha visto, fina e sem peso, de sete cores empilhadas, e sumiu. Banjo abriu os olhos.
 
 — Oi, Bruno — disse. — Eu vi a Beatriz.
 
-Bruno não respondeu. Fez a coisa que as palavras não faziam, que foi apertá-lo contra o peito até os óculos entortarem de novo e Banjo soltar um gemido abafado, e ficou assim, com o queixo no cabelo dele, respirando como um fole furado. Falou várias coisas ao mesmo tempo. Disse que era um idiota, disse que ele era um idiota, disse que ia contar para o Breno, e depois lembrou que não precisava contar mais nada porque o Breno ia ver.
+Bruno não respondeu. Abraçou-o com tanta força que os óculos entortaram outra vez, e Banjo reclamou, abafado contra o casaco do irmão. Bruno não soltou.
+
+— Seu maluco! — falou perto da orelha dele. — Nunca mais faz isso, ouviu? O Breno vai acabar com a gente!
 
 O ar em cima da máscara começou a engrossar.
 
 Foi como uma bolha de sabão que alguém soprasse do lado de dentro, esticada e colorida, e Bruno viu, sem entender, uma bota aparecer atravessando a pele. Era uma bota desamarrada, de couro gasto, e ela se agitou no ar, procurando o chão. Atrás dela veio a perna, e depois Breno inteiro, de cabelo em pé, caindo de joelhos no capim com um barulho seco, o diapasão batendo contra a terra e uma expressão de quem tinha esquecido o que era o chão. Logo depois, numa explosão de risadas e meia suja, saiu Beatriz com a Partitura apertada contra o peito, e correu direto para a primeira pessoa que viu, que era Ferris, e o abraçou pela cintura, e depois largou e pulou em cima de Bruno e de Banjo, os dois ao mesmo tempo.
 
-— Bruno! Bruno, olha, eu perdi a bota! Eu andei de bicho, ela dançou, o Banjo veio, a gente subiu uma escada e eu fiquei com medo de a escada acabar e ela acabou mesmo, mas a gente já tinha saído!
+— Bruno! — Beatriz se agarrou ao irmão. — Eu perdi uma bota! E andei num bicho que voava! A gente achou o Banjo lá dentro e saiu por uma escada de arco-íris!
 
-— Cadê a bota, Bia? — Bruno riu, com os olhos molhados, e passou a mão na cabeça dela, bagunçando o cabelo cheio de gelo derretido. — Você saiu de lá de meia, mano. De meia. Parece que você foi para o baile do inferno.
+— Pô, Bia, você voltou de meia! — Bruno riu, passando a mão pelos cabelos molhados dela. — O Breno deixou você sair assim?
 
-— Ficou com a bicha de gelo. Ela gostou do cheiro. — Beatriz limpou o nariz na manga da capa de Ivy, e o cheiro de pão queimado subiu do cabelo dela, forte, o que só acontecia quando estava muito feliz ou muito nervosa. — Eu avisei que ia voltar reclamando.
+— Eu deixei lá com a bicha de gelo! — Beatriz limpou o nariz na capa de Ivy. O cabelo tinha um cheiro leve de pão queimado. — Ela era enorme, Bruno! Você precisava ter visto!
 
 — Isso era comigo. — Bruno abraçou os dois com um braço só, o outro ainda em volta do Banjo. — Roubou minha fala.
 
-Breno, de joelhos no capim, não disse nada. Levantou devagar, sacudiu a calça, olhou os irmãos de cima, e o rosto dele fez uma coisa que Bruno nunca tinha visto nele, que foi ficar sem expressão nenhuma, vazio e aliviado ao mesmo tempo. Ele deu três passos. Parou. Estendeu a mão, apertou o ombro de Bruno com força, depois o de Banjo, e depois, sem dizer uma palavra, segurou a cabeça dos dois entre as mãos e encostou a testa na de Bruno.
+Breno continuava de joelhos no capim, sem dizer nada. Levantou, sacudiu a calça e olhou os irmãos com uma expressão que Bruno nunca tinha visto: vazia e aliviada ao mesmo tempo. Deu três passos. Parou. Apertou com força o ombro de Bruno, depois o de Banjo. Por fim, segurou a cabeça dos dois entre as mãos e encostou a testa na de Bruno.
 
-— Você está fedendo a neve queimada, chefe — disse Bruno, bem baixinho.
+— Você tá cheirando a neve queimada, chefe — murmurou Bruno.
 
-— Cale a boca, Bruno.
+— Cala a boca, Bruno.
 
-Foi a bronca mais bonita que Bruno já tinha ouvido.
+Bruno sorriu e abraçou Breno outra vez.
 
-O ar engrossou outra vez, e a Velha atravessou a bolha de cores com a bengala na frente, com o lenço no lugar, o rosto sereno e cego virado para o céu, e as botinas pequenas pisaram no capim sem fazer barulho. Shirley, que estava de pé um pouco atrás de Ferris, levou as duas mãos ao peito, e o rosto dela se iluminou numa alegria tão grande, tão larga, que Banjo, sentado no capim com Farol saindo do capuz, quase riu de olhar.
+O ar engrossou outra vez, e a Velha atravessou a bolha de cores com a bengala na frente, com o lenço no lugar, o rosto sereno e cego virado para o céu, e as botinas pequenas pisaram no capim sem fazer barulho. Shirley, um pouco atrás de Ferris, levou as mãos ao peito e sorriu, aliviada por mais uma pessoa conseguir sair. Banjo, sentado no capim com Farol saindo do capuz, sorriu também.
 
-— Eu falei que eles voltavam! — disse ela, com os olhos brilhando. — Eu falei, não falei? Eu falei desde o começo.
+— Eu sabia que eles iam voltar! — exclamou Shirley.
 
 — Falou, Shirley. — Bruno limpou o rosto na manga. — Para de se gabar e vem aqui.
 
 A Velha só sorriu, e inclinou a cabeça para onde vinha o barulho dos dois.
 
-O último a sair foi Kalev. Atravessou a bolha de costas, devagar, encolhido, de mão boa na frente do rosto como quem sai de uma sala escura, e ficou parado no capim, de barba cheia de neve derretida e casaco queimado, piscando contra a luz laranja que não se mexia. Olhou para os lados. Olhou para o céu. Olhou para uma figura de capacete debaixo do braço, a vinte passos dele, ruiva, parada, de olhos fixos, e a boca dele se abriu sem som.
+Kalev saiu por último, de costas e com a mão boa diante do rosto, como quem emerge de uma sala escura. Parou no capim, o casaco queimado e a barba cheia de neve derretida, deixando a chuva tocar-lhe a cara. Procurou o céu, as pedras, até encontrar uma figura ruiva de capacete sob o braço, a vinte passos. Abriu a boca, sem som.
 
-Ferris largou o capacete no chão. Não correu. Andou, passo a passo, e quando chegou na frente do pai ficou parado com os braços soltos, olhando-o de baixo para cima, de cima para baixo, como se conferisse uma lista.
+Ferris deixou o capacete cair na grama. Caminhou até o pai e ficou parado diante dele, olhando a barba, o casaco queimado e a mão enfaixada.
 
-— O senhor está inteiro — disse.
+— O senhor está vivo — disse Ferris.
 
 — Eu estou... — Kalev passou a mão boa pela barba, e a voz dele falhou no meio. — Meu filho. Você ficou do mesmo tamanho.
 
@@ -134,63 +162,67 @@ Ferris largou o capacete no chão. Não correu. Andou, passo a passo, e quando c
 
 — Eu preciso de um banho.
 
-Ferris soltou uma risada que nunca tinha saído dele, e virou uma outra coisa no meio, e o pai o puxou para si com o braço bom, e os dois ficaram ali, com a testa colada. Bruno, que estava vendo, lembrou que Ferris tinha dito, na travessia do mar raso, que o melhor dos três finais era aquele, e pensou que quase ninguém conseguia o melhor. Apertou a mão de Banjo e não falou nada. Era uma das poucas vezes em que ficar calado resolvia.
+Ferris começou a rir, mas a risada se perdeu quando o pai o puxou para perto com o braço bom. Os dois se abraçaram, sem se importar com a chuva. Bruno lembrou-se do que Ferris dissera ao atravessar o mar raso. O pai estava vivo, reconhecera o filho e, pelo jeito, precisava mesmo de um banho. Apertou a mão de Banjo e não falou nada. Era uma das poucas vezes em que ficar calado resolvia.
 
-Banjo viu Kalev contar a história sentado no capim, com a capa de Ferris nos ombros e um pedaço de pão de queijo de folha de louro na mão, que Banjo tinha tirado da cesta e entregado sem uma palavra. Eram só cinco pessoas em volta, mais a Velha de pé, e a luz laranja deixava todos os rostos da mesma cor, de foto antiga. Beatriz estava encostada nele, e Breno, do outro lado, desenhava no capim com um graveto uma coisa que parecia uma lista.
+Kalev sentou-se no capim com a capa de Ferris sobre os ombros. Banjo lhe ofereceu um pão de queijo de folha de louro, que ele segurou com a mão boa enquanto começava a contar o que acontecera. Eram só cinco pessoas em volta, mais a Velha de pé, e a chuva deixava todos os rostos pálidos entre um relâmpago e outro. Beatriz estava encostada nele, e Breno, do outro lado, traçava pequenos riscos no capim molhado com um graveto, atento ao relato de Kalev.
 
-— Eu ouvi na Central — disse Kalev. A voz dele ainda saía lenta, como quem experimenta uma palavra antes de usá-la. — Fim de tarde, no pátio de cima, enquanto eu esperava um carimbo de registro. Dois ajudantes conversavam do outro lado de uma pilha de caixas, baixo, e eu não estava ouvindo de propósito, juro. Um deles dizia que existia um lugar fora das vinte e uma dimensões onde a máscara cantava, que dava para chegar lá por sete passagens, e que ela escolhia quem ela queria. O outro riu e disse que era conversa de ave.
+— A primeira marca estava num desenho velho da Central — disse Kalev. A voz ainda saía lenta, como se precisasse experimentar as palavras. — Sete riscos e um laço, ao lado de um arco desativado. Pedi o mapa daquele arco, mas ninguém soube me dar. Num registro de manutenção encontrei uma nota sobre pedras que cantavam do outro lado. Fui conferir. Achei a primeira marca, depois outra, e comecei a desenhar tudo, para saber voltar. Foi assim que cheguei a Odilon.
 
-— Conversa de ave? — perguntou Bruno.
+Ferris ergueu a cabeça.
 
-— O mais novo cuida das aves da Central. Fala com elas o dia inteiro e não repara que as pessoas ouvem. O Bug. — Kalev mastigou o pão e engoliu. — Eu pensei que se eu fosse devagar e ficasse calado, aquilo era uma chance. Eu achei que ouvir a máscara de perto me diria o que fazer com ela. E eu achei também que podia virar aquilo contra o mago negro, o que foi tolice. Eu toquei nela, só para ouvir. Ela me ouviu primeiro. Só isso. Eu não lembro do resto, a não ser de uma música que eu não pedi e de uma cabana com uma parede de riscos.
+— A folha que o senhor esqueceu na casa dele era sua.
 
-Banjo ouviu o nome e sentiu uma coisa pequena se mexer no peito, como uma tampa que alguém levanta e deixa cair.
+— Eu deixei uma folha?
 
-— O Bug — repetiu, devagar.
+— O Odilon guardou. Tinha seus riscos. Achei que o senhor tivesse deixado uma pista.
 
-— O mesmo Bug — disse Bruno, e a voz dele saiu mais seca do que ele queria. — Que sabia a hora em que o sino toca. Que tinha lanterna e corda para quatro, e que nem perguntou por que a gente precisava de corda.
+— Não, Ferris. — Kalev segurou o braço do filho com a mão boa. — Eu nunca pediria que você fosse atrás de mim por aquela montanha.
 
-— Ele fez essa conta antes de a gente chegar — disse Breno, sem erguer a cabeça do graveto. — Quatro lanternas, quatro pessoas. Ele nos esperava.
+Ferris baixou os olhos para a mão do pai, mas não se afastou.
 
-— O Bug ajuda todo mundo. — Ferris limpou a garganta, de olhos no pai. — Ele me procurou na véspera, por causa do senhor. Disse que queria ajudar.
+— Subi até o cume e voltei a Tayo sem encontrar o que procurava — continuou Kalev. — Achava que a música da máscara podia me ajudar contra Korvo. Estava errado. Depois de voltar... não lembro de tudo. Acordei preso, numa cabana com riscos nas paredes. Passei muito tempo tentando entender se tinha enlouquecido.
 
-— Ele é novo, e fala com as aves — disse Kalev, com um jeito mole de homem que não quer pensar no que está pensando. — As aves não guardam segredo, e ele não sabe que as pessoas escutam. Eu não culpo o rapaz.
+— Mas o senhor achou as passagens sozinho — disse Banjo.
 
-— Fato ou suposição? — perguntou Breno, e a pergunta ficou no ar.
+Kalev olhou para a folha que Ferris segurava.
 
-— Suposição, chefe. — Bruno puxou um fio de capim e o dobrou em quatro. — Mas das feias.
+— Segui uma marca de cada vez. Também errei caminhos. Não sei quantas vezes teria me perdido sem aqueles desenhos.
 
-Banjo começou a contar nos dedos e parou no terceiro. Lembrou da etiqueta que Bug tirou do bolso do colete na Central, olhou e guardou sem dizer o que era, e do sorriso pequeno que não chegava aos olhos. Lembrou de Pipa subindo sempre que ele falava da brecha. O quarto dedo era o Bug entregando a corda, e ele escondeu a mão no colo, porque não queria dizer em voz alta. Farol se encolheu no capuz, pequeno, quieto, com a luz do rabo mais baixa do que de costume.
+— O senhor pode contar o resto quando estivermos em segurança — disse Breno, largando o graveto. — Agora precisamos sair daqui. Quem está com a máscara? E a Partitura continua com a Bia?
 
-— Discutimos isso em casa — disse Breno, largando o graveto. — Primeiro, vamos chegar ao traço de volta. Quem tá com a Partitura? E com a máscara? — Olhou para Kalev. — O banho do senhor fica pra depois, desculpa.
-
-— Eu fico com a máscara. — Kalev se levantou, apoiado em Ferris, e pegou o objeto no capim com o pano da capa, sem tocar, e a rachadura clareou de leve e voltou ao cinza. — Foi minha. Eu levo para a Sociedade, e de lá para onde ela puder ser guardada. Vocês cuidam da Partitura.
+— Eu fico responsável pela máscara. — Kalev se levantou, apoiado em Ferris, e pegou o objeto no capim com o pano da capa, sem tocar, e a rachadura clareou de leve e voltou ao cinza. — Fui parar dentro dela. Não quero que mais ninguém passe pelo mesmo. Vou levá-la para a Sociedade, e de lá para onde puder ser guardada. Vocês cuidam da Partitura.
 
 — Eu cuido! — Beatriz apertou o cilindro de osso contra o peito. — Eu cuido muito bem. Eu até dormi com ela no colo, ontem, quer dizer, hoje, quer dizer, qualquer coisa.
 
-— Dois a zero para a gente de novo — disse Bruno, esticando-se no capim, de braços abertos. — O Banjo veste a máscara, o Breno e a Bia voltam, o pai do Ferris sai inteiro. E ainda tem um cabritinho com o meu nome.
+— Dois a zero pra gente! — Bruno estendeu os braços. — Achamos todo mundo, salvamos o pai do Ferris... E eu ainda ganhei um afilhado!
 
 — Que cabritinho? — Beatriz arregalou os olhos.
 
 — Bruno Segundo — disse Banjo, com a voz mais séria que conseguiu. — Ele ficou muito orgulhoso.
 
-— EU QUERO CONHECER ELE!
+— EU QUERO CONHECER ESSE CABRITINHO!
 
 Banjo deixou a cesta de pão de queijo no nicho vazio, aos pés da estátua, porque alguém tinha de agradecer ao lugar, e Bruno, que ia perguntar por quê, resolveu não perguntar. Pensou no velho da casa torta, que tinha dado o aviso antes de qualquer um pôr o pé na montanha. Era a única razão pela qual Bruno ainda estava inteiro.
 
-Ferris riscou na base da estátua os sete traços e o laço da volta, como Kalev tinha deixado anotado, com a ponta da faca, e Shirley levantou os dedos, e as faíscas correram para o ar, e a costura começou a se abrir, de baixo para cima, bem devagar, na altura do peito de Ferris. Do outro lado vinha cheiro de chuva sobre pedra e o rumor distante de gente conversando. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
+Ferris comparou os traços que copiara do caderno do pai com a base da estátua. Não havia ali uma saída evidente. Escolheu o lado em que as linhas da pedra se encontravam e riscou os sete traços e o laço da volta com a ponta da faca.
+
+— Meu pai dizia que o laço servia para regressar pelo caminho marcado — explicou, sem tirar os olhos da pedra. — Se ainda houver uma ligação com a Central, talvez não precisemos atravessar as sete passagens ao contrário. Só não sei quanto tempo vai ficar aberta.
+
+— Posso tentar fazer a moldura responder — disse Shirley.
+
+Ela encostou os dedos faiscantes na marca. As linhas já gravadas começaram a brilhar, uma de cada vez, até o laço se fechar num círculo. Só então a costura apareceu no ar, de baixo para cima, bem devagar, à altura do peito de Ferris. Do outro lado vinha cheiro de chuva sobre pedra e o rumor distante de gente conversando. A Velha, perto da abertura, apoiada na bengala, de rosto virado para o ar que se desenhava, sorria sozinha.
 
 — Ferris, leva seu pai primeiro — disse Breno, levantando a mão. — A gente vai logo atrás. Não larga ele.
 
-Ferris olhou para os quatro, depois para Shirley, e abriu a boca para dizer que esperaria, e Kalev apertou o ombro do filho com a mão boa e respondeu primeiro, que do outro lado eles esperavam melhor do que ali. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, a cúpula alta de vidro e metal da Central e gente de costas se virando para olhar.
+Ferris ia protestar que esperaria os outros. Kalev apertou-lhe o ombro e disse que, do outro lado, esperariam em segurança. Ferris deu em Banjo um aperto no braço, curto e forte, e passou com o pai pela abertura, que os engoliu com um barulho de lençol sacudido. Banjo viu por um instante, do outro lado, a cúpula alta de vidro e metal da Central e gente de costas se virando para olhar.
 
 Shirley, de dedos ainda levantados, deixou as mãos caírem. A costura fechou com um puxão, de cima para baixo, como o zíper de uma mochila, e as faíscas morreram no ar.
 
 — Fechou — disse. Os olhos dela foram da abertura que sumia para o rosto dos irmãos, grandes e preocupados. — Ela fechou sozinha, juro. Eu tentei segurar e não aguentou, e agora eu não consigo abrir de novo.
 
-— Tenta outra vez — pediu Breno.
+— Tenta outra vez, Shirley — pediu Breno. — Consegue sentir onde está a abertura?
 
-Ela tentou. As faíscas saíram dos dedos, fracas, e morreram no ar. Banjo sentiu nela um aperto quente, que tomou por culpa. Ia dizer que não havia sido culpa dela quando o diapasão de Breno bateu sozinho na coxa dele.
+Ela tentou. As faíscas saíram dos dedos, fracas, e morreram no ar. Shirley baixou a cabeça e ficou olhando para as próprias mãos. Banjo achou que ela estava se culpando. Ia dizer que não havia sido culpa dela quando o diapasão de Breno bateu sozinho na coxa dele.
 
 Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala do fundo, e agora esquentava, e um zumbido grave e comprido, como de trem muito distante, subiu do pulso de Breno e se espalhou pelo capim. Breno ergueu o instrumento diante do rosto, encostou a ponta na orelha, e fechou os olhos, e contou.
 
@@ -198,20 +230,18 @@ Era um toque curto e seco. Fazia dias que o diapasão estava mudo, desde a sala 
 
 — Onde? — perguntou Bruno.
 
-— Grave. Muito grave. — Breno abriu os olhos. — E não é de nenhum de nós, nem de nenhuma coisa que a gente trouxe. Está perto.
+— Tem mais alguém perto da gente — disse Breno, abrindo os olhos. — Um sinal muito grave. Não reconheço.
 
 — Odilon? — perguntou Beatriz.
 
 — Ele disse que não sai daquela casa faz anos — lembrou Bruno. — E ficou lá embaixo.
 
-— Então não é ele. — Breno abaixou o diapasão devagar, e o zumbido continuou na mão dele, como um bicho dormindo.
+— Então não deve ser Odilon — respondeu Breno, baixando o diapasão. O metal continuava vibrando em sua mão.
 
-A luz mudou. Foi isso que Banjo sentiu primeiro, antes de ver, porque a luz laranja, que não se mexia desde que eles tinham chegado, de repente começou a escorrer para o buraco do horizonte, como água saindo de uma pia. Todas as sombras que estavam deitadas para o mesmo lado giraram juntas, devagar, e apontaram para a estátua. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
+A tempestade mudou. Banjo notou primeiro o vento: desde que vestira a máscara, soprava do abismo sem parar. Agora tinha cessado, como se alguém fechasse uma porta. As nuvens escuras rodaram por cima do cume, e todos os relâmpagos passaram a cair atrás da estátua, um de cada vez, iluminando o precipício por dentro. Todas as sombras que ainda havia no capim giraram juntas, devagar, e apontaram para ela. Farol se escondeu todo no capuz e apagou a cauda. A Partitura, no peito de Beatriz, deu um zumbido tão alto que ela soltou um gritinho e quase a deixou cair.
 
-Alguém estava sentado no toco do pescoço da estátua sem cabeça.
+Havia alguém sentado no pescoço quebrado da estátua. Até aquele instante, ninguém tinha olhado para cima. Estava ali, de pernas cruzadas, em cima da pedra cinzenta, com um terno escuro encharcado nas abas e ainda assim alinhado demais para aquele fim de mundo, o cabelo penteado para trás grudado pela chuva, e passava devagar um pano úmido pelos dedos, como quem limpa uma coisa que só ele enxerga. Uma das mangas estava chamuscada. Os olhos eram de um amarelo fundo, rodeados de sombras que pareciam nunca ter saído dali.
 
-Ninguém tinha olhado para cima. Estava ali, de pernas cruzadas, em cima da pedra cinzenta, com um terno escuro tão impecável que parecia fora de lugar mesmo naquele fim de mundo, o cabelo penteado para trás sem um fio solto, e passava devagar um pano úmido pelos dedos, como quem limpa uma coisa que só ele enxerga. Uma das mangas estava chamuscada. Os olhos eram de um amarelo fundo, rodeados de sombras que pareciam nunca ter saído dali.
-
-— Boa tarde — disse Korvo, com uma voz tão mansa que Banjo teve vontade de responder por educação.
+— Boa tarde — disse Korvo, num tom tranquilo que deixou Banjo ainda mais assustado.
 
 Ele sorriu, um sorriso pequeno, e olhou para a mão de Beatriz, onde a Partitura zumbia.

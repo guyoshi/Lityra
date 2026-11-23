@@ -42,7 +42,7 @@ Respirei fundo, devagar, como meu avô me ensinou a respirar antes de dizer uma 
 
 Eu estava sentado na mesa do quarto, com o livro de astronomia aberto na parte das estrelas variáveis, tentando entender por que algumas delas pulsavam em ritmos diferentes. Gostava dessa parte. Estrelas que não se contentavam em brilhar do mesmo jeito para sempre faziam mais sentido para mim do que as fixas, previsíveis, que fingiam estabilidade enquanto queimavam por dentro.
 
-Meu pai estava no trabalho. Ele costumava sair no almoço, para “andar um pouco”, embora nunca me explicasse exatamente para onde ia. Minha irmã estava na escola. A casa estava silenciosa daquele jeito que só existe quando tudo está funcionando como deveria.
+Meu pai estava no trabalho. Ele costumava sair no almoço, para “andar um pouco”, embora nunca me explicasse exatamente para onde ia. Minha irmã estava na escola. A casa estava silenciosa daquele jeito que só existe quando tudo está funcionando como deveria. Éramos quatro desde a morte da mamãe: meu pai, a Manu, o vô e eu. Naquela manhã, só dois de nós estavam em casa.
 
 Contei os passos do quarto até a porta, só por hábito. Sete passos curtos. O assoalho rangia mais forte no terceiro, perto da parede onde a madeira era mais antiga. Minha cabeça sempre fazia mapas, mesmo quando não precisava. Foi quando ouvi o ranger da escada.
 
@@ -122,7 +122,7 @@ Ela puxou o braço com força, recusando o toque, o corpo inteiro se retraindo.
 
 A porta se fechou atrás dele com força, com a corrente de ar entrando atrás dele.
 
-— O céu… — ele começou, parando no meio do caminho. — O céu ficou preto. Não cinza. Preto mesmo. Como carvão queimado. E as pessoas… há uma sombra lá fora. Fiquem aqui dentro.
+— O céu… — ele começou, parando no meio do caminho. — Tá escurecendo no meio da manhã. Não é nuvem. Tem uma faixa preta atravessando tudo, crescendo. E as pessoas… há uma sombra lá fora. Fiquem aqui dentro.
 
 Ele passou a mão pelos cabelos antes de falar.
 
@@ -130,7 +130,7 @@ Ele passou a mão pelos cabelos antes de falar.
 
 Meu pai me olhou de uma forma que nunca o vi me olhar.
 
-— Não é vento. Não é nuvem. É como se a noite tivesse descido andando.
+— Não é vento. Não é nuvem. É como se a noite estivesse descendo andando.
 
 Eu senti um frio subir pelas pernas, mas antes que pudesse perguntar qualquer coisa, meu pai olhou ao redor, o desespero mudando de alvo.
 
@@ -144,13 +144,25 @@ Ela começou a se afastar dele engatinhando, os olhos fixos no livro, apavorada.
 
 — Vô, o que o senhor tá fazendo? — perguntei, sentindo o coração bater rápido demais para acompanhar o raciocínio.
 
-As luzes da casa piscaram uma vez. E então… TUM TUM.
+As luzes da casa piscaram uma vez. Através da janela, a faixa de escuridão que vinha crescendo engoliu o último pedaço claro do céu. E então… TUM TUM.
 
 O som não veio de fora. Foi uma pancada dentro da minha cabeça, profunda o suficiente para fazer minha visão tremer. O ar ficou pesado, difícil de puxar, e as lâmpadas se apagaram.
 
 Por um segundo inteiro, nem o contorno da janela consegui distinguir. Quando a luz voltou, havia mais alguém ali dentro. Não alguém, algo.
 
-A sala também tinha mudado. Eu havia contado cinco cadeiras em volta da mesa antes do apagão, e agora eram seis, e a cor da parede era outra, um amarelo de que eu não me lembrava. No tapete, onde estava o meu avô lendo, havia peças de montar espalhadas, cinquenta e duas, e a Manu pequena rindo, e meu pai de joelhos ao lado dela. Era uma tarde que eu sabia que nunca tinha existido. Eu quis acreditar nela por inteiro, e quase consegui. Ninguém mais pareceu notar.
+Havia seis cadeiras à mesa, não cinco. O papel de parede estava amarelo, igual ao da casa onde morávamos quando Manu era menor. O sol entrava pela janela e fazia pequenos quadrados de luz no chão. Uma caixa de brinquedos tinha sido virada sobre o tapete.
+
+Minha irmã estava sentada ali, com o cabelo preso em duas maria-chiquinhas. Devia ter uns sete anos. Tinha um carrinho vermelho na mão e ria da cara que meu pai fazia enquanto tentava montar alguma coisa com as peças espalhadas. Eu me lembrava do carrinho. Era o que ela tinha perdido numa viagem, anos antes.
+
+— Fili! Vem ver! — ela chamou.
+
+Meu pai ergueu os olhos, com o rosto inteiro, sem aquele medo que eu acabara de ver. Minha irmã se levantou e correu para mim. Senti suas mãos pequenas puxarem a barra da minha camisa. O cheiro da casa era de café passado e bolo quente. Eu queria perguntar como tínhamos chegado àquela tarde. Mas havia uma pergunta muito melhor: e se pudéssemos ficar?
+
+Um baque veio do corredor. Manu continuou sorrindo. O segundo baque fez a janela tremer e espalhou peças pelo chão.
+
+TUM. TUM.
+
+Minha irmã soltou minha camisa. Por trás dela havia uma sombra alta, ocupando a passagem inteira. As paredes amarelas foram perdendo a cor, e só então ouvi a Manu de verdade gritar. Não era uma criança de sete anos. Era a menina que eu acabara de ver encolhida no chão, apavorada, e que agora estava diante daquela coisa.
 
 Não sei dizer de onde veio. Não entrou pela porta nem saiu do corredor. Simplesmente ocupava o espaço à frente de Manu, grande demais para parecer possível dentro da sala. Um corpo pálido, nu, montado errado, como se alguém tivesse reconstruído um homem com partes que não combinavam entre si. A pele parecia rasgada e colada de novo, e em alguns pontos os ossos apareciam como erros não corrigidos. O rosto… não havia rosto.
 

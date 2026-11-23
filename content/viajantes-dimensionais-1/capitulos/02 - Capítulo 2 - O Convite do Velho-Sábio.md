@@ -446,7 +446,7 @@ Breno ficou ali, sozinho, ouvindo a chuva, até os pés esfriarem por completo.
 
 Breno contou tudo, em voz baixa. Bruno disse que ele tinha sonhado. Banjo disse que ele não tinha sonhado. Beatriz não disse nada. Olhava para o rádio.
 
-Breno tirou o aparelho da prateleira. Estava morno, e zumbia tão baixinho que só dava para sentir na palma da mão. Abriu a tampa das pilhas. O símbolo pequeno que ele nunca soube o que era parecia mais fundo, como se tivesse sido gravado de novo.
+Breno tirou o aparelho da prateleira. Estava morno, e zumbia tão baixinho que só dava para sentir na palma da mão. Abriu a tampa das pilhas. Nada tinha mudado lá dentro, mas o plástico estava morno como pele.
 
 — Ele disse que não estava quebrado — falou Breno. — Que não funciona como a gente pensava.
 
@@ -480,9 +480,9 @@ Breno girou o botão de sintonia. Só ouviu um chiado baixo. Bruno ergueu a ante
 
 — O velho disse que ele não estava quebrado — falou Beatriz. — Talvez a gente esteja tentando do jeito errado.
 
-Banjo encostou um dedo na lateral do aparelho. O chiado ficou mais forte. Beatriz pôs a mão ao lado da dele, e o símbolo brilhou azul.
+Banjo encostou um dedo na lateral do aparelho. O chiado ficou mais forte. Beatriz pôs a mão ao lado da dele, e o rádio brilhou azul.
 
-— Olha só... — disse Bruno, segurando o rádio para examinar o símbolo.
+— Olha só... — disse Bruno, segurando o rádio para examiná-lo.
 
 Breno estendeu a mão para ajudá-lo. No instante em que os quatro o tocaram, o rádio estalou. 
 

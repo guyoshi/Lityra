@@ -38,7 +38,7 @@ Rendar desceu o olhar até a pulseira escura, velha e apertada demais para o bra
 
 Carroças formavam um semicírculo, sacos estavam cobertos com couro encerado e bravões de pescoço grosso esperavam em linhas separadas, alguns com placas de madeira protegendo a carga contra pancadas e bragores de mata.
 
-Buldar contavam pão, raiz e carne em cestos baixos. Do outro lado, Tondrar famintos esperavam de pé, lâminas à mão. Alguns encaravam Rendar. Ele evitou os olhares. Não tinha resposta para dar.
+Buldar contavam pão, raiz e carne em cestos baixos. Do outro lado, Tondrar famintos esperavam de pé, lâminas à mão. Alguns encaravam Rendar. Ele evitou os olhares. Não sabia o que dizer a eles.
 
 Um cesto foi empurrado contra o peito de Rendar. Sobre o pão escuro, havia um único bolinho de pão-de-barro, pequeno e pesado, desses que os Buldar entregavam quando o grão precisava ser contado até a última porção.
 
@@ -78,7 +78,7 @@ Outros Tondrar e Buldar perceberam. Uma mulher puxou uma criança para trás da 
 
 O Buldar cambaleou, mas não caiu. Antes que respondesse, uma voz rouca atravessou o espaço.
 
-— Mardun.
+— Solta o cesto.
 
 O Tondrar olhou para o lado.
 
@@ -116,7 +116,7 @@ Korrak agarrou o velho pela gola. Rendar entrou entre os dois, acertou o rosto d
 
 Korrak arreganhou os dentes.
 
-— Fendelar morto dando ordem?
+— Fendelar sem clã dando ordem?
 
 Rendar inclinou-se.
 
@@ -210,7 +210,7 @@ Rendar não respondeu. Hadrun limpou a boca num pano escuro e escondeu o pano de
 
 Rendar olhou para ele.
 
-— Homem burro não coloca Tondrar e Buldar debaixo das mesmas árvores sem morrer na primeira manhã. Homem muito burro faz isso, e acha que conseguirá manter.
+— Um homem esperto pode pôr Tondrar e Buldar sob as mesmas árvores. Precisa ser esperto de verdade para mantê-los aqui quando a comida começa a faltar.
 
 Rendar não respondeu.
 
@@ -240,7 +240,7 @@ Rendar abaixou os olhos para o caldo.
 
 Hadrun tocou a terra molhada.
 
-Nynestra cresceu ouvindo duas versões. A dos Polar, que dizia que Orionus manteve Jesed de pé. E a da mãe, que dizia que ele comprou paz com o estômago dos outros. Ela acredita mais na segunda, mas preferiu escolher a primeira, porque era ela quem traria paz.
+— Nynestra cresceu ouvindo duas versões. A dos Polar, que dizia que Orionus manteve Jesed de pé, e a da mãe, que dizia que ele comprou paz com a fome dos outros. Cresceu desconfiando da primeira e conhecendo bem a segunda. Ainda assim, tentou negociar antes de pensar em guerra.
 
 Ao longe, um trovão rolou baixo. Hadrun apoiou as costas no tronco.
 
@@ -282,7 +282,7 @@ Rendar passou o polegar pelo nó velho da pulseira sem perceber. Hadrun viu e de
 
 Hadrun soltou o ar devagar.
 
-— Também quis isso de alguém.
+— Já quis ver alguém morto desse jeito.
 
 Rendar não olhou.
 
@@ -370,7 +370,7 @@ Hadrun não disse nada. Esperou Rendar continuar, mas ele não continuou. Ao lon
 
 Rendar olhou para a criança escondida na carroça. Depois para a chuva.
 
-— Não salvei. Só deixei para depois o que Jesed talvez faça sem mim.
+— Não mandei matar. Foi só isso. Não sei o que vai acontecer com elas depois.
 
 Naquela noite a tempestade caiu inteira. As valas transbordaram, grão precisou ser erguido e um bravão rompeu a corda. Buldar trabalharam por turnos mantendo água longe das carroças e comida quente. Os Tondrar, acostumados à sede, suportaram mal a lama, a pintura escorrendo e o fogo que não pegava.
 
@@ -440,7 +440,7 @@ Vhark apertou a mandíbula.
 
 — Idiotas? Idiotas são aqueles que acham que têm honra de lutar ao lado de um Tondrar.
 
-— É isso que os Polar querem — disse Rendar. — Eles querem vocês separados. Tondrar voltando para a Boca Seca. Buldar contando pão sozinhos. Glydar escondidos no rio. Vendrar rindo em Varkhama. Cada clã com a própria dor. Cada dor pequena demais para quebrar muralha.
+— É isso que os Polar querem — disse Rendar. — Tondrar na Boca Seca, Buldar nos celeiros, Glydar no rio. Cada clã tentando se defender sozinho. Eles podem vigiar um caminho por vez. Não todos de uma vez.
 
 — E ficar aqui quebra? — perguntou a mulher.
 
@@ -450,7 +450,7 @@ Rendar olhou para os Tondrar.
 
 A frase doeu no orgulho deles. Era para doer.
 
-— Mas temos força para fazer os Polar sangrarem antes de saberem de onde veio o corte. Os Buldar conhecem fome. Eu conheço trilha. Juntos, podemos ensinar Kaendar a ter medo de sair da própria sombra.
+— Mas temos homens para atingir as rotas que levam a Kaendar. Os Buldar sabem onde passam as cargas. Eu conheço os caminhos que os guardas não vigiam.
 
 Vhark ficou imóvel. Alguns Tondrar ouviram. Outros só sentiram a humilhação de precisar ouvir. A mulher disse:
 

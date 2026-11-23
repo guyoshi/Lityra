@@ -1,6 +1,4 @@
-No dia anterior eu tinha visto a minha mãe morta no banheiro. Antes disso, vi Kelly de novo. E, numa outra visão, apareci segurando uma faca perto do professor Caetano.
-
-Comecei a anotar tudo num caderno, porque já não confiava na minha memória. Data, hora, lugar. No começo pensei que encontraria algum padrão, do mesmo jeito que fazia quando tentava resolver um mistério nos meus livros. A única coisa que as anotações mostravam era que eu estava dormindo cada vez menos.
+Anotei no caderno a hora em que vi minha mãe morta no banheiro. Na página anterior estava Kelly. Antes, a faca na minha mão, perto do professor Caetano. Eu não confiava mais na minha memória. Procurei um padrão nas datas, nas horas, nos lugares. A única coisa que encontrei foi o pouco que vinha dormindo.
 
 Naquela manhã, antes de sair para a escola, encontrei o toca-fitas que Kelly me dera no ano anterior. A etiqueta ainda dizia: “As melhores por Kelly Lorraine”.
 
@@ -408,11 +406,11 @@ Ela assentiu e cortou um pedaço, comendo como quem precisa de qualquer coisa co
 
 Ele assentiu.
 
-— O Refúgio das Sombras é um lugar onde habita apenas a maldade. Há muito tempo, um deles encontrou caminho para este mundo, rico em almas cheias de energia, uma energia que ele desconhecia. A energia das almas é fonte de vitalidade para esses seres. Não demorou para outros chegarem e começarem a se alimentar da mente dos vivos, tal como da alma dos mortos. Desde então, eles sempre estiveram entre nós.
+— É de lá que eles vêm. Aqui encontram o que procuram: gente viva e mortos que ainda não descansaram. Alimentam-se dos dois. Há muito tempo que aparecem entre nós, embora quase ninguém sobreviva para contar.
 
 Ele falava com a certeza de quem repetiu aquela história mil vezes na cabeça.
 
-— No entanto, apenas demônios fracos conseguiam vir, porque a baixa vitalidade os fazia atravessar a ponte entre os mundos sem quebrar o caminho. Os mais fortes faziam os fracos viajarem para trazer alimento. E foi assim por milhares de anos, até que, há 45 anos, um grupo de jovens descobriu uma forma de se comunicar com esses demônios. Mentes jovens são facilmente enganadas, garoto. Essas criaturas têm milhares de anos. Eles sabem como nos enganar. Os jovens acabaram trazendo um desses demônios para cá.
+— Os mais fortes não atravessavam sozinhos. Mandavam outros em seu lugar. Até que, quarenta e cinco anos atrás, um grupo de jovens tentou falar com eles. Achavam que estavam no controle. Trouxeram um dos piores para cá.
 
 Eu já sabia a resposta antes de perguntar, e mesmo assim perguntei.
 

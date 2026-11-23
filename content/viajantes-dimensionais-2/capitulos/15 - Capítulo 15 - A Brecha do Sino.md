@@ -1,67 +1,81 @@
-Depois do almoço, Velho-Sábio chamou os dois para o fundo do pátio, onde o muro fazia sombra e o chão ainda guardava a umidade da madrugada. Tinha voltado da Torre Branca com o chapéu torto e a cara de quem passara a manhã ouvindo gente falar sem dizer nada. Apoiou o cajado na borda do poço e sentou num banquinho de três pernas, que se equilibrava melhor do que a perna ruim dele.
+Depois do almoço, Velho-Sábio chamou Bruno e Banjo para o fundo do pátio. Voltava da Torre Branca com o chapéu torto, a expressão cansada e mais um requerimento sem autorização. O gabinete de Lucan prometera reavaliar a travessia; a Vigilância de Beker continuava a impedir o acesso aos registros completos. Nem chegara a tirar o casaco, mas já tinha preparado outro exercício. Apoiou o cajado na borda do poço e sentou-se num banquinho de três pernas, esticando a perna que doía.
 
-— Troca de posições — disse. — O Bruno fica parado e o Banjo se mexe. Bruno, uma linha fina de gelo daqui até o poço, e você a segura sem deixar engrossar e sem deixar rachar. Banjo, uma pedrinha andando por cima dela, de ponta a ponta, sem cair. Vocês dois param quando a sombra do poço chegar no meu sapato.
+— Hoje vocês vão trocar de função. Bruno, faça uma linha de gelo daqui até o poço. Fina, sem engrossar. Banjo, você leva uma pedra por cima dela sem deixar cair. E não adianta correr. — O mago apontou a sombra do poço, ainda longe do sapato. — Até a sombra chegar aqui.
 
-Bruno olhou a sombra do poço. Estava a um palmo do sapato, o que dava umas duas horas, talvez três, com o sol parado em cima do muro e os vigilantes lá fora contando as telhas de Lioro.
+Bruno examinou a sombra. Ainda faltava um bom pedaço até alcançar o sapato do mago. Olhou para o muro. Do lado de fora, os vigilantes continuavam na rua.
 
-— Só isso? — perguntou. — Segurar uma linha e olhar uma pedra andar?
+— Só isso? Ficar olhando uma pedra passear?
 
-— Só isso. É mais difícil do que parece, e eu aposto um pudim que você não passa de vinte passos.
+— Pelo menos vinte passos — respondeu Velho-Sábio. — Ontem a Eshley conseguiu amparar o saco quando vocês perderam o controle. Numa passagem estreita, pode não haver ninguém na posição certa para ajudar.
 
-Bruno quase respondeu que aceitava a aposta, mas a mão foi mais rápida que a boca e produziu a linha. Ela saiu clara e fina como um fio de pesca, atravessou o pátio sem tocar o chão e foi se firmar na pedra do poço com um estalinho. Banjo apoiou a pedrinha na ponta, mordendo a língua, e a pedrinha começou a andar. Um passo. Dois. Dez. A linha tremia um pouco, e Bruno tremia junto, porque cada vez que ele pensava em manter a linha fina, pensava também em Bia fazendo cara feia diante de um prato de couve, e o gelo engrossava no meio, e ele tinha que raspar o excesso com o pensamento.
+Bruno abriu a boca para aceitar a aposta, mas preferiu estender a mão e fazer o gelo. Ela saiu clara e fina como um fio de pesca, atravessou o pátio sem tocar o chão e foi se firmar na pedra do poço com um estalinho. Banjo apoiou a pedrinha na ponta, mordendo a língua, e a pedrinha começou a andar. Um passo. Dois. Dez. A linha tremia. Bruno tentava mantê-la fina, mas bastava pensar em outra coisa para o gelo engrossar no meio. Pensou em Beatriz reclamando da couve no jantar e precisou corrigir a espessura antes que a pedra caísse.
 
-Quinze passos. Dezessete. A pedrinha parou no meio do caminho, porque Banjo tinha olhado para o muro, para onde antes havia uma bola amarela, e a distração dele foi direto para o gelo. A linha rachou da ponta ao centro com um som de dente quebrando.
+Quinze passos. Dezessete. A pedra parou. Banjo olhava para o banco onde Beatriz costumava deixar a bola amarela, e perdeu a concentração. A linha de gelo estalou e se partiu antes que Banjo conseguisse segurá-la.
 
 — Desculpa — disse Banjo. — Eu só...
 
-— Dezessete — disse Velho-Sábio, e passou a mão pela barba. — Um pudim a menos para mim, e um a mais para o Lioro, que aposta contra vocês desde hoje cedo. De novo, Bruno.
+— Dezessete — contou Velho-Sábio. — Faltaram três para o ponto que precisamos. Vamos tentar outra vez.
 
-— De novo o quê? — Bruno olhava os pedaços de gelo derretendo na terra. A voz saiu mais alta do que ele queria e ele não fez nada para baixar. — Os meus irmãos sumiram, seu Velho-Sábio! O Breno e a Bia estão dentro de uma máscara, sei lá onde, e o senhor quer que eu fique aqui segurando fio de gelo pra pedra andar? Eu não vou ficar parado. Eu não vou. Chega!
+Banjo deixou a pedra cair na palma e esfregou os dedos, dormentes. Do outro lado do portão, um vigilante mudou de posição. Velho-Sábio esperou que ele se afastasse antes de mandar os irmãos recomeçarem.
+
+— De novo? — Bruno encarou o gelo quebrado. — Pô, seu Velho-Sábio, o Breno e a Bia sumiram! A gente nem sabe onde eles estão, e o senhor quer que eu fique aqui brincando com pedrinha? Não aguento mais isso!
 
 — Bruno — disse Banjo, baixinho.
 
 — Não, mano! Chega mesmo!
 
-Velho-Sábio não se levantou nem levantou a voz. Só tirou o chapéu e o virou nas mãos, bem devagar, com a atenção de quem examinava um bicho estranho.
+Velho-Sábio tirou o chapéu e o apoiou nos joelhos. Esperou Bruno terminar.
 
-— Pode ir até o muro — disse. — Do muro para dentro, a casa é sua. Do muro para fora tem quatro homens de capa cinza com uma caderneta, e a página de hoje ainda está em branco.
+— Eu sei, Bruno. Grimaldus passou a manhã na Torre Branca, Garmande está examinando os registros que conseguiu, e Mereditha voltou à Casa de Pesquisa. Eu fui exigir a autorização de resgate. — Velho-Sábio indicou o portão. — Aqueles quatro vigilantes não estão aí por acaso. Se você sair agora, Beker vai usar isso contra esta casa.
 
-Bruno não respondeu. Atravessou o pátio com passos pesados, chutou uma pedra que bateu na parede e foi se sentar encostado no tronco da árvore velha, a mesma que serviu de ponto numa partida de bola, de braços cruzados e queixo enfiado no peito. Banjo hesitou um instante entre ficar e ir, olhou para Velho-Sábio, que fez um aceno curto com o chapéu na mão, e foi.
+Bruno atravessou o pátio, chutou uma pedrinha contra o muro e se sentou debaixo da árvore onde brincara com Beatriz dias antes. Cruzou os braços e ficou olhando para o portão. Banjo hesitou junto ao poço, até Velho-Sábio indicar com o queixo que fosse atrás do irmão.
 
-Sentou ao lado dele e ficou quieto o tempo de contar até dez, que era o tempo que Bruno aguentava sem falar.
+Banjo se sentou ao lado de Bruno. Esperou um pouco, mas o irmão não parecia disposto a começar a conversa.
 
-— Bora hoje — disse Bruno. — Na brecha do Bug. Eu vou, Banjo. Se você não quiser ir...
+— Hoje à noite eu vou pela brecha do Bug — disse Bruno, baixinho. — Se você não quiser, tudo bem. Mas eu vou.
 
 — Eu vou — disse Banjo, depressa demais, e engoliu.
 
-— Beleza. E se o Velho-Sábio descobrir? E se o Bug mentir? E se a brecha for pegadinha e a gente der de cara na Torre com o Garmande e o Beker de braço dado?
+— E se o Velho-Sábio descobrir? E se o Bug estiver enganado? — Bruno olhou para a janela da cozinha. — Pô, já pensou a gente abrir o portal e dar de cara com o Garmande?
 
-— Aí a gente fala que foi passear.
+— Aí a gente vai ter que explicar — respondeu Banjo.
 
-— Pô, Banjo.
+— E ele vai mandar voltar.
 
-— Foi você que perguntou. — Banjo puxou um fiapo de capim e girou entre os dedos. Depois soltou uma risada pelo nariz, pequena e meio escorregada. — Sabe o que é engraçado? De novo a gente vai desobedecer pra correr atrás de irmão perdido. Parece que é o que a gente sabe fazer.
+— Talvez. Mas não vamos saber se não procurarmos Breno e Bia. — Banjo puxou um fiapo de capim. — Engraçado que no ano passado a gente já teve que correr atrás de irmão desaparecido. Eu achei que nunca mais ia acontecer.
 
-Bruno levantou a cabeça e olhou para ele, sério por três segundos inteiros, e então a boca dele cedeu de um lado.
+Bruno olhou para Banjo. A lembrança arrancou dele um sorriso pequeno.
 
-— Sempre dá certo — disse. — Mais ou menos.
+— E deu certo, né? — disse Bruno.
 
-— Mais ou menos — concordou Banjo. — Mas dá.
+— No final, deu. — Banjo apertou o capim entre os dedos. — Tomara que dê de novo.
 
-Riram os dois, e foi uma risada curta, que acabou antes de a graça chegar. Bruno apertou o punho em volta de um torrão, e o torrão virou pó.
+Bruno tirou o tambor pequeno da mochila e passou o polegar pela borda.
 
-— Eles tão bem, né? — perguntou, e a voz não parecia a dele. — O Breno é chato demais pra acontecer alguma coisa com ele.
+— A Mereditha disse que o pai tocava errado de propósito, lembra? Quando queria fazer todo mundo rir.
 
-— O Breno é chato demais — concordou Banjo.
+— Lembro. A mamãe ia acabar rindo também — respondeu Banjo.
+
+— Devia ser chato pra caramba ouvir os dois brigando por causa de música.
+
+— Acho que não brigavam de verdade.
+
+Bruno girou o tambor entre as mãos e guardou-o de novo. Queria ter uma lembrança própria daquilo, não apenas a história de Mereditha.
+
+Bruno soltou uma risada. Banjo tentou acompanhá-lo, mas os dois logo ficaram em silêncio. Bruno apertou o punho em volta de um torrão, e o torrão virou pó.
+
+— Eles vão estar bem, né, Banjo? — Bruno esfregou os olhos. — O Breno é chato demais pra se perder.
+
+— Ele vai ficar muito bravo quando souber que a gente fugiu — disse Banjo.
 
 Bruno passou a mão pelos olhos, depressa, e se levantou.
 
-— Vem. A gente tem que ajeitar a mochila antes de ele chamar pra jantar.
+— Bora. Temos que arrumar as mochilas antes que chamem pra jantar.
 
 
-Jantaram sopa de abóbora, e Ivy encheu o prato de Bruno duas vezes sem perguntar, e ele comeu as duas vezes sem sentir o gosto. Velho-Sábio ficou na cabeceira, falando de uma tia que tinha duas cabras com nome de duquesa, e Mereditha, ao lado dele, riu no lugar certo e depois ficou com a colher parada. Shirley, que ia dormir de novo no sofá da sala, comia calada ao lado de Lioro. Bolota, a cadela velha da casa, dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
+No jantar, Ivy encheu duas vezes o prato de Bruno com sopa de abóbora. Ele comeu sem reclamar, embora mal prestasse atenção no que levava à boca. Velho-Sábio havia trazido mais uma folha de Grimaldus e a consultou entre duas colheradas. Serafira e Karoli ainda comparavam os registros; ninguém conseguira uma autorização de saída. Mereditha examinava as últimas anotações de Kalev na ponta da mesa. Shirley, que ia dormir de novo no sofá da sala, comia calada ao lado de Lioro. Bolota, a cadela velha da casa, dormia debaixo da mesa com o focinho em cima do pé de Banjo, e ele passou a refeição inteira sem mexer o pé.
 
-Perto das nove, a casa se recolheu. Bruno ficou deitado no escuro do sótão, de botas e de casaco, com a mochila pronta no pé da cama e os olhos abertos para as vigas. Banjo, na cama de baixo, respirava como quem não dormia e se virava de lado a cada três minutos. Quando o sino da torre do Arcano deu dez badaladas, os dois ouviram, lá fora, o passo de botas ritmado na rua, a ronda dos vigilantes passando pelo portão, uma, depois a conversa baixa deles, e uma lanterna varrendo a fresta da janela e voltando a escurecer.
+Perto das nove, a casa começou a ficar quieta. Bruno se deitou no sótão ainda vestido, com a mochila pronta ao pé da cama, e esperou ouvindo os sons do corredor. Na cama de baixo, Banjo não parava de se virar. Quando o sino da torre do Arcano deu dez badaladas, os dois ouviram, lá fora, o passo de botas ritmado na rua, a ronda dos vigilantes passando pelo portão, uma, depois a conversa baixa deles, e uma lanterna varrendo a fresta da janela e voltando a escurecer.
 
 — Primeira — sussurrou Banjo.
 
@@ -69,41 +83,49 @@ Perto das nove, a casa se recolheu. Bruno ficou deitado no escuro do sótão, de
 
 Esperaram. O sino deu a meia hora, depois dez e quarenta. Ouviram de novo as botas, mais arrastadas, e uma tosse seca, e um dos homens disse, em voz alta, que a noite estava fria demais para uma coisa tão sem sentido. A lanterna passou outra vez. Bruno contou até cinquenta e se sentou.
 
-— Segunda — disse. — Bora!
+— Já passaram de novo. Bora! — sussurrou Bruno.
 
-Farol já estava dentro da mochila de Banjo, enrolado, com a ponta da cauda acesa em dourado fraco, e olhava os dois com a atenção de quem entendia tudo e não ia dizer nada. Desceram a escada de meia, com as botas na mão e a respiração presa. O terceiro degrau rangeu. Bruno parou. O quarto também, e foi pior. Bolota levantou a cabeça no pé da escada, olhou os dois, bocejou e voltou a deitar, e Bruno quase abraçou aquele cachorro.
+Farol espiava de dentro da mochila de Banjo, com a ponta da cauda quase apagada. Desceram a escada de meia, com as botas na mão e a respiração presa. O terceiro degrau rangeu. Bruno parou, mas o quarto rangeu também. Bolota ergueu a cabeça no pé da escada. Depois de olhar para os dois, bocejou e voltou a dormir. Bruno soltou o ar.
 
 Na cozinha, uma xícara esperava em cima da mesa, e junto da xícara, de camisola e com o cobertor dos pés enrolado nos ombros, estava Shirley.
 
 Os dois pararam com um pé no ar. Ela os olhou, depois olhou as botas nas mãos deles, depois as mochilas, e deu um sorriso muito calmo.
 
-— Ai, que susto — disse, em voz baixíssima. — Eu desci pra beber água e olha só quem eu encontro. Vão passear?
+— Que susto! — Shirley falou tão baixo que quase não a ouviram. Olhou as mochilas. — Vão sair?
 
-— Shirley — disse Banjo, e a voz dele subiu um tom no meio. — Por favor, por favor, não conta pra ninguém. Eu te peço. Eu faço o que você quiser, eu empresto a flauta, eu...
+— Shirley, por favor, não conta pra ninguém — pediu Banjo. — A gente vai tentar procurar Breno e Bia.
 
-— Eu não conto pra ninguém — disse Shirley. — Mas o Lioro precisa saber, né? Ele é responsável por vocês.
+Ela olhou de Bruno para Banjo. Depois puxou a própria mochila debaixo da cadeira.
 
-— Shirley!
+— Eu também queria ir. Só não sabia se vocês iam aceitar.
 
-— Pelo menos — continuou ela, com um dedo no queixo, olhando o teto — a menos que alguém me leve junto. Aí tudo bem, porque fica tudo em família.
+— Você arrumou a mochila antes de falar com a gente? — perguntou Bruno.
 
-Bruno abriu a boca e fechou.
+— Vocês dois passaram o jantar olhando para a porta. Não foi tão difícil adivinhar.
 
-— Isso é chantagem — disse, afinal. — Você tá fazendo chantagem sorrindo!
+— Pô, a gente é tão discreto assim?
 
-— Juro que é só uma sugestão — disse Shirley, e a risada dela era tão leve que dava vontade de acreditar. — Eu fico quietinha, não atrapalho, e se acontecer alguma coisa eu corro e peço ajuda. A Beatriz é minha amiga. E eu ouvi o que o Velho-Sábio disse sobre ninguém sair, e acho que a gente não é bom em ficar parado.
+— Você perguntou três vezes ao Lioro que horas os guardas saíam pra jantar — lembrou Shirley.
 
-— Ela tem razão — murmurou Banjo, e Bruno o olhou como quem acabava de ser traído por uma colher.
+Banjo não conseguiu esconder um sorriso.
 
-— Tá bom! Calça a bota, Shirley, e se você fizer barulho eu te congelo no lugar!
+— Eu quero ajudar a Bia — continuou ela. — Conheço a Central e posso levar minhas coisas. Mas, se vocês não quiserem, eu fico.
 
-— Você não tem coragem — respondeu ela, e já calçava as botas, que estavam limpas, bem arrumadas ao lado da porta.
+— A gente não vai deixar a Shirley sozinha aqui preocupada — disse Banjo.
 
-A noite estava fria, com um cheiro de lenha molhada. No fundo do quintal, pela portinha de ripas que dava para a viela, uma silhueta pequena esperava com um carrinho de duas rodas coberto por um pano e uma ave ruiva no ombro. Ao lado dele, mais alto, uma segunda silhueta de capa escura se encostava na parede, e quando Bruno chegou, ela deu um passo e tirou a mão do bolso.
+Bruno soltou o ar, vencido.
 
-— Atrasados — disse Ferris. — Onze e dez. A brecha abre à meia-noite, e Camporil fica longe da Central. Na túbula de serviço são uns trinta e cinco minutos sem paradas, fora a caminhada e os guardas. Se perdermos essa viagem, perdemos a brecha.
+— Tá bom. Mas se você fizer barulho, eu te congelo no lugar!
 
-— A gente teve um probleminha — disse Bruno, olhando para trás. — Mas já virou ajuda.
+— Primeiro vai ter que me alcançar — respondeu Shirley, calçando as botas.
+
+Banjo conferiu a flauta de osso claro, enrolada num pano no bolso de dentro da mochila. Mereditha dissera que o som cansava quem a tocava, mas ele não queria deixá-la para trás. Guardou-a no bolso interno do casaco, onde não bateria nas pedras durante a viagem.
+
+A noite estava fria, com um cheiro de lenha molhada. No fundo do quintal, pela portinha de ripas que dava para a viela, uma silhueta pequena esperava com um carrinho de duas rodas coberto por um pano e uma ave ruiva no ombro. Ao lado de Bug, um rapaz de capa escura estava encostado na parede. Endireitou-se quando os outros se aproximaram.
+
+— Onze e dez — disse Ferris. — A passagem abre à meia-noite. Ainda temos meia hora de viagem até a Central, fora os guardas. Se demorarmos mais, perdemos a brecha.
+
+— Apareceu mais uma pessoa — disse Bruno, apontando para Shirley. — Reclama com ela.
 
 Ferris olhou Shirley, que acenou com os dedos, e voltou os olhos para Bruno sem mudar a cara.
 
@@ -113,23 +135,29 @@ Ferris olhou Shirley, que acenou com os dedos, e voltou os olhos para Bruno sem 
 
 — Eu também.
 
-— Vamos — disse Bug, com os olhos de um lado a outro da viela. — Pano em cima, cesta de pão na frente. Se alguém perguntar, eu vim buscar o pão da dona Ivy, e o carrinho está pesado porque o pão é muito.
+— Vamos, antes que a ronda volte — pediu Bug. — Se perguntarem, estou levando pão da dona Ivy. O carrinho está pesado por causa das cestas. Não parem pra conversar.
 
-Foram em fila pelas vielas, com Bug empurrando o carrinho e os quatro atrás, colados nas paredes. O pano cobria uma cesta de verdade, cheia de pães duros, e debaixo dos pães Bug tinha escondido quatro lanternas apagadas e um rolo de corda que ninguém entendeu para que servia. Pipa ia de beirada em beirada, de telhado em telhado, acompanhando sem barulho, e de vez em quando virava o olho redondo para os garotos. Banjo percebeu e não gostou, e achou que tinha sido injusto com a ave e então gostou menos ainda.
+Seguiram pelas vielas atrás de Bug e do carrinho. Sob o pano havia uma cesta de pães duros e, escondidos por baixo, quatro lanternas apagadas e um rolo de corda.
+
+— Pra que a corda? — perguntou Banjo.
+
+— Se vocês caírem em algum lugar de onde não dê pra sair voando — respondeu Ferris.
+
+— Ótimo. Já tô adorando o passeio — murmurou Bruno. A ave ruiva passou sobre duas chaminés e pousou no beiral da padaria. Banjo viu a ave inclinar a cabeça, procurando o carrinho entre as sombras, até Bug assobiar e ela voltar a voar.
 
 Na esquina da padaria, um vigilante saiu de uma porta com a caderneta aberta. Era um homem baixo, de bigode ralo, e levantou a lanterna na cara de Bug.
 
 — Rapaz. Para onde com esse carrinho a essa hora?
 
-— Cesta de pão da dona Ivy — disse Bug, e levantou o pano com a mão que não tremia. — Ela mandou buscar pão, e o pão da padaria é o pão mais duro e mais bom da rua, o senhor prove.
+— Pão da dona Ivy, senhor — respondeu Bug, levantando o pano do carrinho. — Ela pediu para buscar na padaria. Quer ver?
 
-O vigilante olhou a cesta, olhou o pão e cutucou um com o dedo, desconfiado, e nesse momento Bruno achou que o coração ia sair pela boca. Ele sentiu a mão coçar. Era só uma lanterna. Se congelasse a lanterna...
+O vigilante afastou o pano e apertou um dos pães com o dedo. Bruno manteve as mãos nos bolsos para não denunciar o nervosismo. Ele sentiu a mão coçar. Era só uma lanterna. Se congelasse a lanterna...
 
 — Não — disse Ferris, tão baixo que só ele escutou, e o encostou na parede com dois dedos no ombro.
 
-— Eu nem falei nada!
+— Eu nem fiz nada!
 
-— Seu joelho falou.
+— Ainda — respondeu Ferris.
 
 Na rua, o vigilante soltou o pão, anotou qualquer coisa e mandou Bug seguir. Quando a esquina ficou para trás, Banjo soltou o ar de uma vez, e Bruno percebeu que Shirley, atrás dele, tinha se agarrado à capa dele sem avisar, e ela soltou depressa e deu uma risadinha.
 
@@ -139,54 +167,66 @@ A Central, à noite, não era a mesma. Bug os levou por uma porta de serviço, a
 
 — Por aqui — disse Bug, e a voz dele ecoou pequena.
 
-Passaram pelo balcão onde ficava o livro de registros, com uma lâmpada fraca em cima e um funcionário velho de touca de lã roncando em cima dos braços. Bug deu a volta pelo outro lado, em ponta de pé, e levou os quatro até o fim do salão, onde o último arco de metal, o de Belfex, ficava encostado numa parede de pedra. Atrás dele, entre a pedra e uma pilha de caixotes, havia uma cortina de lona velha.
+Passaram pelo balcão onde ficava o livro de registros, com uma lâmpada fraca em cima e um funcionário velho de touca de lã roncando em cima dos braços. Bug passou atrás do balcão e levou os quatro até o fundo do salão, onde o último arco de metal ficava junto à parede de pedra. Atrás dele, entre a pedra e uma pilha de caixotes, havia uma cortina de lona velha.
 
 Bug a puxou. Debaixo dela, no escuro, esperava outro arco.
 
-Era menor do que os do salão. A moldura de pedra estava coberta de poeira, e o centro, em vez de espelho, era um vazio fosco, cinza-escuro, como o fundo de um prato que ninguém lavava. Ninguém tinha feito aquele arco para ser olhado. Ferris foi o primeiro a chegar perto, e se agachou, e passou o polegar numa pedra da base, soprando a poeira.
+Era menor que os arcos do salão, com moldura de pedra coberta de poeira. No centro, em vez do espelho luminoso, havia uma superfície fosca e escura. Bruno não se lembrava de ter visto aquele arco na última visita. Ferris foi o primeiro a chegar perto, e se agachou, e passou o polegar numa pedra da base, soprando a poeira.
 
 Havia riscos ali. Sete traços curtos, de lado, e depois uma volta em laço, tudo riscado com a ponta de uma faca.
 
-— É o mesmo — disse Ferris. Ele não olhou ninguém. A voz tinha ficado raspada. — O desenho do chão da sala. Meu pai contava assim nos cadernos. Um traço por passagem, e o laço quando acaba. Sete passagens e o lugar sem número.
+— É o mesmo — disse Ferris. Ele não olhou ninguém. — O desenho que estava no caderno da mochila de Breno. Meu pai me ensinou essas marcas quando eu era menor. Um traço por passagem, e o laço quando acaba.
 
-— Então esta é a primeira — disse Banjo.
+— Então esta é a primeira? — perguntou Banjo.
 
-— É a primeira — disse Ferris, e se levantou com a mão fechada em cima dos riscos, como quem os guardava no bolso. — Ele passou por aqui. Faz sete semanas.
+— É o começo do caminho que ele anotou. São sete passagens, até um lugar que não tem número nos mapas da Central. — Ferris tirou do bolso uma folha dobrada, onde copiara as marcas e as três notas ao lado do laço. — Mereditha reconheceu uma das notas na sala de pesquisa. Não sei se a máscara foi para lá, mas é a única rota que o meu pai ligou àquele som antes de desaparecer.
 
-Bruno olhou o laço, e olhou o arco apagado, e pela primeira vez naquele dia ele não pensou em quanta coisa podia dar errado. Pensou em Breno, de cabelo em pé, dizendo a palavra primeiro, depois, e em Bia correndo de braços abertos para tudo que era novo, e a garganta apertou.
+— E se o Breno e a Bia tiverem ido parar noutro lugar? — perguntou Banjo.
+
+Ferris demorou a responder. — Então vamos ter de descobrir o que aconteceu quando a máscara foi parar lá. Por enquanto, achar onde ela apareceu é a nossa única pista.
+
+— Quer dizer que a gente pode atravessar tudo isso e não achar ninguém? — perguntou Bruno.
+
+— Pode — respondeu Ferris. — E se a máscara tiver ido para uma dimensão que meu pai nunca encontrou, não sei como chegar até ela.
+
+Banjo apertou a alça da mochila. Até ali, só tinha imaginado o medo de encontrar os irmãos. Não encontrá-los era pior.
+
+Bruno olhou os riscos na pedra. Lembrou do jeito de Breno conferir cada passagem antes de deixar os irmãos atravessarem e da pressa de Beatriz para entrar em qualquer portal. Queria que os dois estivessem ali.
 
 — E o pessoal do registro? — perguntou, para ocupar a boca. — O velho ali roncando não vai acordar?
 
 — Ele ronca até o sino — respondeu Bug. — Só que o sino acorda ele. Por isso a brecha dura pouco. Quando o sino da Central bate meia-noite, a lâmpada do livro pisca, o arco acende por baixo do registro, e pelo tempo de uma batida a passagem fica solta. Eu apago a lâmpada com o dedo antes que ele abra o olho. É a única hora. Se perderem, só no mês que vem.
 
-— E a volta? — perguntou Shirley, sem a leveza de sempre.
+— E como vamos voltar? — perguntou Shirley.
 
-Bug demorou a responder, e ele passou a mão no bolso do colete e tirou uma etiqueta, e olhou o número, e guardou.
+Ferris passou o dedo pelo laço ao fim dos sete riscos. — O meu pai chamava isso de marca de retorno. Não sei se ainda funciona, mas vou procurar a mesma marca do outro lado.
 
-— Eu vou ficar aqui — disse. — Eu sempre fico aqui, de noite.
+Bug olhou para o arco, depois para a lâmpada sobre o livro de registros.
+
+— Eu fico aqui e tento descobrir como abrir de novo — respondeu Bug.
 
 — Isso não é uma resposta — disse Ferris.
 
-— Eu sei — disse Bug, com os dentinhos pequenos à mostra num sorriso que não alcançava os olhos. — Mas é a que eu tenho.
+— Eu sei. É o máximo que posso prometer — respondeu Bug, sem olhar diretamente para Ferris.
 
-No alto, na viga mais próxima do arco, Pipa tinha pousado e olhava os cinco, de cabeça meio de lado, o olho redondo brilhando com o reflexo do vidro. Banjo olhou de volta. A ave piscou devagar, e foi só isso.
+No alto, na viga mais próxima do arco, a ave ruiva tinha pousado e olhava os cinco, de cabeça meio de lado, o olho redondo brilhando com o reflexo do vidro. Banjo olhou de volta. A ave piscou devagar, e foi só isso.
 
 Em cima, na torre da Central, o sino começou.
 
-O primeiro som desceu pelo salão como uma pedra num poço, e as aves das vigas abriram os olhos todas juntas. A lâmpada do balcão piscou. Atrás deles, o funcionário velho grunhiu e se mexeu, e Bug correu, de passinhos curtos e dedo esticado, e apagou a lâmpada. O fosco cinza do arco se desfez como fumaça, e no lugar dele nasceu uma coisa que Bruno nunca tinha visto, uma claridade de cor mutável, lilás e dourada, sem nenhuma luz de onde viesse.
+A primeira badalada ecoou pelo salão. As aves nas vigas abriram os olhos quase ao mesmo tempo. A lâmpada do balcão piscou. Atrás deles, o funcionário velho grunhiu e se mexeu, e Bug correu, de passinhos curtos e dedo esticado, e apagou a lâmpada. A superfície cinza do arco se desfez, revelando uma luz que mudava do lilás para o dourado. Bruno nunca vira um portal abrir daquela forma.
 
 — Agora! — disse Bug. — Agora, agora!
 
-Ferris foi primeiro, de capa batendo, e o lilás o engoliu sem barulho. Shirley segurou a mão de Banjo, e Banjo olhou para Bruno com um sorriso tremido, e os dois entraram juntos, com o rabo aceso de Farol escapando pela borda da mochila. Bruno ficou um segundo parado. Olhou o salão, as aves, o velho abrindo um olho, a cara de Bug dizendo uma coisa que ele não ouviu. Apertou as alças da mochila, pensou em Bia, e pulou.
+Ferris atravessou primeiro, engolido pelo brilho lilás. Shirley tomou a mão de Banjo; os dois o seguiram, com a cauda acesa de Farol escapando pela mochila. Bruno hesitou. Atrás dele, o funcionário da Central se mexeu sobre o livro de registros, e Bug gritou alguma coisa que ele não entendeu. Apertou as alças da mochila, pensou em Bia, e pulou.
 
-Primeiro, a passagem puxou o estômago dele para trás, em direção à Central, e o empurrou para a frente ao mesmo tempo, num aperto tão rápido que não deu para ter medo. Depois sentiu um frio no rosto, um frio limpo, com cheiro de coisa que nunca tinha sido respirada. Os pés bateram em alguma coisa dura, e a dureza foi embora.
+Primeiro, a passagem puxou o estômago dele para trás, em direção à Central, e o empurrou para a frente ao mesmo tempo, num aperto tão rápido que não deu para ter medo. Um ar gelado atingiu seu rosto. Tinha um cheiro estranho, que ele não reconheceu. Os pés bateram em alguma coisa dura, e a dureza foi embora.
 
-Bruno abriu os olhos, e os pés não tinham chão embaixo. A mochila subiu sozinha e bateu de leve na cabeça dele. Os cadarços das botas subiam devagar, como algas, e uma pedrinha branca, do tamanho de um ovo, passou sem pressa na frente do nariz dele e foi para cima, girando. Ele ia dizer alguma coisa. Ele sempre tinha uma coisa para dizer, uma bobagem, uma piada, um pô, mano. Abriu a boca, pronto para soltar a primeira da noite.
+Bruno abriu os olhos, e os pés não tinham chão embaixo. A mochila subiu sozinha e bateu de leve na cabeça dele. Os cadarços das botas flutuavam como algas, e uma pedrinha branca, do tamanho de um ovo, girou diante do nariz dele. Bruno abriu a boca para comentar, mas a voz não saiu.
 
-À volta dele, até onde os olhos alcançavam, havia milhares de pedras pequenas e grandes, brancas, cor de pérola e de leite, flutuando em silêncio no ar, devagarinho, como neve que tivesse esquecido de cair. Cada uma delas guardava um pontinho de luz dentro de si, e a luz pulsava, lenta, no ritmo de uma respiração. Mais longe, as pedras maiores, do tamanho de casas, giravam preguiçosas com cachos de raízes e de flores penduradas, e no meio delas corria um rio de luz dourada, sem leito, serpenteando no ar. O céu era roxo e rosa e verde-água, tudo ao mesmo tempo, sem sol, e no alto um anel muito largo e muito fino atravessava o horizonte, brilhando como o aro de uma lua. E havia um som, bem baixinho, vindo de todos os lados, uma nota comprida como o dedo de alguém passando na borda de um copo de vidro.
+À volta dele, até onde os olhos alcançavam, havia milhares de pedras pequenas e grandes, brancas, cor de pérola e de leite, flutuando como neve que tivesse esquecido de cair. Cada uma delas guardava um pontinho de luz dentro de si, e a luz pulsava, lenta, no ritmo de uma respiração. Mais longe, as pedras maiores, do tamanho de casas, giravam preguiçosas com cachos de raízes e de flores penduradas, e no meio delas corria um rio de luz dourada, sem leito, serpenteando no ar. O céu era roxo e rosa e verde-água, tudo ao mesmo tempo, sem sol, e no alto um anel muito largo e muito fino atravessava o horizonte, brilhando como o aro de uma lua. Ao redor, uma nota longa e delicada vibrava entre as pedras, lembrando o som de um dedo na borda de um copo.
 
-Do lado dele, de cabeça para baixo e de olhos enormes, Banjo flutuava com a mão estendida para uma pedra, e a boca aberta, sem dizer nada. Shirley, de cabelo solto subindo em volta da cabeça como uma nuvem, tinha parado de sorrir pela primeira vez, e olhava tudo com o rosto de quem era criança de verdade. Ferris, parado no ar de braços cruzados, deixou escapar um som que podia ser um riso ou o começo de uma frase.
+Do lado dele, de cabeça para baixo e de olhos enormes, Banjo flutuava com a mão estendida para uma pedra, e a boca aberta, sem dizer nada. Shirley, de cabelo solto subindo em volta da cabeça como uma nuvem, tinha parado de sorrir pela primeira vez, e olhava tudo com o rosto de quem era criança de verdade. Ferris flutuava perto deles, com os braços cruzados e os olhos arregalados.
 
-Bruno fechou a boca. Não tinha nenhuma bobagem. Pela primeira vez na vida, não tinha nada para dizer.
+Bruno olhou para Banjo, Shirley e Ferris. Nenhum deles falava. Pela primeira vez naquela noite, nem ele encontrou uma piada.
 
 Nas costas de Banjo, a mochila se mexeu, e a cabeça de Farol saiu pela abertura, de olhos arregalados, e ele soltou um ruído fino, de bicho que descobre que o mundo é maior que o quintal.

@@ -6,9 +6,9 @@ Amira estava acordada, sentada perto da lamparina, com um livro fechado no colo 
 
 — Selina, preciso falar com você.
 
-Havia alguma coisa diferente na voz dela: mais reta, sem a leveza de quem só quer confirmar um horário ou avisar sobre um documento esquecido. Selina não notou. A cabeça ainda estava cheia de nomes, de flechas, de uma menina desaparecida em algum lugar da cidade, de um homem que dissera "fora da muralha, perto de Maruva" como se aquilo bastasse para consertar qualquer coisa.
+Amira segurou o livro fechado junto ao corpo. Selina notou o gesto, mas não a expressão da enteada. Ainda estava pensando em Elis, Kalan e na discussão da sala de preparo.
 
-— Agora não — disse Selina, e a voz saiu mais dura do que precisava, quase um corte.
+— Agora não, Amira. Tive um dia terrível.
 
 Amira não insistiu.
 
@@ -26,19 +26,11 @@ Ficou ali um momento, olhando para o próprio quarto sem vê-lo.
 
 Depois se abaixou e puxou de baixo da cama a caixa de Roven.
 
-Havia uma ironia ali que Selina reconheceu sem prazer: uma das mulheres mais próximas da administração e dos registros de Kaeliran, que passava os dias organizando documentos, autorizações e petições, escondia sob a própria cama uma caixa de papéis roubados da Raiz. Se alguém da Permanência soubesse, aquilo sozinho bastaria para acabar com ela. Não se permitiu pensar muito nisso. Colocou a caixa sobre a cama e abriu a tampa.
+Uma conselheira que passava a vida autorizando circulação de documentos guardava agora, debaixo da cama, uma caixa roubada da Raiz. Se alguém descobrisse, poderia perder a cadeira e responder por ocultação.
 
-A caixa tinha chegado até ali por um caminho que Selina só reconstruiu depois, juntando o que Elis dissera antes de fugir ao que ela já sabia.
+Não se permitiu pensar muito nisso. Colocou a caixa sobre a cama e abriu a tampa.
 
-Quando Karesis avisara que as chuvas poderiam alagar os túneis sob a cidade, Elis tirara a caixa de lá às pressas, sem tempo para escolher um esconderijo melhor. Escondera-a num vão alto entre o forro e o telhado de uma antiga oficina de redes abandonada, poucas ruas atrás do mercado de Maruva: seco, alto demais para ser alcançado sem esforço, invisível para quem não soubesse onde procurar. Um esconderijo inteligente. Elis sempre fora inteligente daquele jeito, o de quem cresceu decidindo sozinha o que era seguro e o que não era.
-
-Só antes da execução, quando Selina insistira, mais de uma vez, que gente demais parecia interessada naquela caixa para deixá-la perdida num canto da cidade, Elis cedera e revelara o esconderijo.
-
-Selina tinha recuperado os documentos.
-
-Não houvera tempo de nada daquilo ajudar Kalan. A caixa voltara às mãos dela horas antes das flechas, e mesmo assim não bastara: a ordem de Vetarius também chegara tarde, e nenhum papel recuperado a tempo compensava um papel assinado tarde demais.
-
-Agora a caixa estava ali, sobre a cama, e Selina precisava fazer com ela a única coisa que sempre soubera fazer bem: trabalhar.
+Selina reconstruíra como a caixa chegara a ela. Avisada por Karesis do risco de alagamento, Elis a tirara dos túneis e a escondera num vão alto de uma oficina de redes abandonada, atrás do mercado de Maruva. Só pouco antes da execução, depois das perguntas insistentes de Selina, revelara aquele esconderijo. Selina recuperara a caixa horas antes das flechas, sem encontrar a tempo nada que pudesse salvar Kalan.
 
 Organizou os documentos como organizava qualquer coisa: por data primeiro, depois por tipo, depois por relevância aparente. Espalhou-os sobre a cama em fileiras cuidadosas, cada canto alinhado com o seguinte. O cansaço pesava atrás dos olhos, mas o corpo conhecia aquele movimento havia décadas, e as mãos seguiram o ritual sem pedir permissão.
 
@@ -82,7 +74,7 @@ Contratos antigos. Autorizações de comércio. Registros de propriedade.
 
 O primeiro documento de propriedade era o que mais importava, e Selina sabia por quê antes de reler: um Nular podia trabalhar, acumular dinheiro, possuir ferramentas, mercadorias, até pequenos negócios informais. Mas propriedade territorial de verdade (terra reconhecida, registrada, transmissível) exigia pertencimento formal a uma casa, a que nenhum Aleris Nular teria acesso.
 
-Quando Alveris comprara sua primeira propriedade, os papéis já o registravam como Alveris Polar.
+Quando Alveris adquirira sua primeira propriedade territorial, os documentos já o identificavam como Alveris Polar.
 
 Espalhou as datas sobre a cama, uma ao lado da outra, e montou a linha como faria com qualquer outro caso.
 
@@ -98,9 +90,7 @@ Pouco depois dessa referência perdida, surgia Alveris Polar. Mesma idade aproxi
 
 Selina ficou olhando para o espaço vazio entre os dois registros: o buraco onde deveria estar a explicação, a peça que transformaria coincidência em prova.
 
-A sequência já era convincente demais para parecer acaso.
-
-Mas convicção não era a mesma coisa que documento.
+A sequência sugeria um vínculo, mas Selina precisava localizar o documento que justificava a mudança de pertencimento. Sem ele, ainda trabalhava com uma hipótese.
 
 A pergunta prática passou a ser outra: se Aleris e Alveris eram o mesmo homem, como um Buldar Nular tinha se tornado Polar?
 
@@ -124,7 +114,7 @@ Talvez tivesse visto o nome Aleris e seguido adiante sem entender. Talvez nem ti
 
 O que sabia era mais simples: ele roubara o conjunto inteiro para esconder qual registro realmente procurava. Ao fazer isso, carregara junto algo muito maior do que o problema que tentava resolver.
 
-Não deixou a mente ir longe demais. Não tinha prova de que Alveris ordenara a morte de Kalan, e sabia a diferença entre suspeita e prova. Mas, pela primeira vez desde as flechas, formulou uma possibilidade que a incomodou mais do que qualquer certeza: Kalan talvez tivesse morrido sem perceber o tamanho da coisa que tinha nas mãos.
+Não tinha prova alguma de que Alveris ordenara a morte de Kalan. Mas era possível que o rapaz tivesse carregado, sem saber, um conjunto de documentos capaz de ameaçar alguém poderoso.
 
 Havia algo insuportável nisso, e Selina não tentou nomear o quê. Deixou que ficasse ali, pesando, enquanto reorganizava os papéis mais uma vez.
 
@@ -162,7 +152,7 @@ Chamou de novo, mais alto, e desceu ela mesma até a sala, com dois dos document
 
 Amira estava onde tinha estado antes, o mesmo livro fechado no colo, como se não tivesse se mexido desde que Selina subira. A lamparina estava quase sem óleo, a luz mais fraca.
 
-— Preciso de um documento do anexo — Selina disse, direto, como sempre falava com ela. — Um processo de reconhecimento de propriedade, de uns trinta e cinco, trinta e seis ciclos atrás. Talvez você lembre onde ficam arquivados os registros dessa época.
+— Preciso consultar um processo antigo de propriedade — disse Selina. — Uns trinta e cinco, trinta e seis ciclos atrás. Você sabe em que anexo guardam os reconhecimentos desse período?
 
 Amira olhou para ela por um momento antes de responder.
 
@@ -174,7 +164,7 @@ Amira era boa naquilo. Sempre fora, talvez melhor que Selina em achar padrões e
 
 Selina sentiu, pela primeira vez naquela noite, algo parecido com energia voltando ao corpo.
 
-— Amanhã procuramos a referência completa — disse, já organizando os próximos passos, o jeito antigo de pensar em etapas, prazos, ordem de operações. — Depois o registro familiar que devem ter usado para justificar o reconhecimento. Depois descobrimos quem assinou a validação. E então voltamos à Balança com tudo isso nas mãos.
+— Amanhã localizamos o processo completo. Com ele, podemos identificar o registro de família usado no reconhecimento e quem autorizou a mudança. Depois conferimos tudo com os documentos da Balança.
 
 Amira não respondeu de imediato.
 
@@ -212,7 +202,7 @@ O quarto pareceu, por um segundo, ficar sem ar.
 
 Selina sentiu o instinto de sempre subir antes que pudesse impedir: resolver, organizar, transformar aquilo num problema com solução administrável.
 
-— Se é sobre a Cadeira, posso te dar outra função. Menos carga, mais autonomia. Ou descanso, algumas semanas, o tempo que for necessário, e eu cuido de tudo. — Selina falava rápido, as ideias se atropelando. — Posso aumentar o que você recebe. Podemos rever sua posição inteira, tirar você da Cadeira e deixar só a casa, ou o contrário, sair da Cadeira mas continuar morando aqui, sem obrigação de trabalho.
+— Se é por causa do trabalho, podemos mudar sua função. Dar-lhe mais autonomia, licença, o que precisar. — Selina se aproximou. — Posso rever seu pagamento. Você não precisa sair de casa só porque quer deixar a Cadeira. Podemos resolver uma coisa de cada vez.
 
 Amira deixou terminar. Depois balançou a cabeça, devagar.
 
@@ -220,15 +210,15 @@ Amira deixou terminar. Depois balançou a cabeça, devagar.
 
 — Fazendo o quê?
 
-— Isso. — Amira abriu as mãos, indicando o quarto, os papéis, a própria Selina. — Transformando isso numa coisa administrável. Um problema com solução. Cargo errado, resolve mudando o cargo. Cansaço, resolve com descanso. Dinheiro, resolve com mais dinheiro.
+— Você nem perguntou por que eu quero sair. Já ofereceu cargo, dinheiro e licença. — Amira fez um gesto para a cama coberta de documentos. — Está fazendo comigo o que faz com esses processos.
 
 — Eu estou tentando resolver.
 
-— Eu sei que está. — Amira disse sem raiva, o que tornava tudo mais difícil de rebater. — É o que você sempre fez. Você me deu uma casa. Educação. Proteção. Trabalho. Um futuro melhor do que eu teria em qualquer outro lugar depois que meu pai morreu. Eu sei o tamanho do que você fez por mim.
+— Eu sei. Você sempre tentou cuidar de mim do jeito que sabe. Nunca me faltaram estudo, casa ou proteção, e sou grata por isso. Depois que meu pai morreu, eu não teria tido as mesmas oportunidades sem você.
 
 — Então por quê...
 
-— Porque você nunca me disse que queria que eu ficasse aqui como pessoa — Amira disse, e finalmente algo quebrou na voz dela, só um pouco, o bastante para mostrar quanto tempo aquilo vinha sendo guardado. — Você garantiu tudo que consegue organizar. Casa. Segurança. Acesso. Mas eu era sempre a responsabilidade bem administrada. Nunca a pessoa que você escolhia ter por perto.
+— Porque você nunca me perguntou se eu estava feliz aqui — respondeu Amira. A voz vacilou pela primeira vez. — Nunca me disse que gostava de me ter por perto. Eu sabia que estava protegida, Selina. Não sabia se era querida.
 
 Selina ficou sem resposta por mais tempo do que gostaria de admitir.
 
@@ -248,7 +238,7 @@ Amira acreditou. Selina viu isso no rosto dela, no jeito como alguma coisa suavi
 
 E mesmo assim, Amira ia embora.
 
-— Ouvir isso agora não apaga todos os anos em que eu precisei adivinhar — disse, sem crueldade, só com um cansaço enorme, acumulado devagar, que não se desfaz com uma confissão tardia.
+— Eu acredito em você. Só precisava ter ouvido isso antes, não hoje, quando já decidi partir.
 
 Selina não impediu.
 

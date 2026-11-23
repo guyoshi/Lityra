@@ -28,7 +28,7 @@ No centro da vila, o antigo galpão de mantimentos era uma cratera cercada por m
 
 E então ela o viu.
 
-No início, o corpo pareceu apenas mais uma forma entre tantas. Um homem caído de lado, parcialmente coberto por cinza, uma das pernas presa por lama seca e tendão escuro. A armadura estava quebrada no ombro. O peito, manchado de sangue antigo. O rosto voltado para o chão, sujo de cinza, mas ainda reconhecível de um modo que feriu Kaelina antes mesmo que a certeza chegasse inteira.
+No início, viu apenas um homem caído de lado, parcialmente coberto por cinza, com uma das pernas presa por um laço de tendão escuro. A armadura estava quebrada no ombro, o peito manchado de sangue seco. Então reconheceu o rosto voltado para o chão.
 
 Cal Edran Polar estava ali. A mão dela subiu à boca.
 
@@ -38,13 +38,13 @@ Edran estava frio.
 
 Havia sangue seco no canto da boca, um corte junto à maçã do rosto e cinza nas sobrancelhas. Na têmpora esquerda, a pele estava nua onde a raiz de Calandrir fora apagada. Uma das mãos continuava fechada.
 
-Kaelina tocou essa mão. Os dedos estavam rígidos, fechados com tanta força que pareciam agarrados a uma ordem que o corpo se recusara a largar. Ela tentou abri-los com cuidado, primeiro como soberana, depois como filha, depois como criança. Não conseguiu. Soltou um som baixo, ferido, sem palavra. Então segurou a mão dele entre as suas e encostou a testa nos nós dos dedos.
+Kaelina tocou essa mão. Os dedos estavam rígidos, fechados com tanta força que pareciam agarrados a uma ordem que o corpo se recusara a largar. Tentou abrir aqueles dedos com cuidado. Não conseguiu. Soltou um som baixo, ferido, sem palavra. Então segurou a mão dele entre as suas e encostou a testa nos nós dos dedos.
 
 Então chorou. O ar saiu quebrado e o nome falhou na primeira tentativa.
 
 — Edran...
 
-Harrev virou o rosto. Os homens atrás dele baixaram a cabeça, não por ordem, mas porque havia dores que até soldados sabiam não olhar de frente.
+Harrev virou o rosto. Os homens atrás dele baixaram a cabeça.
 
 Kaelina lembrou das botas retiradas de seus pés, da história da fila de pão e de Edran bloqueando o portão porque prometera cuidar das meninas de Orionus. Apertou a mão fria.
 
@@ -100,7 +100,7 @@ Kaelina olhou para os homens que o seguravam.
 
 — Levem-no aos curandeiros. Quero que fale quando puder respirar sem cuspir sangue.
 
-Daryon baixou a cabeça de leve, talvez em agradecimento, talvez em cálculo. Foi levado sem protestar.
+Daryon baixou a cabeça e deixou que os homens o levassem.
 
 Kaelina ficou em Alestir até prepararem o corpo de Edran. Quando voltou, Kaendar continuava funcionando: portões, correntes, guardas, tudo no lugar.
 
@@ -218,7 +218,7 @@ Alyra soltou uma respiração dura.
 
 Kaelina encarou a irmã.
 
-— Sim. Porque antes de pensar na guerra, pensamos em nossas crianças.
+— Sim. Elas precisam de abrigo hoje. Não depois que o Conselho escolher um culpado.
 
 Por um instante, ninguém falou. Mestre Ovarn chegou pouco depois: um homem velho do anel médio, antigo mestre de letras, contas e histórias de muralha das crianças de guarda, com uma perna rígida e mãos que tremiam apenas quando não havia criança olhando. Ajoelhou-se diante das soberanas, depois diante dos pequenos.
 
@@ -286,7 +286,7 @@ A palavra “ficou” pareceu roubar-lhe firmeza. Kadrir engoliu.
 
 — E eu obedeci.
 
-Ninguém o condenou. Talvez por saberem que ele esperava condenação suficiente dentro de si.
+Kadrir baixou os olhos. Kaelina não o censurou.
 
 Kaelina olhou para Alyra. A irmã continuava imóvel, mas seus olhos estavam em Kadrir agora, desfocados, como se a cena se repetisse dentro dela sem pedir licença. Daryon falou com suavidade:
 
@@ -296,7 +296,7 @@ Kadrir não pareceu confortado. As vozes voltaram. Vendrar. Tondrar. Buldar. Gly
 
 — Chega.
 
-A ordem cortou a reunião. Todos se calaram. Ela caminhou lentamente até a porta do salão, não para sair, mas para ficar entre o Conselho e o corredor, como se precisasse olhar a cidade antes de falar da ferida dela. Quando se virou, havia algo diferente em seu rosto. O luto já começava a ceder espaço ao pensamento. Engrenagem. Dor transformando-se em forma.
+A ordem cortou a reunião. Todos se calaram. Ela caminhou lentamente até a porta do salão, não para sair, mas para ficar entre o Conselho e o corredor, como se precisasse olhar a cidade antes de falar da ferida dela. Quando se virou, já procurava no rosto dos conselheiros quem podia ajudá-la a seguir as pistas.
 
 — Homens entraram em nossas terras, queimaram os nossos, feriram o coração desta cidade e fizeram tudo isso carregando marcas de vários povos ao mesmo tempo. O rio aponta para os Glydar. O fogo aponta para os Vendrar. A quebra da trégua aponta para os Tondrar. O custo aponta para os Buldar. E ainda assim, se aceitarmos a primeira resposta que cada pista oferece, estaremos apenas obedecendo ao caminho que nos deixaram.
 
@@ -324,7 +324,7 @@ Daryon estreitou os olhos.
 
 Kaelina sustentou o olhar dele.
 
-— Estou dizendo que essa é a informação que temos. Mas não necessariamente é a real. Os Fendelar sempre souberam desaparecer melhor do que morrer diante de plateia. Podem ter fingido o massacre e se unido aos Tondrar. Ou talvez tenham sido realmente exterminados, e os poucos sobreviventes tenham levado o que restou do clã para outro lugar, para outra mão, para outra guerra.
+— Temos um relato de que foram exterminados, não uma contagem de corpos feita por nossos homens. Talvez alguém tenha sobrevivido. Talvez alguém tenha aprendido com as armadilhas deles. Precisamos investigar antes de apontar para os Tondrar outra vez.
 
 Maelis passou a ponta do estilete sobre a tábua, mas não escreveu.
 
@@ -332,7 +332,7 @@ Maelis passou a ponta do estilete sobre a tábua, mas não escreveu.
 
 Daryon respondeu antes dela:
 
-— Porque somos a dinastia dominante. Porque os clãs sonham com o dia em que Kaendar perderá altura. Porque Orionus morreu e agora todos querem testar se as filhas dele sabem manter o que herdaram.
+— Porque viram o que aconteceu na Lei do Portão. Sabem que estamos divididos e querem descobrir até onde podem ir.
 
 Kaelina virou-se para ele.
 
@@ -342,7 +342,7 @@ A sala endureceu. Daryon ergueu as sobrancelhas, quase sorrindo. Alyra levantou 
 
 Kaelina respirou fundo, e a voz que veio depois não era grito. Era pior. Era conclusão.
 
-— Tem que haver mais do que ambição. Orionus passou quarenta ciclos sem guerra aberta. Não porque todos nos amavam. Não porque os clãs menores aceitavam alegremente o lugar que ocupavam. Ele manteve a palavra de Kaendar limpa o bastante para que até inimigos soubessem onde começava o risco, onde terminava o acordo e que preço teria atravessar a linha. Essa guerra não nasceu apenas porque alguém olhou para nossas muralhas e desejou vê-las cair. Ela nasceu porque alguém fez os outros acreditarem que nossa palavra já não valia nada.
+— Orionus passou quarenta ciclos sem guerra aberta. Não porque os clãs gostassem dele, mas porque sabiam o que Kaendar cumpriria e o que não aceitaria. Agora prometemos trégua e voltamos com todos os emissários mortos. Alguém ganhou muito com essa quebra de confiança.
 
 Ninguém falou. Kaelina continuou:
 
@@ -378,7 +378,7 @@ Brokan falou quase junto:
 
 Kaelina olhou para ele.
 
-— É exatamente isso que estou dizendo.
+— Estou dizendo que precisamos investigar. Eu comi do pão Tondrar. Iressa e Daryon também, e nenhum de nós adoeceu. Se o veneno estava no pão, não estava em todas as porções. Quero saber quem preparou a mesa, quem separou os alimentos e quem teve acesso às provisões antes da viagem. Inclusive os nossos.
 
 Kadrir ficou pálido. Maelis parou de escrever. Iressa fechou os olhos. Daryon não se mexeu, mas Alyra ergueu a cabeça.
 
@@ -386,7 +386,7 @@ Kadrir ficou pálido. Maelis parou de escrever. Iressa fechou os olhos. Daryon n
 
 A voz dela não estava alta, mas atravessou a sala inteira. Kaelina virou-se. Alyra levantou-se com cuidado, protegendo o braço ferido. Havia dor em seu rosto, mas também algo mais conhecido: desprezo preparado como armadura.
 
-— Minha irmã sempre gostou de sonhar alto. Sempre preferiu imaginar que o inimigo pode ser compreendido, que a fome tem explicação, que a lâmina talvez só esteja triste e que um portão se mantém aberto porque alguém pediu com voz calma. Agora, porque perdeu Cal Edran, porque a dor a fez procurar forma onde só há caos, decide acusar o próprio sangue antes de olhar para fora das muralhas.
+— Minha irmã perdeu Edran e agora desconfia de todos os que estavam no Marco. Entendo a dor. Mas não vou aceitar que nos acuse diante do Conselho enquanto os verdadeiros inimigos fecham nossas rotas.
 
 Kaelina não respondeu. Alyra deu um passo.
 
@@ -436,7 +436,7 @@ Marken continuou a espalhar vermelho no tecido à sua frente.
 
 — Então é um homem caído.
 
-Kaelina sentiu a raiva subir por baixo do luto.
+Kaelina apertou os dedos contra a palma.
 
 — Este é Edran. Em Alestir.
 
@@ -472,11 +472,11 @@ Marken finalmente parou a mão, mas não virou o rosto.
 
 Ele olhou para a pintura inacabada.
 
-— Há coisas que seguem o próprio peso.
+— Há coisas que eu vejo sem saber como impedir.
 
 Kaelina sentiu os olhos arderem.
 
-— Você pode insinuar que os Tondrar não envenenaram Yvenn. Pode entregar fragmentos impossíveis, falar de fogo, de destino, de portas que ainda não abriram. Mas não podia dizer que Cal Edran morreria?
+— Você conseguiu me avisar sobre Alyra e o fogo. Por que não me avisou sobre Edran?
 
 Marken ficou quieto. Kaelina olhou de novo para a pintura do homem caído.
 
@@ -510,13 +510,13 @@ Kaelina pensou em Kaendar. Nos anéis. Nos portões. Nos depósitos. No rio sujo
 
 — Kaendar não teve uma única guerra aberta com meu pai aqui.
 
-— Seu pai teve guerras todos os dias.
+— Seu pai também enfrentava ameaças. Só não chegavam todas ao Conselho.
 
 Ela olhou para ele, irritada.
 
 — Não fale asneiras.
 
-— Orionus apagava os focos antes que a chama ganhasse nome. Fome num anel. Orgulho num clã. Mentira numa rota. Medo numa sala. Ele via a fumaça cedo. Sob o governo de vocês, novos focos estão surgindo.
+— Mandava ouvir os depósitos, as rotas e os portões antes de uma crise chegar às muralhas. Agora vocês recebem notícias quando as pessoas já estão passando fome ou pegando em armas.
 
 Kaelina pensou em Alyra, na câmara de banho, em Kadrir de joelhos e na frase sobre lealdade inventada por quem ainda não aprendera a mandar.
 
@@ -584,7 +584,7 @@ Soren olhou novamente para a porta.
 
 — O homem era Veyr Polar.
 
-Kaelina conhecia o nome. Homem do anel alto, discreto, de família antiga menor, desses que crescem perto demais do poder para parecerem servos e longe demais do trono para serem lembrados. Alyra o usava em tarefas que exigiam obediência e silêncio.
+Kaelina conhecia o nome. Veyr pertencia a uma família antiga do anel alto, sem proximidade com o trono, e costumava servir Alyra em missões que exigiam discrição.
 
 — E onde ele está?
 

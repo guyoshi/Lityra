@@ -1,4 +1,4 @@
-Vesna apareceu na porta antes do sol terminar de nascer de verdade, um embrulho grosso apertado contra o corpo, e não esperou ser convidada para entrar antes de falar.
+Vesna apareceu antes do amanhecer com um embrulho de roupa debaixo do braço. Entrou sem esperar que Elis a convidasse, fechou a porta e estendeu o pacote.
 
 — Você não vai conseguir voltar lá vestida assim.
 
@@ -18,7 +18,7 @@ Vesna já estava ocupada guardando o resto das ervas no avental, sem erguer os o
 
 — As minhas.
 
-Piscou para ela, um gesto rápido e deliberadamente incompleto, e não disse mais nada. Elis quis insistir, mas alguma coisa no jeito como Vesna voltou a arrumar o embrulho, rápido e prático demais para quem só recebera uma doação de caridade, fez a pergunta morrer antes de sair pela segunda vez.
+Vesna piscou e voltou a ajeitar as ervas no avental. Elis percebeu que não conseguiria arrancar dela nenhuma explicação sobre a origem da roupa.
 
 — Veste — disse Vesna, já virando para ir embora. — E não pisa em nenhuma poça no caminho até lá.
 
@@ -44,7 +44,25 @@ O criado se chamava Joren. Elis já o vira entrar e sair pelo portão nos dias e
 
 Na Cidade Interna ninguém chamava aquilo de escravidão. Joren recebia comida, cama e uma pequena parte em moeda, e podia aparecer nos registros como trabalhador da casa. Isso não tornava o portão menos pertencente a Ladira do que a ele.
 
-O peito de Elis disparou tão de repente que ela precisou se apoiar na parede atrás da qual estava escondida.
+Antes de entrar, Ladira tirou uma luva e falou com Joren. Elis ouviu porque estava perto do portão.
+
+— A costureira de Maruva voltou?
+
+— Veio pedir um adiantamento, senhora. O filho está doente.
+
+— A encomenda está pronta?
+
+— Ainda não.
+
+— Então não há nada a pagar. Se eu começar a adiantar moeda, amanhã tenho meia dúzia de Nulares esperando aqui pelo mesmo favor. Mande-a à Casa da Permanência.
+
+— Sim, senhora.
+
+— E resolva isso antes de chegarem minhas visitas. Não quero gente pedindo dinheiro à porta.
+
+Elis lembrou de Orel e dos remédios de que ele precisara. Quis perguntar a Joren se o menino da costureira estava muito doente, mas Ladira já atravessava a entrada. Aquela era a mulher que ela procurava havia dias.
+
+Elis se encostou à parede. A mulher diante dela tinha o mesmo sobrenome dos papéis. As joias, o jeito de andar, a facilidade com que os criados abriam passagem para ela: tudo fazia Elis se sentir ainda menor, apesar da roupa emprestada.
 
 Era ela. A mãe da mãe dela. Sua avó.
 
@@ -66,25 +84,25 @@ Virou-se devagar, como quem não tem certeza de que o nome chamado era o de outr
 
 — Neiva era minha mãe.
 
-Ladira a observou em silêncio. Deu um passo, depois outro, procurando no rosto de Elis uma semelhança que não queria encontrar.
+Ladira a observou em silêncio. Deu um passo, depois outro, procurando no rosto de Elis uma semelhança. Elis não soube dizer se aquilo agradava ou preocupava a senhora.
 
 — Como você se chama?
 
 — Elis.
 
-Ladira olhou de novo, mais longamente, como se decompusesse o rosto de Elis em partes para comparar cada uma com uma memória guardada havia muito tempo.
+Ladira se aproximou e examinou seu rosto, primeiro os olhos, depois a boca. Elis teve vontade de recuar, mas ficou parada.
 
 — Entre.
 
 E Elis atravessou a porta da frente.
 
-A casa a engoliu de um jeito que nenhum dia de espera do lado de fora preparara. Joren recebeu o xale de Ladira sem que ela precisasse olhar para ele e desapareceu por um corredor lateral. Mais tarde, Elis ouviria Ladira chamá-lo pelo nome para trazer água quente, e a naturalidade da rotina fez a dívida no pulso dele parecer parte da arquitetura da casa.
-
-Havia cômodos inteiros reservados a receber visitas, a comer ou simplesmente a permanecer vazios, todos limpos e iluminados. Escadas largas, sem um degrau torto. Piso nivelado, sem uma tábua solta para avisar de longe que alguém chegava. Portas que fechavam sem raspar. Vidro em janelas que não precisavam de pano por dentro para segurar o frio. Água correndo de algum lugar sem um único balde à vista. Tecidos inteiros, sem remendo tapando buraco nenhum.
+Por dentro, a casa era ainda maior do que parecia da rua. Havia escadas sem degraus tortos, piso nivelado, janelas com vidro grosso e água correndo sem que ninguém precisasse encher um balde. Joren recebeu o xale de Ladira e desapareceu pelo corredor, ainda com o cordão de dívida preso ao pulso. Elis tentou lembrar o que devia perguntar e acabou olhando para os cômodos vazios.
 
 E comida.
 
 Sobre uma mesa lateral, esperando por ninguém em particular, havia fruto-de-bruma, queijo envelhecido, pão macio ainda quente, doce de flor de Seylara, carne Quendrar fria fatiada com cuidado, um prato de dente-doce brilhando de mel. Ninguém contava quanto sobrava. Ninguém disse não pega isso, é pra amanhã. Ninguém media com os olhos quanto ainda dava para dividir entre quantas bocas.
+
+Elis imaginou Kalan diante daquela mesa. Ele teria guardado alguma coisa para Orel antes de comer, mesmo com tudo aquilo à disposição. Talvez ela precisasse insistir para que pegasse um pedaço só para ele. Pensou nisso e sentiu saudade até da maneira como o irmão reclamava quando ela comia depressa.
 
 Elis olhou para a mesa mais de uma vez durante a conversa, tentando disfarçar, e Ladira percebeu, porque Ladira parecia perceber tudo.
 
@@ -106,9 +124,9 @@ O cátilo parou.
 
 — Em Maruva tem vários desses sem dono — comentou Elis, ainda de olho no animal. — Às vezes alguém começa a dar comida e depois eles ficam plantados na porta. Aí pronto. Viraram daquela casa.
 
-Ladira riu de leve, um som curto de quem achou graça de verdade no jeito como ela contava aquilo.
+Ladira soltou um riso breve. Elis ficou contente por ter conseguido fazê-la rir.
 
-— Curioso, o jeito que você fala.
+— Você fala de um jeito engraçado, Elis.
 
 Havia mais dois, Suri e Vala, deitados entre o jardim e o corredor inferior, e nenhum dos três se moveu depois daquilo, como se a permissão de Mero valesse para todos.
 
@@ -120,7 +138,7 @@ Ladira forçou um pequeno riso e piscou duas vezes, pega de surpresa apesar do e
 
 — Faz muito tempo que ninguém me chama disso.
 
-Para Elis, aquilo era lindo.
+Elis sorriu. Queria repetir a palavra, mas teve medo de parecer boba.
 
 Ladira fez perguntas. Idade. Onde morava. Quem cuidara dela. E, em algum ponto no meio das respostas, Elis apertou os olhos para uma pergunta que não entendeu bem, tentando decifrar o que se pedia.
 
@@ -138,13 +156,13 @@ Ladira começou a contar histórias. Neiva lia tudo que encontrava, abria armár
 
 Elis riu ao se reconhecer naquela descrição.
 
-Foi então que Ladira, sem perceber, falou da filha no presente.
+Então Ladira fez uma pergunta que Elis não esperava.
 
 — Neiva ainda faz isso?
 
 — Ela morreu.
 
-A mão de Ladira parou a meio caminho da xícara. Ela abriu a boca, mas não conseguiu responder.
+A mão de Ladira parou a meio caminho da xícara. Quando a pousou, a porcelana bateu no pires com um ruído seco.
 
 — Morreu?
 
@@ -154,25 +172,25 @@ Elis confirmou com a cabeça.
 
 — Eu era pequena. Já faz muitos anos.
 
-Uma umidade apareceu nos olhos de Ladira, real o bastante para que Elis percebesse um traço escuro da maquiagem começar a se desfazer. Ladira tirou um tecido fino da manga e tocou o olho rapidamente, sem deixar aquilo crescer.
+Ladira ficou em silêncio. A mão que tirou o lenço da manga não estava tão firme quanto antes. Passou o tecido pelo canto do olho e deixou uma pequena mancha escura na maquiagem.
 
 — E ninguém me disse.
 
 — Ela nunca falou de você.
 
-Isso machucou. Elis viu no rosto dela, viu de verdade, a dor que não se finge.
+Ladira desviou o olhar. Elis se arrependeu de ter falado daquele jeito. Não queria fazer a avó chorar justo quando acabara de encontrá-la.
 
-Ladira olhou para outro lugar, para a parede, para qualquer coisa que não fosse o rosto de Elis.
+— Não. Imagino que não. — Ladira alisou o lenço entre os dedos até desfazer as dobras. — Sua mãe fazia questão de não precisar de nada desta casa.
 
-— Não. Imagino que não.
+A voz já estava calma outra vez. Ladira guardou o lenço e tornou a pegar a xícara.
 
 — Por que ela foi embora? — perguntou Elis, quando o silêncio já tinha durado o suficiente para pesar.
 
-Ladira contou a própria versão, devagar, escolhendo cada palavra como quem já a contara para si mesma tantas vezes que a história saía pronta. Neiva se apaixonara por um homem que servia às forças de Kaeliran, provavelmente batedor ou arqueiro auxiliar, e Ladira jamais tivera nada contra ele ser soldado. A questão, segundo ela, era que Neiva estava destruindo o próprio futuro.
+Ladira contou que Neiva se apaixonara por um homem que servia às forças de Kaeliran, talvez um batedor, talvez um arqueiro auxiliar. Afirmou que não se opunha a ele por ser soldado. O problema, segundo ela, era que Neiva estava jogando fora as próprias oportunidades.
 
-— Aquele homem não prestava — disse, a voz ficando mais dura por um instante. — Eu disse que aquele homem não entraria nesta casa.
+— Aquele homem não prestava — disse, a voz ficando mais dura por um instante. — Sua mãe tinha segurança, um nome, uma casa inteira à disposição. Quis trocar tudo por alguém que não podia oferecer nada disso. Eu disse que aquele homem não entraria nesta casa.
 
-Elis ficou quieta.
+Elis ficou quieta. Não gostava de ouvir o pai sendo tratado daquele jeito, mas Ladira falava como quem ainda estava magoada com o que perdera.
 
 — Sua mãe respondeu que não viveria numa casa em que ele não pudesse entrar.
 
@@ -182,7 +200,7 @@ No dia seguinte, contou Ladira, Neiva pedira formalmente a desvinculação.
 
 Mas não era tão simples, e Elis sentiu isso mesmo sem conseguir nomear onde a versão rachava. Neiva deixara a casa para viver com o homem, o pai de Elis, e depois ele fora embora.
 
-— Eu avisei que aconteceria — disse Ladira, e pareceu perceber a própria crueldade quase no mesmo instante em que a frase saiu, porque baixou um pouco a voz para completar. — Eu não queria estar certa.
+— Eu avisei que ele iria embora — disse Ladira. Viu a expressão de Elis e baixou a voz. — Não queria ter acertado.
 
 E então, mais baixo ainda:
 
@@ -202,13 +220,13 @@ Ladira voltou a olhar para ela, mais atenta do que em qualquer momento anterior 
 
 — Sim.
 
-Ladira quase sorriu, um sorriso que pareceu genuíno e cansado ao mesmo tempo.
+Ladira deixou surgir um sorriso devagar. Elis esperou que ela terminasse de falar para devolver o gesto.
 
-— Então eu tenho dois netinhos.
+— Então tenho dois netos — disse Ladira, suavizando a voz.
 
-Elis sentiu alguma coisa no peito ceder por completo. Era uma palavra banal, que qualquer criança com família ouvia sem prestar atenção. Para ela era nova, e o peso quase a fez chorar ali, sentada naquela cadeira boa demais.
+Elis baixou a cabeça para esconder o sorriso. Nunca tivera alguém a quem chamar de avó. E agora aquela senhora, com uma casa enorme e um nome que os guardas respeitavam, chamava Kalan de neto também. Era tão bom ouvir aquilo que teve medo de falar e estragar o momento.
 
-Explicou o resto sem mencionar a caixa. Disse que Kalan tinha sido preso pelo Culto, que seria julgado na semana seguinte, e que, se fosse condenado, morreria. Disse que existiam registros provando que Neiva tinha nascido Polar.
+Acabou contando tudo o que importava, menos sobre a caixa. Disse que Kalan tinha sido preso pelo Culto, que seria julgado na semana seguinte e que, se fosse condenado, morreria. Enquanto falava, apertava os dedos uns contra os outros por baixo da mesa.
 
 — Se a gente for Polar... você consegue ajudar ele?
 
@@ -216,13 +234,49 @@ Ladira olhou para ela por um instante que pareceu durar mais do que qualquer res
 
 — Consigo.
 
-— Mesmo?
+Elis ergueu a cabeça.
 
-— Mesmo. — Segurou a mão de Elis por um momento breve. — Não vou deixar que matem meu neto.
+— De verdade? Você vai ajudar a gente mesmo?
 
-Elis quase chorou de alívio, e Ladira, entendendo como falar com alguém daquela idade, não prometeu apenas conversar com alguém. Prometeu um futuro inteiro.
+— Vou, Elis — respondeu Ladira, cobrindo a mão da menina com a sua. — Vou falar com quem for preciso. Não vou deixar que matem meu neto.
 
-— Quando Kalan sair — disse, e não “se” —, vocês não precisam continuar morando daquele jeito. Há espaço aqui. Quartos vazios. Ele pode aprender um trabalho melhor. Você pode aprender a ler direito, com professor de verdade, sem precisar entrar escondida na Cidade Interna nunca mais. — Fez uma pausa. — Você pertence aqui tanto quanto sua mãe pertencia.
+Elis tentou dizer obrigada. Não conseguiu. A garganta se fechou e, quando percebeu, as lágrimas já caíam sobre a roupa nova. Baixou o rosto depressa, envergonhada, e passou a manga pelos olhos, mas só conseguiu chorar mais.
+
+— Desculpa.
+
+— Não precisa pedir desculpas, querida.
+
+— É que ele cuida de mim desde que a nossa mãe morreu — conseguiu dizer. — Quando a comida não dava, ele falava que já tinha comido. Eu sabia que era mentira.
+
+Tentou respirar fundo, mas as palavras continuaram saindo no meio do choro.
+
+— Lá embaixo ninguém escuta a gente, vó. Bateram no Orel e falaram que a culpa era nossa. Levaram o Kalan e nem quiseram saber por que ele fez aquilo. Quando eu vou pedir ajuda, olham pra mim e só veem uma Nular.
+
+Elis enxugou o rosto de novo. Havia coisas que sempre engolia, porque Kalan já se preocupava demais com ela. Agora não conseguiu segurar.
+
+— É como se a gente fosse lixo. Se fizerem alguma coisa com ele, ninguém vai ligar. Vão continuar andando na rua, comprando comida, fazendo tudo normal... — A voz se perdeu. — Mas ele é meu irmão. É ele que cuida de mim. Eu não tenho mais mãe.
+
+Apertou a mão de Ladira, com medo de estar pedindo demais.
+
+— Eu só quero que ele volte pra casa.
+
+— Eu sei, minha querida — disse Ladira. — Olhe para mim.
+
+Elis ergueu os olhos, ainda molhados.
+
+— Você e Kalan não vão ter que enfrentar isso sozinhos. Eu vou ajudar vocês.
+
+Elis acreditou. Não porque tivesse esquecido dos guardas ou do julgamento, mas porque, pela primeira vez, alguém com poder para fazer alguma coisa lhe dizia que Kalan voltaria. E aquela pessoa era sua avó.
+
+Ladira começou a falar de tudo o que poderia fazer por ela e por Kalan.
+
+— Quando Kalan sair, vocês não precisarão continuar morando daquele jeito — disse Ladira, sem nenhuma dúvida na voz. — Há quartos disponíveis aqui. Ele poderá aprender um ofício melhor, e você terá um professor de verdade para aprender a ler. Nunca mais precisará entrar escondida na Cidade Interna.
+
+Ladira apertou a mão de Elis.
+
+— Você pertence aqui tanto quanto sua mãe pertencia.
+
+Elis olhou para o pão que restara em seu prato, para a água limpa, para as janelas que fechavam direito. Imaginou Kalan livre e sentado ali, comendo sem precisar sair correndo para outro turno. Depois imaginou voltar a Maruva e contar a Tair e a Orel que tinham conseguido, que o irmão ia voltar. Teve vontade de rir outra vez. Ainda sentia o rosto quente do choro.
 
 — Vem cá, querida — disse Ladira, um pouco depois, se levantando.
 
@@ -232,27 +286,21 @@ Levou Elis para o andar de cima, abriu uma porta no fim de um corredor estreito.
 
 Não estava intacto como um relicário. Os móveis pareciam trocados havia anos, o cômodo usado para outra coisa na maior parte do tempo, mas alguma coisa sobrava: uma marca antiga na madeira do batente, uma prateleira baixa demais para adulto, um desenho apagado a carvão num canto da parede, uma janela de onde, segundo Ladira, Neiva gostava de olhar a rua. Uma gaveta que Ladira admitiu nunca ter esvaziado por completo.
 
-Elis andou por ali quase sem respirar, tocando a parede com a ponta dos dedos, perguntando onde a mãe dormia. Ladira mostrou. Foi, provavelmente, o momento de maior felicidade daquele dia: um lugar onde a própria mãe fora criança, encontrado sem que Elis precisasse procurar.
+Elis andou por ali quase sem respirar, tocando a parede com a ponta dos dedos, perguntando onde a mãe dormia. Ladira mostrou. Elis encostou a mão no batente, onde ainda havia uma marca antiga na madeira, e ficou pensando que Neiva também tinha passado por aquela porta quando era pequena.
+
+— Preciso mostrar isso pro Kalan — disse, sem perceber que falava alto.
+
+Por um instante, conseguiu imaginar o irmão ali, livre, ouvindo as histórias sobre a mãe. Queria ver a cara dele quando descobrisse que havia uma avó esperando pelos dois.
 
 Antes de descerem, Ladira reparou que Elis estava com frio, ou que a roupa de Vesna era mais fina do que devia. Tirou o xale dos ombros, lã fina, azul profunda, borda trabalhada em fio mais claro, e colocou sobre Elis.
 
-— Posso mesmo ficar com ele?
+— É meu mesmo? Posso ficar?
 
 — Pode.
 
 Elis tocou o tecido com as duas mãos. Nunca tinha tido nada parecido.
 
-Ladira ajeitou o mesmo anel duas ou três vezes. Olhou para o corredor mais de uma vez, breve, como quem espera alguém sem admitir. Chamou uma criada com um gesto pequeno, escreveu alguma coisa curta num papel, dobrou-o e entregou.
-
-— Leve. Diga que é urgente.
-
-— É sobre Kalan? — perguntou Elis.
-
-Ladira sorriu.
-
-— É para resolvermos isso.
-
-Ladira saiu por alguns minutos e voltou trazendo ela mesma uma bebida quente para Elis.
+Ladira ajeitou o xale sobre os ombros de Elis e saiu para buscar uma bebida quente. Demorou alguns minutos a voltar. A xícara ainda soltava vapor quando a colocou diante da menina.
 
 Foi Mero quem ergueu a cabeça primeiro.
 
@@ -274,7 +322,9 @@ Um Filho da Raiz apareceu primeiro. Depois outro.
 
 — Pessoas que vão nos ajudar.
 
-— Você chamou eles?
+Por um instante, Elis quis acreditar que Ladira tinha mandado buscar alguém capaz de soltar Kalan. Talvez fosse por isso que demorara para trazer a bebida. Mas um dos Filhos se colocou perto da porta, e o outro olhou para a escada. Nenhum deles perguntou pelo irmão.
+
+— Foi você que chamou eles?
 
 Ladira continuou com a mesma doçura de antes, como se nada tivesse mudado no ar entre as duas.
 
@@ -282,19 +332,23 @@ Ladira continuou com a mesma doçura de antes, como se nada tivesse mudado no ar
 
 Elis recuou um passo.
 
-— Você disse que ia ajudar.
+— Você prometeu que ia ajudar a gente, vó.
 
 — Estou ajudando.
 
-Ladira se aproximou, a voz ainda macia, quase maternal.
+Ladira se aproximou. A voz continuava tão macia que Elis teve vontade de acreditar nela outra vez, mesmo com os Filhos da Raiz à porta.
 
 — Só precisamos que você conte onde está a caixa que seu irmão tirou da Casa da Permanência. É só isso. Diga onde ela está, e seu irmão pode ser salvo.
 
 Elis sentiu o sangue gelar.
 
-— Eu já disse que não sei de nada de caixa nenhuma.
+— Que caixa? Eu nem falei de caixa nenhuma!
 
 Nunca tinha mencionado caixa alguma durante toda a tarde.
+
+Olhou para Ladira, esperando que ela dissesse aos homens que havia algum engano. A avó não disse. Continuava ali, com a mesma voz e o mesmo rosto que Elis acabara de conhecer.
+
+Elis apertou o xale contra o peito sem perceber. Fazia tão pouco tempo que tinha chorado de felicidade por causa daquela mulher.
 
 A porta principal já não servia para nada. Elis olhou para os corredores, contou homens, calculou distância até a escada, até outra porta, até qualquer coisa. Correu.
 
@@ -304,7 +358,7 @@ Um dos Filhos se moveu na direção dela. Elis subiu num móvel baixo perto da j
 
 Caiu sobre uma cobertura lateral, quase escorregou porque a chuva dos últimos dias ainda não secara, agarrou a borda com as duas mãos, subiu e correu.
 
-A Cidade Interna virou uma coisa completamente diferente atrás dela.
+Elis conhecia caminhos para fugir na Cidade Exterior. Ali, entre casas grandes, muros altos e portões que alguém podia fechar a qualquer momento, precisava inventar a rota a cada esquina.
 
 Corria por telhados baixos, descia numa sacada, pulava para uma escada externa presa mal à parede, atravessava um quintal alheio sem tempo de pedir desculpa. Alguém gritou, atrás, uma palavra só.
 
@@ -322,7 +376,7 @@ A palavra se espalhou mais rápido do que os homens que corriam. Algumas pessoas
 
 Uma mulher fechou a porta quando Elis tentou se aproximar. Um homem estendeu o braço para barrar a passagem, e ela passou por baixo, o ombro raspando no cotovelo dele. Outro agarrou o tecido da capa nova, e ela girou o corpo com força suficiente para se soltar, ouvindo o pano rasgar e sentindo as unhas dele arranharem o braço.
 
-Não derrubava adultos, porque não tinha força para isso. Usava o que existia ao redor. Chutou um banquinho para trás e ouviu alguém tropeçar. Passou entre dois carregadores movendo uma peça grande demais para desviar rápido, forçando o Filho da Raiz mais próximo a contornar. Puxou sem querer a alça de uma cesta e viu frutas rolarem pela rua atrás de si, transformando o caminho em obstáculo.
+Não tinha força para enfrentar os adultos. Chutou um banco no caminho deles, correu por entre dois carregadores com uma peça de madeira enorme e quase caiu ao puxar sem querer a alça de uma cesta. As frutas se espalharam pela rua, atrapalhando quem vinha atrás.
 
 Entrou numa loja porque viu, pelo canto do olho, outra saída no fundo. Não para se esconder. Para atravessar.
 
@@ -364,7 +418,7 @@ Tentou ganhar altura, subindo numa estrutura de madeira encostada num muro, pass
 
 Primeiro sobre um toldo de tecido grosso, que rasgou com um som seco sob o peso dela. Depois no chão de uma passagem lateral, onde a lama dos últimos dias ainda não secara. O joelho bateu na pedra e abriu, uma dor aguda subindo pela perna inteira, sangue se misturando à lama.
 
-Não torceu o tornozelo. Conseguiu se levantar, mancando só nos primeiros passos, e correu mesmo assim, o joelho gritando a cada impacto contra o chão.
+Conseguiu se levantar sem torcer o tornozelo. O joelho ardia a cada passo, mas continuou correndo.
 
 Atrás, os gritos reapareceram, mais perto do que antes.
 
@@ -376,9 +430,7 @@ Hadris estava ali, parado no meio do caminho, vários Filhos da Raiz atrás dele
 
 O rosnado do cátilo se aproximava por trás. Outros passos fechavam a passagem por onde tinha vindo. À direita, muro alto demais para escalar naquele estado. À esquerda, homens.
 
-Procurou qualquer coisa. Uma janela. Uma escada. Um buraco na parede. Qualquer espaço por onde um corpo pequeno pudesse passar.
-
-Não havia nada.
+Elis examinou as paredes em busca de uma fresta, um cano, qualquer apoio. Não havia nada ao alcance do seu corpo machucado.
 
 Hadris a observou por um instante mais longo do que precisava, os olhos passando pelo xale caro e rasgado, pela tinta azul na perna, pela lama, pelo sangue escurecido no joelho, pelo peito subindo e descendo como se fosse se partir.
 

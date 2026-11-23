@@ -1,4 +1,4 @@
-O cheiro chegou primeiro: sangue, gordura de caça aberta, folhas molhadas esmagadas no barro. Ficaria nas roupas dos Vigias até depois de atravessarem o portão.
+O cheiro chegou primeiro: sangue, gordura de caça aberta e folhas molhadas esmagadas no barro. Os Vigias o levariam na roupa até Kaendar.
 
 Eram dois Vigias naquele turno. O primeiro reclamava de lama, vento, bota, fome e do pouco sal na carne seca, e ria das próprias piadas para espantar o tédio. O outro falava pouco, observava muito e tocava o amuleto no peito antes de atravessar os trechos mais fechados da mata.
 
@@ -6,7 +6,7 @@ Seguiam uma trilha já pisada por caçadores e carregadores, marcada por erva-de
 
 — …e eu tô te dizendo, se o capitão ouvir isso, ele me manda…
 
-Ele engasgou na própria voz. O cuidadoso levantou a mão, sinal seco. Os dois ficaram imóveis, escutando. Nada. E aí, como costuma acontecer, o horror apareceu sem gritar.
+Ele engasgou na própria voz. O cuidadoso levantou a mão, sinal seco. Os dois ficaram imóveis, escutando. Nada. O falante avistou a clareira e perdeu a vontade de rir.
 
 No canto de uma clareira pequena, onde a lama era mais funda, havia ossos de balili: não o corpo inteiro, não a carne pesada que só depois de horas no fogo virava ensopado digno de ser mastigado sem raiva. Só o resto e o cheiro. O couro tinha sido arrancado com pressa competente. Couro de balili valia correia, proteção de carroça, remendo de armadura e sola boa para quem pisava em pedra molhada. A gordura, misturada com sal, ainda rendia tira de viagem para dois dias. Ninguém deixava aquilo apodrecer.
 
@@ -38,11 +38,11 @@ O falante olhou para o rosto do morto, depois para a mata.
 
 O falante engoliu seco e olhou ao redor. Quase esperava que os mortos se levantassem para explicar. O cuidadoso começou a procurar o que Vigia aprende a procurar: marca, rastro, erro. Achou pegadas. Muitas.
 
-E, no barro, impressões que não eram bota comum nem sandália comum. Pareciam uma assinatura pressionada no chão, feita de costume.
+Na lama havia pegadas sobrepostas, deformadas pela chuva. O Vigia tentou separar os rastros, mas as bordas já se desfaziam.
 
 Ele seguiu a trilha de pegadas até um pequeno talismã caído perto de uma raiz exposta. Madeira escura. Linha trançada. Nós específicos.
 
-E as marcas queimadas: linhas e pontos, não desenhados como enfeite, mas como pele falada. Coisa de Tondrar. Pelo menos era o que qualquer Polar diria antes de pensar duas vezes.
+As marcas queimadas formavam linhas e pontos que ele conhecia dos objetos Tondrar. O talismã estava sujo de barro, mas os sulcos permaneciam nítidos.
 
 O falante se agachou e pegou o talismã. Passou o polegar por um dos nós e lembrou das histórias ouvidas nas tavernas: Tondrar não deixava marca por descuido. Soltou-o depressa.
 
@@ -50,9 +50,9 @@ O falante se agachou e pegou o talismã. Passou o polegar por um dos nós e lemb
 
 — E os corpos? — ele perguntou, num resto de humanidade.
 
-O cuidadoso olhou para os meninos, depois para a mata, depois para o caminho de volta. Todo Polar aprendia que morto sem nome voltava como rumor. Todo Vigia aprendia outra coisa: rumor nenhum mata tão depressa quanto emboscada.
+O cuidadoso olhou para os meninos. Se tentassem carregar os dois sozinhos, nem sequer teriam mãos livres para sacar as armas.
 
-Tocou a lama com dois dedos, como se pedisse desculpa à terra por abandonar o que Kaendar deveria guardar.
+Passou dois dedos no barro e os levou à testa antes de se afastar dos corpos.
 
 — A raiz guarda. A gente não.
 
@@ -64,9 +64,9 @@ Passaram pelas estacas de vigia, pelos amuletos pendurados, pelas tiras de couro
 
 — ABRAM!
 
-Correntes estalaram. Madeira gemeu. Ferro respondeu. Em algum lugar, um tarrak relinchou nos estábulos externos, sentindo no ar aquilo que homem nenhum ainda tinha dito direito.
+Correntes estalaram. Madeira gemeu. Ferro respondeu. Em algum lugar, um tarrak soltou um grunhido nos estábulos externos, inquieto com os gritos.
 
-E Kaendar, que por fora sempre finge invencibilidade, por dentro começou a se mexer como máquina acordando. Porque tem lugar em Jesed onde duas mortes são tragédia. E tem lugar onde duas mortes são recado.
+Dentro de Kaendar, as ordens começaram a correr de anel em anel. Dois mortos bastavam para fechar os portões de uma Dinastia.
 
 O talismã Tondrar chegava a uma cidade que havia passado mais de quarenta ciclos sem guerra aberta.
 
@@ -86,7 +86,7 @@ Ao lado dos tronos, Cal Edran Polar permanecia de pé, largo de ombros e marcado
 
 Daryon estava mais próximo da soberana recostada. Não carregava espada e observava os Vigias em silêncio.
 
-Os vigias estavam ofegantes, sujos de barro até a canela, com cheiro de mata, sangue e balili grudado na roupa. Pararam a três passos do tapete central e se ajoelharam. O silêncio caiu no salão como uma ordem. A gêmea inclinada falou primeiro, voz firme, sem desperdício:
+Os vigias estavam ofegantes, sujos de barro até a canela, com cheiro de mata, sangue e balili grudado na roupa. Pararam a três passos do tapete central e se ajoelharam. O salão ficou em silêncio. A gêmea inclinada falou primeiro, voz firme, sem desperdício:
 
 — Fale.
 
@@ -102,11 +102,11 @@ O Vigia levantou a mão, mostrando o talismã.
 
 — Isso estava perto deles.
 
-Cal Edran estreitou os olhos. Daryon parou de sorrir. A gêmea inclinada não mudou a expressão, só ficou mais quieta. E, nela, quietude era pior do que raiva.
+Cal Edran estreitou os olhos. Daryon inclinou-se para examinar as marcas. A gêmea que falara primeiro permaneceu em silêncio.
 
 A gêmea recostada deixou a mão escorregar para o apoio do trono, os dedos se fechando como em punho de espada.
 
-— Tondrar — ela disse, não como suspeita, mas como sentença. Como se o nome bastasse para explicar sangue, lama e crueldade.
+— Tondrar — ela disse, com a certeza de quem já escolhera o culpado.
 
 As duas se olharam por um instante.
 

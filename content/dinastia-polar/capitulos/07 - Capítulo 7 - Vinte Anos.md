@@ -1,12 +1,12 @@
 O tarrak diminuiu o passo antes que seu condutor puxasse as rédeas. A ponte se erguia sobre o Rio Grande em três arcos largos, cada um apoiado sobre o que pareciam raízes verdadeiras, tão grossas quanto um homem deitado, endurecidas em pedra escura pelo tempo. Símbolos da Raiz Eterna estavam entalhados ao longo do parapeito, gastos pelo vento e pela chuva de gerações, e faixas azuis do Culto pendiam frouxas nos postes de guarda, sem vento para tremular. Dois homens armados ocupavam a cabana de pedra na entrada, um jovem o bastante para que o bigode ainda não tivesse pegado direito, o outro mais velho, com a postura cansada de quem já vira passar gente demais para se impressionar com qualquer uma delas.
 
-— Alto — disse o mais novo, erguendo a lança na diagonal, mais por procedimento do que por real desconfiança — Quem se apresenta? 
+— Alto! — O mais novo ergueu a lança. — Nome e motivo da passagem. 
 
 O homem parou o tarrak a um braço de distância da lança, desceu com o mesmo movimento seco de sempre e ficou de pé segurando as rédeas frouxas, sem pressa. 
 
 — Ficou surdo? — o guarda mais novo insistiu, um passo à frente do companheiro. — Eu disse pra se identificar.
 
-— Eu vim a pedido do soberano — o homem disse, por fim, a voz baixa e sem inflexão, como quem repete uma frase que já não lhe pertence mais.
+— Vetarius mandou me chamar — respondeu o homem.
 
 — E quem é você?
 
@@ -16,13 +16,13 @@ O guarda mais velho já não olhava para a lança nem para o procedimento. Olhav
 
 — Quatro-dedos?
 
-— Dareth Quatro-Dedos. Ex-Calandrir. A lenda — o velho disse, ainda mais baixo, os olhos sem sair de Dareth. — Passagem de Arven. Esses jovens, eu já servia quando ele voltou de lá sozinho, com metade da comitiva do soberano viva só porque ele segurou aquela garganta de pedra por conta própria.
+— Dareth Quatro-Dedos. Foi Calandrir, antes de você nascer. — O veterano aproximou a boca do ouvido do colega. — Eu estava de serviço quando ele voltou da Passagem de Arven. Segurou o caminho sozinho para salvar metade da comitiva do soberano.
 
 O guarda mais novo baixou a lança devagar, sem certeza do que fazer com a informação.
 
-— Não conheço.
+— Nunca ouvi falar.
 
-— Não importa. Abre caminho pra ele logo.
+— Depois eu te conto. Agora abre a passagem.
 
 Ninguém pediu mais nada. O mais velho recuou um passo e baixou a cabeça, um gesto pequeno e antigo, o tipo de reverência que sobrevive mesmo quando já não há cargo, farda ou dever que a exija. Dareth subiu de novo no tarrak sem responder ao gesto, porque não sabia mais o que fazer com ele, e atravessou a ponte ouvindo o casco do animal bater contra a pedra que um dia tinha sido raiz.
 
@@ -38,7 +38,11 @@ Corven atravessou o pátio na direção dele limpando as mãos num pano preso ao
 
 — Ainda com essa cara de quem não dorme direito. Achei que você tinha desaparecido de vez, homem. Última vez que ouvi falar de você foi há uns bons anos, e olha que aqui a gente ouve tudo, até o que não devia — riu, sem esperar resposta, e começou a andar ao lado do tarrak enquanto Dareth desmontava e seguia a pé, puxando o animal pelas rédeas. — Fui promovido este ano por causa do torneio. O trabalho cresceu tanto que precisaram de alguém que soubesse organizar direito, e adivinha quem sabia.
 
-Dareth respondeu com um som curto que não era bem concordância nem discordância, e Corven pareceu não notar, porque já tinha seguido para a queixa seguinte: os buldar que sempre chegavam sem avisar o volume da carga, os Filhos da Raiz que tinham passado pelo cais na semana anterior sem explicar o motivo, o próprio joelho, que vivia doendo. Falava rápido, satisfeito consigo mesmo, e a cada frase encontrava um jeito de voltar ao mesmo lugar: ele, o cais, o trabalho que fazia melhor do que qualquer um antes dele.
+Dareth murmurou alguma coisa, mas Corven já reclamava dos Buldar que chegavam sem declarar toda a carga.
+
+— E os marinheiros só falam desse Khalir. Dizem que vai representar os Buldar no torneio. Escudo alto, lança curta, essas coisas. Se metade das histórias for verdade, vai precisar de uma carroça só pra trazer o equipamento. — Corven limpou as mãos no pano e apontou para os armazéns. — Quem vai ter de liberar espaço sou eu, é claro.
+
+Dareth guardou o nome sem perguntar mais nada. Corven passou à visita dos Filhos da Raiz na semana anterior, depois ao joelho que vivia doendo, e em cada assunto encontrou motivo para se orgulhar do trabalho que fazia no cais.
 
 — E você, hein? O que trouxe você até aqui, depois de tanto tempo enterrado lá no oeste? — Corven perguntou, por fim, como se a pergunta tivesse acabado de ocorrer a ele.
 
@@ -56,13 +60,13 @@ O Primeiro Kae Amaric o cumprimentou com os dois braços, um aperto forte o bast
 
 — O que você faz aqui? — Amaric perguntou, ainda sem soltar o braço dele. — Não me diga que finalmente cansou das plantações.
 
-— Vetarius me chamou. Parece ter alguns assuntos a tratar comigo. 
+— Vetarius me chamou. 
 
 — Vetarius é maluco de tirar você do conforto da aposentadoria. Não imagino o que possa ser tão importante para trazer você aqui.
 
-— Ele me quer como campeão Polar no torneio — Dareth respondeu simplesmente. 
+— Quer que eu lute no torneio. 
 
-— Campeão? — Amaric repetiu, e algo no rosto dele mudou, um brilho que tentava parecer alegria — Pro torneio, claro. 
+— Você, no torneio? — Amaric perdeu o sorriso por um instante. — Bem. É... faz sentido. 
 
 Dareth confirmou com um aceno, e Amaric ficou um instante só olhando para ele, como quem revê as contas de uma vida inteira e descobre que elas nunca bateram do jeito que ele achava.
 
@@ -80,7 +84,7 @@ Uma mulher esperava junto à porta dos aposentos privados, imóvel com a paciên
 
 — Calandrir — disse ele, olhando de novo para a insígnia e para a raiz, ainda sem acreditar de todo. Sem perceber, levou dois dedos à própria têmpora, onde a pele escura, vinte anos depois da cerimônia em que a lavaram, ainda era um tom mais clara que o resto do rosto.
 
-— Seu antigo posto. — Ela disse aquilo sem orgulho aparente, como quem apenas relata um fato. — Amaric me escreveu, uma vez, dizendo que você ficaria satisfeito. Contive um motim sozinha no Armazém Norte, no meu terceiro ano no cargo. Nada que valha lenda. Só o suficiente para que Vetarius decidisse que não queria mais ninguém entre ele e uma lâmina além de mim.
+— Seu antigo posto. Amaric disse que você ia gostar de saber. — Kerath ajeitou a tira de couro que prendia a insígnia. — No meu terceiro ano, contive um motim no Armazém Norte. Vetarius resolveu que eu devia ficar mais perto dele. Estou aqui desde então.
 
 Kerath bateu na porta pesada dos aposentos e anunciou o nome de Dareth. Houve um som de passos apressados, uma risada abafada, e então a porta se abriu.
 
@@ -90,7 +94,7 @@ Vetarius apareceu nu, a Ramagem da véspera meio desfeita, um lado da testa limp
 
 Dareth entrou, e Vetarius fez um gesto rápido para as mulheres, sem precisar dizer nada. Elas se levantaram, vestiram as roupas de baixo com a pressa de quem já tinha feito aquilo antes, e passaram por Dareth sem olhar para nenhum dos dois. Vetarius pegou uma manta pesada jogada sobre um baú e a enrolou em volta do corpo sem muito cuidado. Aproximou-se de Dareth e tocou o rosto dele com as duas mãos, contente como uma criança que reencontra um brinquedo perdido.
 
-— Continua forte como sempre foi. Os mesmos olhos que rasgariam qualquer um que tentasse alguma coisa contra seu soberano.
+— Continua com a mesma cara de quem vai me dar uma bronca. Ainda bem que voltou.
 
 Foi até uma mesa baixa onde ficavam as garrafas e começou a servir duas taças, quase derramando na pressa.
 
@@ -106,7 +110,7 @@ Falava depressa, pulando de um assunto para outro sem esperar reação, contando
 
 — Então vai haver um torneio — Dareth disse, por fim, quando encontrou uma brecha.
 
-— Um torneio? — Vetarius riu, largando-se numa cadeira grande demais para o corpo dele, as pernas abertas sem cerimônia por baixo da manta. — O maior torneio que Jesed já viu. Dez campeões, um de cada dinastia, lutando pela primazia sobre todas as outras. Consegue imaginar? Selina me disse que você tinha recusado, que perderíamos se insistíssemos, e eu disse a ela só pra dar mais alguns dias. Eu sabia que você viria. Você ama isso, não ama?
+— O primeiro desse tamanho. Dez campeões, um de cada dinastia. Se funcionar, vão resolver as disputas na arena em vez de mandar exércitos uns contra os outros. — Vetarius se largou na cadeira. — Selina jurou que você não vinha. Mandei esperar. Eu sabia que não ia me deixar na mão.
 
 — Vetarius. Eu não vim pra aceitar seu convite.
 
@@ -114,9 +118,9 @@ Vetarius olhou para ele então, de verdade, os olhos parando de vagar pelo quart
 
 — Claro que veio. Por que outro motivo sairia da sua tranquilidade no oeste, pra vir até aqui só pra me dizer o que a minha assessora já me disse há dois dias?
 
-— Vim pedir que pare de tentar me trazer pra cá. Uma última vez. Vim pedir que me deixe em paz. Já não pertenço a isso, Vetarius. Não tenho nada a ver com o que os Polar escolhem ou assinam. Minha vida não é mais essa.
+— Vim porque Selina não aceitou minha resposta. Então vou dizer a você: me deixe em paz, Vetarius. Não vou voltar pra guarda nem lutar em nome de Kaendar.
 
-— O que houve com você? — Vetarius riu de novo, bebendo mais, o tipo de riso que já tinha decidido, muito antes daquela conversa, que Dareth acabaria aceitando de qualquer jeito. — Dareth Quatro-Dedos, a lenda, com a chance de fechar a própria história com chave de ouro, e prefere pedir paz. Pra quê? Pra viver cercado de sarnak, pisando na merda deles dia após dia, fingindo pra si mesmo que aquilo é sossego e não é só o jeito mais lento de desistir de tudo.
+— Não acredito nisso. Você poderia voltar e fazer Jesed inteira lembrar seu nome. Vai preferir passar o resto da vida limpando sujeira de sarnak? — Vetarius riu. Dareth continuou sério. — Não precisa fingir que gosta daquela solidão.
 
 — Não é desistência ficar longe daqui — Dareth respondeu, a voz mais baixa do que antes, mas sem nenhuma hesitação. — É a única coisa que ainda me pertence de verdade.
 
@@ -124,33 +128,31 @@ Vetarius olhou para ele então, de verdade, os olhos parando de vagar pelo quart
 
 — Eu não estou fingindo que esqueci. Só decidi que não quero mais. Já fiz o que pude por Kaendar. 
 
-— Não. Não fez. Você nunca encerrou os seus serviços formalmente. Tecnicamente ainda serve a Kaendar. Mas como é meu amigo acima de tudo, não exigi demais de você. Ainda mais depois do que houve. A questão, Dareth, é que agora já não temos mais escolha. Já enviei seu nome.
+— Seu serviço nunca foi encerrado oficialmente. Você ainda responde a Kaendar. Só não cobrei porque somos amigos e porque... bem, você sabe. Mas agora já enviei seu nome.
 
-— Use meu nome em outro homem.
+— Devia ter falado comigo antes de mandar meu nome. Tem gente jovem nos anéis baixos que daria tudo por essa chance. 
 
-— Qualquer um do anel baixo que queira glória em primeiro lugar e que tenha força pra parar uma lança. 
-
-— Homens dos anéis baixos — riu Vetarius — homens sem nenhum treino prático. Que nunca mataram outro homem. Que nunca defenderam seu soberano.  
+— Dos anéis baixos? — Vetarius bufou. — Homens que nunca seguraram uma linha de defesa, quanto mais uma arena. Não vou arriscar a Dinastia por um rapaz querendo fama.  
 
 — Por que me escolheu? Com tantos outros homens que serviriam. Por que eu devo ser o seu campeão?
 
-— Porque você é o único que eu acredito ser capaz de acabar com os outros vermes e trazer nossa glória de volta. Ninguém aqui é mais capaz do que você, Dareth. Ninguém viu a vida e a morte mais vezes do que você. 
+— Porque é o melhor homem que já tive ao meu lado numa batalha. Vai enfrentar gente que quer me ver cair. E você é o único em quem confio. 
 
 — E o que vai me dar em troca?
 
 Vetarius riu, um riso curto, quase ofendido pela pergunta.
 
-— Eu tenho em meu poder a maior dinastia que Jesed já viu. Sou um deus dentro dessas muralhas. Posso realizar qualquer desejo que você quiser.
+— Governo a maior dinastia de Jesed, Dareth. Posso conceder terras, ouro, um título, o que pedir. Diga seu preço.
 
 — Traga meus mortos de volta, então.
 
 Aquilo silenciou Vetarius por completo. Ele deu um riso sem graça, a taça parada a meio caminho da boca, e chegou a abrir a boca como se fosse dizer alguma coisa, mas nada saiu por um bom tempo.
 
-— Eu lamento pela sua família — disse, por fim, baixo. — Já te disse isso antes, várias vezes. O que aconteceu com elas foi uma tragédia imensa. Mas a vida continua, meu amigo. E vai continuar depois que formos nós dois a cair também. Minha Elena partiu há cinco anos. Adoeceu numa temporada fria, e nem os melhores curandeiros de Jesed conseguiram salvá-la. Fiquei sozinho com Caeren depois disso. Não é fácil ser soberano e pai ao mesmo tempo, ainda mais sozinho. Mas eu prevaleço. Sigo vivo. E aproveito minha vida até o último dia que ela me der.
+— Dareth... eu sinto muito. Já te disse. — Vetarius apoiou a taça na mesa. — Elena também morreu, cinco ciclos atrás. Febre. Trouxe curandeiros de todas as terras, e nenhum conseguiu salvá-la. Fiquei com Caeren e uma cidade pra governar. Tem dias em que mal sei cuidar de um dos dois. Mas continuo aqui.
 
 — Eu também aproveito a minha. Do jeito que me faz bem. 
 
-— Não adianta fugir, meu amigo. O que aconteceu, aconteceu. O que importa agora é o que vem depois. Precisamos controlar nosso próprio destino. Se os malditos Buldar decidirem que essa dependência toda de comida já não basta e resolverem que é hora de invadir nossas terras, você acha que sua casinha vai estar segura? Se os Quendrar decidirem abrir nossos portões, abusar das nossas mulheres, matar nossas crianças... como você ia viver com isso? O torneio é a nossa chance. Nossa chance de ter controle de verdade sobre a nossa própria vida. Kaeliran precisa de você, Dareth.
+— Você acha que vão respeitar seu campo se a gente perder o direito de decidir as próprias disputas? Os Buldar já controlam boa parte do grão que entra aqui. Os Quendrar conhecem nossas passagens. Se uma guerra começar, não vão parar na muralha porque você pediu. — Vetarius se inclinou para ele. — É por isso que eu preciso de você na arena.
 
 Dareth olhou para ele por um longo instante.
 
@@ -184,11 +186,11 @@ Selina se virou para ele, os braços cruzados, o peso do dia inteiro ainda pela 
 
 Selina hesitou, os olhos fixos num ponto qualquer da parede atrás dele.
 
-— Seu erro, Vetarius, é acreditar que as pessoas não mudam. Que as coisas não mudam.
+— Você continua achando que ele é o homem de vinte ciclos atrás.
 
 — O que quer dizer com isso?
 
-— O homem que estava aqui não é mais o homem das lendas. É um perdido, um covarde, que prefere viver no campo a ter os luxos que a vida pode oferecer. Deve ser uma maravilha, ser solteiro, isolado no seu mundo perfeitinho, sem ter ninguém por quem se preocupar.
+— Eu fui até a casa dele. Chamei, insisti. Ele prefere se esconder no campo. Sem família, sem ninguém dependendo dele, é fácil dizer não. Que fique lá.
 
 — Viúvo.
 
@@ -200,7 +202,7 @@ Selina não respondeu de imediato. Tinha estudado tudo sobre Dareth antes daquel
 
 — Do que ela morreu?
 
-— Não sei ao certo. Mas pelo que ouvi na época, encontraram as duas queimadas. Nos fundos do terreno. Provavelmente vândalos. Nunca ficou claro se foram executadas ali mesmo ou se... — Vetarius parou, girando a taça devagar entre os dedos. — Foi horrível, quando soube. Fiquei sabendo dias depois de Dareth já ter partido de vez, e nunca mais o vi desde então. Enviei-lhe umas cartas desejando-lhe uma vida melhor... mas nunca tive respostas. Até tentei enviar homens pra trazê-lo de volta algumas vezes, mas nenhum teve sucesso. 
+— Encontraram as duas queimadas nos fundos do terreno. Diziam que tinham sido vândalos, mas nunca descobriram ao certo. — Vetarius girou a taça. — Quando soube, ele já tinha partido. Mandei cartas. Mais tarde, mandei homens procurá-lo. Nunca consegui trazê-lo de volta. 
 
 — A mulher dele foi queimada?
 

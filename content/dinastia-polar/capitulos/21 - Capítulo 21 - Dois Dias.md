@@ -30,11 +30,11 @@ Vetarius segurou o copo sem bebê-lo, como se tivesse esquecido que o tinha nas 
 
 Dareth insistiu, a voz baixa.
 
-— Existe gente sendo empurrada para uma condenação injusta enquanto você se recusa a olhar.
+— Tem um garoto de dezessete ciclos prestes a morrer por causa de uma caixa. E você não faz nada.
 
 Vetarius suspirou e passou a mão livre pelo rosto, e a palma voltou com um rastro branco da Ramagem.
 
-— Você ficou tempo demais longe de Kaeliran. Não viu o quanto a soberania e o Culto se tornaram... dependentes um do outro. Eu não posso anular um Julgamento da Raiz nem ordenar ao Sumo o que deve chamar de pecado.
+— Você passou tempo demais longe da cidade, Dareth. O trono e a Raiz dependem um do outro. Não posso simplesmente revogar uma sentença religiosa nem dizer ao Sumo Vigia o que deve considerar pecado.
 
 — Se a Raiz considera o garoto culpado, ele deve ser julgado.
 
@@ -64,7 +64,7 @@ Dareth continuou, contando nos dedos sem perceber, como via Selina fazer quando 
 
 — Kalan roubou. Isso ninguém discute. Mas a caixa sumiu, e o Sumo se recusa a explicar o que havia dentro dela. Elis foi capturada. Eu fui usado para tentar arrancar dela onde a caixa está. E, no meio de tudo isso, a pena do garoto só cresceu.
 
-— Tem alguma coisa naquela caixa que importa para ele.
+— Aqueles documentos significam alguma coisa para o Sumo. E ele não quer dizer o quê.
 
 Vetarius não confirmou a hipótese. Também não conseguiu descartá-la: Dareth viu isso no jeito como ele desviou os olhos de volta para a garrafa, como se ali existisse uma resposta mais fácil do que a que tinha diante de si.
 
@@ -102,9 +102,7 @@ Uma pequena pausa.
 
 — Vou ver o que ainda pode ser feito pelos dois.
 
-Vetarius não perguntou o nome dela. Não perguntou onde Kalan estava preso, nem em que sala Elis era mantida. Relaxou os ombros logo em seguida, como se a decisão já fosse metade do trabalho e a outra metade pudesse esperar pela conversa certa.
-
-Dareth já vira esse alívio em outros homens, diante de outras batalhas. Era o alívio de quem confunde decidir com fazer. Não disse nada. Guardou a observação, como guardava a posição de um inimigo que ainda não se movera.
+Vetarius não perguntou como Elis estava, nem onde mantinham Kalan. Relaxou os ombros assim que prometeu conversar com o Sumo Vigia. Dareth não gostou: já vira comandantes confundirem uma ordem dada com uma ordem cumprida.
 
 — Obrigado — foi tudo que respondeu, porque havia mais verdade naquela palavra do que em qualquer coisa que pudesse acrescentar.
 
@@ -158,17 +156,11 @@ Já conversara com Alveris e não encontrara prova concreta. A Balança, porém,
 
 — Ainda desconfia dele?
 
-— Ainda não consegui provar que não deveria.
+— Tenho motivos para desconfiar. Provas ainda não.
 
 A confiança do soberano em Alveris deveria tranquilizá-la. Fazia o contrário.
 
-Tinha trabalho demais para abandonar tudo por um rapaz Nular que mal conhecia. Mas Kalan notara o peso errado na Balança e ouvira a conversa sobre os selos. Roubara uma caixa que o Sumo Vigia queria de volta, e a irmã fora presa enquanto o Culto ampliava as acusações. E Vetarius acabava de entregar a logística do torneio à Companhia que Selina ainda investigava.
-
-Havia também Amira. Selina acabara de aprender, do pior jeito, o que custava ignorar sinais pequenos só porque pareciam banais demais para interromper o resto.
-
-Não queria fazer aquilo de novo.
-
-Se Kalan morresse antes que ela entendesse o que ele tentara mostrar sem saber que mostrava, seria só mais uma coisa importante que Selina perceberia tarde demais.
+Selina olhou para a mesa cheia de autorizações que exigiam seu selo. Kalan percebera o peso errado de uma carga, ouvira uma conversa sobre selos e agora corria risco de execução por uma caixa desaparecida. Amira também havia notado irregularidades, e Selina demorara a levá-la a sério. Não pretendia esperar até que o rapaz estivesse morto para descobrir se os casos se ligavam.
 
 Olhou para a pilha de documentos sobre a mesa. Depois para Amira.
 
@@ -224,7 +216,7 @@ Selina anotou.
 
 Selina ergueu os olhos. Aquilo, à primeira vista, parecia ruim.
 
-— Ele copiou uma cobrança, viu o nome do Darven ligado a uma tal de Meral Nular, e confundiu vínculo administrativo com linhagem. Não inventou nada. Só errou antes de saber que estava errando.
+— Tair viu o nome do Darven numa cobrança da Meral Nular. Achou que isso queria dizer que ele era Nular também. Ele copia conta o dia inteiro, mas não sabia que aquilo era só um vínculo de responsabilidade. Falou o que achava certo.
 
 — Isso foi antes da caixa.
 
@@ -238,17 +230,17 @@ Selina guardou aquilo com cuidado. O erro vinha de antes do roubo. Se conseguiss
 
 A resposta veio rápida demais, quase um reflexo.
 
-— Ele não consegue montar uma história longa na frente de estranhos. A fala já é difícil sozinho. Sob pressão, piora. Hadris ia desmontá-lo em minutos, e ele nem ia entender direito o motivo.
+— Ele já se enrola pra falar com a gente. Na frente daquele povo todo, vai travar. E Hadris vai aproveitar. Não põe o Orel nessa.
 
 Selina baixou a cabeça, aceitando.
 
-— Ele pode estar presente. Mostrar as marcas. Reagir a perguntas simples. Não precisa contar a história inteira sozinho.
+— Não vou exigir que ele conte tudo. Quero que o tribunal veja os ferimentos e entenda por que ele tem dificuldade para responder. Se conseguir dizer alguma coisa, melhor. Se não conseguir, não vou forçá-lo.
 
 Kalan não respondeu de imediato, mas alguma coisa no rosto dele relaxou, como se aquilo bastasse por enquanto.
 
 — Cairon — disse, depois. — Ele pode falar do meu trabalho. Nunca faltei um turno, nunca levei nada que não fosse meu antes disso. Ele sabe. Só... não sei se vai querer se meter.
 
-— Deixa que eu convenço.
+— Deixe Cairon comigo.
 
 — Ele pode dizer que eu mudei depois. Que fiquei mais calado, mais devagar, só depois do que aconteceu com o Orel. Isso ajuda?
 
@@ -268,7 +260,7 @@ Antes que ela se levantasse para ir embora, Kalan segurou a manga da roupa dela.
 
 Kalan quase sorriu, o quase mais sincero que Selina vira nele desde que tudo começara.
 
-— Ela vai fazer alguma coisa idiota.
+— Ela vai inventar alguma besteira, eu sei.
 
 — Isso eu já percebi.
 
@@ -346,7 +338,7 @@ Selina entrou, sentou-se onde indicaram, e foi direto ao que precisava.
 
 Tair engoliu em seco, mas respondeu sem enrolar.
 
-— Eu tinha copiado umas cobranças, ligadas a uma mulher chamada Meral Nular. O nome do Darven aparecia listado como dependente dela. Eu conhecia aquela relação, então, quando perguntaram, completei o resto sozinho. Achei que sabia. Depois descobri que confundi uma ligação administrativa com linhagem. Ele tem pai e mãe, os dois Polar. Eu só... não sabia que tinham trocado quem constava como responsável, fazia tempo.
+— Eu copiava umas cobranças da Meral Nular. O Darven aparecia como dependente. Quando os guardas perguntaram, eu lembrei daquilo e falei que ele era Nular. Só que era uma conta, não a família dele. Os pais são Polar. Eu devia ter conferido direito. Tinham mudado o responsável pelo garoto, e eu nem fiquei sabendo.
 
 — Você sabe onde viu isso? O registro, quero dizer. Onde ele está guardado.
 
@@ -408,7 +400,7 @@ Foi como ver uma porta se fechar por dentro. Elis mudou de expressão na hora, o
 
 Elis ficou em silêncio por um tempo longo demais para ser apenas surpresa.
 
-— Foi por minha causa — disse, por fim, a voz quase sem som.
+— Foi por minha causa — disse Elis, quase sem voz.
 
 — Você não sabe disso.
 
@@ -454,15 +446,15 @@ Elis manteve a desconfiança no rosto, os braços cruzados diante do corpo, como
 
 — Não vou entregar nada à Raiz sem saber primeiro o que estou entregando — disse Selina, com toda a firmeza que conseguiu reunir. — Isso eu prometo.
 
-— Eles vão usar contra Kalan.
+— Eles vão usar contra o Kalan.
 
 — Talvez.
 
-— E contra Orel.
+— E se pegarem o Orel de novo?
 
 — Talvez.
 
-— Então por que eu contaria?
+— Então por que eu ia te contar?
 
 — Porque daqui a dois dias seu irmão entra numa sala onde Hadris sabe mais do que nós dois juntas. — Selina se inclinou um pouco à frente. — E ele está contando exatamente com isso.
 
@@ -478,6 +470,6 @@ Selina segurou o próprio tom, sem suavizar o que vinha a seguir.
 
 — Tenho dois dias. Depois disso, qualquer coisa que eu descubra pode chegar tarde demais.
 
-— Não vou perguntar outra vez. Onde está a caixa?
+— Elis, vou perguntar pela última vez: onde você escondeu a caixa?
 
 Elis olhou para Selina, e não respondeu.

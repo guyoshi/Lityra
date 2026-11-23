@@ -110,7 +110,7 @@ Kaelina voltou-se para o homem.
 
 — Dovren da Canga, minha soberana. Do anel baixo. Chamam-no assim porque carregou canga Buldar metade da vida. Foi ele quem ficou preso sob sacos caídos quando a primeira carroça virou. Disse que viu botas sem marca, panos de areia no rosto e ouviu um deles mandar que queimassem apenas a carroça da frente. Não era saque comum. Saqueador comum leva e foge. Aqueles queriam que soubéssemos.
 
-Kaelina guardou o nome: Dovren da Canga, carregador do anel baixo e testemunha do ataque.
+Kaelina repetiu o nome para não esquecê-lo: Dovren da Canga, carregador do anel baixo.
 
 — Maelis — disse Kaelina.
 
@@ -122,7 +122,7 @@ A escriba ergueu-se junto à lateral do salão, tábuas já nas mãos.
 
 Maelis preparou a ponta de gravação. Kaelina falou devagar, para que cada frase fosse registrada sem ornamento.
 
-— Diga que a carga foi atacada antes de chegar a Kaendar. Se a Mão da Colheita não ordenou isto, então alguém deseja que Buldar e Polar se acusem antes de saber a verdade. Peça que enviem uma testemunha de confiança. E que enviarei a minha. Se houver mentira entre nós, que ela morra diante de ambas.
+— Diga que nossa carga foi atacada. Quero ouvir os sobreviventes Buldar ao lado dos nossos. Peça que Nynestra envie alguém de confiança e diga que mandarei um representante. Não vou acusar os Buldar antes de compararmos os relatos.
 
 Maelis hesitou no fim, talvez por sentir o peso da última frase.
 
@@ -142,13 +142,13 @@ Alyra virou o rosto para Kaelina com uma atenção fria.
 
 Kaelina levantou-se. Não rápido, nem com fúria, e sim como alguém que compreendia que certas decisões não podiam ser dadas sentada.
 
-— A palavra alimentou Kaendar por quarenta ciclos quando nosso pai fazia inimigos pensarem duas vezes antes de cortar rotas, queimar celeiros e envenenar encontros. A palavra de Kaendar era uma coisa útil porque tinha consequência. Se ela morrer, Alyra, não teremos apenas fome. Teremos todos os clãs apostando contra nós ao mesmo tempo.
+— Nosso pai manteve as rotas abertas porque os outros clãs sabiam que ele cumpria o que prometia. Se acusarmos Nynestra sem ouvir os sobreviventes, perderemos até quem ainda aceita negociar conosco.
 
 Alyra sustentou o olhar.
 
 — Já temos todos os clãs apostando contra nós, Kaelina.
 
-— Parece que sim, irmã. Mas alguém precisa certificar-se de que o inimigo é mesmo inimigo antes de lançar mais uma guerra sobre as que já temos.
+— Talvez. Mas não vou dar aos outros mais um motivo para acreditarem que atacamos primeiro e perguntamos depois.
 
 Por um instante, pareceu que Alyra responderia. Mas a porta lateral abriu, trazendo outro homem antes da discussão nascer inteira. Era um dos chefes de passagem do anel médio. Vinha com o rosto vermelho e um corte pequeno no supercílio. Atrás dele, dois guardas seguravam um homem magro, de roupas molhadas, que tentava falar ao mesmo tempo que era puxado.
 
@@ -190,7 +190,7 @@ Kaelina não olhou para ele.
 
 — Por quê?
 
-Harlon riu uma vez, sem humor algum.
+Harlon soltou uma risada curta e amarga.
 
 — Porque pedimos água e disseram que havia regras. Pedimos outra vez e disseram que a contagem ainda não estava feita. Depois vimos barris subindo pela escadaria do velho torno. Então homens começaram a dizer que, se esperássemos a contagem, nossos filhos iam aprender a morrer educados.
 
@@ -206,7 +206,7 @@ O chefe de passagem empalideceu.
 
 Iressa, que estava entre os membros chamados naquela manhã para acompanhar as audiências, assentiu de leve. A Mão-de-Sal não sorria muito. Tinha o tipo de rosto de quem passara a vida aprendendo que conservação era uma guerra silenciosa contra o apodrecimento. Mas naquele instante, Kaelina viu nela uma aprovação contida.
 
-— E os invasores? — perguntou Varron Meio-Olho, encostado mais atrás, a cicatriz puxando a pálpebra como se o rosto dele duvidasse de tudo antes da boca.
+— E os invasores? — perguntou Varron Meio-Olho, encostado mais atrás, a cicatriz repuxando-lhe a pálpebra.
 
 Kaelina respondeu sem hesitar.
 
@@ -346,7 +346,7 @@ A abertura do anel alto fez a cidade inteira mover-se como água derramada. Gent
 
 Kaelina passou parte da noite recebendo relatórios.
 
-Quando finalmente deixou o salão menor das contagens, os corredores do anel alto pareciam limpos demais. As tochas queimavam em suportes polidos. As paredes guardavam tapeçarias antigas. O chão não tinha lama, nem água derramada, nem marcas de barris arrastados. Ali, a crise chegava filtrada: em vozes, números e cheiros distantes. Era por isso que gente de cima sempre demorava mais para entender o mundo. A dor precisava subir escadas antes de ser considerada real.
+Quando finalmente deixou o salão menor das contagens, os corredores do anel alto pareciam limpos demais. As tochas queimavam em suportes polidos. As paredes guardavam tapeçarias antigas. O chão não tinha lama, nem água derramada, nem marcas de barris arrastados. Ali, a crise chegava filtrada: em vozes, números e cheiros distantes. Era por isso que gente de cima sempre demorava mais para entender o mundo. Até os relatos de quem brigava por uma tina chegavam ali resumidos em tábuas de contagem.
 
 Kaelina caminhava sozinha, ou quase. Dois guardas vinham atrás, a distância respeitosa. Quando virou no corredor que levava aos aposentos internos das soberanas, viu uma porta abrir-se mais adiante. Daryon saiu do quarto de Alyra.
 
@@ -390,7 +390,7 @@ O quarto de Alyra tinha poucos ornamentos: armas, mapas, uma bacia de ervas para
 
 Alyra estava de costas, com hematomas de Alestir, arranhões e um corte perto do ombro.
 
-— Boa tarde — disse Alyra, embora já fosse noite.
+— Veio me interrogar à noite? — perguntou Alyra, sem se virar.
 
 Kaelina fechou a porta.
 
@@ -428,7 +428,7 @@ Alyra virou-se de frente.
 
 — Alguém o pegou dias atrás.
 
-— Pois é. Que droga, não é?
+— Alguém mexeu nas suas coisas. Uma vergonha para a guarda.
 
 Kaelina estudou a irmã. Alyra parecia cansada, e uma das mãos ficou apoiada na mesa.
 
@@ -460,9 +460,9 @@ Kaelina não respondeu de imediato. Alyra sorriu com cansaço.
 
 — Você está mais uma vez tentando encontrar razão onde talvez só exista guerra.
 
-— A guerra só existe porque os dois lados acham que tem razão.
+— Isso não explica por que aquele objeto desapareceu do meu quarto.
 
-— Não. A guerra existe porque existe fome, medo, orgulho e oportunidade. A razão vem depois, escrita por Maelis em tábuas limpas para que os vivos se sintam menos animais.
+— Você já perguntou aos guardas quem entrou lá? Ou prefere me acusar porque discordo da sua trégua?
 
 — Isso parece algo que Daryon diria.
 
@@ -528,7 +528,7 @@ Kaelina sentiu o golpe, mas não recuou.
 
 — Você quer guerra, Alyra. Você quer ver nossos inimigos nos atacarem. Porque quer provar que os Polar são superiores. Com você no comando deles.
 
-Por um instante, o quarto pareceu pequeno demais para as duas. Alyra abriu a boca para responder, mas o rosto dela mudou. A raiva continuou ali, mas algo subiu antes da palavra, vindo de um lugar que não obedecia ao orgulho. Ela levou a mão à boca, virou-se bruscamente e caminhou até a bacia. Não chegou com elegância. Dobrou o corpo sobre ela e vomitou. Kaelina parou.
+Por um instante, o quarto pareceu pequeno demais para as duas. Alyra abriu a boca para responder, mas empalideceu. Levou a mão ao ventre, respirou pela boca e se virou em direção à bacia. Ela levou a mão à boca, virou-se bruscamente e caminhou até a bacia. Não chegou com elegância. Dobrou o corpo sobre ela e vomitou. Kaelina parou.
 
 Alyra apoiou uma mão na mesa e outra na bacia, respirando pelo nariz. Kaelina deu um passo. Antes da morte de Orionus, Alyra cuidava dela quando adoecia sem nunca admitir que era cuidado.
 
@@ -586,7 +586,7 @@ A pergunta era simples, mas havia defesa nela. Alyra olhou para Iressa.
 
 Iressa não baixou os olhos.
 
-— A cidade pode perdoar uma soberana ausente por atraso. É mais difícil perdoar uma presença que escolhe quem pode chegar.
+— Se não chamaram Kaelina, não digam depois que ela escolheu ficar de fora.
 
 Um silêncio breve percorreu a mesa. Kaelina sentiu uma gratidão tão rápida que quase se tornou dor. Não sorriu. Não podia. Daryon interveio com voz macia.
 
@@ -648,7 +648,7 @@ Alyra nem olhou para ela.
 
 A palavra dela não teve o peso de uma soberana, mas teve o peso de alguém que sabia onde Kaendar guardava sal, carne, grão e vergonha.
 
-— Kaelina impediu uma divisão maior. Se o anel alto permanecesse fechado, os anéis baixos veriam isso como abandono. Talvez a execução tenha sido falha, mas a intenção administrativa era correta.
+— Os anéis baixos já estavam arrombando depósitos para beber água. Abrir as fontes foi necessário. Faltaram guardas para organizar as filas, e isso também precisa ser corrigido.
 
 Brokan bateu a mão na mesa.
 
@@ -662,7 +662,7 @@ Alyra finalmente olhou para ela.
 
 Iressa sustentou o olhar.
 
-— E o teu deveria ser proteger os mais vulneráveis.
+— E o seu é impedir que as pessoas morram de sede, Alyra.
 
 Alguns homens se remexeram. Daryon observou Iressa com um interesse estreito, como quem marca alguém para depois. Kaelina deu um passo à frente.
 
@@ -698,7 +698,7 @@ Murmúrios se espalharam. Kaelina apertou os dedos.
 
 Alyra aproximou-se mais um pouco, a voz baixa o bastante para ser íntima e alta o bastante para ser pública.
 
-— Poder não deve ficar com quem apenas herda uma cadeira. Deve ficar com quem sabe governar quando a cadeira começa a quebrar.
+— Kaendar precisa de ordens que sejam cumpridas. Se duas soberanas mandam coisas contrárias e a Guarda não sabe a quem obedecer, teremos mortos aqui dentro antes que os inimigos atravessem a Garganta.
 
 Iressa estava indignada, Maelis abatida, Nalia evitava olhar e Kadrir apertava os dentes. Outros pareciam aceitar a lógica de Alyra.
 
@@ -722,7 +722,7 @@ Kaelina não baixou os olhos. Alyra afastou-se e olhou para a sala.
 
 Kaelina virou-se e saiu. Ninguém tentou detê-la. No quarto, fechou a porta e ficou parada.
 
-Uma parte dela entendia por que a sala ouvira Alyra. Kaendar tinha sede e Edran estava morto, e Alyra oferecia nomes, rotas, culpados e movimento. Kaelina oferecia perguntas.
+Kaelina entendia por que parte da sala seguira Alyra. A cidade tinha sede, Edran estava morto e os guardas precisavam de ordens claras. Ela abrira as fontes sem calcular o número de homens necessários para manter as filas. Alyra usara essa falha para concentrar a autoridade.
 
 Sentou-se na beira da cama e ficou assim por algum tempo, olhando para nada. Sobre a mesa, a peça antiga de Orionus continuava onde sempre estivera. Aquele objeto de estratégia, madeira marcada por linhas, caminhos, gargantas e posições, parecia ofensivo naquela noite. Um jogo de condições para um mundo que já mordia.
 

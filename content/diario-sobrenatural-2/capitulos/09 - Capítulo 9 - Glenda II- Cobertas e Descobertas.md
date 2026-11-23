@@ -56,15 +56,15 @@ Passei por uma pergunta sobre a infância e parei num trecho em que ela menciona
 
 Copiei a frase no meu caderno. “O fogo liberta.” Era um jeito estranho de responder, mas aquele nome da cidade continuava aparecendo nos meus caminhos. Abri outra aba com o mapa da região e marquei o lugar.
 
-Amélia perguntava sobre as aparições. Luiza dizia ter visto espíritos nas janelas e nas camas, homens e mulheres de várias idades e um grande cão negro que farejava coisas de longe. Acreditava que animais mortos violentamente também podiam deixar espíritos, e acrescentava que árvores e outros seres vivos tinham uma energia própria.
+Amélia perguntava sobre as aparições. Luiza falava de mortos parados nas janelas e ao pé das camas. Mencionava um cão negro que farejava coisas que ninguém via.
 
 Continuei a leitura. A entrevista se tornava menos confortável quando falava de comandar os mortos.
 
 “Amélia: Então os espíritos podem ser obrigados a fazer coisas?”
 
-“Luiza: Podem. Mas não é qualquer médium que consegue. Isso exige muito poder, ou uma força maligna que mande neles. Não é o morto que você deve temer, e sim o que o está usando.”
+“Luiza: Já vi gente pedir ajuda a um morto e ouvir uma voz que não era dele. Às vezes não sabemos quem está respondendo.”
 
-Anotei outra coisa: segundo ela, poucos médiuns tinham conseguido comandar espíritos na história. Pessoas com medos e desejos intensos seriam particularmente vulneráveis a entidades manipuladoras. Também havia uma maneira de manter contato mais profundo com os mortos, que a própria Luiza ainda dizia não dominar.
+Anotei a resposta. A mulher não parecia ter certeza nem de quem estava falando com ela. Voltei ao texto.
 
 “Hebert: Por que a senhora não tenta conversar com os espíritos de Vila Velha?”
 
@@ -146,7 +146,7 @@ Ele deu uma mordida no mesmo cupcake, como se isso significasse alguma intimidad
 
 Quando ele saiu, eu olhei de volta para a tela. O homem nu não estava mais lá. Abri de novo a foto do casal na estrada. Apenas os corpos. Baixa qualidade. Nenhuma sombra. Nenhum sorriso impossível.
 
-E, embora nada disso esclarecesse se Vinícius era inocente ou culpado, os relatos de Luiza e o destino de Hebert e Amélia rendiam uma história excelente. Uma história que podia virar matéria. E matéria é poder.
+Os relatos de Luiza e a morte de Hebert e Amélia rendiam uma matéria. Fechei a fotografia antes de olhar mais uma vez para o canto da tela.
 
 Peguei papel e caneta, reabri a entrevista com Luiza e comecei a rascunhar. Escrevi rápido, o bastante para não dar espaço ao meu cérebro para inventar imagens no canto do olho.
 

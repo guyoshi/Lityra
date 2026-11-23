@@ -2,7 +2,7 @@ Antes que Noreval acordasse por completo, Kaelina abriu na Casa de Bofgro um map
 
 Savel não quisera falar mais depois de fechar a porta. Ainda assim, a frase dele ficara dentro dela como coisa mal engolida. Uma vila na garganta, nem Tondrar nem Polar. Onde dizem que vivem pessoas sem nome.
 
-A rota saía de Noreval, passava por Rukhar Baixo e seguia em direção à Garganta Seca. Entre aquele ponto e Mirval, uma letra antiga marcava: Assentamento de Nhar-Veyr. Abaixo, outra mão acrescentara: sem nome.
+A rota saía de Noreval, passava por Rukhar Baixo e seguia em direção à Garganta Seca. Entre aquele ponto e Mirval, uma letra antiga marcava o assentamento de Nhar-Veyr. Abaixo, outra mão havia escrito: sem nome.
 
 Harrev, de barba já grisalha, e Odris, antigo carregador de mãos largas, estudavam o mapa. Ambos tinham servido sob Edran. Kaelina os escolhera justamente porque já sabiam quando uma ordem precisava de pergunta.
 
@@ -48,7 +48,7 @@ Harrev apertou a correia da lança.
 
 Kaelina prendeu o mapa à sela do tarrak.
 
-— Hoje, se o medo chegar, talvez seja o único guia honesto que temos.
+— Se virem sinal de armadilha, me avisem. E não esperem que eu concorde para agir.
 
 Partiram antes que Noreval começasse a perguntar. No primeiro dia ainda havia marcos Polar e depósitos de rota. No segundo, os caminhos estreitaram e a pedra passou a mandar mais do que o mapa.
 
@@ -72,7 +72,7 @@ Nhar-Veyr surgiu entre rochas e troncos secos, uma linha de casas de barro, bamb
 
 Na primeira casa, a porta estava arrancada, a mesa virada e uma tigela guardava restos secos de caldo de tubérculo de Nhar. Nhorros de antenas rastejavam junto à parede.
 
-Kaelina passou por outras casas. Não havia corpos. Alguém tinha removido os mortos ou levado os vivos.
+Kaelina passou por outras casas. Não havia corpos. Alguém poderia ter retirado os mortos ou levado os moradores consigo.
 
 Perto do poço, uma parede trazia contagens e nomes abreviados. Um deles fora raspado até a argila clara aparecer. Kaelina tocou a marca, sem saber se Ylvena algum dia passara por ali.
 
@@ -170,7 +170,7 @@ Kharvok inclinou a cabeça. O ar raspou na falha do rosto dele.
 
 — Uma mulher de anel alto. Talvez sangue de família antiga, talvez isca, talvez troca. Ainda estamos decidindo quanto vale a tua sede.
 
-A corda apertava o pescoço de Kaelina. O rosto inchado doía, e o sangue seco rachava em seus lábios. Harrev e Odris já não estavam ao seu lado. Edran não estaria em lugar nenhum. Quando falou, a voz saiu baixa, mas atravessou o pátio porque todos queriam ouvir.
+A corda apertava o pescoço de Kaelina. O rosto inchado doía, e o sangue seco rachava em seus lábios. Harrev e Odris tinham morrido tentando protegê-la. Ela pensou em Edran, que teria reconhecido o perigo antes de entrar na vila. Quando falou, a voz saiu baixa, mas atravessou o pátio porque todos queriam ouvir.
 
 — Eu sou Kaelina Polar, soberana dos Polar.
 
@@ -250,7 +250,7 @@ Kaelina virou-se para ela.
 
 — Eu não estou dando a ele. Estou lutando por minha vida.
 
-Kharvok sorriu e os tambores começaram num ritmo vindo dos pátios e das Veias de Barro.
+Kharvok sorriu. Os tambores começaram a bater nos pátios e nas Veias de Barro.
 
 Soltaram Nynestra primeiro. Depois Kaelina. Então o elevador desceu e deixou-as sozinhas.
 
@@ -274,9 +274,9 @@ Nynestra respondeu com outro golpe.
 
 — Explique isso aos Fendelar, ou à Voz que morreu sob tua lei. Aos Buldar que passaram anos contando grão enquanto Kaendar contava impostos. Aos que morreram pelos seus amigos Urtistar.
 
-— Não tenho nada a ver com isso.
+— Eu não sabia dessa emboscada.
 
-— Continue de olhos fechados, soberana. Este é o fruto da ignorância Polar.
+— Vocês nem sabem o que acontece fora das muralhas. Depois perguntam por que queremos lutar.
 
 A lança veio baixa. Kaelina desviou e abriu espaço com o escudo, ainda sem contra-atacar. O pátio vaiou.
 
@@ -436,7 +436,7 @@ Nynestra estudou o rosto dela. Procurava rachadura. Mentira. Treino. Encontrou e
 
 — Corpos queimados dentro de carroças. Raiz marcada na madeira. Isca no meio do caminho da garganta. Urtistar escondidos na chuva. Soa familiar pra você?
 
-Kaelina nada sabia do envolvimento Urtistar. Alyra e o Conselho nunca lhe tinham falado daquilo.
+Kaelina procurou na memória alguma notícia de uma operação com os Urtistar. Não encontrou nenhuma.
 
 — O que vocês faziam com os Urtistar? — perguntou Kaelina.
 
@@ -494,11 +494,9 @@ Nynestra estreitou os olhos. Do lado de fora, passos Tondrar cruzaram o corredor
 
 Kaelina lembrou-se das palavras de Alyra. Do modo como a irmã falava de força como se força fosse sempre resposta limpa.
 
-— Acho que minha irmã está por trás disso. Se estiver, agiu sem me consultar.
+— Se Alyra fez isso, escondeu de mim.
 
-Nynestra riu com incredulidade amarga.
-
-Nynestra foi quem quebrou o silêncio.
+Nynestra riu, incrédula. Pressionou a mão contra a coxa ferida e continuou:
 
 — Torgun me tirou da armadilha. O Tondrar que estava comigo. Não por bondade. Por utilidade, talvez. Por não querer que uma Buldar morresse antes de servir para alguma coisa. Corremos para a Boca Seca. Quase chegamos.
 
@@ -518,7 +516,7 @@ Kaelina sentiu frio, apesar do ar preso da cela.
 
 Kaelina ergueu o rosto.
 
-— Eu não fazia ideia do que estava acontecendo. Passei muito tempo acreditando que o mundo deixado pelo meu pai funcionava como deveria, quando já estava quebrado e agora desaba. Precisamos parar essa guerra. Você é a Mão dos Buldar. Pode parar o seu lado.
+— Eu ignorei coisas demais. Achava que as rotas estavam seguras porque meu pai cuidava delas. Não vi quem pagava por isso. Mas ainda precisamos impedir mais mortes. Você pode falar pelos Buldar.
 
 Nynestra olhou para Kaelina, quase como se fingisse pena.
 
@@ -526,7 +524,7 @@ Nynestra olhou para Kaelina, quase como se fingisse pena.
 
 Kaelina conteve a vontade de responder com nomes e justificativas.
 
-— Eu não sou meu pai. Eu saí de Kaendar para descobrir quem estava mentindo — disse ela. — Achei que, se encontrasse a primeira mentira, conseguiria parar as outras.
+— Eu não sou meu pai. Saí de Kaendar para descobrir quem mentia — disse ela. — Achei que bastava encontrar a primeira mentira para impedir as outras.
 
 Nynestra olhou para ela sem suavidade.
 
@@ -540,7 +538,7 @@ Acima delas, os tambores mudaram. Um ritmo baixo, seco, repetitivo. Não convida
 
 Nynestra ainda a olhava com desprezo, embora menos do que antes.
 
-— É incrível como vocês Polar vivem em seu mundo. Não sabem absolutamente nada de seus inimigos e ainda acham que têm poder sobre eles.
+— Vocês passam a vida cercados de guardas e nem procuram saber como os outros povos vivem. Depois estranham que não aceitem nossas ordens.
 
 Kaelina estava cansada das palavras afiadas de Nynestra, então ignorou e aproximou-se das barras de osso.
 
@@ -584,11 +582,11 @@ Por um instante, Nynestra apenas prestou atenção.
 
 — Não me entregue culpa como se fosse moeda, Polar — disse ela. — Culpa de soberana costuma chegar tarde e ainda fazer alguém menor pagar por ela.
 
-— Não estou pedindo pena.
+— Não quero que tenha pena de mim.
 
 — Então o que está pedindo?
 
-Kaelina pensou em Harrev, Odris e Edran antes de responder.
+Kaelina lembrou dos dois guardas que morreram em Nhar-Veyr e de Edran em Alestir antes de responder.
 
 — Que amanhã você me julgue pelo que eu fizer, não pelo que acha que eu sabia.
 
@@ -598,11 +596,11 @@ Nynestra permaneceu em silêncio.
 
 Nynestra olhou de volta.
 
-— Então já está aceitando ter seu crânio pendurado junto aos outros na Boca Seca?
+— Então já aceitou acabar com o crânio pendurado na Boca Seca?
 
 Kaelina olhou pelas barras, uma pedra luminosa na parede.
 
-— Não. Não vou dar este gostinho a eles. Vou sair daqui. Ao seu lado.
+— Não. Quero sair daqui viva. E, por mais que você me odeie, prefiro que saia também.
 
 — Ah, vai, é?
 
@@ -654,7 +652,7 @@ Nynestra observou-a por algum tempo.
 
 Kaelina quase sorriu. O lábio partido não deixou.
 
-— Não temos como vencer nosso inimigo. Temos que vencer sob as regras deles.
+— Não vamos escapar lutando contra os guardas. Precisamos fazer Kharvok decidir que nos manter vivas serve melhor aos Tondrar.
 
 Nynestra ficou quieta.
 
@@ -674,7 +672,7 @@ Nynestra soltou um riso baixo, sem humor, e baixou os olhos para a própria coxa
 
 Kaelina respirou com dificuldade. Então falou devagar, como quem entrega uma faca pelo cabo.
 
-— Amanhã eu vou dizer coisas que merecem resposta, e você vai responder primeiro com ação. Quando eles acharem que estão vendo a verdade, dê a eles outra. Use a sede deles contra eles. Lembre que há Tondrar fora daqui, homens sangrando enquanto ficam batendo tambor para duas mulheres presas. Khar-Tondr não come crânio. Uma soberana Polar viva vale mais do que morta. Uma Buldar viva vale mais ainda.
+— Amanhã vou te acusar na frente de todos. Quero que me ataque de verdade. Depois fale dos celeiros. Kharvok sabe que os Tondrar precisam dos Buldar para comer. Quero que seja obrigado a lembrar disso diante de todos. E ele também sabe que uma soberana Polar viva pode valer mais do que um crânio na muralha.
 
 Nynestra permaneceu em silêncio.
 

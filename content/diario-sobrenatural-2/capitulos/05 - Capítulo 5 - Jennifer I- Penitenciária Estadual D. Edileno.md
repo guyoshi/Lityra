@@ -222,6 +222,8 @@ Foi essa palavra que ficou presa na minha cabeça.
 
 Vinícius estava preso por algo que não fez.
 
+Depois que os Elos foram destruídos, a polícia finalmente conseguira entrar na casa dos Marques e examinar o lugar. Antes disso, os investigadores voltavam sem conseguir explicar o que tinham ido fazer lá. Agora havia corpos, marcas e depoimentos. A morte do Pézinho acabou registrada como acidente; as dos homens do Mandioca continuavam sem explicação. Havia também uma filmadora no meu quarto. Eu a guardava porque mostrava coisas impossíveis, mas também mostrava Vini com um facão na mão. Se a entregasse, não sabia que parte escolheriam acreditar.
+
 E eu nunca tinha tido permissão pra visitá-lo.
 
 Quando saí da escola, fui pra casa como quem já tinha decidido. Tomei banho, me arrumei, peguei meus documentos, e depois fui até a casa do Alberto.
@@ -338,7 +340,7 @@ Ele chorou mais alguns segundos em mim, e eu não aguentei: meus olhos marejaram
 
 Vini engoliu seco.
 
-— Eu matei uma garotinha, Jennifer. É isso que tá na minha ficha. É isso que eles veem. E aqui dentro… ninguém perdoa isso. Ainda acham que eu sou responsável pela morte do meu pai… do Mandioca… do Pézinho… de todo mundo que entrou naquela casa.
+— Eu matei uma garotinha, Jennifer. É isso que tá na minha ficha. É isso que eles veem. E aqui dentro… ninguém perdoa isso. Ainda acham que eu sou responsável pela morte do meu pai… do Mandioca… do Pézinho… de todo mundo que entrou naquela casa. — Ele baixou a voz. — Depois do Mandioca, um dos homens dele assumiu a quebrada. Tem gente desses caras aqui dentro. Eu nem fui julgado ainda, Jennifer, e eles já decidiram que eu tenho que morrer.
 
 — Mas você não é.
 
@@ -356,7 +358,7 @@ A vergonha queimou em mim. Lembrei da delegacia, do silêncio, de todas as vezes
 
 — Se eu tivesse estado lá naquele dia… eu nunca teria deixado você levar a culpa.
 
-— Alguém tinha que ser responsabilizado — ele respondeu, como se repetisse uma frase que já tinha sido usada contra ele mil vezes.
+— Alguém tinha que ser responsabilizado — ele respondeu, como se repetisse uma frase que já tinha sido usada contra ele mil vezes. — Meu pai, o Mandioca, a Priscila… parecia que eu estragava a vida de todo mundo. Aí eu vi o Junior na delegacia, daquele jeito. Ele era só um moleque. Achei que, assumindo, pelo menos não iam levar ele também.
 
 Disse o que vinha crescendo em mim desde o copo.
 
@@ -366,7 +368,7 @@ Vinícius me encarou e o cansaço dele já tinha passado da descrença e chegado
 
 — Provar? Como? Pessoas mais velhas não conseguem vê-lo.
 
-— Não é bem assim, Vini. Aquilo era influência do Agouro. Qualquer um pode ver um espírito, ou sentir. Obviamente que não é comum. Eu nunca ouvi falar de alguém que vê… tantos como eu vejo — respirei antes de continuar — acontece que… hoje mais cedo… eu acho que um deles… moveu um copo. Eu pensei que queria atirar aquele copo em umas garotas idiotas e… Eu não sei como. Ele me obedeceu. 
+— Não sei o que aconteceu comigo hoje — respondi. — Vi um espírito perto de umas garotas e um copo saiu voando. Eu tinha desejado que aquilo acontecesse. Não sei se fui eu, se foi ele ou se só aconteceu na mesma hora. Mas alguém viu. 
 
 Vini franziu o cenho.
 
@@ -384,7 +386,7 @@ Ele balançou a cabeça.
 
 — Verdade não mantém ninguém vivo. O que mantém é o que as pessoas não sabem. Mesmo que descobrissem… ninguém ia acreditar. E se acreditassem, iam fazer de tudo pra enterrar. Consegue imaginar? “Assassino de criança é solto porque um demônio foi o culpado.”
 
-Eu não consegui responder, porque era isso mesmo. O mundo não gosta de coisas que não cabem no jornal.
+Não consegui responder. Vini esperava uma solução, e eu só tinha um copo quebrado para oferecer.
 
 Então a porta se abriu.
 

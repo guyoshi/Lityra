@@ -2,7 +2,7 @@ Cal Edran Polar atravessou o corredor ereto, o corpo marcado por cicatrizes e os
 
 Parou num ponto onde dava para ver dois acessos: o caminho do anel alto, que levava às torres dos Vigias, e o caminho do pátio interno, por onde entravam cargas e corpos.
 
-— Anel alto. Agora. — A voz dele saiu baixa, mas atravessou as costas dos homens. — Três Vigias por torre. Quero olhos na muralha, na Garganta e no mato. Precisamos que tragam os corpos dos rapazes. Fogueira em dobro. E ninguém abre boca no exterior. Quem andar falando, morre falando.
+— Anel alto. Agora. Três Vigias por torre. Quero olhos na muralha, na Garganta e no mato. Tragam os corpos dos rapazes. Dobrem as fogueiras. E ninguém leva essa notícia para fora das muralhas antes que eu autorize. Quero o nome de quem desobedecer.
 
 Então seguiu para a porta e saiu com os homens.
 
@@ -24,7 +24,7 @@ Então se endireitou só um pouco, o suficiente para mostrar que estava acordada
 
 Kaelina pousou o talismã sobre o braço do trono, como se pousasse uma lâmina contaminada.
 
-— Não podemos tomar nenhuma decisão idiota. — Ela falou baixo.
+— Não vamos decidir por raiva — disse Kaelina.
 
 Alyra inclinou a cabeça, um sorriso pequeno, de canto, e os fios da Ramagem nas maçãs do rosto subiram junto com ele. Por um instante, o ar do salão ficou mais fino. Bateu o dedo no apoio do trono, inquieta.
 
@@ -32,7 +32,7 @@ Alyra inclinou a cabeça, um sorriso pequeno, de canto, e os fios da Ramagem nas
 
 Kaelina hesitou. Alyra riu de novo, sem humor.
 
-— Vamos mandar homens atrás deles. Caçá-los. E pedimos que tragam suas cabeças para expor nas fronteiras para que todos vejam o que acontece quando mexem com os Polar.
+— Mandamos homens atrás deles. Quero as cabeças na fronteira. Quem mexer com os Polar precisa saber o preço.
 
 — Cabeça em estaca alimenta orgulho, não cidade — disse Kaelina.
 
@@ -42,21 +42,21 @@ Alyra virou-se devagar.
 
 A frase do anel inferior atravessou a memória de Kaelina antes que ela pudesse impedir: paz sem pão é só espera. Orionus repetira aquilo como quem falava de guerra, não de cozinha.
 
-— Alyra — Kaelina disse. — É isso que eles todos querem. Que cedamos. Mas não vamos ceder. Kaendar é impenetrável. Nenhum clã tem poder pra nos ameaçar. Esses joguinhos são como testes, pra ver como reagimos. Nosso pai falou sobre vários desses que ele teve no passado. E como ele reagiu?
+— Alyra, alguém deixou um talismã ao lado dos corpos para que o encontrássemos. Quer que reajamos antes de pensar. E se não foram os Tondrar? Vamos começar uma guerra em nome de quem armou isso?
 
-Alyra fez uma cara de quem mastiga o próprio orgulho.
+Alyra apertou os dentes antes de responder.
 
-— Você acredita mesmo no que ele dizia? Já ouviu as histórias da velha cuidadora? Ela falava as verdades que corriam nos corredores, rápidas como escutas-de-muro fugindo por dentro das rachaduras. Com certeza papai não apagava o fogo com terra. Ele era o fogo.
+— Você acredita mesmo naquela versão de papai que contavam nas reuniões? A velha cuidadora ouvia o que diziam nos corredores. Nosso pai não resolvia tudo com conversa. Às vezes, ele era o fogo.
 
-— Alyra, pelas raízes, não mandarei homens atrás deles. Ainda não sabemos quem fez isso. Se atacarmos sem descobrir a verdade, outros morrerão. Não teremos mais mortes. Não queremos guerra. Foram mais de quarenta ciclos do sol sem sangue derramado. Deve haver alguma outra forma.
+— Alyra, pelas raízes, não vou mandar homens atrás dos Tondrar com base num talismã. Nosso pai manteve Kaendar longe da guerra por mais de quarenta ciclos. Quero saber quem matou os rapazes antes de condenar mais gente.
 
-Alyra levantou de uma vez, o movimento rápido demais para ser só raiva.
+Alyra se levantou tão depressa que a cadeira bateu na pedra.
 
-— Que forma, irmã? Quer tentar convidá-los para tomar caldo para ver se pedem desculpas?
+— E então, irmã? Vai convidá-los para tomar caldo e esperar que peçam desculpas?
 
 Kaelina levantou o olhar finalmente.
 
-— Se este encontro proporcionasse a chance de acabarmos com este conflito, sim, por que não?
+— Se uma conversa impedir outras mortes, vou tentar.
 
 — Porque não existe conflito. Só ataque unilateral. Eles mataram dois jovens nossos. E se esperarmos, vão acreditar que podem nos matar impunemente. Já pensou em como ficarão os pais e mães desses garotos ao saber que a Dinastia tem Vigias, muralhas e leis, mas não tem culpado nem condenado?
 
@@ -66,19 +66,19 @@ O salão ficou tão quieto que dava para ouvir um tecido roçando em outro. Dary
 
 A voz dele era macia, quase respeitosa.
 
-— Tanto a prudência quanto a ação devem ser pensadas sob a ótica de nossos inimigos. Se perceberem que podem matar jovens Polar, sujar nossos Vigias de barro e voltar para casa sem consequência, isso pode ser o começo de nossa ruína. E, se atacarmos instintivamente, sentirão que controlam nossas ações por meio das reações.
+— Kaelina tem razão num ponto: se atacarmos agora, estaremos fazendo exatamente o que esperam. Mas se ninguém responder por essas mortes, os outros clãs vão pensar que podem atingir Kaendar sem consequências.
 
 Alyra virou o olho para ele e Daryon continuou, com a calma de quem segura cordas invisíveis.
 
-— Os Polar são há mais de duzentos ciclos, uma dinastia de força. Se eles querem que reajamos, não basta simplesmente reagirmos de forma que não dê espaço algum para outro passo do inimigo? Um ataque certeiro que acabe com eles antes que o soberano deles sequer saiba de onde veio?
+— Há mais de duzentos ciclos os Polar governam porque sabem escolher a hora de agir. Não precisamos dar aos Tondrar uma guerra que possam mostrar a todos. Podemos atingi-los sem anunciar nossa mão.
 
 — Planejar um ataque desses levaria semanas, Daryon — disse Kaelina — e um passo em falso iniciaria uma guerra. Lembre-se que os Tondrar têm aliados.
 
 — Vocês não precisam iniciar uma guerra, minhas damas. Temos homens… homens que ainda ouvem quando pedimos. Homens que não usam brasão, não pedem registro e sempre voltam cobertos de terra… e sangue de suas vítimas.
 
-— Não — disse Kaelina — não vou recrutar exilados para lutar por nós. Eles já não são parte de Kaendar.
+— Não — disse Kaelina. — Expulsamos aqueles homens de Kaendar. Não vou chamá-los de volta só para que matem em nosso lugar.
 
-Então a porta se abriu e Edran voltou ao salão, e a presença dele empurrou o drama para o lado, como uma mão empurra fumaça.
+A porta se abriu e Edran voltou ao salão. As duas irmãs se calaram.
 
 — Já estão trazendo os corpos — ele disse.
 
@@ -276,7 +276,7 @@ Ela franziu a testa.
 
 Kaelina ficou olhando para ele.
 
-— Eu tinha cinco ou seis ciclos. Fugiu da serva que a acompanhava e mordeu um guarda por causa de um menino que nem conhecia. Teu pai viu.
+— A senhora tinha cinco ou seis ciclos. Fugiu da serva que a acompanhava e mordeu um guarda por causa de um menino que nem conhecia. Teu pai viu.
 
 — Eu não lembro.
 
@@ -370,13 +370,17 @@ Edran ficou imóvel. Não pareceu surpreso. Pareceu lembrar.
 
 Kaelina conhecia a história de Lirron, capitão e amigo de Orionus. Durante uma trégua, ele matara um emissário protegido pela palavra do soberano e quase entregara Kaendar a uma guerra. Orionus mandou prendê-lo e o condenou à morte diante de testemunhas.
 
-Daquele julgamento nasceu a Lei do Portão: uma trégua concedida pela soberania deveria ser protegida também contra a raiva dos próprios Polar.
+Depois daquele julgamento, Orionus transformara o antigo costume da Lei do Portão em obrigação pública: a palavra de trégua dada pela soberania teria de ser protegida também contra a raiva dos próprios Polar.
 
-— Seu pai a criou porque um homem de confiança quase incendiou Kaendar acreditando que estava defendendo-a — disse Edran.
+— Seu pai tornou a lei mais dura porque um homem de confiança quase incendiou Kaendar acreditando que a defendia — disse Edran.
 
 — Eu sei.
 
 — Então sabe que, se abrir essa porta, precisará protegê-la até de gente nossa.
+
+Edran tocou a marca de Calandrir na têmpora.
+
+— Prometi a Orionus que cuidaria das meninas dele. Não que ficaria calado se uma colocasse a outra em perigo.
 
 Kaelina pensou em Alyra, nas cabeças que a irmã queria fincar na fronteira. Na mãe ajoelhada diante do corpo do filho. Nos Tondrar, no talismã deixado limpo demais no barro, na facilidade com que uma cidade inteira podia confundir vingança com resposta. Então se levantou devagar.
 
@@ -384,13 +388,13 @@ Kaelina pensou em Alyra, nas cabeças que a irmã queria fincar na fronteira. Na
 
 Edran não desviou os olhos.
 
-— Meu pai a criou para que fosse usada — continuou Kaelina. — Vamos convidar nossos inimigos mais uma vez para cá e resolver isso diplomaticamente.
+— Meu pai a manteve para que fosse usada — continuou Kaelina. — Vamos convidar os Tondrar para negociar diante de testemunhas, em terreno neutro.
 
-— Os Tondrar não irão aceitar entrar depois de terem matado dois dos seus.
+— Os Tondrar não vão entrar em Kaendar enquanto os acusarmos de matar nossos rapazes.
 
-— Irão se recuarmos.
+— Então não pediremos que entrem aqui.
 
-Edran estreitou os olhos, não por discordância, mas por atenção. Kaelina caminhou até a mesa e afastou duas pedras negras da fronteira com o dedo.
+Edran acompanhou o movimento das pedras no mapa. Kaelina havia afastado duas marcas negras da fronteira.
 
 — Vamos enviar uma oferta de paz. Pão do Portão, água limpa, couro tratado. Sal, se ainda tivermos o suficiente. Não como pagamento pelas mortes. Como convite para conversa.
 

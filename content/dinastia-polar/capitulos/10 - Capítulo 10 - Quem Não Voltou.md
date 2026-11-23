@@ -1,6 +1,4 @@
-Dareth já tinha decidido duas vezes, desde a conversa com Vetarius, que ia embora.
-
-A primeira vez fora ainda na mesma noite, sentado na cama larga demais do quarto que lhe tinham preparado na Ala Oeste, olhando para o teto pintado com folhas de raiz entrelaçadas. A segunda fora na manhã seguinte, quando um servo lhe trouxera água quente que ele não pedira e roupas limpas que não eram suas, e Dareth ficara parado, sentindo o cômodo inteiro como uma armadilha bem-feita, generosa demais para ser recusada sem parecer ingratidão. Nas duas vezes, alguma coisa o fizera adiar. Não coragem. Só o reconhecimento cansado de que partir sem responder de verdade à pergunta de Vetarius seria outro jeito de fugir, e ele já tinha decidido, muitos anos antes, que não fugiria mais de nada, mesmo que continuasse recusando voltar.
+Dareth decidira partir duas vezes desde a conversa com Vetarius. Na primeira noite, não dormira direito no quarto da Ala Oeste. Na manhã seguinte, um servo lhe trouxera água quente e roupas limpas, mas Dareth só conseguia pensar na espada que Amaric guardara. Ainda precisava pedi-la de volta. Adiou a partida. Queria falar com Vetarius uma última vez.
 
 Foi Selina quem o encontrou antes que a terceira decisão pudesse se firmar.
 
@@ -16,7 +14,7 @@ Dareth enrijeceu diante do assunto. Selina não demonstrava curiosidade nem pena
 
 — Eu sei.
 
-— Não estou pedindo desculpa como quem quer alguma coisa de volta. — Ela escolheu as palavras devagar, quase contra a própria vontade, como quem não tinha o hábito de se explicar e sentia o esforço físico daquilo. — Só estou dizendo que falei coisas que não deveria ter falado, sem saber o que estava pedindo que você superasse. Isso não muda nada do que eu ainda penso sobre o torneio. Só muda o que eu penso sobre você.
+— Eu fui injusta. — Selina demorou um instante. — Não sabia o que tinha acontecido com a sua família. Não devia ter chamado você de covarde. Ainda acho que o Torneio importa, mas não tinha o direito de falar daquele jeito.
 
 Dareth demorou a responder. Não esperara aquilo dela. Em Kaendar, favores costumavam vir acompanhados de uma cobrança.
 
@@ -26,25 +24,55 @@ Dareth demorou a responder. Não esperara aquilo dela. Em Kaendar, favores costu
 
 — Por quê?
 
-Selina caminhou até a janela estreita que dava para os jardins internos, olhou para fora por um instante antes de responder, como se precisasse organizar o pensamento longe do rosto dele.
+Selina caminhou até a janela estreita que dava para os jardins internos. Ficou um instante olhando para fora.
 
-— Vetarius argumentou tudo errado com você. Glória, dívida, honra Polar, o nome que você deve à cidade. — Ela balançou a cabeça de leve. — Ele não entende o próprio torneio. Acha que criou um espetáculo. Criou uma válvula.
+— Vetarius falou de honra, do nome Polar, de tudo o que você deve à cidade. Não sei por que achou que isso ia convencer você.
 
-— Explique.
+— E o que você diria no lugar dele?
 
-— O Torneio existe porque o outro caminho é guerra. — Selina apoiou as mãos na mesa. — Se os Polar recuarem agora, Vetarius não será o primeiro a pagar. Nem o Conselho. Vão ser soldados, trabalhadores, famílias que nem sabem qual acordo deu errado.
+— Que ele já devia estar procurando outro campeão, se não tem a sua resposta.
 
-— Vetarius pode escolher outro campeão.
+Dareth soltou um riso sem humor.
 
-— Vetarius já comprometeu seu nome politicamente. Não vai aceitar outro enquanto ainda acreditar que você vai lutar, e ele vai continuar acreditando nisso até o último instante possível, porque essa é a natureza dele. — Selina se virou para encará-lo. — Mas essa não é a razão pela qual eu acho que você deveria aceitar.
+— Nisso nós concordamos.
 
-— Qual é, então?
+— Mas ele não vai fazer isso. Está convencido de que você vai aceitar.
 
-— Não precisa lutar por ele. Nem pelo Culto. — Selina deu um passo na direção dele. — Mas você sabe o que uma guerra custa. Eles falam em estandartes, rotas, acordos. Você sabe quem não volta para casa.
+— É um problema que ele mesmo arranjou.
 
-Dareth ficou em silêncio. Não confirmou decisão alguma, não anunciou nada. Selina se despediu com um aceno curto e saiu pela mesma porta por onde entrara.
+— É. Só que o torneio não vai esperar até ele mudar de ideia.
 
-*
+Dareth puxou a cadeira da mesa, sem se sentar.
+
+— Ainda não entendi por que você quer tanto que eu lute.
+
+Selina se voltou para ele.
+
+— Porque passo os dias ouvindo conselheiros discutirem fronteiras e ameaçarem mobilizar tropas. Há homens demais esperando um motivo para guerrear. Se houver acordo no Altar, teremos outra saída.
+
+— E uma luta minha vai impedir uma guerra?
+
+— Não posso garantir que funcione. Mas, se funcionar, não precisaremos mandar soldados morrer por disputas que poderiam ser resolvidas em outro lugar.
+
+— Vetarius pode escolher outro homem.
+
+— Pode. E deveria. Só que ele quer você, e cada dia que perde insistindo é um dia a menos para preparar alguém.
+
+Dareth passou a mão pelo rosto.
+
+— Então fale com ele. Eu não tenho nada a ver com a teimosia de Vetarius.
+
+— Vou falar. — Selina hesitou. — Mas não é só por causa dele que vim aqui. Você sabe o que acontece quando esses homens resolvem levar uma disputa para o campo de batalha.
+
+— Sei. — Dareth largou a cadeira. — Não precisa me lembrar.
+
+Selina baixou os olhos por um instante.
+
+— Tem razão. Desculpe.
+
+Ela se despediu com um aceno curto e saiu pela mesma porta por onde entrara.
+
+
 
 A Câmara dos Onze se reunia raramente com tanta gente presente, e Vetarius, sentado à cabeceira da longa mesa com uma taça já pela terceira vez cheia, achava aquilo mais tedioso do que qualquer batalha que já tivesse evitado pessoalmente. Quase todos os onze estavam ali: a conselheira dos Celeiros recitando números de reserva de grão. O conselheiro das Forjas e Ofícios discutindo licenças temporárias para artesãos estrangeiros. Alguém da Cadeira das Obras, Águas e Cidade reclamando de estradas que precisavam de reparo antes que as delegações as usassem. Selina, na Cadeira dos Caminhos e Estandartes, apontando problemas de alojamento e circulação que os outros pareciam achar menores do que eram.
 
@@ -70,13 +98,13 @@ Selina fez um pequeno gesto com dois dedos, encerrando o assunto antes que ele c
 
 Amira recolheu os papéis e se afastou sem discutir. Vetarius mal prestou atenção. Para ele, aquilo era exatamente o tipo de detalhe que justificava ter uma Cadeira dos Caminhos e, por consequência, não precisar pensar em carroças depois do anoitecer.
 
-A mesa diante deles estava coberta de alimentos que Dareth não via reunidos havia muito tempo. Havia fruto-de-bruma inteiro, sem cortar, a casca pálida sob a luz das lamparinas, e nas casas ricas Polar servi-lo intacto era uma forma de exibir posição. Havia dente-doce empilhado numa tigela funda, a fruta buldar que agora chegava aos mercados de Kaeliran em quantidade suficiente para acabar em toda mesa importante. Havia uva-de-raiz em cachos e fermentada, em jarros que os servos reabasteciam antes de secarem, carnes importadas das terras Quendrar cortadas finas, pães buldar ainda quentes e raízes assadas que ninguém parecia comer com apetite, só por hábito de mesa cheia.
+A mesa da Câmara estava coberta de alimentos trazidos de várias terras. Havia fruto-de-bruma inteiro, sem cortar, a casca pálida sob a luz das lamparinas, e nas casas ricas Polar servi-lo intacto era uma forma de exibir posição. Havia dente-doce empilhado numa tigela funda, a fruta buldar que agora chegava aos mercados de Kaeliran em quantidade suficiente para acabar em toda mesa importante. Havia uva-de-raiz em cachos e fermentada, em jarros que os servos reabasteciam antes de secarem, carnes importadas das terras Quendrar cortadas finas, pães buldar ainda quentes e raízes assadas que ninguém parecia comer com apetite, só por hábito de mesa cheia.
 
 Um dos conselheiros de linhagem mordeu um fruto-de-bruma, fez uma careta discreta com a textura e o deixou de lado, meio comido. Pegou outra coisa da bandeja mais próxima sem pensar duas vezes.
 
 Vetarius observava tudo com o tédio de um homem que já vira a mesma mesa, os mesmos pratos e os mesmos assuntos administrativos se repetirem por décadas, interrompendo de vez em quando com uma piada que ninguém ali teria coragem de deixar sem resposta.
 
-Foi quando discutiam a circulação de documentos religiosos e a autoridade das Casas da Permanência sobre registros que Hadris, sentado na Cadeira do Culto em nome do Sumo Vigia, levantou uma questão adicional.
+Quando a discussão chegou aos registros religiosos, Hadris, na Cadeira do Culto em nome do Sumo Vigia, pediu a palavra.
 
 — Um assunto menor, mas que precisa constar — disse, sem qualquer urgência na voz, como quem lê um item numa lista mais longa. — Houve furto de documentos dentro de uma Casa da Permanência em Maruva. Registros retirados sem autorização.
 
@@ -92,7 +120,7 @@ Alguns riram também. Vetarius sorriu, sem se dar ao trabalho de esconder o quan
 
 Hadris não se alterou.
 
-— Belan não é o problema — respondeu, calmo, esperando o riso se esgotar antes de continuar. — Nem o garoto, nem quem quer que tenha se envolvido na confusão original. O problema é institucional. Alguém entrou numa Casa da Permanência e retirou registros religiosos sem autoridade para fazê-lo. Se isso for tolerado uma vez, será tolerado de novo, e a próxima caixa retirada pode não conter uma disputa de vizinhança.
+— Não estamos julgando Belan — respondeu Hadris, esperando o riso acabar. — Alguém retirou documentos de uma Casa da Permanência. Se deixarmos isso passar, qualquer pessoa poderá esconder o registro que não lhe convém. A Raiz precisa saber que seus arquivos estão seguros.
 
 — E encontraram o culpado? — perguntou Selina, a única, além de Hadris, que parecia genuinamente prestando atenção àquele ponto da reunião.
 
@@ -128,13 +156,9 @@ Dareth não participou da celebração que se formava. Atravessou a sala até a 
 
 Selina não se levantou com os outros. Apenas observou Dareth anunciar a decisão do jeito dele: sem discurso, sem cerimônia.
 
-*
 
-Vetarius não perdeu um único dia.
 
-Antes mesmo que a reunião se dispersasse, Vetarius já convocava escribas, arautos e administradores, decidindo ali mesmo, entre um gole e outro, que a apresentação pública de Dareth Quatro-Dedos como campeão da Dinastia Polar receberia um nome digno da ocasião: o Erguimento do Estandarte. Falava da cerimônia como se já a tivesse assistido, descrevendo estandartes, multidões, o próprio Dareth diante de Kaeliran inteira, e ninguém na sala teve coragem de lembrá-lo de que a data ainda precisava ser marcada.
-
-*
+Antes de a reunião terminar, Vetarius chamou escribas, arautos e administradores. Deu nome à apresentação pública de Dareth: Erguimento do Estandarte. Ordenou que preparassem o Caminho da Permanência, que recuperassem as bandeiras guardadas e que anunciassem o retorno de Quatro-Dedos pelos três distritos. Um conselheiro tentou perguntar a data. Vetarius mandou que a escolhessem logo.
 
 Os dias seguintes passaram na cidade como uma febre lenta e organizada.
 
@@ -148,7 +172,7 @@ Por um instante os dois pareceram prontos para se cumprimentar como sempre tinha
 
 Dareth não foi atrás dele. Não havia nada para discutir. Só continuou andando, guardando aquilo no mesmo lugar onde guardava o resto das coisas que preferia não examinar demais.
 
-*
+
 
 Vetarius insistiu, através de um servo, em oferecer a Dareth uma das melhores lâminas dos ferros da cidade, encomendada especialmente para a ocasião, com um cabo ornamentado que Vetarius descreveu como "digno de um campeão." Dareth recusou. Não precisava de nada novo, nem de nada ornamentado. Precisava da própria espada, a mesma que Amaric guardara na entrada de Kaendar no dia em que chegara, e mandou buscá-la.
 
@@ -160,15 +184,15 @@ A forja de Orvath ficava numa ala baixa de Kaendar, longe o suficiente das salas
 
 — Consegue restaurá-la?
 
-— Ela está desgastada, não morta. — Orvath ergueu os olhos para Dareth, e havia neles um respeito que não parecia reservado à fama do homem diante dele, mas ao objeto que segurava. — Vou fazer tudo o que puder para deixá-la impecável. Vai levar alguns dias.
+— Está gasta, não perdida. — Orvath voltou a olhar a lâmina. — Alguns dias na forja e vai poder usá-la de novo. Não prometo que fique bonita.
 
-— Não é a espada que me preocupa — comentou Orvath, já guardando a lâmina num pano limpo, os olhos correndo brevemente pelo corpo de Dareth, pela forma como ele se apoiava mais num pé do que no outro, pela rigidez que anos longe do treino tinham deixado nos ombros. — Restaurar isso aqui vai ser mais fácil do que restaurar o homem que vai empunhá-la.
+— A espada é a parte fácil — comentou Orvath, guardando a lâmina. — Você está apoiando mais peso no pé direito. Faz isso há quanto tempo?
 
 — Tem alguma sugestão?
 
 — Renar Polar. Melhor treinador de combate que essa cidade tem, e não vai bajular você só porque seu nome já é lenda. — Orvath quase sorriu. — Vai te tratar como qualquer outro corpo que precisa aprender de novo o que já sabia.
 
-*
+
 
 Renar cumpriu exatamente a promessa de Orvath.
 
@@ -184,9 +208,21 @@ O desempenho melhorou de um jeito que surpreendeu até os homens mais experiente
 
 Renar observava dos dois lados da mesma verdade, sem esconder nenhum dos dois de Dareth quando o treino terminou.
 
-— Você ainda é extremamente perigoso — disse, limpando o próprio rosto com um pano. — E também envelheceu de um jeito que nenhum treino vai desfazer por completo. As duas coisas são verdade ao mesmo tempo. Melhor você saber isso agora do que descobrir na arena.
+— Você ainda sabe lutar — disse Renar, enxugando o rosto. — Mas está mais lento. Se tentar acompanhar os mais novos, perde. Hoje só começou a acertar quando parou de correr atrás deles.
 
-*
+Dareth assentiu, recuperando o fôlego.
+
+— Trouxeram informações dos outros campeões?
+
+Renar pegou um papel deixado junto ao muro.
+
+— Algumas. Ouvi falar de Serka Cendar. Dizem que usa vara, gancho e corda para derrubar o adversário. Não sei quanto disso é verdade. A gente testa essas possibilidades quando você conseguir terminar um treino sem precisar parar.
+
+— Então começamos por aí.
+
+— Amanhã. Hoje você mal consegue ficar de pé.
+
+
 
 Caeren apareceu no pátio pouco depois de o treino terminar, quando Dareth ainda recuperava o fôlego junto ao muro baixo que separava a terra batida do resto do corredor.
 
@@ -220,7 +256,7 @@ A resposta pareceu incomodar Caeren mais do que qualquer uma das anteriores, uma
 
 Dareth olhou para ele por um instante mais longo do que a pergunta merecia, avaliando quanto daquilo o garoto realmente queria saber e quanto só queria ouvir repetido de volta o que já tinha decidido de antemão que era verdade.
 
-— A Passagem de Arven não foi uma batalha bonita — disse, por fim, a voz seca, sem floreio. — Eu estava tentando impedir que gente morresse, não construindo história para ninguém contar depois. A maior parte do que se conta por aí já cresceu tanto que nem eu reconheço mais.
+— Arven não foi bonita — respondeu Dareth. — Eu só queria tirar a comitiva de lá. O resto veio depois, nas histórias.
 
 Caeren começou a se irritar, a decepção substituindo devagar o brilho de antes.
 
@@ -228,13 +264,13 @@ Caeren começou a se irritar, a decepção substituindo devagar o brilho de ante
 
 — Não tenho.
 
-— Como é que não sabe? — A voz do garoto subiu um tom, exigindo. — Quero saber os golpes. Os ferimentos. Quantos morreram lá.
+— Como pode não saber? — Caeren ergueu a voz, contrariado. — Quero saber quantos enfrentou. Quantos feriu. Quantos matou.
 
 — Eu já disse o que sei.
 
 — Soral Polar matou trinta e um homens numa única tarde, na Defesa dos Poços Secos. — Caeren soltou o nome como quem apresenta uma prova irrefutável. — Isso está nos registros da era de Teryon. Trinta e um, numa tarde só, e você nem sabe quantos matou numa passagem inteira?
 
-— Os registros confirmam que Soral estava lá e que foi importante naquele dia — respondeu Dareth, sem se alterar. — Não confirmam o número trinta e um. Isso é a tradição contando, não o registro.
+— Está escrito que Soral lutou na Defesa dos Poços Secos. Trinta e um mortos é coisa que começaram a contar depois.
 
 — Mas é verdade.
 
@@ -250,26 +286,24 @@ O silêncio que se seguiu não veio de raiva. Dareth conhecia raiva bem demais p
 
 Caeren se aprumou, pronto para receber, finalmente, o relato que esperava desde o início.
 
-— Eu tinha dezesseis ciclos. Ninguém lembra o nome daquela campanha, e eu duvido que exista em qualquer registro que você vá encontrar, porque não foi grande o suficiente para merecer um. Fomos mandados para conter uma disputa de fronteira que devia durar poucos dias. Durou meses. — Dareth olhou para as próprias mãos enquanto falava, não para Caeren. — Na primeira noite de combate de verdade, fomos emboscados numa passagem de pedra parecida com a de Arven, só que sem nenhuma lenda esperando para nascer dali. Eu estava ao lado de um homem que conhecia desde criança, um vizinho da minha família, que tinha entrado no mesmo turno que eu só porque os dois éramos jovens demais para dizer não. Uma lança abriu o peito dele antes que eu conseguisse virar o corpo inteiro na direção do barulho. Não morreu na hora. Ficou ali, no chão, tentando segurar a própria ferida com as duas mãos como se isso pudesse fazer alguma diferença, chamando pela mãe dele num fio de voz que eu ainda ouço, de vez em quando, em noites que eu não escolho.
+— Eu tinha dezesseis ciclos na primeira campanha. Disseram que íamos resolver uma disputa de fronteira em poucos dias. Levou meses. Na primeira noite de luta, fomos emboscados numa passagem estreita. — Dareth olhou para as próprias mãos. — Um rapaz que cresceu na casa ao lado da minha estava comigo. Uma lança atravessou o peito dele antes que eu visse de onde vinha. Ele caiu e ficou tentando apertar o ferimento com as duas mãos. Chamava pela mãe. Ainda estava chamando quando precisei deixá-lo.
 
 Caeren não disse nada. Tinha parado de se aprumar.
 
-— Eu não consegui fazer nada por ele. Fiquei parado tempo suficiente para um homem do outro lado quase me abrir do mesmo jeito, e só sobrevivi porque outro dos nossos me empurrou pro chão antes que a lâmina chegasse. Lutei o resto daquela noite sem saber, de verdade, quantos golpes dei, quantos recebi, quantos homens caíram por minha causa e quantos só caíram perto de mim. Quando amanheceu, eu tinha sangue seco dentro da bota, tanto que demorei um bom tempo pra descobrir se era meu ou de outra pessoa. Descobri que era meu só porque doía.
+— Fiquei parado. Outro soldado me jogou no chão antes que uma lâmina me alcançasse. Depois lutei até amanhecer. Não sei em quem acertei. Tinha sangue seco dentro da bota e só descobri que era meu quando fui tentar andar.
 
 — E quantos você matou? — perguntou Caeren, a voz bem mais baixa agora do que antes.
 
-— Não sei. Nunca soube. — Dareth finalmente olhou para ele de novo. — E não é porque eu não quisesse saber. É porque, no meio daquilo, contar deixa de fazer sentido. Você não está jogando um jogo com placar, Caeren. Está tentando sobreviver até o próximo instante, e depois até o instante seguinte a esse. E, quando acaba, não são os golpes que ficam.
+— Eu já te disse. Não sei. — Dareth olhou para ele. — Quando alguém está tentando te matar, você não para para contar.
 
 Caeren esperou.
 
-— Fica gente sangrando no chão e chamando por alguém que não pode ajudar. Gente gritando porque não encontra o filho, o irmão, a mãe. Gente tentando carregar ferido sem saber para onde correr. E fica gente que nunca pegou numa arma, que não decidiu guerra nenhuma, presa no meio dela do mesmo jeito.
+— Quando terminou, tinha gente procurando filhos, irmãos, mães. Feridos que ninguém conseguia carregar. E moradores da fronteira que nunca tinham segurado numa espada, mas estavam presos ali com a gente.
 
 O garoto já não parecia procurar um número.
 
-— É isso que você não vê quando ouve uma história de batalha — Dareth continuou. — Quem luta pelo menos sabia que podia morrer. Quase sempre tem muita gente ali que só estava tentando voltar para casa.
+Dareth pegou o pano com que enxugara o rosto, ainda úmido de suor.
 
-Deixou aquilo pesar no silêncio entre os dois antes de completar:
-
-— Se um dia você vir uma guerra de verdade, não vai lembrar de quantos homens alguém matou. Vai lembrar dos que pediram ajuda e ninguém conseguiu tirar dali.
+— É disso que me lembro. Não de quantos homens derrubei.
 
 Caeren ficou olhando para ele por um longo tempo, sem encontrar nada para responder. Dareth se levantou, ainda dolorido do treino, e deixou o pátio sem se despedir.

@@ -165,7 +165,7 @@ Meu peito apertou. Eu fiquei dividido entre a vontade de despejar tudo e a vonta
 
 — A parte normal eu já li no blog.
 
-Contei do cachorro negro, da senhora em quem não podíamos olhar diretamente e da casa dos Marques. Falei dos espíritos daquela família, presos havia mais de trinta anos, e dos seis demônios dos sentidos. Filipo não me interrompeu, até eu mencionar que eram os Elos, objetos ligados aos mortos, que mantinham os demônios ali.
+Contei do cachorro negro, da senhora para quem não podíamos olhar e da casa dos Marques. Quando cheguei aos Elos, objetos ligados aos mortos que prendiam os demônios ali, Filipo se inclinou para me ouvir melhor.
 
 — Vocês destruíram todos? — perguntou.
 
@@ -307,7 +307,7 @@ Aquilo me atingiu. “Starman” era a minha tentativa de ser outra coisa, algu�
 
 “Feche os olhos, relaxe, ouca e se desligue do mundo. Qdo a musica terminar, volte aqui para continuarmos.”
 
-Eu devia ter estranhado mais. Devia ter perguntado como ela conhecia o meu apelido, como ela sabia da minha vida, por que ela falava como alguém que já me via por dentro. Mas eu só queria… parar de sentir.
+Fiquei com o cursor parado sobre o link. Ela tinha lido meu blog, eu sabia. Mesmo assim, parecia saber das coisas que eu não tinha escrito. Coloquei os fones.
 
 “Ok.”
 
@@ -382,6 +382,8 @@ A torneira aberta, mas sem água. Só larva. Larva em cima, larva embaixo, larva
 E aí a lembrança veio:
 
 Filipo. Cara-de-Larva.
+
+Alguém riu do outro lado da porta. Uma risada curta, engasgada, que eu conhecia. A minha risada. Eu ainda estava com a boca fechada, a mão na pia, quando a ouvi de novo, mais perto do chão. Abri a porta de supetão. O corredor estava vazio e escuro. Voltei os olhos para dentro: a torneira tinha parado de pingar. Eu não quis ficar ali para descobrir o resto.
 
 Corri pro quarto sem nem apagar as luzes. Esfreguei as mãos na toalha do guarda-roupa com violência, como se eu pudesse arrancar o nojo e o medo ao mesmo tempo, e liguei o monitor.
 

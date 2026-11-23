@@ -1,4 +1,4 @@
-Alyra leu a mensagem duas vezes enquanto o informante esperava de cabeça baixa. Os Homens das Areias haviam concluído a missão: os Fendelar estavam mortos, e os homens tinham retornado sem deixar rastros suficientes para serem seguidos.
+Alyra leu a mensagem duas vezes enquanto o informante esperava de cabeça baixa. Segundo os Homens das Areias, a missão fora concluída: não havia sobreviventes Fendelar em Velarim, e os atacantes tinham retornado sem deixar rastros fáceis de seguir.
 
 Rumores corriam por mercados, travessias e acampamentos. Kaendar teria enviado homens sem brasão para destruir Velarim, e a trégua com os Tondrar teria servido apenas para matá-los sob uma lei Polar. A versão de Alyra, segundo a qual os Tondrar haviam envenenado Yvenn sob pão e sal, mal aparecia nos relatos. Alyra dobrou a tira de pele e a pousou sobre a mesa.
 
@@ -36,13 +36,13 @@ A frase o deteve. Alyra pegou a mensagem e a estendeu. Daryon se aproximou. Seus
 
 Daryon leu. O sorriso desapareceu.
 
-— Rumores sempre vão existir — disse ele. — Nem toda mentira precisa ser inventada. Algumas só precisam ser contadas pela pessoa certa.
+— Há rumores que não vamos conseguir calar — disse ele. — Precisamos saber quem está espalhando essa versão e por quais rotas.
 
 Alyra riu pelo nariz.
 
 — É isso?
 
-— É o começo da resposta, não a resposta inteira — disse Daryon, dobrando a mensagem com calma. — Se eles espalham que o ataque foi orquestrado por nós, é porque precisam que os outros clãs olhem para Kaendar antes de olharem para o próprio sangue derramado.
+— Se todos começarem a apontar para Kaendar, os Tondrar nem precisarão apresentar provas. Os outros clãs vão repetir a acusação antes de nos ouvir.
 
 — Os Tondrar envenenaram um Polar. Por que ninguém fala disso?
 
@@ -98,15 +98,11 @@ Daryon ficou quieto.
 
 Ele se aproximou e tocou a lateral do braço dela.
 
-— Você está com raiva — disse ele.
+— Eu sei que quer responder — disse ele.
 
-Ela não respondeu.
+Ela não respondeu. Daryon deixou os dedos subirem até o ombro dela.
 
-— E quando está com raiva, quer que o mundo fique simples.
-
-Daryon deixou os dedos subirem até o ombro dela.
-
-— Deixe que falem por enquanto. Rumor também cansa. Se atacarmos toda boca que nos acusa, daremos dentes às acusações.
+— Mas não podemos pôr soldados em cada mercado onde alguém nos acusa. Precisamos descobrir quem está levando essas histórias de um clã ao outro.
 
 Alyra olhou para a mão dele, depois para o rosto. Então, com um gesto seco, afastou-a.
 
@@ -128,7 +124,7 @@ Ela parou, mas não olhou para trás.
 
 Alyra sorriu de lado.
 
-— Lealdade é uma palavra bonita inventada por quem ainda não aprendeu a mandar.
+— E você não confunda estar ao meu lado com ter o direito de me dar ordens.
 
 Antes que ela saísse, Daryon levantou a voz, só um pouco, para que ela ouvisse de longe.
 
@@ -394,7 +390,7 @@ Kadrir levantou-se, recolheu a espada e parte da armadura sem erguer o rosto. Al
 
 — E feche do lado de fora.
 
-Cal Kadrir passou por Kaelina sem encará-la. A porta se fechou e as duas ficaram sozinhas. O vapor continuava subindo, como se nada tivesse acontecido. Kaelina foi a primeira a falar.
+Cal Kadrir passou por Kaelina sem encará-la. A porta se fechou. O vapor ainda subia das bacias quando Kaelina falou.
 
 — Você gostou, não é?
 
@@ -434,7 +430,7 @@ Kaelina aproximou-se até ficar a poucos passos dela.
 
 Alyra ficou muito quieta. Kaelina continuou:
 
-— Você está com medo porque nossos inimigos nos desafiaram. Está com medo porque seu conselheiro Daryon não conseguiu calar o mundo com palavras bonitas. Está com medo porque teme perder o controle da situação.
+— Seus inimigos desafiaram Kaendar, e você desconta isso num homem ajoelhado. Quer que ele tenha medo de desobedecer até quando sabe que está errada.
 
 A mão de Alyra fechou-se.
 
@@ -624,7 +620,7 @@ Kaelina o fitou por um instante.
 
 — Por que não responde as coisas como gente normal?
 
-— Porque geralmente as pessoas usam palavras como armas. E por isso devo ter muito cuidado com o que falo.
+— Porque ainda não sei o que você fará com as minhas respostas.
 
 — Kaendar não é receptiva com estrangeiros — disse ela. — Principalmente os que aparecem depois da morte dos dois rapazes, de Yvenn e de uma tentativa contra minha vida.
 
@@ -648,29 +644,25 @@ Ele olhou para ela ao ouvir o nome.
 
 Kaelina sentou-se diante dele.
 
-— Você disse que estava aqui para me proteger.
+— Você estava na passagem quando o homem me atacou.
 
-— Disse.
+— Estava.
 
-— De quem?
+— Viu quem o deixou entrar?
 
 Marken olhou para a janela.
 
-— Do que está lá fora.
+— Vi um homem descer antes de você. Não conhecia o rosto dele.
 
-— Há muita coisa lá fora.
+— Então por que não chamou meus guardas?
 
-— Sim.
-
-— Seja mais específico.
-
-— Clãs com fome. Crianças que vão crescer ouvindo que os Polar mataram seus pais. Gente que não tem muralha e por isso aprendeu a criar seu próprio caminho. Gente que não tem pão e por isso aprendeu a morder.
+— Não sabia quais deles eram de confiança.
 
 Kaelina ficou em silêncio.
 
-— O que isso significa?
+— E mesmo assim entrou na frente dele?
 
-— Que há muita coisa que pode mudar o seu destino.
+— Você estava no chão, Kaelina. Não tinha tempo de procurar outra pessoa. Não ia deixar aquela lâmina decidir seu destino.
 
 — O meu destino?
 
@@ -698,13 +690,15 @@ Kaelina inclinou-se um pouco.
 
 — Não é algo bonito de se dizer, soberana. Mas o que tiver que ser, será.
 
-— O que quis dizer quando disse… “o molhado”? A quem se referia?
+— Como sabia do homem molhado? — perguntou Kaelina. — Estava falando de Kadrir?
 
-— Para mim, é.
+Marken baixou os olhos.
 
-Kaelina se irritou, só um pouco.
+— Eu não estava nos banhos.
 
-— Não, não é. Eu quero ouvir de sua boca.
+— Eu sei. É por isso que estou perguntando.
+
+Ele não acrescentou nada. Kaelina esperou. Marken mudou de assunto.
 
 — Nem toda certeza vem de uma confissão. Veja os Tondrar. Vocês acreditam que envenenaram Yvenn porque foi o que pareceu acontecer. Mas há partes dessa história que não viram.
 
@@ -764,7 +758,7 @@ Kaelina se levantou.
 
 — Você não conhece Alyra, nem a mim.
 
-— Eu conheço vocês melhor do que vocês mesmas.
+— Conheço algumas coisas que vocês ainda não perceberam.
 
 — O que você quer de mim?
 
@@ -808,7 +802,7 @@ Kaelina tocou a borda com a unha. O som foi baixo. Fechou os dedos em torno dele
 
 — Por que está me dando isso?
 
-— O seu povo empilhou mentiras por tempo demais. Mas mentira é coisa leve, soberana. Uma hora o vento leva. A verdade, não. A verdade pesa. E tudo que pesa deixa vestígio.
+— Não entregue isto aos homens que guardam as relíquias de Kaendar. Antes de decidirem o que significa, vão querer saber quem o trouxe.
 
 Antes que Kaelina insistisse, Marken se aproximou.
 
@@ -834,4 +828,4 @@ Kaelina tentou entender se aquilo era loucura, ameaça ou aviso.
 
 Marken desviou o olhar para a porta.
 
-— Porque o fogo sabe fazer uma mentira viajar. O vento só chega depois, para espalhar as cinzas.
+— Porque uma mentira pode incendiar uma cidade. E, depois, ninguém escolhe para onde o vento leva as cinzas.

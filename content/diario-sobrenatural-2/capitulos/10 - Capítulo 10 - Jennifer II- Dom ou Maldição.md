@@ -246,15 +246,15 @@ Ele desviou o olhar. Eu senti o nervosismo, não no que ele dizia, mas no que el
 
 — Eu vi… a mim mesmo segurando uma faca.
 
-— Não é a primeira vez. Eu… jurei ter visto o Agouro esses dias no quarto da minha mãe. E… segunda, eu fui visitar a Kelly e… ela me atacou.
+— Não é a primeira vez. Eu… jurei ter visto o Agouro esses dias no quarto da minha mãe. E, na segunda, fui ao túmulo da Kelly. Perdi a tarde inteira. Quando abri os olhos, já era noite. Meu caderno estava aberto e tinha a data escrita três vezes. Eu não lembro de ter feito aquilo.
 
-— A Kelly te atacou? O espírito dela?
+— Você desmaiou? Ficou horas sozinho no cemitério?
 
-— Não era exatamente o espírito dela. Está mais para o cadáver — ele respondeu.
+— Não sei se dormi ou desmaiei. Só sei que era a minha letra — ele respondeu.
 
 — Isso é sério? — perguntei, e ele assentiu.
 
-— Junior… isso não é normal. Digo, para mim talvez seja, mas ter esse tipo de visão pode ser sinal de algo ruim.
+— Junior… isso não é normal. As visões já são assustadoras. Mas perder horas assim, sem lembrar do que fez... você precisa levar isso a sério.
 
 — Eu não sei se é visão. E se essas coisas que eu vejo são reais?
 
@@ -376,10 +376,4 @@ O casal estava ali outra vez, a poucos passos, o rosto cadavérico deles me enca
 
 Eu me levantei e recuei. O movimento que eu fiz… eles fizeram também. Eu ergui a mão alguns centímetros. Eles ergueram. Eu dei um “tchau” com a mão. Eles imitaram.
 
-Eu não sabia por que estavam agindo assim. Eu só sabia uma coisa, com a certeza fria de quem finalmente enxerga o tamanho do próprio problema:
-
-Junior estava certo.
-
-Os mortos tinham imitado o meu movimento. Até então, eu sempre fora a garota que precisava fugir deles. Fiquei com vontade de correr para contar ao meu pai, só para ver a cara dele. Depois lembrei que não podia explicar nem metade da história sem assustá-lo.
-
-Levantei a mão outra vez, devagar. Eles levantaram também. Talvez eu conseguisse fazer mais do que ver e ouvir.
+Baixei a mão. Eles baixaram também. Pensei no que Junior havia dito, mas não consegui me sentir aliviada. Levantei a mão mais uma vez. Os dois mortos repetiram o gesto sem desviar os olhos de mim. Não sabia se esperavam alguma coisa ou se tentavam me avisar de algo.

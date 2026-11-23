@@ -108,7 +108,9 @@ Corri até ela.
 
 — O que aconteceu? — perguntou o professor Eddie, que largou o livro ao ouvir o gemido.
 
-— O Jefferson me empurrou, professor. Pô, Jefferson, não sabe jogar, não? — falei, completando a cena.
+— O Jefferson me empurrou, professor — gemeu Kelly, ainda caída.
+
+— Pô, Jefferson, não sabe jogar, não? — completei a cena.
 
 — O quê? Vai se lascar, menina, eu nem trisquei em você!
 
@@ -294,7 +296,7 @@ Ele tirou a mochila das costas, pegou uma fita cassete e esticou na minha direç
 
 Peguei a fita e guardei na mochila, onde ela pareceu queimar.
 
-— Você fala de erro, de mudança. Diz que mudou. Mas vai conseguir mudar todo o sofrimento que causou à minha mãe? Ela não consegue se envolver com mais ninguém por sua culpa. Tem medo de viver. Entrou em depressão, quase morreu pelo que você fez. E onde você tava esse tempo todo?
+— Mudou? Que ótimo pra você. E a minha mãe? Ela passou anos com medo de qualquer homem que chegasse perto, quase morreu de tanta tristeza. Isso você conserta como? E onde você tava esse tempo todo?
 
 — Eu sinto muito. Eu amei demais tua mãe, mas eu era um cara diferente antes…
 
@@ -384,11 +386,11 @@ Peguei o caderno debaixo da cama.
 
 — “Viajantes Dimensionais”? Título hilário. Fala sobre o quê?
 
-— Quatro irmãos que ficam órfãos e ganham poderes depois de tocar numa bolinha mágica na casa deles. Um velho mago leva eles pra outra dimensão e treina os quatro pra uma missão.
+— Quatro irmãos que ganham poderes e um velho mago leva eles pra outra dimensão pra treinar.
 
-— E qual é?
+— Treinar pra quê?
 
-— Recuperar a Imortalis, um orbe mágico que pertence a um mago negro. Ainda tô desenvolvendo o mundo: um universo paralelo ao nosso, com dimensões, vida extraterrestre, essas coisas.
+— Ainda não decidi. Tô desenvolvendo o mundo: um universo paralelo ao nosso, com dimensões, vida extraterrestre, essas coisas.
 
 — Eu adoraria ler quando você terminar.
 
@@ -408,7 +410,7 @@ Travei. Como ela sabia? E o que eu queria dizer sobre isso?
 
 Ela tinha que falar do meu pai justo agora. Respirei fundo. Aquele olhar parecia puxar as palavras de dentro de mim.
 
-— Ele era um desgraçado. Bebia e batia na minha mãe. Quando eu nasci, brigou feio com ela e tentou expulsá-la de casa. Mas a casa tinha sido dos pais dela, e ele não podia simplesmente nos pôr na rua. Por sorte, ela tinha amigos advogados, e ele foi preso. Depois que saiu, tentou voltar. Minha mãe não quis. Aí ele disse que ela não era nada sem ele, que ia morrer sem ter onde cair morta. Nessa época ela ficou desempregada e a gente vivia de ajuda de parente. Chegou a pensar em vender a casa, mas uma amiga indicou um trabalho de faxina, e as coisas começaram a melhorar. Ficamos anos sem ouvir falar dele, até saber que tinha casado de novo, tido um filho. Ele ligou uma vez, pedindo desculpas, dizendo que não ia disputar a casa com ela, que se arrependeu e blábláblá. Minha mãe só se afastou.
+— Ele era um desgraçado. Bebia e batia na minha mãe. Quando eu nasci, brigou feio com ela e tentou expulsá-la da casa dos pais dele, onde a gente morava. Por sorte, ela tinha amigos advogados, e ele foi preso. Depois que saiu, tentou voltar. Minha mãe não quis. Aí ele disse que ela não era nada sem ele, que ia morrer sem ter onde cair morta. Nessa época ela ficou desempregada e a gente vivia de ajuda de parente. Chegou a pensar em vender a casa, mas uma amiga indicou um trabalho de faxina, e as coisas começaram a melhorar. Ficamos anos sem ouvir falar dele, até saber que tinha casado de novo, tido um filho. Ele ligou uma vez, pedindo desculpas, dizendo que não ia disputar a casa com ela, que se arrependeu e blábláblá. Minha mãe só se afastou.
 
 — E ele nunca foi atrás de você?
 

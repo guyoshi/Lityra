@@ -1,22 +1,22 @@
-Kalan saíra para o cais antes de os outros acordarem, como fazia desde que Elis conseguia lembrar. Tair reclamava da água fria da noite. Perto da porta, Karesis mastigava pão duro, descalço, os cabelos molhados de alguma coisa que não era chuva e uma corda fina enrolada na mão.
+Na manhã anterior à chegada dos Filhos da Raiz, Kalan saíra para o cais antes de os outros acordarem, como sempre fazia. Tair reclamava da água fria da noite. Perto da porta, Karesis mastigava pão duro, descalço, os cabelos molhados de alguma coisa que não era chuva e uma corda fina enrolada na mão.
 
 — Você vai desmontar essa corda inteira antes do meio-dia se continuar assim — disse Tair, sem erguer os olhos da tigela.
 
-— É o que ela é pra isso — respondeu Karesis, sem parar.
+— Estou quase terminando — respondeu Karesis, sem parar.
 
 Orel comia em silêncio ao lado de Elis, os olhos inchados de sono. De vez em quando erguia a cabeça para conferir se Karesis ainda estava à porta.
 
-Tair falava sobre os preços que tinham subido por causa do torneio, sobre uma fila que crescera tanto na venda de sal que ele desistira de esperar, sobre um barco cheio de gente de terras distantes que atracara perto do Cais dos Zírrios fazendo um barulho de instrumentos que ele nunca tinha ouvido. Emendou, resmungando de antemão, que ainda precisava levar uma cobrança até Roven naquela tarde, e que ia passar o resto do dia com o cheiro dos curtumes grudado na roupa.
+Tair reclamava do sal, que subira de preço desde o anúncio do torneio. Contou que desistira da fila na venda e que um barco de terras distantes atracara no Cais dos Zírrios, cheio de gente tocando instrumentos que nunca ouvira. Ainda precisava levar uma cobrança a Roven naquela tarde. Só de pensar no cheiro dos curtumes, torceu o nariz.
 
-— Roven — repetiu Elis, só para preencher o silêncio enquanto mastigava. — Eu nasci lá, não foi?
+— Se for pelo canal, evita a rua das tinas — comentou Karesis, ainda ocupado com a corda. — Os carregadores deixam a passagem entupida até tarde.
 
-— Foi — confirmou Karesis, sem interromper o trabalho com a corda, do mesmo jeito que confirmaria a cor do céu. — Lá pro lado dos curtumes, se a memória não me trai.
+— Como se o resto de Roven fosse uma rua vazia — respondeu Tair. — Vou voltar de lá cheirando a couro curtido, seja qual for o caminho.
 
-— Eu não lembro de nada.
+— Traz peixe na volta. Assim a casa fica fedendo a uma coisa diferente.
 
-— Você tinha o quê, um ciclo? Dois? — Karesis deu de ombros. — Ninguém lembra de nada com essa idade.
+Orel soltou um riso abafado. Tair apontou a tigela para Karesis como se fosse responder, mas desistiu e voltou a reclamar do preço do sal.
 
-Tair aproveitou a pausa para reclamar de outra coisa. Elis terminou o pão e levou as tigelas para o canto onde ficavam à espera de água. Já ajeitando a faixa das contas do dia, Tair apontou para o outro lado da casa.
+Elis sorriu. Segundo Karesis, nascera em Roven, perto dos curtumes, mas saíra de lá tão pequena que não lembrava de nenhuma rua. Conhecia o distrito pelo que os outros contavam. Elis terminou o pão e levou as tigelas para o canto onde ficavam à espera de água. Já ajeitando a faixa das contas do dia, Tair apontou para o outro lado da casa.
 
 — Depois vê quanto grão ainda resta no caixote, Elis. Se sobrou pouco, preciso saber antes de decidir o que compramos hoje.
 
@@ -24,7 +24,7 @@ Tair aproveitou a pausa para reclamar de outra coisa. Elis terminou o pão e lev
 
 Pouco depois, Tair subiu para procurar os papéis da cobrança que precisava levar a Roven, e Orel foi atrás dele. Karesis terminou o pão, enrolou a corda no cinto e saiu sem explicar para onde ia. Quando Elis percebeu que tinha ficado sozinha no térreo, lembrou do grão.
 
-*
+
 
 O caixote de grãos ficava encostado na parede mais afastada da porta, num canto que recebia pouca luz mesmo de dia, e Elis já tinha enfiado a mão lá dentro tantas vezes que fazia aquilo sem pensar: abriu a tampa, passou os dedos pela superfície do grão até sentir o fundo raso, contou por instinto o quanto ainda dava para mais alguns dias, e ia fechar de novo quando alguma coisa a fez parar.
 
@@ -34,7 +34,7 @@ Elis se abaixou e comparou a altura externa com a profundidade que sua mão alca
 
 Passou os dedos pelo fundo, onde a pouca luz não chegava, e encontrou uma linha fina junto à borda. Seguiu-a até o canto. Uma tábua escondia o fundo verdadeiro do caixote.
 
-Ela puxou uma unha pela fresta até sentir a madeira ceder um pouco, e com mais um pouco de força a tábua se soltou, raspando de leve contra as laterais, revelando um espaço escuro e estreito por baixo.
+Enfiou a unha na fresta e forçou a tábua, que se ergueu com um rangido. Debaixo dela havia um compartimento estreito.
 
 Havia uma caixa ali dentro.
 
@@ -48,13 +48,13 @@ A caixa pertencia a algum arquivo oficial, não a um fundo falso sob os grãos. 
 
 Mas isso podia esperar. Roven não podia.
 
-*
+
 
 Levar a caixa até os túneis significava atravessar um trecho de rua que Elis conhecia de olhos fechados, e foi por conhecer tão bem que ela quase deixou passar o detalhe: perto do pequeno reservatório de água que servia três ruas de Maruva, junto de uma tampa de pedra que raramente alguém erguia, havia um risco novo entalhado na borda de madeira que protegia a manivela.
 
 Não era idêntica à marca da porta de casa, mas Elis reconheceu as duas linhas que se encontravam no fim, abertas havia pouco na madeira. Olhou por mais um segundo e seguiu. A caixa pesava nos braços, e Roven esperava.
 
-*
+
 
 O esconderijo que Elis usava havia ciclos ficava numa curva funda dos túneis, longe o bastante da entrada mais próxima para que nenhum som de rua chegasse até ali, perto o bastante de uma antiga fresta na pedra por onde um fio de luz cinzenta descia o suficiente para ler, se a pessoa aproximasse bem o rosto do papel. Elis sentou-se no chão seco, abriu a caixa sobre o colo e começou a separar os documentos por cima, os que pareciam mais simples primeiro.
 
@@ -80,7 +80,7 @@ Elis ficou olhando para aquilo, sentindo alguma coisa se encaixar devagar. Tair 
 
 Ela pensou nos últimos dias, juntando peças que até então tinham ficado espalhadas demais para formar qualquer desenho: o jeito como Kalan chegara tenso do trabalho mais de uma vez sem explicar por quê. Uma manhã em que ele saíra de casa antes de qualquer luz decente, sem dizer para onde ia. A forma como, quando alguém mencionava a Casa da Permanência perto dele, seus ombros ficavam mais duros, um detalhe pequeno demais para qualquer pessoa notar, a não ser alguém que passava a vida notando esse tipo de coisa.
 
-Se aqueles papéis provavam que Tair estava errado, e se alguém tivesse descoberto isso antes dos guardas, alguém que soubesse ler bem o suficiente e tivesse um motivo forte para não deixar que a mentira fosse desmontada rápido demais, fazia sentido que essa pessoa tivesse levado a caixa inteira, em vez de arriscar que alguém notasse a falta de um papel só.
+Olhou mais uma vez para o nome de Darven. Tair errara, e Kalan tinha ido à Casa da Permanência logo depois da agressão. Ele sabia ler aqueles registros. Também sabia o que aconteceria se os guardas encontrassem o nome Polar.
 
 Se Kalan levara a caixa para proteger Orel, fizera isso sem lhe dizer uma palavra. Elis sentiu orgulho e raiva ao mesmo tempo. Voltou aos papéis e encontrou o nome de Neiva.
 
@@ -104,13 +104,13 @@ A palavra recém-aprendida aparecia ao lado do nome da mãe e da referência DV-
 
 Desvinculada de quê?
 
-Não havia resposta na folha. Procurou nas outras, virou o papel, sacudiu de leve a caixa como se uma resposta pudesse estar solta em algum canto: um nome que ela conhecia, um lugar (Roven) que agora sabia ser o próprio, um pertencimento que confirmava o que sempre soubera, e uma linha final que sugeria, sem provar nada, que antes daquele pertencimento existira outro. Que a mãe que ela conhecia por um único nome e uma única vida tivesse sido, em algum momento anterior a tudo que Elis já vivera, alguma outra coisa, ligada a alguma outra coisa, antes de ser desligada dela.
+Não havia resposta naquela folha. Elis procurou nas outras, virou o documento e conferiu a referência: DV-0417. Era o número de outro registro, não uma explicação. Talvez Neiva tivesse pertencido a outra casa antes de viver em Maruva. Talvez nem fosse isso. Sem a folha correspondente, Elis não tinha como saber.
 
 Guardou os papéis de volta na mesma ordem, com o mesmo cuidado que imaginava Kalan tendo tido antes dela, e não devolveu a caixa. A caixa já estava sumida havia dias, e devolvê-la agora só a colocaria de volta no caminho de quem quer que estivesse procurando, sem responder nenhuma das perguntas que ela agora carregava. Escondeu-a numa rachadura funda, atrás de uma pedra solta que só ela sabia mover, no mesmo tipo de esconderijo onde guardava, havia ciclos, pedaços de mapa que ninguém mais em Maruva sabia ler.
 
 Só ao se levantar, com os joelhos doloridos da pedra fria, Elis olhou para o esconderijo outra vez. Kalan também tinha decidido sozinho o que os outros não precisavam saber. A lembrança a incomodou, mas ela deixou a caixa onde estava.
 
-*
+
 
 Rovan estava parado perto da esquina onde a rua de Maruva se estreitava antes de virar para o mercado, discutindo com um homem que Elis não conhecia, a voz alta o bastante para que meia rua ouvisse mesmo sem querer.
 
@@ -118,9 +118,9 @@ Rovan estava parado perto da esquina onde a rua de Maruva se estreitava antes de
 
 O outro homem tentou responder, mas Rovan já tinha emendado outra frase, e outra depois dessa, a mesma cadência de sempre, o mesmo desprezo adornado de nostalgia por um tempo que ele parecia lembrar melhor do que realmente vivera.
 
-Em outro dia, Elis teria respondido a Rovan só para irritá-lo. Mas a cabeça dela continuava presa entre um nome e um código, entre uma pergunta sem resposta e o peso de ter descoberto, na mesma manhã, dois segredos que não pediu para conhecer, e passou pela esquina sem virar o rosto para a discussão, como se Rovan fosse só mais um som de Maruva.
+Em outro dia, Elis teria provocado Rovan. Naquela manhã, porém, continuou andando. Queria perguntar a Vesna sobre Neiva antes que perdesse a coragem.
 
-*
+
 
 A casa de Vesna cheirava, como sempre, a ervas fervidas e tecido limpo, mas quando Elis chegou não havia silêncio esperando: Vesna estava ocupada com um homem sentado num banco baixo, o braço estendido enquanto ela limpava um corte fundo com um pano embebido em alguma coisa que fazia o homem cerrar os dentes. Num canto, um caderno aberto recebia anotações rápidas entre um movimento e outro: pano usado, tipo de remédio, nome do paciente, tudo registrado pela mesma mão que segurava a agulha um instante antes.
 
@@ -130,47 +130,51 @@ Elis esperou, observando o jeito como Vesna terminava um curativo e já começav
 
 — O que foi?
 
-— Eu queria te perguntar uma coisa. Sobre minha mãe.
+— Vesna, você lembra como era minha mãe? Posso te perguntar uma coisa?
 
 Vesna parou de limpar as mãos.
 
-— Que tipo de coisa?
+— O que você quer saber?
 
-— Quando ela chegou lá. — Elis hesitou, sem saber bem como formular o resto. — Aqui. Em Maruva.
+Elis olhou para o caderno ainda aberto, para as linhas que Vesna acabara de preencher enquanto cuidava do ferido.
 
-— Em Maruva? — repetiu Vesna. A pausa fez Elis desconfiar de que havia algo mais a dizer sobre sua chegada ao bairro.
+— Ela sabia ler aqueles papéis difíceis? Os da Raiz, com um monte de coisa escrita?
 
-— É — disse Elis, sem saber explicar por que a própria pergunta de Vesna a deixara mais incomodada do que qualquer resposta poderia deixar.
-
-Vesna terminou de guardar os instrumentos antes de responder, e quando falou, sua voz tinha ficado mais suave, quase distante.
-
-— Sua mãe lia melhor do que qualquer pessoa que eu já conheci na condição dela. — Ela sorriu, um sorriso pequeno e cansado. — Entendia formulário antes de eu terminar de explicar. Eu brincava que ela devia trabalhar na Casa da Permanência em vez de ficar remendando rede com Karesis.
+— Sua mãe? — Vesna pousou o pano perto do caderno. — Lia melhor do que qualquer pessoa que eu conheci na condição dela. Entendia formulário antes de eu terminar de explicar. Eu brincava que devia trabalhar na Casa da Permanência em vez de ficar remendando rede com Karesis.
 
 — Ela nunca me contou isso.
 
-— Tem muita coisa que as mães não contam — respondeu Vesna, e não parecia estar falando de nada em especial, só enunciando uma verdade geral o suficiente para servir de qualquer situação.
+— Talvez nunca tenha achado que precisava contar.
 
-Elis ficou um instante quieta, sentindo o peso das próprias palavras antes mesmo de dizê-las.
+Elis ficou olhando as anotações. Durante anos, pensara em Neiva trabalhando com as redes e voltando para casa cansada, sem imaginar que ela pudesse compreender tão bem aqueles papéis difíceis.
 
-— Eu vi uma coisa. — Escolheu as palavras com cuidado, evitando qualquer menção a caixas, a fundos falsos, a papéis que não deveriam estar em suas mãos. — Uma referência. De desvinculação.
+— Você conheceu ela em Roven? — perguntou. — Antes de a gente vir morar aqui?
+
+Vesna levou um instante para responder.
+
+— Eu a conheci em Maruva. Do que veio antes, ela não falava muito comigo.
+
+Elis assentiu, mas continuou olhando para o caderno. Podia perguntar mais sobre Roven depois. Havia uma palavra que não conseguia tirar da cabeça.
+
+— Eu vi o nome da minha mãe num papel — contou Elis, sem mencionar a caixa nem o esconderijo. — Tinha uma palavra do lado, desvinculação. E um número.
 
 Vesna endureceu o corpo de um jeito que Elis reconheceu na hora, o mesmo tipo de rigidez que via em Orel quando ouvia palavras que associava a perigo.
 
-— Onde você viu isso?
+— Desvinculação? Como assim? Onde você viu isso?
 
-— Não importa onde. — Elis sustentou o olhar, mesmo sentindo a vontade de baixá-lo. — Você podia descobrir o que significa? Encontrar o registro?
+— Não posso te contar onde vi — disse Elis, mantendo os olhos em Vesna. — Mas você consegue descobrir o que é isso? Tem outro papel explicando?
 
-— Esse tipo de arquivo não é o que eu consulto normalmente, Elis. — A voz de Vesna ficou mais firme, mais formal, como se estivesse recitando uma regra que preferia não ter que recitar. — Registro de origem, de alteração, de desvinculação — isso fica guardado em outro lugar, com outra autorização. Eu precisaria de permissão que não tenho, ou precisaria entrar em algum lugar que não deveria.
+— Esses arquivos não ficam comigo, Elis. Registro de origem, alteração, desvinculação... é outra repartição. Não posso entrar lá e pedir um documento desses. Precisaria de uma autorização que não tenho.
 
 — Eu só queria conhecer minha mãe melhor.
 
 Alguma coisa no rosto de Vesna se moveu, uma dor rápida que ela não conseguiu esconder totalmente antes de voltar a fechar a expressão.
 
-— Eu sei que é isso que você quer. — Ela tocou, de leve, o ombro de Elis, um gesto breve, quase contido demais para ser um consolo completo. — Mas a resposta continua não. Não hoje.
+— Eu sei que você quer. — Ela tocou, de leve, o ombro de Elis, um gesto breve, quase contido demais para ser um consolo completo. — Mas hoje eu não posso te ajudar.
 
-Elis assentiu. Vesna já se voltara para o caderno de anotações. Ainda assim, dissera "não hoje", e Elis guardou aquelas duas palavras.
+Elis assentiu. Vesna voltou ao caderno de anotações.
 
-*
+
 
 A casa recebeu Elis com o barulho de sempre, e por um instante aquilo pareceu suficiente para empurrar o resto do dia para um canto mais silencioso da cabeça. Tair estava sentado à mesa, ainda com a faixa das contas amarrada na cintura, recontando para Orel e Karesis, com uma indignação que crescia a cada frase, como um homem na fila do mercado tentara passar na frente dizendo que sua encomenda era mais urgente.
 
@@ -194,11 +198,11 @@ Tair se virou.
 
 Orel sorriu, o sorriso inteiro e sem reserva que só aparecia em raros momentos do dia, e se abaixou para abraçá-lo com toda a força que sempre parecia estar contendo no resto do tempo. Elis riu de verdade daquela vez, um riso curto que aliviou, por um instante completo, o peso de tudo o que carregara desde a manhã.
 
-*
+
 
 Mais tarde, depois que a casa foi se aquietando (Tair e Orel já tinham subido para o quarto que dividiam com Kalan, enquanto Karesis continuava no térreo, olhando para a porta como fazia antes de decidir se ia ficar ou sair), Elis pegou um dente-doce guardado havia dias num canto da roupa, subiu para o quarto menor e se deitou, mordendo devagar, fazendo cada pedaço durar o máximo possível antes de engolir.
 
-Pensou em Neiva. Pensou na palavra desvinculação, e em como finalmente conseguira montá-la, sílaba por sílaba, só para descobrir que o que a palavra escondia era maior do que a dificuldade de lê-la. Pensou em Vesna dizendo que a mãe lia melhor do que qualquer pessoa naquela condição, um elogio pequeno, quase bobo, que não parava de voltar, como se houvesse ali alguma coisa que Elis devesse notar e não conseguia. Pensou na pergunta de Vesna ("Em Maruva?") e em como aquelas duas palavras pareciam ter aberto, só por um instante, uma porta para uma vida anterior que ninguém nunca tinha mencionado.
+Repetiu em pensamento a palavra que aprendera nos túneis: desvinculação. Vesna dissera que Neiva lia melhor do que qualquer pessoa na condição dela. Também dissera que só a conhecera em Maruva. Elis mordeu mais um pedaço do doce. Como era possível saber tão pouco sobre a vida da própria mãe?
 
 Pensou no pai. As lembranças dele eram poucas e vinham sempre depois das lembranças da mãe. Sabia que ele tinha mãos ásperas, porque lembrava vagamente da sensação delas em volta das próprias costelas, erguendo-a no ar até ela gritar de rir. Sabia que ele cantarolava sem letra reconhecível, um som baixo e repetitivo que ela ainda conseguia lembrar sem conseguir reproduzir. E sabia que tinha ido embora antes de ela guardar qualquer memória que valesse o nome, não uma história, não um motivo, só a ausência dele, tão antiga que nunca doera de verdade, do mesmo jeito que a ausência de Karesis existia agora, só que mais funda, mais velha, sem nenhuma garrafa nem cheiro de rio para explicar por onde ele podia estar.
 

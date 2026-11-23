@@ -1,6 +1,6 @@
 Kaelina pediu que abrissem a Sala dos Registros antes da primeira luz tocar o anel alto. Queria reler o reinado de Orionus e, agora, também a morte dele.
 
-A Sala dos Registros guardava tábuas, rolos de couro, folhas de fibra, contas de osso, mapas, marcas de dívida e livros. O ar cheirava a madeira seca, tinta e óleo de conservação.
+A Sala dos Registros guardava tábuas, rolos de couro, folhas de fibra, contas de osso, mapas, marcas de dívida e livros. O ar cheirava a madeira seca, tinta e óleo usado para conservar os documentos.
 
 Maelis já estava lá, com os dedos manchados de tinta e três tábuas abertas. Ao ver Kaelina, levantou-se e derrubou um estilete.
 
@@ -56,7 +56,7 @@ Enquanto esperava, Kaelina leu registros de Orionus: o Atraso Proposital diante 
 
 Contenção. A palavra escondia fome alheia.
 
-Kaelina pousou os dedos sobre a madeira. Os registros mostravam um Orionus menos limpo do que a memória dela.
+Kaelina pousou os dedos sobre a madeira. Nos anexos, Kaelina encontrava decisões de Orionus que ninguém mencionava quando falava de sua paz.
 
 Os materiais chegaram em duas viagens: as tábuas oficiais e um baú de anexos, fechado por fio de cobre e selo quebrado.
 
@@ -160,7 +160,7 @@ Maelis olhou de novo para a tábua.
 
 — E isso bastava?
 
-— Para alguém pequeno, bastava. Para alguém que depois se tornou grande... bastava ainda mais, porque ninguém queria ser o primeiro a admitir que não verificou antes.
+— Na época, bastava. Depois que Daryon subiu de posição, ninguém quis admitir que não tinha conferido o documento direito.
 
 Kaelina ficou em silêncio.
 
@@ -194,7 +194,7 @@ Maelis apertou os dedos no estilete.
 
 — Minha soberana, depois do que aconteceu no Conselho...
 
-— Depois do que aconteceu no Conselho, qualquer pessoa que me veja procurar respostas vai correr para avisar alguém. Então vamos deixar que corram tarde.
+— Depois do que aconteceu no Conselho, qualquer um que me veja investigando vai avisar Alyra. Quero chegar antes da notícia.
 
 Maelis assentiu, mas havia medo em seu rosto.
 
@@ -260,7 +260,7 @@ A placa dizia Casa de Bofgro. Quando Kaelina entrou, as conversas diminuíram e 
 
 — Procuro Savel Noreth Polar.
 
-O nome mudou o ar. Foi discreto, mas ela viu. Um olhar para a esquerda. Uma mandíbula apertando. Alguém fingindo beber. O dono da casa molhou os lábios.
+Dois homens trocaram olhares. Alguém no fundo ergueu o copo sem beber. O dono da casa molhou os lábios.
 
 — Savel não costuma...
 
@@ -300,9 +300,9 @@ Desta vez, a mão dele fechou-se devagar em torno do copo. Kaelina esperou. O si
 
 — Não tenho nada para dizer — respondeu Savel.
 
-— Não estou mandando como soberana.
+— Quero falar com o senhor, não obrigá-lo a falar.
 
-— Que sorte a minha.
+— Então volte sem os guardas e sem essa pintura na testa.
 
 Kaelina não alterou a expressão.
 
@@ -312,7 +312,7 @@ Savel a avaliou por algum tempo.
 
 — Verdade? — ele repetiu.
 
-— Sim.
+— Quero saber o que aconteceu com Daryon e Ylvena.
 
 Savel levantou-se com dificuldade. O movimento revelou ainda mais magreza. Parecia que a roupa pendia de ossos teimosos.
 
@@ -476,9 +476,9 @@ Kaelina não interrompeu.
 
 Savel passou o polegar pela borda do copo.
 
-— Próximos é palavra limpa.
+— Eram mais do que conhecidos.
 
-— Então use outra.
+— O senhor quer dizer que tinham um relacionamento?
 
 — Ela o via. De verdade. Isso é coisa rara para gente como ele. A maioria via um rapaz útil, bonito quando cresceu, educado quando convinha, inteligente demais para o lugar onde nasceu. Ylvena via o buraco por baixo. Acho que isso fez meu filho gostar dela.
 
@@ -536,7 +536,7 @@ Kaelina olhou para a Raiz torta na parede.
 
 Kaelina bebeu o chá. Estava quase frio.
 
-— O que Daryon e Ylvena queriam buscar em Kaendar?
+— Por que Daryon e Ylvena foram para Kaendar?
 
 Savel demorou a responder.
 
@@ -596,7 +596,7 @@ Savel bateu o copo na mesa com força inesperada.
 
 O som ficou preso nas paredes.
 
-— Daryon pode ser frio. Pode ser vaidoso. Pode esconder o coração tão fundo que esquece onde enterrou. Mas matar um soberano? Não. Ele teria outros caminhos. Sempre teve. Meu filho não quebra porta se consegue fazer o dono entregar a chave e agradecer pela educação.
+— Daryon pode ser frio. Pode ser vaidoso. Pode esconder o coração tão fundo que esquece onde enterrou. Mas matar um soberano? Não. Ele teria outros caminhos. Sempre teve. Meu filho não arromba uma porta se consegue fazer o dono abrir e ainda agradecer.
 
 — Os homens que estiveram aqui — disse Kaelina. — Não vieram por acaso. Eles servem Alyra. E pareceram vir por algo que interessa a Daryon.
 
@@ -606,7 +606,7 @@ Savel bebeu água devagar.
 
 — Talvez?
 
-— Você quer que eu diga que meu filho mandou matar o próprio pai para esconder que nasceu sem nome.
+— Você quer que eu diga que meu filho mandou me matar para esconder o que eu sei da origem dele.
 
 — Por que outra razão homens armados teriam vindo aqui no dia em que cheguei?
 
@@ -620,7 +620,7 @@ Savel olhou para a porta.
 
 Kaelina sentiu a raiva subir.
 
-— Sr. Savel, nada justifica um filho mandar matar o próprio pai. E se ele é capaz desse feito, com certeza é capaz de ter matado um soberano.
+— Se Daryon mandou homens armados atrás do senhor, não posso ignorar o que isso significa. E preciso saber até onde ele iria para esconder a própria origem.
 
 — Você não conhece Daryon como eu, soberana.
 
@@ -650,7 +650,7 @@ Kaelina calou-se. O velho respirou devagar, como se tivesse usado força demais.
 
 Kaelina pousou as mãos sobre a mesa.
 
-— O senhor tem uma visão errada do seu filho. Ele não é apenas um homem frio tentando subir. Ele é um assassino.
+— O senhor lembra do rapaz que criou. Eu estou tentando entender o conselheiro que ele se tornou. E tenho razões para suspeitar que esteja envolvido em mortes.
 
 Savel baixou os olhos.
 
@@ -664,15 +664,15 @@ Savel olhou para o copo.
 
 — Já esfriou.
 
-— Então aqueça. Pode ser seu último.
+— Então aqueça. E tranque a porta esta noite.
 
-Ele não respondeu. Kaelina abriu a porta. A chuva entrou com força, trazendo cheiro de lama, lenha molhada e noite. Ela saiu, mas antes de fechar ouviu a cadeira arrastar atrás de si.
+Ele não respondeu. Kaelina abriu a porta. A chuva entrou com força, trazendo cheiro de lama, lenha molhada e noite. Ela saiu. Antes de fechar a porta, ouviu a cadeira arrastar na casa.
 
 — Soberana.
 
 Kaelina virou-se. Savel estava de pé junto à mesa, mais curvado do que antes. A luz da lamparina deixava seu rosto quase transparente, os ossos marcados, os olhos fundos brilhando com uma tristeza antiga que ele parecia odiar exibir.
 
-— Se falar com ele — disse o velho —, diga ao meu filho que uma raiz arrancada ainda sabe de que terra veio. E diga que eu vi quando ele olhou para trás.
+— Se falar com ele — disse o velho —, diga ao meu filho que uma raiz arrancada ainda sabe de onde veio. E diga que eu vi quando ele olhou para trás.
 
 Kaelina saiu e fechou a porta.
 

@@ -2,9 +2,7 @@ Roven não devolveu nada a Elis, exceto o cheiro.
 
 Passou a manhã entre casas baixas e curtumes, com o cheiro de couro cru e sal grudando nas roupas. Cruzou carroças carregadas de peles, homens com as mãos enfaixadas até o pulso e, perto do depósito de resíduos, condenados revirando a terra sob o olhar entediado de dois guardas. Ninguém prestava atenção à garota magra que parava em cada esquina. Perguntou, com cuidado, a duas ou três pessoas se conheciam alguma família que tivesse deixado o distrito havia treze ciclos, e recebeu o tipo de olhar reservado a quem faz perguntas estranhas demais para gente que já tem problema bastante com as próprias.
 
-Não sabia bem o que esperava encontrar. Uma rua que reconhecesse sem nunca ter visto, talvez. Um rosto que se virasse na direção dela por engano e depois parasse, reconhecendo alguma coisa que ela mesma não sabia que carregava. Nada disso aconteceu. Roven era só Roven: cansada, ocupada, cheia de gente que preferia não olhar para os outros por tempo demais, e Elis tinha nascido ali pequena demais para guardar qualquer coisa que valesse o nome de memória. Sentou-se por um instante na borda de um poço seco, olhando para o próprio joelho, e sentiu, mais do que decepção, uma vergonha estranha por ter vindo até ali sem saber o que procurava.
-
-Era assim, então. Às vezes se procurava e não se encontrava nada.
+Elis passou por casas que talvez tivessem existido quando Neiva morava ali. Tentou imaginar a mãe carregando redes, saindo de alguma porta, conversando com alguém na rua. Nenhum rosto lhe pareceu familiar. Sentou-se na borda de um poço seco, com vergonha de ter ido até Roven e não saber nem a quem perguntar.
 
 No caminho de volta, já com Maruva mais perto do que Roven, parou diante de uma banca da Troca onde um homem vendia pães escuros ainda quentes, de grão-de-caule, alguns recheados com dente-doce amassado até virar uma pasta grudenta e doce demais para qualquer coisa que não fosse comida rápido. Comprou um, pequeno, com as duas moedas que Tair lhe dera de manhã, insistindo que ela precisava trazer alguma coisa boa depois de gastar o dia inteiro atrás de uma resposta que ele mesmo duvidava que existisse. Guardou a maior parte enrolada num pano, por dentro da roupa, pensando em Orel antes mesmo de terminar de pagar: era a comida favorita dele, a única coisa capaz de fazê-lo largar qualquer fio ou pedaço de madeira que estivesse testando entre os dedos e vir correndo. Já conseguia ouvir o jeito como ele ia dizer o nome do pão, errado e satisfeito ao mesmo tempo, gão-cuae, insistindo depois em repetir dente-dus até ter certeza de que ela tinha entendido que aquela era a parte boa, a que ele sempre guardava para o fim. A ideia de vê-lo tentar dizer aquilo com a boca cheia, rindo antes de engolir, foi o primeiro pensamento inteiro e leve que Elis teve o dia todo, e ela apertou o passo.
 
@@ -20,7 +18,7 @@ Nenhuma resposta.
 
 A princípio não achou estranho. Procurou Orel no canto de sempre e não encontrou. Foi até onde Tair deixava as próprias coisas dobradas com cuidado exagerado e não havia sinal dele. Espiou o lugar onde Kalan às vezes cochilava entre um turno e outro e encontrou só o chão vazio. Karesis também não estava, mas isso já não surpreendia ninguém havia dias.
 
-Devem ter saído, pensou, seguindo o raciocínio mais simples que tinha à mão. Kalan podia estar atrasado no cais. Tair podia ter ido atrás de alguma cobrança. Orel quase nunca saía sozinho, mas talvez tivesse ido com Tair, talvez estivesse esperando os dois em algum lugar por perto.
+Kalan devia estar no cais. Tair talvez tivesse saído para fazer alguma cobrança e levado Orel consigo. Mas Orel quase nunca saía sem avisar. Elis chamou de novo, desta vez mais baixo.
 
 Foi só na segunda volta pela casa, mais devagar dessa vez, tocando as próprias paredes como fazia sempre que precisava pensar, que começou a notar o resto.
 
@@ -36,7 +34,9 @@ A percepção chegou inteira: estavam procurando a caixa. A caixa que ela mesma 
 
 Ainda segurava o pano com o pão. Ficou olhando para ele por alguns segundos, sem saber o que fazer com uma boa notícia pequena numa casa vazia.
 
-Se eu tivesse deixado a caixa lá, pensou, e a ideia ficou presa ali, incompleta, porque não sabia terminar a frase. Talvez nada tivesse mudado. Talvez tivessem revirado a casa do mesmo jeito, encontrado o compartimento vazio e levado todo mundo assim mesmo, por já terem decidido levar antes de chegar. Elis não tinha como saber. Só sabia que fora ela quem decidira, sozinha, no escuro, que aquilo precisava sumir, e que agora a casa estava vazia e ela não conseguia deixar de sentir as duas coisas presas uma na outra por um fio que só ela enxergava.
+Se eu tivesse deixado a caixa ali...
+
+Elis apertou o pão contra o peito. Não sabia se os guardas teriam encontrado os papéis ou levado a família do mesmo jeito. Só sabia que ninguém pedira sua opinião antes de levar Kalan, Tair e Orel. Ela também não pedira a de ninguém antes de esconder os registros.
 
 Saiu de novo antes mesmo de decidir sair, o pão ainda apertado contra o peito por dentro da roupa, e começou a perguntar.
 
@@ -56,13 +56,13 @@ Não havia maldade na resposta, nem sequer uma pausa na concha. Era o tipo de re
 
 Foi um vizinho mais velho, de quem Elis conhecia o rosto muito mais do que o nome, quem finalmente juntou o resto. Tinha visto Tair sendo levado, tentando explicar alguma coisa a um dos guardas, gesticulando, até desaparecer rua abaixo ainda falando. Tinha visto Orel, "o grandão", puxado pelo braço com uma cara que ele descreveu, sem jeito, como de bicho preso. Ninguém sabia dizer para onde tinham ido. Ninguém perguntou a Elis se ela precisava de alguma coisa, se estava sozinha, se tinha para onde ir: cada resposta vinha rápida, seguida de um corpo já se virando de volta para o próprio trabalho, como se parar mais um instante custasse alguma coisa que ninguém ali podia gastar.
 
-Elis voltou para casa sabendo mais e entendendo menos. Eles não tinham ido embora. Tinham sido levados. A diferença entre as duas frases era enorme, e por um bom tempo, parada na porta, ela não conseguiu decidir qual das duas doía mais: a ideia de que alguém tinha entrado ali e levado sua família, ou a certeza fria de que, para o resto de Maruva, aquilo já era, ainda naquela noite, só mais uma coisa que tinha acontecido na rua ao lado.
+Elis voltou para casa sem saber para onde tinham levado Kalan, Tair e Orel. Deixou o pão embrulhado ao lado da lamparina e esperou.
 
 Passou a primeira noite certa de que Kalan ia voltar. Ele sempre voltava do cais, mesmo nos dias mais compridos, mesmo quando o turno se estendia até o escuro por alguma carga atrasada. Era só uma questão de horas, pensou, sentada perto da porta com a pequena lamparina que Karesis controlava com cuidado quase religioso sobre o óleo. Kalan ia voltar e explicar tudo, e ia rir um pouco da cara dela quando descobrisse o susto que ela tinha levado por nada. Até Karesis, mais cedo ou mais tarde, sempre reaparecia, cheirando a rio e a bebida barata, como se tivesse esquecido que existia um relógio.
 
 Ficou acordada bem mais tempo do que devia, ouvindo cada som da rua como se pudesse separar passos de Kalan dos passos de qualquer outra pessoa. Em algum momento, com fome demais para continuar esperando, desenrolou o pano e comeu metade do pão de grão-de-caule, mastigando devagar, tentando não pensar em quem devia ter comido aquele pedaço primeiro. Guardou a outra metade, enrolada de novo, perto do lugar onde Orel costumava dormir, do jeito automático de quem ainda pensa como parte de uma casa cheia.
 
-*
+
 
 Os dias seguintes chegaram um atrás do outro sem trazer nenhum dos três de volta.
 
@@ -86,10 +86,6 @@ Chorava pouco, sempre em silêncio. Limpava a primeira lágrima depressa. A segu
 
 As perguntas voltavam sempre à noite, na mesma ordem cansada. Será que estavam batendo em Orel. Se Kalan estava ferido, e se alguém ali sabia cuidar de um ferimento direito. Se Tair continuava tentando explicar demais, do jeito que só piorava as coisas, sem entender que algumas pessoas não queriam explicação nenhuma. Se alguém dava comida a eles. Se sabiam que Elis estava sozinha, ou se pensavam nisso tão pouco quanto pensavam em qualquer Nular preso havia mais de um dia. Se Karesis sabia de alguma coisa, onde quer que estivesse.
 
-A pior parte, descobriu Elis, não era nenhuma resposta específica. Era não ter nenhuma.
-
-*
-
 Tentou primeiro os caminhos que qualquer pessoa tentaria. Foi a um posto ligado ao Culto perto de Maruva e perguntou, do jeito mais educado que conseguiu, se alguém sabia dizer onde estavam três pessoas levadas pelos Filhos da Raiz. Recebeu a mesma resposta em três lugares diferentes, cada vez dita com menos paciência: era Nular, era menor, não era a responsável legal daquela casa, não tinha autoridade para solicitar informação sobre gente detida. Uma mulher de manto cinza explicou aquilo com quase gentileza, como quem explica uma regra óbvia a uma criança sem querer ser cruel. Outro homem fechou a portinhola do posto antes que ela terminasse a frase. Em algum lugar entre uma tentativa e outra, ouviu alguém mencionar, baixo, um nome que preferiu não perguntar de onde vinha, Fundos da Raiz, e não soube dizer se era boato ou coisa de verdade, só que o nome sozinho já deixava um gosto ruim na boca.
 
 Então fez o que sempre soubera fazer melhor: parou de perguntar e começou a entrar onde não devia.
@@ -100,7 +96,7 @@ Sentou-se, depois, atrás de um depósito qualquer, e olhou para as próprias m�
 
 — Gabal — sussurrou, mais raiva do que susto, para ninguém.
 
-Não eram mãos de alguém com medo de altura, nem de escuro, nem de espaço apertado. Eram mãos que sabiam o que significava ser pega de verdade, e isso foi o que fez Elis entender que precisava de outro jeito de chegar até onde precisava.
+Já escapara de garotos maiores, de guardas desatentos e de passagens que quase ninguém conhecia. Daquela vez, porém, tinha sido diferente. O homem vira seu rosto. Se a reconhecesse de novo, não bastaria correr mais depressa.
 
 Saiu de casa depois que a última luz sumiu do céu, sem dizer a ninguém porque não havia mais ninguém, e desceu até os túneis que conhecia melhor do que qualquer guarda de Kaeliran jamais conheceria. Sentiu, descendo, a falta de Orel de um jeito novo e mais prático: era ele quem normalmente ouvia a água, os ecos, o ar se movendo entre as passagens, e sem ele Elis precisou confiar só na própria memória, contando entradas e curvas de cabeça, avançando mais devagar do que gostaria. Avançou no escuro até o ponto em que precisava emergir e continuar por cima, e quando subiu de volta à superfície já estava bem mais longe de Maruva do que jamais tinha ido sozinha à noite.
 
@@ -118,11 +114,11 @@ Elis seguiu Selina a distância. Não confiava nela, mas era a única pessoa pod
 
 Selina parou diante do homem, que a recebeu com a cortesia cautelosa de quem já sabia que aquela conversa não seria simples. Elis, escondida a distância segura, só conseguia ouvir partes.
 
-— Preciso que a circulação noturna daquela equipe seja liberada ainda esta semana — disse Selina, sem levantar a voz, no tom de quem já esperava resistência e não tinha paciência sobrando para ela. — A carga cerimonial não pode continuar parada por causa de procedimento.
+— Preciso liberar a circulação noturna daquela equipe ainda esta semana — disse Selina. — A carga cerimonial continua parada por causa dos procedimentos.
 
 — O pedido deveria esperar o trâmite normal — respondeu o homem, com a educação de quem sabia exatamente quem estava na sua frente e ainda assim precisava tentar. — Não é decisão pequena, abrir aquele acesso à noite.
 
-— Não é — concordou Selina, e deixou o silêncio durar um instante a mais do que qualquer resposta exigiria. — A transferência da sua sobrinha ainda está esperando minha assinatura.
+— Não é — concordou Selina. — A transferência da sua sobrinha ainda depende da minha assinatura.
 
 O homem ficou parado por um segundo longo demais.
 
@@ -130,7 +126,7 @@ O homem ficou parado por um segundo longo demais.
 
 — É informação.
 
-Ele não respondeu de imediato, mas quando falou de novo a voz já tinha perdido a resistência de antes, substituída por um cansaço resignado que Elis reconheceu, sem saber por quê, como o som de alguém que sabia ter perdido antes de a conversa começar. Concedeu o que Selina precisava em poucas palavras, quase todas técnicas, e se afastou sem se despedir.
+O homem olhou para Selina, depois para o maço de papéis em suas mãos. Autorizou a passagem e se afastou sem se despedir. Elis continuou agachada atrás dos caixotes, olhando para a conselheira.
 
 Foi só quando ele desapareceu entre os prédios que Elis saiu de trás dos caixotes.
 
@@ -140,19 +136,19 @@ Selina se virou depressa, a mão indo por instinto na direção do próprio cint
 
 — Você não deveria estar aqui. — A voz saiu baixa, quase automática, mais reflexo do que ameaça. Só depois, olhando com mais atenção, alguma coisa pareceu se ajustar no rosto dela. — Eu disse que, se você fizesse isso de novo, fecharia os olhos.
 
-— Quero saber para onde levaram meu irmão.
+— Eu quero saber onde levaram meu irmão.
 
 — Eu não sei quem é seu irmão.
 
-— Kalan. — Elis não deu um passo atrás, embora sentisse vontade. — Nular. Trabalha na Balança Azul, nos pátios. Levaram ele e mais dois amigos meus, Tair e Orel, da nossa casa em Maruva. Há uma semana.
+— Kalan. Ele trabalha nos pátios da Balança Azul. — Elis tentou manter a voz firme. — Levaram ele de casa, lá em Maruva. O Tair e o Orel também. Faz uma semana.
 
 — Por que foram levados? — Selina fez a pergunta devagar, como quem reorganiza, ao mesmo tempo, alguma coisa que já tinha ouvido em outro lugar. — Roubaram alguma coisa?
 
-— Orel foi agredido por uns garotos Polar. Depois disseram que foi ele quem bateu neles.
+— Uns garotos Polar bateram no Orel. Aí disseram pros guardas que o Orel é que tinha atacado eles.
 
 Não mencionou a caixa. Não porque tivesse decidido esconder aquela parte, mas porque alguma coisa em Elis, crescendo desde os túneis, desde o compartimento vazio, já sabia que existia informação que ajudava e informação que só piorava as coisas.
 
-— Eu não conheço esse caso o suficiente para te ajudar. — Selina já tinha começado a se virar, o assunto tratado como encerrado antes mesmo de ter começado de verdade. — Volte para casa antes que algum guarda te encontre aqui. Não pretendo te proteger de novo se continuar entrando em zona proibida.
+— Não conheço o caso o suficiente para ajudar — disse Selina, já se virando. — Volte para casa, Elis. Da próxima vez, não vou conseguir afastar todos os guardas que cruzarem seu caminho.
 
 Elis não se moveu.
 
@@ -160,7 +156,7 @@ Elis não se moveu.
 
 Selina parou.
 
-— Meu irmão trabalhava na Balança Azul — disse Elis, mais rápido agora, antes que a outra pudesse se virar de novo. — Era ele quem trazia comida pra gente. Meu amigo Tair também trabalhava e foi levado junto. O responsável pela nossa casa sumiu, não sei onde está, ninguém sabe. Não ficou ninguém.
+— Era o Kalan que trazia comida pra casa! — Elis falou antes que Selina fosse embora. — Tair foi preso também. Karesis sumiu. Não tem ninguém pra ajudar a gente.
 
 Deixou a frase seguinte sair antes de decidir se devia.
 
@@ -168,7 +164,7 @@ Deixou a frase seguinte sair antes de decidir se devia.
 
 Selina olhou para ela por mais tempo do que qualquer coisa dita até ali exigia, e quando falou a voz tinha perdido parte da impaciência anterior, substituída por algo mais cuidadoso, quase técnico.
 
-— Eu não tenho autoridade sobre prisões do Culto. — Fez uma pausa, como quem avalia quanto vale a pena explicar. — Se foi o Culto que os levou, minha cadeira não decide quem eles prendem ou soltam. Isso pertence ao Sumo Vigia e aos tribunais da Raiz. Por que não os procura?
+— Minha cadeira não manda nas prisões do Culto. Quem decide isso são o Sumo Vigia e os tribunais da Raiz. Você tentou falar com eles?
 
 — Pra que serve, então, todo esse poder que você tem? — A pergunta saiu antes que Elis pudesse suavizá-la, quase um desafio, e por um instante ela mesma se assustou com o próprio tom.
 
@@ -180,7 +176,7 @@ Corven atravessava o espaço na direção delas, limpando as mãos num pano pres
 
 Selina não teve tempo de ir atrás dela, e talvez nem tivesse ido de qualquer forma. Corven já tinha chegado perto o bastante para abaixar a voz, embora não parecesse achar necessário controlá-la de verdade.
 
-— Preciso que isso suba até o soberano hoje, não amanhã. — Estendeu um rolo de papel que Selina pegou sem pressa. — Os pátios estão cheios demais. Carga cerimonial ocupando espaço que devia estar guardando grão e mercadoria comum, e ninguém quer assumir a responsabilidade de mandar tirar nada de lá enquanto o Erguimento não passar.
+— Preciso que isto chegue à mesa do soberano hoje, conselheira — disse Corven, estendendo um rolo de papel. — Os pátios estão lotados. Material do Erguimento ocupa espaço de grão e carga comum, e ninguém quer assinar uma ordem para removê-lo antes da cerimônia.
 
 — Quanto espaço você precisa?
 
@@ -216,7 +212,7 @@ Ele ainda hesitou, os olhos correndo por um instante como quem procura um rosto 
 
 Ele precisou pensar de novo, o rosto se fechando um pouco no esforço de separar aquele nome específico do fluxo geral de trabalhadores que passava pelos pátios todos os dias.
 
-— Trabalhava bem. Não dava trabalho, cumpria ordem, forte, tinha fama de acertar peso só de olhar a carga. — Fez uma pausa curta. — Ultimamente andava fazendo perguntas demais, prestando atenção onde não precisava. Há poucos dias implicou com uma carga porque jurava que pesava menos do que o registro dizia. Tinha selo da Raiz. Cairon comentou que ele andava atento demais a esse tipo de coisa.
+— Trabalhava direito. Forte, pontual. Cairon dizia que acertava o peso de uma carga só de olhar. — Corven pensou um instante. — Ultimamente fazia muitas perguntas. Implicou com uma carga que estava mais leve do que o registro dizia. Tinha selo da Raiz. Cairon comentou comigo.
 
 — Obrigada.
 

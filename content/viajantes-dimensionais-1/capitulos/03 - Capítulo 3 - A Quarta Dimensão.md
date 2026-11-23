@@ -46,7 +46,7 @@ Bruno abriu a boca para perguntar mais, mas Beatriz se adiantou:
 
 — Um que vocês vão conhecer andando.
 
-Breno olhava para o arco que eles tinham acabado de atravessar. Ele ainda ondulava, e no alto da moldura havia um símbolo gravado em relevo, de linhas curvas. Um símbolo que ele conhecia, pequenininho, de baixo da tampa das pilhas de um rádio. O rádio, agora em suas mãos, estava frio e mudo. Ele não disse nada.
+Breno olhava para o arco que eles tinham acabado de atravessar. Ele ainda ondulava. O rádio, agora em suas mãos, estava frio e mudo. Ele não disse nada.
 
 Um estrondo cortou o salão. Algo passou dentro de um dos tubos transparentes, brilhando como uma estrela fugaz, e os irmãos se encolheram.
 

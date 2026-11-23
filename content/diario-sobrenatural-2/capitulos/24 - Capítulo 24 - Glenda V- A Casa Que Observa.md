@@ -18,9 +18,9 @@ Queria falar com ela sobre Vila Velha, sim. Também queria saber se tinha chegad
 
 Levantei, lavei o rosto, prendi o cabelo com mais força do que o necessário e desci com o notebook debaixo do braço. A manhã passou num ritmo que eu gosto: tela, anotações, pesquisa, rascunho. Escrevi títulos possíveis, subtítulos, ganchos. “O massacre que a cidade esqueceu.” “A verdade que ninguém contou sobre Vila Velha.” “O diário de Vila Velha.” Montei versões como quem monta uma armadilha elegante, não para ferir, mas para capturar atenção.
 
-Ao meio-dia, o cheiro de comida me puxou para a cozinha. Jason já estava lá, sentado como se a casa fosse dele, com livros de estudo na mesa por conta do vestibular.
+Ao meio-dia, o cheiro de comida me puxou para a cozinha. Jason já estava lá, sentado como se a casa fosse dele, com livros e apostilas espalhados na mesa. Tinha feito dois vestibulares, esperava os resultados e continuava se preparando para uma terceira prova. Uma das listas, a da FMU, devia sair a qualquer momento. Se eu perguntasse de novo, ele provavelmente começaria a roer a mesa.
 
-A Sra. Tereza polia a mesa de jantar com movimentos circulares, lentos, respeitosos. Ela fazia isso com tudo, como se o brilho pudesse segurar as coisas no lugar. Jason falou alguma coisa sobre uma prova, uma piada sem graça sobre professores, e eu devolvi o mínimo necessário para parecer humana.
+A Sra. Tereza polia a mesa de jantar com movimentos circulares, lentos, respeitosos. Ela fazia isso com tudo, como se o brilho pudesse segurar as coisas no lugar. Jason reclamou de uma questão de biologia, disse que tinha estudado aquilo a semana inteira e agora não conseguia lembrar nem o nome do assunto. Eu disse que, se o examinador visse a cara dele, daria pontos por esforço. Ele riu. Era bom ouvir aquela risada naquela casa.
 
 Com ele eu não precisava calcular, e isso me incomodava mais do que eu admitia.
 

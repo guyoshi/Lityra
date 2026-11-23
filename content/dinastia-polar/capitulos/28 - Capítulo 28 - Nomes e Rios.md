@@ -2,7 +2,7 @@ Antes de qualquer campeão se apresentar, já existiam relatórios sobre ele.
 
 A comunicação oficial entre as dinastias fora simples, quase seca: cada uma enviara às demais o nome de quem a representaria no Primeiro Torneio Decenal. Khalir Buldar representará a Dinastia Buldar. Karev Quendrar representará os Quendrar. Uma linha, um nome, um selo. As dinastias, porém, já reuniam informações por conta própria.
 
-Nos meses anteriores, gente ligada a Kaeliran viajara por Jesed conversando com quem estivesse disposto a falar: comerciantes, funcionários de posto, carregadores de cais, trabalhadores de estrada. Nem todos eram o que se chamaria de espião. Às vezes bastava pagar uma bebida num cais e perguntar, casual, se era verdade que o campeão Buldar usava escudo, para receber de volta uma história inteira, meio verdade, meio lenda, contada por alguém que talvez tivesse visto Khalir uma única vez, de longe. Outro perguntava a um Nular que trabalhara com uma delegação estrangeira. Outro só escutava mercadores numa taberna.
+Durante meses, funcionários e viajantes pagos pelos Polar haviam conversado com carregadores, comerciantes, tratadores e gente das estradas. Às vezes bastava pagar uma bebida e perguntar se Khalir usava escudo para ouvir uma história inteira de alguém que talvez só o tivesse visto de longe. Outros agentes escutavam conversas de taberna ou perguntavam aos trabalhadores das delegações. Nenhum relato era garantia de verdade.
 
 Os relatórios chegaram a Kaeliran ao longo de semanas, e Dareth os lera um por um, sabendo o que lia: não fichas perfeitas, mas um amontoado de verdade, exagero, informação velha, contradição, mentira deliberada e boato honesto. Um relatório dizia que Khalir não perseguia adversários. Outro dizia que Khalir era lento. As duas frases podiam descrever o mesmo comportamento, e Dareth sabia, pela própria experiência, que interpretações divergentes sobre um mesmo homem às vezes revelavam mais do que qualquer uma sozinha.
 
@@ -12,13 +12,13 @@ A paisagem mudou antes de qualquer aviso formal. Mais canais cortando os campos 
 
 A comitiva foi parada por homens Buldar num desses postos, e o contraste com os guardas Polar foi imediato. Ninguém ali parecia impressionado com o prestígio de uma comitiva soberana. Queriam números.
 
-— Quantas pessoas? — perguntou o fiscal, uma prancheta na mão. — Quantos animais. Quantas carroças. Quanto alimento carregam, e quanto pretendem comprar no caminho. Por qual rota seguem. Quantos dias de viagem ainda estimam.
+— Quantas pessoas, animais e carroças? — perguntou o fiscal Buldar, consultando a prancheta. — Quanto alimento trouxeram? Quanto vão comprar na estrada? E quantos dias pretendem ficar em nosso território?
 
 Um dos nobres da comitiva se irritou.
 
-— Está perguntando quantos sacos de farinha levamos para Vetarius Polar?
+— Pretende contabilizar até a farinha reservada à mesa de Vetarius Polar?
 
-— Estou perguntando quantas bocas vão comer antes de chegar ao próximo posto — o Buldar respondeu. Uma comitiva grande consumia alimento por onde passava, fosse qual fosse o título de quem a conduzia.
+— Quero saber quantas bocas vão comer antes do próximo posto — respondeu o fiscal. — Os campos têm de alimentar os viajantes e quem mora aqui. Não muda por causa do título de ninguém.
 
 Enquanto a inspeção continuava, um Buldar mais jovem hesitou sobre onde encaixar as carroças na fila de passagem. Um companheiro mais velho zombou dele.
 
@@ -68,11 +68,11 @@ Esperou mais alguma coisa. Ela continuou andando. Ele insistiu.
 
 Dareth contou o que conhecia da história: que depois das antigas guerras os Buldar tinham passado a administrar aquelas margens para garantir estabilidade e circulação de alimento pela região. Riala olhou para ele.
 
-— É assim que contam?
+— É essa a história que vocês contam em Kaeliran?
 
 Não havia agressividade na pergunta, quase curiosidade. Contou então a versão que aprendera: depois de Guerras de Sangue, Polar e Buldar tinham disputado passagem pelo Rio Grande, e os Polar obrigaram os Glydar a impedir determinada travessia. Depois os Polar fizeram acordo, mas não com os Glydar.
 
-— Brigaram sobre quem podia atravessar nossa água — disse Riala.
+— Brigaram pra decidir quem atravessava nossa água — disse Riala. — E esqueceram de perguntar pra quem morava aqui.
 
 — E o acordo? — Dareth perguntou.
 
@@ -90,7 +90,7 @@ Um Buldar próximo, que trabalhava carregando cestos de zírrio, escutou a conve
 
 — Os canais quebravam — o homem continuou. — Os cais cobravam o que queriam. As vilas brigavam entre si. Os Buldar entraram porque alguém precisava manter aquilo funcionando.
 
-— E depois esqueceram de sair — Riala disse.
+— E até hoje não aprenderam o caminho de volta — disse Riala.
 
 — Quatrocentos ciclos depois e você ainda está esperando?
 
@@ -110,7 +110,7 @@ Outro Glydar chamou alguém, num tom quase carinhoso, de "remo cego". Um nobre d
 
 — Em Kaeliran isso seria jogado fora — o nobre retrucou.
 
-— Então ainda bem que o zírrio nasceu aqui — o Glydar respondeu, sem desviar o olhar do trabalho.
+— Então é bom que ele tenha nascido aqui — respondeu o Glydar, continuando a trabalhar.
 
 Dareth ouviu também um comentário Glydar sobre gente de campo que achava que pôr cerca mudava o nome da terra, e um comentário Buldar sobre gente que chamava medo de prudência. Alguns eram claramente injustos.
 
@@ -138,7 +138,7 @@ Maren pareceu pensar, ou fingir que pensava. Selina não conseguiu decidir qual 
 
 — Algum deles deixou de ser Buldar? — ela perguntou.
 
-— Quem nasce Buldar não deixa de ter nascido Buldar — Maren respondeu.
+— A gente não deixa de ser Buldar só porque mudou de terra — respondeu Maren.
 
 — Nos registros — Selina insistiu.
 
@@ -198,15 +198,15 @@ A tratadora olhou para os animais famintos, o Buldar para as semanas de plantio.
 
 Ao longo da tarde as pequenas colisões continuaram. Um Polar comentou que os Quendrar tinham surgido "depois das montanhas". Um Quendrar corrigiu, sem se alterar:
 
-— Nós já existíamos.
+— A gente já estava lá antes de vocês chegarem.
 
 — Não para os nossos registros.
 
-— Esse parece ser um problema dos seus registros.
+— Então o problema são os papéis de vocês.
 
 Um Buldar disse que os Glydar tinham "aceitado" a administração Buldar havia séculos. Riala, por perto, não deixou passar.
 
-— Meu povo também aceita cheia. Isso não significa que convidamos a água pra entrar em casa.
+— A gente também aguenta enchente. Não quer dizer que foi a gente que chamou a água.
 
 E um estrangeiro qualquer comentou perto de Dareth:
 
@@ -228,7 +228,7 @@ Maren riu, sem surpresa.
 
 — Você diz que ela podia ter tomado Kaendar?
 
-— Eu digo que é o que muita gente acredita — Maren respondeu, deixando a distinção pesar sozinha.
+— Eu digo que muitos de nós acreditam nisso — respondeu Maren. — É diferente de dizer que sei o que teria acontecido.
 
 Explicou que por muito tempo Nynestra fora lembrada por preservar campos e evitar mais mortes numa guerra que já parecia perdida de outras formas. Mas a leitura mudara nos últimos anos: a atual Mão das Terras, Saelira, falava dela como a mulher que parara justo quando a supremacia Polar podia ter acabado de vez. Nem todo Buldar concordava. Alguns mais velhos ainda achavam o recuo sensato. Alguns agricultores diziam que quem criticava Nynestra não precisara plantar depois daquela guerra. Um Ceifador mais jovem, ouvindo de longe, não resistiu:
 

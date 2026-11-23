@@ -1,6 +1,6 @@
-Kalan perdeu a conta de quantos dias tinha passado ali dentro, mas não das perguntas que o mantinham acordado. Elis voltara para casa? Karesis aparecera? Ela estava comendo? Sabia onde eles estavam, ou passava os dias perguntando em postos que não respondiam? A Raiz voltara à casa, encontrara a caixa, encontrara Elis sozinha?
+Kalan já não sabia quantos dias fazia que estava preso. Tinha medo de perguntar pela hora e ouvir que ainda era manhã. Pensava em Elis sozinha na casa, sem o dinheiro dos seus turnos e sem Karesis para cuidar dela. Será que tinha conseguido comer alguma coisa?
 
-Nenhuma resposta chegava. Passos no corredor de pedra faziam Kalan erguer a cabeça antes mesmo de decidir erguer, e quando um guarda enfiava a chave na porta errada, ou parava para falar com outro guarda sem entrar em lugar nenhum, ele perguntava de qualquer forma, pela irmã, pelo nome dela, por qualquer notícia de fora. Nunca recebia nada que valesse o esforço. Um "não sei de nada disso" dito sem olhar para ele. Um silêncio que doía mais do que qualquer recusa formal. Uma vez, só uma vez, um guarda mais jovem quase respondeu antes de se lembrar de que não devia, e aquele quase, o instante em que a boca dele se abriu e depois se fechou, ficou girando na cabeça de Kalan por horas, mais cruel do que qualquer negativa direta.
+Quando ouvia passos no corredor, ia até a grade. Perguntava aos guardas pela irmã, se tinham voltado a Maruva, se sabiam de uma menina chamada Elis. Quase nunca respondiam. Um guarda mais jovem chegou a abrir a boca certa vez, mas outro o chamou antes que dissesse qualquer coisa. Kalan passou o resto da tarde tentando adivinhar o que ele teria contado.
 
 O medo tinha a altura de Elis, o jeito como ela mordia o lábio quando mentia mal, a velocidade com que os pés encontravam qualquer fenda. Kalan passara a vida inteira colocando a proteção dela antes do resto. Se alguém quisesse quebrá-lo, bastava o nome dela.
 
@@ -12,11 +12,17 @@ Tair tentava. Sentava-se perto o bastante para que Orel sentisse a presença sem
 
 A culpa vinha sempre atrás disso, pesada e exata: tinha roubado os registros pensando em proteger Orel, e agora Orel estava pior do que jamais estivera antes, trancado, apavorado, chamando por uma menina que nem sabia se ainda tinha casa para onde voltar.
 
-Tair também carregava culpa, embora tentasse não deixar transparecer. Fora ele quem revelara o fundo falso àquela sala inteira, confiando que dizer a verdade rápido e completa protegeria a todos como sempre tinha protegido antes. Continuava acreditando nisso, ou pelo menos agindo como se acreditasse, e em mais de uma tarde tentou, escolhendo cada palavra antes de soltá-la, sugerir que Kalan estava escondendo alguma coisa que ainda podia esclarecer tudo.
+Tair evitava tocar no assunto do caixote, mas um dia, enquanto Orel dormia encostado no canto da cela, chamou Kalan para perto.
 
-— Se tem qualquer coisa que você não contou pra eles — disse uma vez, sem olhar direto, como fazia sempre que ia dizer algo que temia ouvir de volta —, é melhor contar antes que descubram por conta própria. Descobrem sempre.
+— Se você sabe de alguma coisa que ainda não contou, fala logo. Eles vão descobrir.
 
-Kalan não respondeu àquilo do jeito que Tair provavelmente esperava. Só disse que não havia nada, e viu, no rosto do outro, a mesma dúvida de sempre, uma suspeita gentil demais para virar acusação. Não queria que Tair soubesse que tinha, sim, roubado a caixa com as próprias mãos. Não porque não confiasse nele, mas porque já tinha aprendido, do jeito mais duro, que uma informação a mais era sempre uma informação que podia ser usada contra alguém que ele amava. Tair acreditava que palavras bem colocadas abriam portas. Kalan tinha aprendido, na sala sem janelas onde conhecera Hadris, que informação também podia ser a corda que amarrava todo mundo junto.
+— Já falei tudo.
+
+— Kalan, eu vi você escondendo...
+
+— Eu sei o que você viu, Tair.
+
+O outro baixou a cabeça e não insistiu. Kalan queria contar que roubara os registros para proteger Orel, mas foi Tair quem revelara o fundo falso aos guardas, achando que estava ajudando. Agora não podia arriscar que o amigo dissesse mais alguma coisa.
 
 Vieram buscá-lo outra vez numa manhã que não parecia diferente de nenhuma outra, e Kalan perguntou antes mesmo de terminar de se levantar.
 
@@ -38,7 +44,7 @@ Hadris não respondeu. Continuou olhando para ele com a mesma paciência absolut
 
 — Vocês voltaram a Maruva depois que nos levaram — disse Kalan, a voz já mais alta do que pretendia. — Ela estava lá?
 
-— Sua irmã também precisou ser localizada — respondeu Hadris, por fim, escolhendo cada palavra com o mesmo cuidado com que alinhara as folhas na mesa.
+— Sua irmã também está sendo procurada — respondeu Hadris, ajeitando o registro diante de si.
 
 Kalan sentiu o peito apertar. Hadris dissera apenas "localizada". Não dissera que Elis estava bem ou em casa.
 
@@ -46,11 +52,11 @@ Kalan sentiu o peito apertar. Hadris dissera apenas "localizada". Não dissera q
 
 Uma mão pesada no ombro o empurrou de volta para o banco antes que conseguisse dar um segundo passo.
 
-— Sendo tratada conforme a situação exige — disse Hadris, sem se mexer, sem alterar o tom, como se estivesse simplesmente confirmando o clima do dia.
+— Isso depende de como ela reagir aos nossos homens — respondeu Hadris.
 
-Kalan queria perguntar o que aquilo significava, mas a pergunta já não cabia na garganta, engolida por tudo que a cabeça começava a construir sozinha: Elis numa sala parecida com aquela, sentada onde ele estava sentado, sozinha, sem ninguém para explicar nada. Hadris não precisava dizer que a tinham prendido. Bastava deixar aquele vazio ali, entre as palavras, e confiar que o próprio medo de Kalan ia preenchê-lo até a borda.
+Kalan tentou imaginar Elis sendo levada por guardas, esperneando, gritando que não fizera nada. Conhecia bem a irmã: ela correria antes de aceitar uma ordem de alguém que a ameaçasse.
 
-— Ela é jovem — continuou Hadris, levantando-se, caminhando devagar pela sala, as mãos cruzadas nas costas, de quem já fizera aquele percurso centenas de vezes com outras pessoas sentadas naquele banco. — Jovens se assustam com facilidade. Tentam fugir quando são seguradas. Gritam. Às vezes mordem quem tenta contê-las, sem saber que estão piorando a própria situação.
+— Treze ciclos, não é? — Hadris se levantou e passou atrás dele. — Crianças dessa idade se assustam. Fogem. Mordem quem tenta segurá-las. Depois dizem que não fizeram nada.
 
 Parou atrás de Kalan, perto o suficiente para que ele sentisse a proximidade sem precisar se virar para confirmar.
 
@@ -62,17 +68,17 @@ Parou atrás de Kalan, perto o suficiente para que ele sentisse a proximidade se
 
 Kalan sentiu o corpo tremer, não de frio.
 
-Hadris voltou para o outro lado da mesa e se sentou, folheando um dos registros sem pressa, como quem procura uma passagem dentro de uma história longa demais para contar do início.
+Hadris voltou à mesa e abriu um registro.
 
-— Sabe o que eu aprendi, revisando casos como este há anos? — perguntou, sem esperar resposta. — Anos atrás, tive um caso de uma família que discutia a posse de uma criança. Um homem dizia ser o pai. Outro dizia que não era. Uma casa afirmava ter direito sobre determinada terra, e outra apresentava uma história completamente diferente sobre a mesma terra. Durante meses, todo mundo jurou, com a mão sobre o próprio peito, estar dizendo a verdade absoluta.
+— Houve uma disputa por uma criança, anos atrás — disse. — Dois homens afirmavam ser o pai. Depois apareceu uma briga pela terra da família. Cada um lembrava dos fatos de um jeito. Ficaram meses discutindo, até chegarmos aos documentos.
 
-Ele passou o dedo pela borda de uma página, o gesto quase carinhoso.
+Passou o dedo pela borda da folha.
 
 — Engraçado como todo homem acha a própria memória mais confiável do que tinta seca.
 
 Kalan não respondeu, e Hadris pareceu nem esperar que respondesse.
 
-— O registro não provou quem lembrava certo. Encerrou a disputa porque era o que podia ser apresentado, conferido e reconhecido. — Hadris ergueu os olhos. — É para isso que serve um registro. Não guarda a verdade inteira, Kalan. Guarda o que conseguimos provar. Você retirou justamente isso.
+— Os papéis não nos disseram quem tinha razão sobre tudo. Mas mostraram o que podia ser provado. Foi assim que a disputa terminou. — Hadris ergueu os olhos. — Você tirou justamente isso da Casa da Permanência.
 
 Ele deixou a pergunta pairar por tempo suficiente para que o silêncio respondesse.
 
@@ -82,11 +88,7 @@ Aproximou o papel que tinha nas mãos, virando-o para que Kalan pudesse ver, sem
 
 — E eu preciso decidir qual delas merece continuar existindo.
 
-Depois disso, Hadris explicou o resto sem calor na voz, como quem lê um inventário.
-
-A agressão original, disse, era pequena comparada ao que existia agora. Mesmo que Orel tivesse sido considerado culpado de atacar os quatro jovens, a punição provável seria administrável: uma multa, alguma forma de compensação, talvez uma reprimenda formal registrada contra a casa inteira. Nada que Maruva não tivesse sobrevivido antes.
-
-Com o desaparecimento dos registros da Casa da Permanência, a investigação passou a envolver furto, retirada indevida de documentos da Raiz, ocultação e mentira durante o inquérito. Apesar de tudo, ninguém conseguira localizar a caixa.
+Hadris enumerou as acusações. A agressão original, mesmo se Orel fosse considerado culpado, poderia resultar em multa ou compensação. Agora havia furto de registros, ocultação e mentiras durante a investigação. E a caixa continuava desaparecida.
 
 — Enquanto ninguém assumir o que de fato ocorreu, a residência inteira permanece sob suspeita — disse Hadris, fechando o registro com um gesto seco. — Inclusive sua irmã.
 
@@ -106,7 +108,7 @@ Hadris não comemorou. Só deixou a pena descer devagar até a mesa, um gesto pe
 
 Kalan continuou antes que Hadris pudesse perguntar qualquer outra coisa, precisando dizer aquilo enquanto ainda tinha voz para dizer.
 
-— Tair não sabia. Orel não sabia. Minha irmã não sabia. Karesis também não sabia de nada. Fui eu que decidi, sozinho, e fui eu que fiz.
+— O Tair não sabia de nada. Nem o Orel, nem a Elis, nem o Karesis. Eu não contei pra ninguém. Fui eu que fiz.
 
 — Onde a colocou?
 
@@ -134,7 +136,7 @@ Alguma coisa na postura de Hadris se alterou, um endurecimento pequeno nos ombro
 
 — É a verdade.
 
-— É a pior mentira que já ouvi neste ano, e ouço muitas — respondeu Hadris, quase sem fôlego, antes de se recompor e deixar a voz baixar de volta ao registro limpo de sempre, como quem enrola de volta uma corda que escapara por um instante das próprias mãos.
+— Você quer que eu acredite que a caixa simplesmente sumiu? — Hadris levantou a voz. Percebeu o próprio tom e voltou a sentar. — Repita tudo, desde o começo.
 
 Kalan não disse mais nada. No momento em que finalmente parara de mentir, Hadris não tinha motivo para acreditar nele.
 
@@ -142,7 +144,7 @@ A porta se abriu antes que Hadris pudesse continuar.
 
 O Sumo Vigia entrou devagar, como sempre entrava, e Hadris se levantou por reflexo, um gesto automático de respeito que não combinava com a rigidez que ainda carregava nos ombros. O Sumo não olhou para Kalan. Chamou Hadris com um gesto pequeno da mão e os dois se afastaram alguns passos, perto o bastante da porta para que qualquer palavra dita baixo se perdesse antes de alcançar o banco onde Kalan estava sentado.
 
-Kalan viu apenas fragmentos: a boca do Sumo Vigia se movendo devagar, perto do ouvido de Hadris, o corpo de Hadris ficando, por um instante, tão parado quanto uma pedra, os olhos dele se voltando para o Sumo por um segundo mais longo do que qualquer troca simples exigiria, uma pergunta baixa demais para ouvir, e uma resposta ainda mais baixa. Não conseguiu entender uma palavra, e não tinha motivo, ali sentado, exausto, para imaginar que aquilo tivesse relação com Elis. Só sentiu, olhando o rosto de Hadris se fechar de um jeito novo, que alguma notícia recém-chegada tinha mudado o humor da sala inteira, e que aquela mudança não parecia boa para ninguém.
+Kalan não ouviu a conversa. Viu apenas o Sumo Vigia falar ao ouvido de Hadris, que fez uma pergunta muito baixa e recebeu uma resposta curta. Os dois olharam na direção dele. Hadris fechou o registro com mais força do que de costume.
 
 Levaram-no de volta pelo mesmo corredor, mas não até a cela: pararam num ponto onde ele conseguia ver, através de uma grade lateral, o pátio onde Tair e Orel eram conduzidos por outros dois Filhos da Raiz.
 
@@ -194,7 +196,7 @@ Kalan sentiu o corpo congelar por um instante longo demais.
 
 — Hadris permitiu que você acreditasse no que já temia — completou o Sumo, sem culpa na voz, sem vergonha institucional, só a constatação simples de um método que funcionara como devia.
 
-— Vocês me fizeram confessar achando que estavam com ela.
+— Vocês fizeram eu acreditar que tinham prendido a Elis!
 
 — Você confessou porque era culpado.
 
@@ -214,7 +216,7 @@ O Sumo Vigia ficou em silêncio por um momento, como quem escolhe as palavras co
 
 Kalan quis discordar, mas a frase seguinte não deixou espaço.
 
-— Decidiu o que Orel podia saber sobre o próprio perigo. Decidiu o que Tair precisava ou não saber sobre a caixa. Decidiu o que sua irmã devia ou não carregar. Decidiu que podia retirar registros de uma Casa da Permanência porque acreditava compreender melhor do que quem os guardava quais seriam as consequências de fazer isso.
+— Escondeu de Orel o perigo em que ele estava. Escondeu de Tair a caixa. Escondeu de sua irmã o que fez. Escolheu por todos eles.
 
 — Eles iam atrás do Orel.
 
@@ -230,7 +232,7 @@ Kalan sentiu aquilo como um golpe físico, mais forte do que qualquer mão que j
 
 Kalan olhou para ele, tentando entender se havia ali algum resquício de crueldade deliberada, e não encontrou nenhum. Havia só convicção absoluta, do tipo que nunca tinha sido seriamente questionada.
 
-— Vocês usaram minha irmã — disse Kalan, tentando ainda uma última vez encontrar algo que se parecesse com culpa no rosto do velho.
+— Vocês falaram da minha irmã pra me fazer confessar — disse Kalan, tentando encontrar alguma culpa no rosto do velho.
 
 — Não tocamos em sua irmã.
 
@@ -244,7 +246,7 @@ O Sumo não prometeu nada.
 
 — A responsabilidade de cada um será determinada.
 
-— Eles não sabiam de nada.
+— Eles não sabiam, eu já falei!
 
 — É o que você afirma.
 

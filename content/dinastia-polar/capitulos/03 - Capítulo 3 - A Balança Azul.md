@@ -38,7 +38,7 @@ Sovar levantou os olhos.
 
 — Então você veio me avisar de uma coisa que costuma acontecer.
 
-— Quero saber se isso interfere na minha autorização de trabalho. Estou entrando na Cidade Interna todos os dias e talvez pegue turno da noite.
+— Isso atrapalha minha autorização de trabalho? Eu passo pelo portão todo dia. Talvez tenha de pegar turno da noite.
 
 A pergunta, pelo menos, era verdadeira. Sovar estendeu a mão.
 
@@ -72,7 +72,7 @@ Sovar fechou o livro e devolveu a identificação.
 
 Aquilo não fazia parte do que Kalan imaginara. Tinha vindo esperando algum jeito de se aproximar dos registros e, em poucos minutos, Sovar o mandava justamente para alguém que procuraria apenas o nome de Karesis e o dispensaria.
 
-— E se eu precisar comprovar que não existe pendência?
+— E se pedirem prova de que não devo nada?
 
 Sovar franziu a testa.
 
@@ -172,8 +172,6 @@ A caixa inteira podia ter sido deslocada, guardada no setor errado, levada para 
 
 A primeira metade do salão pareceu muito maior do que quando entrara. Lia ergueu os olhos, e Kalan sentiu o corpo inteiro endurecer.
 
-Kalan sentiu o corpo inteiro endurecer.
-
 — Kalan.
 
 Ele parou.
@@ -194,9 +192,7 @@ Aproximou-se com a caixa presa contra o corpo e estendeu a mão. Lia entregou o 
 
 Ela tornou ao atendimento. Kalan guardou a identificação e continuou andando. Só quando desceu os degraus da Casa da Permanência percebeu que prendia a respiração.
 
-Não correu. Correr seria admitir que tinha motivo.
-
-Seguiu pela rua no passo de quem apenas descobrira que estava muito atrasado, dobrou a primeira esquina e depois outra. Quando entrou numa passagem estreita entre duas construções, encostou as costas na parede e olhou para a caixa escondida sob o casaco.
+Manteve o passo até dobrar a primeira esquina, depois outra. Numa passagem estreita entre duas construções, encostou as costas na parede e examinou a caixa escondida sob o casaco.
 
 Voltou para casa pelo caminho mais curto.
 
@@ -422,7 +418,7 @@ Corven conferiu as marcas com atenção e depois olhou para o cais, onde três b
 
 — Pode ter perdido conteúdo antes de ser selada, podem ter errado a primeira pesagem ou podem ter copiado o número de outra caixa. Tudo isso é problema. Nenhum deles exige que a gente pare este pátio agora.
 
-— Se o selo está inteiro, como perdeu conteúdo depois da inspeção? — perguntou Kalan.
+— Mas se o selo tá inteiro, como a caixa ficou mais leve depois de ser inspecionada? — perguntou Kalan.
 
 — Eu disse antes de ser selada.
 
@@ -440,7 +436,7 @@ Corven olhou para Neris.
 
 Kalan apontou para a marca da Raiz.
 
-— Então o selo vale mais do que o peso?
+— Quer dizer que o selo importa mais do que o peso?
 
 — O selo diz que alguém assumiu responsabilidade por aquela inspeção. Não quer dizer que ninguém possa errar.
 
@@ -450,11 +446,7 @@ A resposta fazia sentido. Era irritante justamente por isso. Corven entregou a t
 
 Então Corven seguiu para outro setor.
 
-No fim da tarde, os Filhos da Raiz chegaram. Um não chamaria atenção na Balança Azul, nem dois: o Culto participava de inspeções, atendimentos, registros de doação e uma quantidade de coisas que Kalan nunca compreendera completamente. Mas havia muitos, oito ou nove, e entraram pelo acesso do cais em grupo, com as faixas escuras do Culto. Não traziam material de atendimento, não acompanhavam feridos e não seguiram para os pátios onde conferiam mercadorias.
-
-Mas havia muitos. Oito, talvez nove.
-
-Entraram pelo acesso do cais em grupo, usando as faixas escuras do Culto. Não traziam material de atendimento, não acompanhavam feridos e não seguiram para os pátios onde normalmente conferiam mercadorias.
+No fim da tarde, os Filhos da Raiz chegaram. Uma ou duas visitas eram comuns na Balança Azul, pois o Culto participava de inspeções, registros e distribuição de donativos. Dessa vez vieram oito ou nove homens, todos com as faixas escuras da Raiz. Não levavam remédios nem seguiram para os pátios onde conferiam mercadorias.
 
 Foram direto ao prédio administrativo. Kalan acompanhou com os olhos até o último desaparecer pela entrada, e a corda que segurava quase escapou de sua mão. Talvez os Filhos fossem falar com Alveris sobre o torneio, talvez discutissem alguma doação, talvez não fosse nada. Ainda assim, muitos homens do Culto atravessando o cais juntos eram difíceis de ignorar.
 
@@ -496,35 +488,23 @@ Kalan se aproximou um pouco mais da parede. Pensou na caixa que pesava menos do 
 
 A fumaça de orva chegou à janela antes que Kalan ouvisse outra resposta. O cheiro era mais forte ali, adocicado no começo e amargo depois. Alguém dentro da sala perguntou por que Alveris insistia para que tudo estivesse pronto antes do torneio.
 
-Por alguns instantes, o dono da Companhia não respondeu.
+Por alguns instantes, Alveris não respondeu.
 
-— Minha mãe cuidava de uma árvore atrás da casa onde cresci — disse por fim. — Era velha, torta e já quase não dava fruto, mas ela gostava da sombra. Quando eu era menino, nasceu um broto entre as raízes. Achei que ela fosse arrancá-lo para não roubar força da árvore antiga. Ela fez o contrário. Pegou a lâmina e cortou um dos galhos que faziam sombra sobre ele.
+— Minha mãe tinha uma árvore torta atrás de casa — disse. — Quando nasceu um broto entre as raízes, achei que ela fosse arrancá-lo. Em vez disso, cortou um galho da árvore velha para o pequeno receber sol.
 
-A sala permaneceu quieta. Kalan também.
+Kalan ouviu o arranhar de uma cadeira.
 
-— Eu chorei por aquele galho. Subia nele desde pequeno. Minha mãe me disse que uma coisa continuar viva não significa que tenha direito a ocupar todo o espaço. Anos depois ela morreu. O galho que ficou apodreceu, a árvore antiga caiu num temporal e o broto continuou crescendo. 
+— E o que isso tem a ver com o Torneio? — perguntou alguém.
 
-A voz de Alveris continuava calma, mas já não parecia uma conversa sobre caixas.
+— Que às vezes é preciso abrir espaço para alguma coisa crescer. A Balança dobrou o trabalho, mas continuamos esperando as mesmas assinaturas e conferências. Nenhuma cidade aguenta isso para sempre.
 
-— Às vezes é preciso permitir que uma coisa morra. Às vezes é preciso cortá-la antes que leve consigo aquilo que ainda pode nascer.
+— A Raiz tem suas próprias obrigações — respondeu a voz que Kalan ouvira antes.
 
-Uma cadeira rangeu dentro da sala. Outra voz, mais cautelosa, perguntou:
+— E a Companhia também. Quero que, quando as delegações chegarem, os carregadores saibam onde deixar as caixas e os funcionários saibam quais selos aceitar. É isso que peço aos senhores.
 
-— Está falando de Vetarius?
+Houve um silêncio. Alveris bateu o cachimbo contra a borda de alguma coisa.
 
-Kalan sentiu o corpo enrijecer. Alveris demorou a responder.
-
-— Estou falando de uma cidade onde um nome decide quem atravessa um portão, quem possui uma casa, quem é ouvido e quem passa a vida pedindo permissão. Vetarius é o homem sentado no lugar que mantém isso de pé. Se outro homem ocupar a mesma cadeira e nada mudar, teremos apenas trocado o rosto do problema.
-
-Kalan quase esqueceu que estava escondido. Nunca imaginara Alveris falar daquele jeito. Na Balança Azul, ele era o homem que discutia contratos, depósitos, preços e rotas. 
-
-— E o que o torneio muda? — perguntou alguém.
-
-— Tudo o que precisamos que mude por alguns dias. Os portões estarão cheios, as dez dinastias terão homens marchando para o Altar, a Companhia moverá mais carga do que em qualquer outro período e o Culto terá autoridade espalhada por toda a cidade. Kaeliran vai depender de acordos que não controla inteiramente. Não teremos outra abertura assim.
-
-A resposta seguinte foi baixa demais para Kalan entender. Alveris tragou a orva antes de continuar, e Kalan ouviu o estalo discreto das folhas queimando dentro do cachimbo.
-
-— O torneio será a melhor chance que teremos de libertar o povo sem destruir a cidade para fazê-lo.
+— Se os pátios pararem, não vão faltar apenas mercadorias. Vão faltar grãos e remédios às Casas que os senhores administram. Prefiro resolver o problema antes que aconteça.
 
 Passos começaram a se aproximar da janela.
 
@@ -532,4 +512,4 @@ Kalan recuou imediatamente. O cheiro da orva ficou mais forte e uma sombra atrav
 
 Ainda precisava terminar o turno e depois começar outro. Orel estava ferido, Karesis não voltara e uma caixa de registros roubada permanecia escondida no caixote de grãos de sua casa.
 
-Entre os trabalhadores, Kalan lembrou-se da promessa de Alveris de libertar o povo. Na história que ele contara, alguma coisa precisava morrer para que outra nascesse. Onde entravam homens como ele nessa conta?
+Entre os trabalhadores, Kalan lembrou-se do broto que a mãe de Alveris deixara crescer. A história era bonita. O que o incomodava era outra coisa: uma caixa chegara ao cais mais leve do que o registro dizia, e Alveris queria que a Raiz aceitasse o selo sem abri-la.

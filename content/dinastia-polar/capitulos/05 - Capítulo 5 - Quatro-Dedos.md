@@ -20,9 +20,9 @@ Ele a vira pela última vez quando ela ainda não alcançava a cintura de ningu�
 
 — Sinto muito — disse Dareth, e havia peso genuíno na frase.
 
-Não perguntou o que a trazia até ali, nem por que uma mulher da Cidade Interna cavalgara horas para lhe entregar pêsames que ninguém pedira. Olhou além dela, contou os cavaleiros parados no caminho (quatro, número pequeno demais para escolta cerimonial e grande demais para visita simples), e alguma coisa no peito dele se fechou devagar, do jeito que se fechava sempre que reconhecia o formato de um pedido chegando antes de ouvir a primeira palavra dele.
+Contou quatro cavaleiros esperando no caminho, um séquito grande demais para uma visita particular. Selina não teria vindo de Kaendar apenas para lhe dar notícias da família.
 
-— Entre — disse por fim, dando as costas antes que ela respondesse, porque hospitalidade ainda era uma coisa que fazia por hábito, mesmo quando toda a desconfiança nele já decidira que não gostaria do motivo daquela visita.
+— Entre — disse Dareth, voltando para casa sem esperar a resposta.
 
 A casa por dentro era menor do que a distância entre os cômodos parecia sugerir de fora: um único cômodo que servia de cozinha, sala e depósito de ferramentas, com uma mesa larga de madeira maciça ocupando o centro. Sobre ela, um quarto de sarnak esperava, parcialmente cortado, a faca ainda presa na carne onde ele a deixara. Havia coisas quebradas por toda parte esperando um conserto que nunca chegava rápido o bastante: uma cadeira de encosto rachado junto à parede, um balde com o aro de metal solto, uma janela cujo batente não fechava mais direito e fora calçado com um pedaço de pano. Selina percorreu o cômodo com os olhos. Notou um banquinho baixo demais para qualquer adulto, largado num canto, mas não perguntou sobre ele. Dareth tampouco olhou naquela direção.
 
@@ -32,9 +32,9 @@ Ele limpou dois copos de barro na própria túnica e serviu uma bebida clara de 
 
 Bebeu o próprio copo de uma vez e falou um pouco sobre os últimos dias, sem que ela perguntasse nada: a chuva que atrasara a colheita, um tarrak novo que ainda não confiava nele, o vizinho mais próximo, que morava a uma hora dali e que ele só via duas vezes por ciclo. Contou, quase de passagem, que viera para aquelas terras quando se aposentara porque queria distância do barulho da cidade e porque os joelhos já não perdoavam escada de guarda. Selina não tocou no copo. Escutou até ele terminar.
 
-Foi Dareth quem mencionou Vetarius primeiro, como quem finalmente decide arrancar a farpa em vez de esperar que ela pare de doer sozinha.
+Dareth terminou de falar da colheita e voltou a encher o copo. Selina ainda não tocara na bebida.
 
-— Suponho que ele ainda bebe cedo demais e decide tarde demais — disse, sem verdadeiro humor na voz.
+— Aposto que continua bebendo antes da hora e decidindo depois que já é tarde — disse Dareth, sem sorrir.
 
 Selina pousou o copo na mesa, o som baixo o suficiente para não parecer um gesto, alto o suficiente para marcar o fim da conversa fácil.
 
@@ -46,7 +46,7 @@ Dareth terminou de beber e não olhou para ela. Respirou, então ergueu os olhos
 
 — Ele disse que você voltaria. Que aceitaria.
 
-— Ele disse? E por que ele acha que um homem como eu ainda sou útil?
+— Ele disse? E por que acha que ainda sirvo pra isso?
 
 — Você não sabe? Do torneio?
 
@@ -54,11 +54,17 @@ Dareth terminou de beber e não olhou para ela. Respirou, então ergueu os olhos
 
 — Vai haver um torneio — disse ela, e explicou, em poucas frases secas o bastante para soarem administrativas, o acordo entre as dez dinastias, o Altar dos Dez Estandartes e o campeão que cada casa precisava apresentar para evitar uma guerra maior. — E os Polar precisam de um campeão.
 
-— Deve haver muitos homens capazes de representar os Polar — disse Dareth.
+— Kaeliran não ficou sem soldados nesses vinte ciclos.
 
-— Sim, há. — Selina não desviou o olhar. — Mas nenhum deles segurou uma passagem inteira sozinho, tempo suficiente pra um exército atravessar, e nenhum precisou reconstruir a própria empunhadura depois de perder um dedo fazendo isso. Eu li os relatórios antes de vir. Dois dos homens que serviram sob seu comando ainda usam a pegada que você inventou depois de Arven, e falam dela como quem fala de um professor, não de uma lenda. Vetarius não está pedindo um nome pra assustar as outras nove dinastias. Está pedindo você. Todos os outros foram recusados.
+— Eu sei. Fui contra essa escolha. Vetarius recusou todos os outros.
 
-— Relatório nenhum sabe o que aquilo custou — disse Dareth, a voz seca, fechando qualquer espaço que a frase dela tivesse aberto.
+— Então diga a ele que escolheu mal.
+
+— Dois homens que serviram com você ainda usam a empunhadura que criou depois de Arven. Li os relatórios. Você segurou aquela passagem até o exército atravessar, mesmo ferido. Se entrar na arena, sabe enfrentar gente que nunca viu.
+
+Dareth pousou o copo na mesa.
+
+— Relatório nenhum conta quanto custou.
 
 Não disse mais nada depois disso. Ficou algum tempo naquele silêncio estranho entre eles, sem olhar para ela, e então se levantou.
 
@@ -78,7 +84,7 @@ Dareth já estava junto da janela, olhando para fora, para o mesmo caminho pelo 
 
 Ele virou a cabeça.
 
-— Ele pôs seu nome. Se você não voltar e não se apresentar, os Polar serão eliminados. E numa guerra assim, o controle não vai ficar com quem lutou mais bravamente. Vai ficar com quem estava presente quando a decisão foi tomada — e nós não estaríamos.
+— Ele já apresentou seu nome. Se você faltar, os Polar serão eliminados. E quando os outros decidirem nossas disputas, não teremos ninguém lá para contestar.
 
 A frase pareceu alcançar um lugar que ela não pretendia tocar. Dareth desviou o rosto por um instante, a mandíbula tensa, e quando voltou a olhá-la havia algo mais duro nos olhos, embora a voz, ao responder, saísse mais baixa que a dela.
 
@@ -86,15 +92,15 @@ A frase pareceu alcançar um lugar que ela não pretendia tocar. Dareth desviou 
 
 Ela deu um passo à frente, o suficiente para que a distância entre os dois deixasse de ser apenas espaço vazio.
 
-— Você é um Polar. Ou está abrindo mão de quem é?
+— Você é Polar, Dareth. Isso ainda significa alguma coisa pra você?
 
 Ele riu, sem nenhuma alegria na garganta, e voltou a olhar para fora, como se a resposta lá fora interessasse mais do que qualquer coisa que pudesse dizer a ela.
 
-— Eu já não sei quem eu sou há muitos anos.
+— Faz tempo que parei de saber o que sou.
 
 Selina cruzou os braços, e o julgamento na voz dela ficou mais afiado do que qualquer coisa que dissera até ali.
 
-— Eu sei. Você é um covarde. Que fugiu para cá quando se aposentou, e continua fugindo de tudo, fingindo que sua vida é só isso: o joelho, a chuva, o tarrak que ainda não confia em você.
+— Parece que sim. Você se escondeu aqui e agora vai deixar dez dinastias decidirem o que fazer com a sua. Quer que eu volte e diga a Vetarius que o grande Quatro-Dedos está ocupado cuidando dos tarraks?
 
 Por um instante, as mãos dele se fecharam junto ao corpo, e ele pareceu prestes a atravessar a sala até ela. Depois relaxou os ombros, devagar, como quem decide que raiva também é um luxo que já não pode se permitir.
 
@@ -102,9 +108,9 @@ Por um instante, as mãos dele se fecharam junto ao corpo, e ele pareceu prestes
 
 Selina saiu sem se despedir, a porta batendo mais forte do que pretendia atrás dela. Montou no próprio tarrak com o mesmo movimento seco de quem descera dele minutos antes, ajustou as correias com dedos rápidos, quase raivosos, e só então deixou a respiração diminuir. Os cavaleiros, que esperavam em silêncio havia todo aquele tempo, endireitaram-se na sela ao vê-la montar.
 
-Antes de puxar o capuz sobre a cabeça, virou-se uma última vez para ele. Dareth continuava parado junto à janela, os braços cruzados, o rosto sem nenhuma expressão que valesse a pena ler àquela distância.
+Antes de puxar o capuz, Selina olhou uma última vez para a janela. Dareth continuava ali.
 
-— Ele confia muito em você. Vetarius. Preferia a derrota dos Polar a sequer considerar outro alguém em seu lugar. Eu queria saber o que fez ele realmente acreditar que conhecia o homem em quem estava confiando. Talvez... este homem já tenha morrido. E sobrou apenas... o medo de descobrir que ainda seria capaz de dizer sim.
+— Vetarius preferiu arriscar a derrota da Dinastia a escolher outro homem. Espero que tenha uma resposta melhor para ele, Dareth.
 
 Não esperou resposta. Puxou o capuz, virou as costas e partiu com o tarrak, os cavaleiros caindo em formação atrás dela sem precisar de ordem.
 
@@ -112,8 +118,8 @@ Na volta, Selina reviu a conversa. Estudara os registros militares, a Passagem d
 
 Dareth entrou na casa quando a poeira dos tarraks ainda não tinha assentado no caminho. Uma garoa fina começava a cair, do tipo que Kaeliran quase nunca via mas que aquelas terras a oeste recebiam com regularidade, batendo de leve no telhado sem pressa de virar tempestade. Sentou-se de novo na cadeira de encosto rachado, o copo vazio ainda na mesa, e olhou para a velha espada pendurada na parede.
 
-Fora uma arma bonita, uma vez, lâmina reta e comprida, forjada por alguém em Varkhama que sabia o que estava fazendo, o punho envolto num couro que perdera a cor original havia tanto tempo que ninguém além dele lembrava qual fora. Tivera dias de glória que já ninguém vivo sabia contar com exatidão, dias em que o nome Quatro-Dedos ainda não significava nada além de um homem inteiro com uma mão incompleta.
+A espada tinha lâmina reta e comprida, forjada em Varkhama, e o couro do punho perdera a cor de tanto uso. Dareth a levara na Passagem de Arven, antes de os outros começarem a chamá-lo de Quatro-Dedos.
 
-Levantou-se. Caminhou até a parede como quem caminha até algo que evitou por anos sem nunca admitir que estava evitando, e tocou a lâmina com dois dedos antes de finalmente retirá-la do suporte. O metal estava frio e mais pesado do que a memória do braço dele previa. No metal empoeirado viu um reflexo torto de si mesmo. Ajustou a mão na empunhadura, mas não ergueu a espada.
+Levantou-se, retirou a espada do suporte e fechou a mão no cabo. O metal estava frio. O braço precisou de um instante para se acostumar ao peso. Testou a empunhadura que aprendera a fazer com quatro dedos, mas não ergueu a lâmina.
 
-A garoa continuava caindo, leve, indiferente, enquanto ele ficava parado com a espada na mão, sem guardá-la de volta e sem se mover para lugar nenhum.
+A garoa bateu mais forte no telhado. Dareth continuou junto à parede, segurando a espada.

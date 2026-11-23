@@ -1,14 +1,10 @@
-A confirmação chegou a Kaendar sem cerimônia nenhuma: Dareth continuava campeão Polar.
+Vetarius mandou confirmar por escrito que Dareth continuava campeão Polar. Um mensageiro entregou o bilhete, Dareth leu e o guardou sem responder. Não foi agradecer ao soberano. Vetarius tampouco o procurou.
 
-Não veio pela boca de Vetarius. Veio por um bilhete curto, entregue por um mensageiro qualquer, no tom impessoal de uma secretaria confirmando uma escala de guarda. Dareth leu, dobrou o papel e não respondeu. Não procurou Vetarius para agradecer, discutir ou confirmar detalhes. Vetarius também não mandou chamá-lo.
-
-Os dois continuaram existindo dentro do mesmo centro político, às vezes a poucos corredores de distância, sem trocar uma palavra direta durante toda aquela semana. Quando alguma informação precisava atravessar de um lado para o outro (um horário de treino, um ajuste de rota, uma decisão sobre equipamento), passava por Kerath, por Teral, por algum funcionário, por um mensageiro que nem sabia o peso do silêncio que carregava.
-
-Dareth tinha voltado ao Torneio. Não tinha voltado para Vetarius.
+Durante aquela semana, quando precisavam discutir treino, equipamento ou a rota do Torneio, os recados passavam por Kerath e Teral. Dareth voltara à comitiva, não à amizade com Vetarius.
 
 A semana passou depressa, como passam as coisas quando ninguém tem tempo de parar para sentir o cansaço.
 
-Kaendar se transformou para a viagem quase da noite para o dia. Caixas eram fechadas e empilhadas nos pátios internos, listas conferidas e reconferidas por escribas de dedos manchados de tinta, animais separados por função e temperamento nos currais temporários perto dos estábulos. Cozinheiros discutiam quantidade de provisões, quantos dias de viagem, quanto peso as carroças aguentariam sem quebrar eixo no caminho. Nobres discutiam alojamentos com uma urgência desproporcional ao problema, como se a distância entre uma tenda e outra decidisse alguma coisa importante. O equipamento do campeão era revisado peça por peça, cada correia testada, cada fivela verificada duas vezes. Documentos diplomáticos seguiam à frente da comitiva, para que as outras dinastias soubessem quando esperar os Polar.
+Kaendar se encheu de carroças, tratadores, escribas e cozinheiros que discutiam peso e quantidade de provisões. Guardas conferiam armas. Funcionários separavam os documentos diplomáticos que seguiriam à frente da comitiva. Os nobres disputavam espaço para tendas e malas, e os trabalhadores precisavam encaixar tudo num plano que já estava apertado.
 
 Dareth treinava quase sempre sozinho, descansava pouco e evitava as cerimônias. Não procurou Vetarius nenhuma vez. Selina aparecia cada vez menos pelos corredores que os dois costumavam cruzar, e quando aparecia falava o mínimo indispensável, sem a presteza cortante de sempre, sem a energia que costumava preencher qualquer sala em que estivesse.
 
@@ -18,7 +14,7 @@ No meio daquela semana comprimida, alguém contou a Dareth, quase como piada, so
 
 O garoto trocara nomes em algumas escalas de guarda, o bastante para que dois homens se apresentassem ao mesmo posto na mesma hora, enquanto outros dois ficavam certos de que deveriam estar noutro setor. O atraso gerou confusão, e por alguns minutos um dos corredores de segurança de Kaendar ficou com menos homens do que deveria enquanto Kerath tentava entender de onde viera o erro.
 
-Ninguém se feriu. Nada foi roubado. Mas por aqueles minutos a segurança do centro político fora de fato comprometida: dois guardas discutindo em voz alta sobre quem lera errado a própria escala, um superior insistindo que aquele não era o documento que deixara na noite anterior, o pátio num princípio de caos que só se resolveu quando Kerath reuniu todo mundo e refez a escala do zero, ali mesmo.
+Não houve feridos, mas um corredor de Kaendar ficou com menos guardas do que deveria. Kerath precisou conferir as escalas e redistribuir os homens enquanto Caeren assistia à confusão escondido atrás de uma armadura cerimonial.
 
 Levou um tempo até perceberem Caeren escondido atrás de uma velha armadura cerimonial num canto do salão, observando tudo, rindo baixinho. Quando se viu descoberto, sumiu corredor adentro antes que algum adulto o alcançasse.
 
@@ -40,9 +36,9 @@ Carroças inteiras estavam reservadas só para roupas, tendas, utensílios de co
 
 O estandarte Polar era preparado à parte, dobrado com cuidado quase religioso antes de ser fixado ao mastro que o levaria à frente da comitiva. O equipamento de Dareth estava ali também, revisado por mãos que sabiam o que faziam.
 
-Era impossível olhar para aquilo e não perceber quanto trabalho invisível sustentava uma viagem que a maioria dos nobres trataria como simples cerimônia.
+Dareth viu um funcionário voltar três vezes à mesma carroça para redistribuir a carga que um senhorio insistia em levar. O funcionário já suava antes de a comitiva partir.
 
-Dareth vestiu roupas de viagem funcionais, de resistência e mobilidade, sem aparência. Ainda não precisava da armadura completa do Torneio, que viria depois, no destino. Ele tinha voltado a assumir, de corpo inteiro, a função de campeão.
+Dareth escolheu roupa leve de viagem, botas resistentes e uma capa que não prendesse os movimentos. Ainda não precisava da armadura completa do Torneio, que viria depois, no destino. Ele tinha voltado a assumir, de corpo inteiro, a função de campeão.
 
 Um servidor ofereceu uma peça de armadura excessivamente decorada, cheia de gravuras que pareciam feitas mais para impressionar do que para proteger.
 
@@ -52,9 +48,7 @@ Preferia o que conseguia usar de verdade. O equipamento dele refletia o guerreir
 
 Vetarius estava presente na organização da comitiva, caminhando entre os grupos, trocando palavras rápidas com um oficial aqui, um nobre ali. Em algum momento, os olhos dos dois se cruzaram através do pátio. Nenhum dos dois se aproximou.
 
-Não havia cumprimento privado, nenhuma tentativa de reconciliação, nenhum gesto que sugerisse que a conversa da semana anterior tivesse sido esquecida ou perdoada. Em público, continuava o que sempre existira formalmente entre eles: um soberano Polar e seu campeão. Em particular, restava muito pouco, talvez nada.
-
-Ninguém precisou dizer isso. Bastava ver os dois ocuparem o mesmo pátio sem trocar uma palavra.
+Nenhum dos dois se aproximou para conversar. O pátio inteiro os via como soberano e campeão. Dareth só conseguia pensar no rapaz enterrado fora das muralhas e na promessa que Vetarius cumprira tarde demais.
 
 Selina também viajava. Suas responsabilidades diplomáticas e logísticas ligadas ao Torneio a obrigavam a acompanhar a comitiva, e ela cumpria tudo com a competência de sempre, só que diferente. Falava pouco. Conferia documentos, respondia quando alguém lhe dirigia a palavra, sem ocupar o espaço que normalmente ocuparia numa organização daquele porte.
 
@@ -170,9 +164,9 @@ Depois, mais devagar:
 
 — Tenho — Selina confirmou. — Elis me disse onde a tinha escondido.
 
-— Por que ela contou pra você?
+— Por que Elis confiou em você?
 
-— Porque eu pedi que parasse de carregar aquilo sozinha — Selina respondeu, simples.
+— Porque fui até ela e expliquei o risco de guardar os documentos sozinha — respondeu Selina.
 
 Selina contou o que encontrara.
 
@@ -188,7 +182,7 @@ Um homem chamado Aleris. Nascido Buldar, registrado depois como Nular em Kaelira
 
 Dareth não se convenceu na hora, e Selina pareceu aliviada: não queria que ele aceitasse uma conclusão só porque soava dramática.
 
-— Uma letra e uma idade não bastam pra nada — Dareth disse.
+— Uma letra e uma idade parecida não provam nada — disse Dareth.
 
 — Eu sei — Selina respondeu. — Por isso segui as datas.
 
@@ -202,11 +196,11 @@ Explicou então a linha completa: Aleris entrando nos registros, vivendo como Nu
 
 Dareth olhou para ela, esperando a explicação.
 
-— Nular não é uma dinastia — Selina disse. — É uma condição legal, dentro de Kaeliran, para quem não tem pertencimento Polar reconhecido. Um Buldar pode viver como Nular. Um Glydar pode. Um Cendar também. Alguém sem pertencimento dinástico nenhum, da mesma forma.
+— Nular não é dinastia — explicou Selina. — É como Kaeliran registra quem vive ali sem pertencimento Polar reconhecido. Pode ser Buldar, Glydar, Cendar ou alguém sem qualquer linhagem. A condição não conta de onde a pessoa veio.
 
 — Então o que importa não é de onde a pessoa vem.
 
-— É se ela tem ou não sangue Polar reconhecido — Selina confirmou. — Se surgisse uma prova de ascendência — um pai, uma mãe, um avô Polar — o pertencimento podia ser corrigido. Formalmente.
+— É se existe ascendência Polar reconhecida — confirmou Selina. — Com a prova de um pai, uma mãe ou até um avô Polar, a classificação poderia ser corrigida. Isso exigiria documentos e validação.
 
 — Então Aleris podia realmente ser Polar — Dareth disse, devagar, processando aquilo.
 
@@ -238,9 +232,9 @@ Dareth ficou alguns segundos olhando para o fogo.
 
 — Sim.
 
-— Então o Culto fez Alveris.
+— Então alguém da Raiz ajudou Alveris a virar Polar.
 
-— Não — Selina respondeu, rápido demais para ser hesitação. — Não sei quem fez nada.
+— Não sabemos isso — corrigiu Selina na mesma hora. — O registro passou por instâncias ligadas à Raiz, mas ainda não sei quem assinou a validação.
 
 Explicou que qualquer reconhecimento de linhagem passava de algum jeito pela estrutura registral ligada à Raiz, mas isso podia ter acontecido décadas atrás, podia envolver alguém já morto, podia ser falsificação puramente civil sem nenhum religioso saber, ou podia envolver diretamente alguém do Culto. Ela ainda não sabia, e não ia fingir que sabia mais do que os papéis mostravam.
 
@@ -284,7 +278,7 @@ Silêncio.
 
 Um quase-sorriso cansado passou entre os dois, rápido demais para durar.
 
-— Ela já perdeu demais — Selina disse, mais séria de novo. — Se eu disser que aquilo pode ter ligação com a morte do irmão dela, ela vai atrás sem pensar duas vezes.
+— Ela já perdeu o irmão — disse Selina. — Se suspeitar que Alveris tem alguma ligação, vai atrás dele antes de termos uma prova.
 
 — Por isso você não contou.
 

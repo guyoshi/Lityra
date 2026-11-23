@@ -100,7 +100,7 @@ Ele olhou por cima do meu ombro. Viu Priscila.
 
 Ela não respondeu imediatamente. Havia passado tanto tempo evitando falar sobre ele, sobre Kelly e sobre tudo o que acontecera em Vila Velha. Eu sabia que o encontro seria difícil. Só não esperava que ela ficasse tão quieta.
 
-Uma mão pequena apareceu atrás da camisa de Vini. Pertencia a uma menina de uns dez anos, talvez um pouco mais, com os olhos fundos e as unhas roídas.
+Uma mão pequena apareceu atrás da camisa de Vini. Pertencia a uma menina de uns catorze anos, pequena para a idade, com os olhos fundos e as unhas roídas.
 
 — Quem é ela? — perguntei.
 
@@ -112,7 +112,7 @@ Seguimos por duas passagens e uma escada curta até uma cela no fim de um pavilh
 
 Vini passou a mão pelo rosto.
 
-— Começou faz uma semana, mais ou menos. O pessoal começou a ficar estranho. O Seu Joel parou de conversar. Os guardas faziam a ronda sem olhar para ninguém. Ontem, tinha gente andando pelo corredor com os olhos abertos, mas não respondia nem quando a gente empurrava.
+— Começou faz uma semana, mais ou menos. Primeiro foi o Seu Joel. Parou de conversar, de comer com os outros. Dois dias depois, um guarda ficou parado na minha porta a ronda inteira, sem falar nada. No dia seguinte eram dois. Ontem, já tinha gente andando pelo corredor com os olhos abertos, mas não respondia nem quando a gente empurrava. Parecia que aquilo passava de um para outro. Ninguém aqui prestou atenção até ser tarde demais.
 
 — E hoje?
 
@@ -216,7 +216,7 @@ Batemos com a lanterna, depois com os ombros. Não cedeu.
 
 Voltamos. Havia um homem no fim da passagem. Estava de costas, com a cabeça baixa. Quando nos aproximamos, virou o pescoço até o rosto ficar de frente para nós, embora os ombros continuassem voltados para a parede. Nati gritou.
 
-Priscila puxou a menina para trás. Vinícius atacou com a lâmina, atingindo o pescoço e o peito daquele corpo. Não saiu sangue. O homem caiu de joelhos, ainda estendendo os braços.
+Priscila puxou a menina para trás. Por um segundo ficou imóvel, encarando o rosto deformado do homem. Em seguida colocou Nati atrás de si. Vinícius atacou com a lâmina, atingindo o pescoço e o peito daquele corpo. Não saiu sangue. O homem caiu de joelhos, ainda estendendo os braços.
 
 — Não morre — Vini disse, ofegante. — Só atrasa.
 
@@ -278,13 +278,13 @@ Dois olhos vermelhos se acenderam no centro. Outros surgiram à volta. Um, dois,
 
 — Não — falei.
 
-A voz respondeu. Não como os mortos costumavam falar. Aquela coisa não precisava formar palavras. Encostava pensamentos na minha cabeça, e os pensamentos chegavam acompanhados de lembranças que não eram minhas. A escola. Uma porta fechada. Alguém chamando um nome que eu não reconheci.
+A voz respondeu. Não como os mortos costumavam falar. Aquela coisa não precisava formar palavras. Encostava pensamentos na minha cabeça, e os pensamentos chegavam acompanhados de lembranças que não eram minhas. A escola. Uma porta fechada. Alguém chamando um nome que eu não reconheci. Então ouvi claramente: “Eu sabia que você enxergava os mortos. Não esperava que fosse uma Selifa.” Lembrei da coleira que Alex deixara entre as coisas da minha mãe. Agouro tinha mandado os Elos até nós para nos manter ao alcance de seus servos. E eu tinha aprendido a destruí-los.
 
 — Não vou — respondi.
 
 Um braço escuro desceu sobre uma bancada, derrubando uma lata de verniz. A substância escorreu pelo chão.
 
-A presença voltou a pressionar os meus pensamentos. Queria que eu permanecesse ali, longe do que quer que estivesse acontecendo fora da penitenciária. Ao mesmo tempo, exigia que eu deixasse aquelas pessoas e parasse de interferir. Havia outra coisa por trás disso, mas, cada vez que tentava compreendê-la, sentia uma dor aguda entre os olhos.
+A presença voltou a pressionar os meus pensamentos. Queria que eu permanecesse ali, longe do que quer que estivesse acontecendo fora da penitenciária. Ao mesmo tempo, exigia que eu deixasse aquelas pessoas e parasse de interferir. De repente me mostrou o rosto de Kelly, o revólver na mão de Junior, o lago. “Ela achou que eu precisava do corpo dele para trazer o irmão de volta. Eu precisava que ele aceitasse matar por mim. Foi a escolha do garoto que me deu o caminho para a porta.” A imagem desapareceu, mas a dor entre os meus olhos ficou. Ele queria que eu pensasse no que acontecera com Kelly em vez de ajudar os que estavam ali.
 
 — Você pode pedir de outro jeito — falei. — Eu não vou abandonar ninguém.
 
@@ -356,41 +356,35 @@ Dois braços negros atravessaram a parede. Um deles agarrou Glenda pela cintura,
 
 Um braço passou diante do meu rosto e acertou o concreto. A parede rachou. Não houve tempo de correr. A entidade estava em toda parte. E os mortos ainda se aproximavam.
 
-Fechei os olhos. Lembrei das lições da Sra. Olívia. Da égua Leila, da sensação que me atravessou quando toquei o pescoço dela, da brisa que eu sentia desde criança sem saber o que era. Vitalidade.
+Fechei os olhos e ouvi um ruído que não vinha do galpão: muitas pessoas tentando dizer alguma coisa ao mesmo tempo. Abri-os depressa. Não eram ordens da entidade. Eram nomes, pedidos, vozes de gente que tinha morrido sem entender o que lhe acontecera.
 
-Naquele corredor havia mais vitalidade do que qualquer pessoa viva seria capaz de suportar. Não vinha de nós. Vinha dos que tinham morrido ali. A entidade roubara aquela força e a prendia aos corpos, fazendo com que voltassem a levantar. Eu podia senti-la porque ela não era minha.
+Lembrei da casa dos Marques. Aqueles mortos também tinham sido mantidos à força, presos aos Elos e usados pelo Agouro. Só conseguiram partir quando aquilo que os prendia foi destruído. Mas ali não havia seis objetos que eu pudesse encontrar e queimar. Havia corpos caminhando na minha direção e alguma coisa faminta acima de nós.
 
-O Cara-de-Larva havia se alimentado do pai de Filipo. Depois viera atrás de nós. E aquela coisa, com os olhos do Agouro, parecia ter feito o mesmo com dezenas de pessoas. Olhei para o primeiro morto.
+A mulher que vinha na frente parou por um segundo. Atrás dos olhos vermelhos, vi um rosto diferente do rosto do cadáver. Não soube dizer o que era mais terrível: que ela ainda existisse ali dentro ou que a criatura soubesse e não se importasse.
 
-Era o homem que eu tinha visto sentado na sala de visitas. O uniforme estava sujo, o rosto cinzento, os olhos vermelhos. Mas havia alguma coisa atrás deles. Um homem cansado, de barba grisalha, tentando falar. Seu Joel.
+O homem seguinte estava com a roupa manchada e a barba grisalha. Era aquele que eu tinha visto na sala de visitas. Quando chegou perto, uma lembrança que não era minha atravessou a cabeça: uma mesa de madeira, uma mulher chamando o marido para almoçar. O nome veio junto.
 
-Não sei como soube o nome. Ele chegou à minha cabeça junto da imagem de uma casa pequena, uma mesa de madeira e uma mulher chamando pelo marido. Em outro momento teria duvidado de mim mesma. Estendi a mão.
+— Seu Joel?
 
-— Eu consigo — falei.
+Ele ergueu o rosto. A boca do corpo continuou aberta, imóvel, mas alguma coisa atrás dela pareceu me ouvir.
 
-A voz da entidade aumentou, furiosa. O braço que prendia Priscila sacudiu, fazendo-a bater na parede.
+— O senhor está morto — falei. Custou-me dizer aquilo. — Eu não sei como tirá-lo daí. Mas sei que essa coisa não tem o direito de ficar com o senhor.
 
-— Jennifer! — ela gritou.
+Um braço da entidade bateu na parede. O galpão tremeu. Priscila gritou quando a força que prendia seu tornozelo a puxou mais para cima.
 
-— Aguenta um pouco, Pri.
+— Jennifer, faz alguma coisa!
 
-Encostei a palma da mão no peito de Seu Joel. O frio atravessou meu braço e alcançou o ombro. Senti a dor dele, o medo, a vontade de voltar para casa, a confusão de quem morre sem entender que morreu. Por um instante quase perdi o equilíbrio. Mas ele ouviu.
+Eu queria fazer. Não sabia o quê.
 
-— Seu Joel — chamei. — Não precisa ficar aqui. Acabou.
+Toquei de leve o peito de Seu Joel. O frio atravessou meu braço. Ouvi um som que parecia uma respiração presa havia muito tempo, e o homem se dobrou, caindo de joelhos. O vermelho dos olhos perdeu força. Por um instante vi o espírito dele ao lado do próprio corpo, assustado, olhando para as mãos que não precisava mais levantar.
 
-Os olhos vermelhos tremeram. Ficaram mais fracos.
+Uma mulher parou atrás dele. Ouvi um nome curto, Bahia, e o barulho de uma porta sendo fechada por alguém que não voltaria. Ela também tentou me alcançar. Não fui eu quem a puxou para fora. Sua mão encontrou a de Seu Joel, e os dois se afastaram dos corpos vazios.
 
-— Pode ir.
+Outros mortos começaram a hesitar. Alguns caíam de joelhos, outros ficavam parados, a boca se mexendo sem produzir som. Uma senhora de cabelos brancos trazia um terço enrolado entre dedos que já não eram de carne. Era Dona Lourdes, que eu tinha visto entre os visitantes. Ela me olhou, depois olhou para a sombra no teto, e apertou o terço contra o peito.
 
-O homem dobrou os joelhos e caiu devagar, como alguém que se senta depois de um dia inteiro em pé. Atrás dele outra presença ergueu a cabeça. Bahia.
+— Eu consigo ouvir vocês — falei, alto o suficiente para que os meus amigos me escutassem. — Não sei se todos me ouvem. Estou tentando.
 
-Toquei seu peito. O mesmo frio. O mesmo alívio quando os olhos se apagaram.
-
-Depois veio Dona Lourdes, uma senhora de cabelos brancos. Eu a tinha visto entre os visitantes. Quando me aproximei, enxerguei um terço na mão dela, embora os dedos do corpo já não segurassem nada.
-
-— Pode ir, Dona Lourdes.
-
-Ela caiu. Os mortos começaram a parar por conta própria, esperando a minha vez de chegar até eles. Alguns tinham nomes que eu ouvia perfeitamente. Outros me davam pedaços de lembrança: um apelido, uma rua, a voz de alguém querido. Eu dizia o que conseguia. Quando não sabia o nome, tocava a testa ou o peito e pedia que fossem embora. As vozes se separaram.
+A entidade pareceu contrair-se acima do corredor. Era a mesma fome que eu sentira quando Agouro ainda caminhava entre nós. Dessa vez, porém, o medo não vinha só de mim. Os espíritos começavam a perceber uns aos outros.
 
 Havia homens, mulheres, pessoas que viveram coisas horríveis e pessoas que só estavam ali para visitar alguém. Algumas tinham sido cruéis em vida. Outras haviam tentado salvar quem amavam. Mortas, todas queriam a mesma coisa. Sair. No meio delas reconheci Matias.
 
@@ -404,35 +398,49 @@ O rosto do espírito se contraiu. Não sabia se era tristeza ou gratidão.
 
 — Pode ir também.
 
-Os olhos vermelhos do corpo que o prendia se apagaram. Senti alguma coisa se soltar dentro de mim. Não era apenas o que eu fazia com os mortos. Pela primeira vez, eu conseguia ajudá-los sem odiar a minha própria existência por causa disso.
+Os olhos vermelhos do corpo que o prendia se apagaram. Matias olhou para a filha uma última vez, mas Nati não podia vê-lo. O espírito se afastou quando quis, e não quando eu mandei.
 
-Eu tinha passado a vida querendo que os espíritos desaparecessem. Agora era eu quem lhes abria caminho.
+Eu tinha passado a vida inteira pedindo que os mortos me deixassem em paz. Agora era eu quem precisava que ficassem mais um pouco.
 
-Uma corrente fria subiu do corredor e passou por mim. Dezenas de sombras se ergueram, indo para um ponto que eu não conseguia ver. A entidade no teto se agitou. O galpão rangeu. Um braço negro desceu diretamente sobre mim.
+Uma corrente fria atravessou o corredor. Os mortos que haviam conseguido sair dos corpos começaram a subir, não para fugir, mas para olhar a massa escura que cobria o teto. A entidade contraiu os braços. Um deles desceu na minha direção, rápido demais para que eu recuasse.
 
-Tentei me afastar, mas ele se fechou ao redor do meu pescoço antes que eu pudesse tocar o próximo espírito. Fui erguida do chão. O ar desapareceu. Agarrei aquela coisa com as duas mãos, sem encontrar nada sólido. Ouvi Priscila gritar meu nome. Glenda também gritou. Não consegui distinguir o que disse. A entidade apertou mais.
+A coisa me agarrou pelo pescoço e me arrancou do chão. Fui erguida até perder contato com os dedos de Priscila. O ar desapareceu. Tentei arrancar aquele braço com as mãos, mas meus dedos atravessavam parte dele e encontravam outra parte dura, que queimava de frio.
 
-O rosto começou a queimar. Meus ouvidos zuniam. A cabeça ficava cada vez mais leve. Por um instante voltei a estar no meu quarto, anos antes, chorando porque ninguém acreditava nas coisas que eu via. Depois me lembrei de Pedro.
+— SOLTA ELA! — ouvi Priscila.
 
-Ele ria alto na cozinha da minha casa, contando alguma bobagem que só ele achava engraçada. Junior estava sentado à mesa, fingindo não prestar atenção. Lembrei de Kelly atrás dele, puxando-lhe a orelha. Eu lembrava de como tinham entrado na minha vida e a bagunçado inteira. E lembrava do meu pai.
+Ela se lançou para me agarrar pelas pernas. A entidade a atingiu no ombro, jogando-a contra a parede. Glenda disparou para cima. A bala atravessou a escuridão, arrancou uma parte dela e abriu um vão por onde consegui puxar um pouco de ar. O braço tornou a se fechar.
 
-Papai chegava do trabalho com as chaves na mão, perguntando se eu já tinha comido. Eu respondia que sim, mesmo quando não tinha. Ele fingia acreditar. Depois colocava duas xícaras na mesa e me fazia companhia até o chá esfriar. Eu queria voltar para aquela cozinha.
+— Eu não consigo alcançar! — Glenda gritou.
 
-Queria contar que tinha cantado num palco. Queria vê-lo reclamar da minha imprudência, ouvi-lo rir da maneira como eu falava de Pedro. Queria terminar os estudos. Queria viajar. Queria tantas coisas que a lista não cabia em mim. Eu amava estar viva. O braço apertou mais. Então ouvi uma voz conhecida.
+O rosto começou a queimar. Meus ouvidos zuniam. Por um instante me vi de novo no quarto, anos antes, chorando porque ninguém acreditava nas coisas que eu via. Depois veio Pedro, rindo alto na cozinha da minha casa, contando uma bobagem que só ele achava engraçada. Junior estava à mesa, fingindo não prestar atenção. Lembrei de Kelly puxando a orelha dele. Eles tinham entrado na minha vida e bagunçado tudo. E eu queria tanto que continuassem nela.
 
-Mãe.
+Meu pai chegava do trabalho, deixava cair uma das chaves antes de acertar a fechadura e perguntava se eu tinha comido. Quando respondia que sim, ele colocava duas xícaras na mesa e me fazia companhia até o chá esfriar. Queria voltar para aquela cozinha. Queria contar que tinha cantado num palco. Queria terminar os estudos, viajar, reclamar de coisas pequenas. Queria viver.
 
-Não estava certa de ter escutado a minha mãe de verdade. Talvez fosse apenas a lembrança dela, ou o que restava de ar na minha cabeça. Mas por um instante senti a mesma segurança de quando era pequena e ela vinha me buscar depois da escola. Abri os olhos.
+A força no meu pescoço diminuiu por uma fração de segundo. Os espíritos tinham começado a se aproximar. Seu Joel vinha na frente, com a expressão assustada de quem também não sabia como chegara ali. Atrás dele estavam Bahia, Dona Lourdes e outros rostos que eu vira nos corredores. Entre eles, um homem com uma ferida no pescoço e uma mulher com o rosto rasgado. Eu os conhecia. Tinham aparecido para mim muito antes daquela noite.
 
-Havia espíritos à minha volta. Os que eu acabara de libertar não tinham partido todos. Alguns permaneciam perto do teto, olhando para aquela massa escura. Entre eles vi duas figuras que pareciam esperar que eu fizesse alguma coisa: um homem com uma ferida aberta no pescoço e uma mulher com o rosto profundamente rasgado. Já tinha sentido aquelas presenças antes, em Vila Velha. A imagem me assustou, mas nenhum dos dois tentou se aproximar de mim. Eu podia sentir a força que ainda carregavam. E compreendi o que precisava tentar.
+A entidade abriu mais dois olhos vermelhos. Um dos braços disparou contra os espíritos. Eles recuaram. Eu senti o medo deles, tão nítido quanto o meu. A coisa pareceu satisfeita. Apertou meu pescoço outra vez.
 
-— Agora — consegui dizer, quase sem voz.
+Consegui soltar uma das mãos. Estendi-a para os mortos. Não havia nada que eu soubesse fazer com aquela mão, nenhum gesto que Olívia tivesse ensinado. Só havia pessoas diante de mim, pessoas que ainda tinham medo de quem as matara.
 
-Deixei de resistir ao braço que me prendia e me concentrei nos espíritos. Não pedi que me dessem nada. Pedi que levassem de volta o que aquela coisa lhes roubara. A resposta veio de todos os lados.
+— Vocês estão me ouvindo? — Minha voz saiu rasgada. — Ele tirou tudo de vocês. Até a morte ele tirou!
 
-Uma corrente de vento atravessou o corredor. Os mortos que restavam ergueram as mãos. As lâmpadas explodiram, e as presenças se soltaram dos corpos numa sucessão de clarões frios. A entidade abriu os braços, tentando recolhê-las. Não conseguiu. O primeiro fogo foi azul.
+A entidade me sacudiu, tentando calar a frase. Ouvi Priscila bater contra o braço escuro com alguma coisa de metal. Glenda puxou minha perna, mas eu continuava suspensa.
 
-Surgiu na ponta do braço que me segurava, subiu até o teto e se espalhou pelas vigas do galpão. Os olhos vermelhos começaram a se apagar. Soltei um grito quando a criatura me largou. Caí de joelhos no cimento.
+— MAS AINDA TEM UMA COISA QUE ELE NÃO CONSEGUIU TOMAR! — gritei, usando o pouco ar que restava. — VOCÊS PODEM ESCOLHER! NÃO PRECISAM DEIXAR ELE FICAR COM O RESTO!
+
+Seu Joel se moveu primeiro. Não avançou. Apenas virou a cabeça na direção do teto. O corpo que o mantivera preso continuava de frente para mim, caído sobre os joelhos, mas o rosto do espírito girou até encarar os olhos vermelhos.
+
+Depois Bahia fez o mesmo. Um homem próximo à parede virou o pescoço além do que um pescoço humano suportaria, enquanto os ombros permaneceram voltados para o corredor. Ouvi estalos secos, como madeira se partindo. Os outros mortos começaram a olhar para cima. Dezenas de rostos mudaram de direção, alguns depressa, outros resistindo ao último puxão invisível que os mantinha curvados.
+
+Agouro pareceu perceber tarde demais.
+
+A primeira mão de um espírito agarrou um dos braços negros. Outra segurou um dos olhos que se abriam na massa de fumaça. Os mortos avançaram juntos. Não pareciam um exército; tropeçavam uns nos outros, arrastavam lembranças de corpos que já não tinham, mas continuavam indo. Onde suas mãos tocavam a escuridão, alguma coisa se rasgava. A entidade tentou recolhê-los e encontrou resistência.
+
+Um grito atravessou o galpão. Não soube se vinha dela ou de todas as pessoas presas dentro dela. Os olhos vermelhos começaram a se apagar, um após o outro. A massa escura encolheu, comprimida por braços que não conseguiam mais segurar. Os espíritos tinham recuperado alguma coisa que não lhe pertencia.
+
+O primeiro fogo azul apareceu onde as mãos de Dona Lourdes apertavam a sombra. Correu entre os outros espíritos, iluminando os rostos por dentro, e alcançou o braço que me prendia. Senti o aperto ceder. A entidade não morreu; vi dois olhos vermelhos permanecerem acesos, recuando para o fundo do galpão, enquanto o resto da forma se desfazia.
+
+Caí de joelhos no cimento.
 
 Tossi até sentir gosto de sangue. Uma das mãos doía. A outra estava presa a uma fita escura, gelatinosa, que saía do meu pulso esquerdo e desaparecia no meio da fumaça. Puxei. A fita esticou, mas não se rompeu.
 
@@ -466,7 +474,7 @@ Olhei para as paredes da penitenciária e tive a mesma sensação que me atingir
 
 A fita se esticou. A dor subiu pelo meu braço.
 
-— Esse ser se alimentou das pessoas daqui — continuei, tentando respirar. — Eu consegui libertar muitas, mas ele ainda tem alguma coisa presa. E agora está ligado a mim.
+— Esse ser se alimentou das pessoas daqui — continuei, tentando respirar. — Os mortos conseguiram se soltar, mas ele ainda prende alguns. E agora está ligado a mim.
 
 Priscila se agachou ao meu lado.
 
@@ -478,7 +486,7 @@ Glenda pegou a lâmina que Vini tinha deixado cair e passou pela fita. Ela se ab
 
 Tentei ficar de pé. O fio se esticou, e a coisa no galpão avançou junto comigo. Quando dei outro passo, os espíritos que a seguravam se afastaram. Senti os seus gritos. Parei. A massa negra também parou. Foi assim que entendi.
 
-Enquanto eu estivesse ali, os mortos conseguiam alcançar a criatura. Eu servia de ligação entre eles. Se me afastasse, aquela ligação se perderia. E a entidade teria o corredor inteiro para nos alcançar. Olhei para a porta, tão longe e tão perto ao mesmo tempo.
+Enquanto eu estivesse ali, os mortos conseguiam alcançar a criatura. Eu não os controlava, mas aquela fita me mantinha junto dela, como se tivesse aberto um caminho que só existia enquanto eu não saísse. Se me afastasse, a entidade puxaria consigo o que ainda segurava e alcançaria o corredor antes de nós. Olhei para a porta, tão longe e tão perto ao mesmo tempo.
 
 — Se eu for com vocês, ele vem atrás — falei. — Não vamos conseguir chegar lá fora.
 
@@ -516,7 +524,7 @@ Vi a expressão dela mudar. Não foi uma conclusão fria. Ela pareceu assustar-s
 
 Priscila estava em silêncio. Tinha um braço em volta de Nati, e com a outra mão segurava Vini para que não escorregasse.
 
-Olhei para os três. Pensei em Pedro e Junior, na estrada que ainda precisavam percorrer. Pensei em Vinícius, que tinha aceitado quase um ano de prisão por uma culpa que não era dele. Em Nati, que mal começara a compreender que não veria o pai voltar. E pensei na garota que eu era antes de conhecer todos eles.
+Olhei para Vini, apoiado em Glenda, e para Nati agarrada ao vestido de Priscila. A menina tremia, e a porta ainda estava longe.
 
 — Eu não quero ficar — falei. A voz saiu mais alta do que eu esperava. — Eu quero ir com vocês. Quero voltar para casa. Quero ver meu pai. Quero comer o café da manhã horrível que ele prepara, ouvir Pedro contar piadas e reclamar da vida com Junior.
 
@@ -534,7 +542,7 @@ Glenda passou a mão pelo rosto.
 
 — Glenda, olha para mim.
 
-Ela olhou. Havia tanta coisa que eu queria dizer. Estava zangada com ela. Ainda não tinha conseguido esquecer Diego, nem a maneira como Glenda tentara me fazer sentir louca por acreditar no que via. Também não conseguia esquecer a noite de música, o beijo debaixo da ponte, a mão dela segurando a minha. E o fato de ter aparecido no presídio quando podia simplesmente ter ficado longe de tudo. Eu queria saber o que era verdade. Mas não havia tempo.
+Ela olhou. Ainda queria perguntar sobre Diego, sobre o que escondera de mim e sobre o beijo debaixo da ponte. Agora estava ali, com Vini nos braços e a saída a poucos passos. Mas a criatura continuava atrás de nós.
 
 — Você voltou — falei.
 
@@ -552,7 +560,7 @@ Glenda passou os dedos pelo meu rosto. A mão tremia.
 
 — Eu sei. — Segurei a mão dela por um instante. — Queria que a gente tivesse mais tempo.
 
-Aquele foi o pior momento. Não porque acreditei que ela estivesse mentindo. Porque, pela primeira vez, parecia que tínhamos alguma coisa para conversar que não caberia numa única noite. Um estrondo veio do galpão. A massa negra avançou, e eu senti os espíritos se agitarem.
+Um estrondo veio do galpão. A massa negra avançou, e eu senti os espíritos se agitarem.
 
 — Vai — pedi.
 
@@ -640,10 +648,28 @@ Priscila fechou os olhos.
 
 — Eu digo.
 
-Virei-me novamente para a criatura. A fita escura no meu pulso esticou no mesmo instante, e ouvi os outros começarem a correr pelo corredor. Quis olhar para trás para ver se Glenda conseguia carregar Vini e se Priscila mantinha Nati junto de si, mas a entidade se aproximou quando perdi a concentração por um segundo. Não podia acompanhá-los com os olhos e impedi-la de avançar ao mesmo tempo.
+Virei-me novamente para o galpão. A fita escura se esticou no meu pulso, e ouvi os outros começarem a correr pelo corredor. Um passo. Outro. O peso de Vini arrastando nos sapatos de Glenda, a voz de Priscila chamando Nati para não soltar sua mão. Quis olhar para trás. Não olhei.
 
-Ergui a mão na direção dos espíritos que ainda permaneciam perto do teto. Alguns já tinham partido, como era seu direito. Os outros se aproximaram devagar, formando uma barreira entre mim e a massa negra. Senti a presença deles junto ao braço ferido e murmurei um agradecimento, embora não soubesse se conseguiam ouvir.
+A massa escura estava menor, mas ainda tinha dois olhos vermelhos acesos entre as vigas. Tentou passar pela parede à minha direita. Os espíritos foram atrás dela e agarraram os braços que surgiam do outro lado. Um deles perdeu a forma por um instante e voltou a aparecer, insistindo. Eles continuavam lutando sem esperar que eu dissesse nada.
 
-O fogo alcançou uma das paredes do corredor e o calor se tornou quase insuportável. A criatura tentou passar pela direita, mas os espíritos a obrigaram a recuar, acompanhando o movimento da minha mão. Atrás de mim ouvi alguém gritar, depois o estrondo de alguma coisa desabando perto da saída. Queria voltar para casa, abraçar meu pai, ver Pedro e Junior outra vez. Queria até discutir com Glenda, contanto que tivesse a oportunidade de lhe fazer todas as perguntas que ainda guardava.
+Dei um passo na direção da criatura. A fita cedeu um pouco. Os olhos se voltaram para mim. Ela precisava de mim ali, e eu precisava que continuasse me olhando em vez de procurar os outros. Avancei mais um passo, puxando a ligação escura comigo. Os mortos se aproximaram outra vez, sem pressa de fugir. Vi Seu Joel entre eles, e Dona Lourdes ainda apertando o terço. Não pareciam mais tão assustados.
 
-A fita presa ao meu pulso começou a aquecer. Uma luz azul surgiu entre meus dedos, fina no início, e seguiu pelos braços dos espíritos até alcançar a criatura. Fechei a mão para manter a ligação quando uma das vigas de ferro se partiu acima da minha cabeça. Pedaços do teto caíram perto de mim e tive de me proteger com o ombro, sem baixar o braço. Pensei em meu pai à mesa da cozinha, deixando a segunda xícara de chá à minha espera, e continuei concentrada naquela luz enquanto o telhado cedia ao redor.
+Uma viga caiu junto à porta de saída e arrancou faíscas do chão. Ouvi alguém gritar do outro lado, muito longe. O calor do verniz ardendo me fez cobrir o rosto com o braço livre. O fogo comum subia pelas paredes, enquanto, mais acima, a luz azul aparecia nos pontos em que os mortos continuavam arrancando pedaços da escuridão. Um dos olhos vermelhos se apagou. O outro recuou para o fundo do galpão.
+
+Eu ainda podia ouvir passos do outro lado do corredor. Depois deixei de ouvi-los.
+
+Pensei em meu pai à mesa da cozinha, deixando a segunda xícara de chá à minha espera. Queria tanto chegar em casa e encontrá-la ali, sobre a toalha, já quase fria.
+
+O telhado começou a ceder. O primeiro estrondo veio à minha esquerda, levantando poeira e brasas. O segundo partiu uma das vigas centrais. Dei mais um passo na direção da sombra para não ser arrastada quando a fita se contraiu. O chão tremeu sob os meus pés, e um pedaço de ferro caiu entre mim e a passagem por onde meus amigos tinham saído.
+
+Foi então que a vi.
+
+Havia uma mulher parada além da fumaça, num trecho do corredor que o fogo ainda não alcançara. Ela não estava entre os mortos que lutavam. Não me chamava, não fazia sinal. Eu reconheci o rosto antes de acreditar que estava vendo. A mesma expressão atenta de quando eu era pequena e acordava assustada durante a noite.
+
+Minha mãe.
+
+Os olhos se encheram de lágrimas. Eu havia procurado aquele rosto entre tantos outros durante tanto tempo. Ele estava ali, diante de mim, e eu não sabia se conseguiria dar um único passo.
+
+— Mãe.
+
+O ferro acima da minha cabeça se partiu. A última coisa que vi foi ela, parada na luz que atravessava a fumaça. Depois o teto veio abaixo.

@@ -1,22 +1,22 @@
-# Capítulo 35 — O Confronto dos Três Estandartes
+# Capítulo 35: O Confronto dos Três Estandartes
 
 Dareth acordou antes de Selina aparecer, e não estranhou. Ela sempre tinha algo para resolver antes dele: um documento pendente na Administração, um detalhe do relatório médico, uma pergunta que Nareva deixara no ar na véspera. Vestiu-se devagar, testando o corpo peça por peça, como fazia havia dias. O corte de Serka continuava ali, fechado, mas raso o bastante para lembrar da própria existência a cada respiração funda. O ombro ainda respondia um instante atrasado. As pernas, ao menos, obedeciam. Esperou. Selina não veio.
 
 Não se preocupou de imediato. Havia coisas demais acontecendo naquela manhã para qualquer atraso parecer estranho: a crise Quendrar pesando sobre o acampamento, documentação que só ela sabia resolver, talvez uma última conversa com Nareva antes do grande evento. Continuou se preparando sozinho.
 
-O tempo passou, e Selina continuou sem aparecer.
+O horário da preparação chegou. Selina ainda não aparecera.
 
 Dareth perguntou a um dos Polar mais próximos se a tinha visto. Ninguém sabia dizer. Perguntou a outro. A resposta foi a mesma, com uma variação que ficou martelando: alguém achava ter visto Selina saindo, sozinha, na noite anterior, na direção da parte mais funcional do acampamento. Depois disso, nada. Foi até a tenda dela.
 
 As coisas continuavam lá. O relatório médico que precisava assinar, em cima da pequena mesa dobrável. A capa que usava contra o frio da noite, pendurada no lugar de sempre. Nada faltando, nada arrumado como quem parte. Nenhum recado para ele.
 
-Dareth conhecia Selina o bastante para aquilo incomodar de verdade. Ela podia desaparecer por trabalho, por horas, sem avisar ninguém. Não desapareceria na véspera da final sem dizer nada. Não a ele.
+Selina podia passar horas resolvendo assuntos sem avisá-lo. Mas não faltaria à final sem dizer por quê. Dareth examinou a tenda outra vez antes de sair.
 
 Foi procurar Nareva.
 
 Encontrou-a ocupada com uma questão de logística, cercada por dois assessores que se afastaram assim que perceberam quem se aproximava.
 
-— Você viu Selina? — perguntou, sem rodeio.
+— Viu Selina desde ontem? — perguntou Dareth.
 
 — Não desde ontem à noite — Nareva respondeu, e a voz soou mais cuidadosa do que o normal. — Conversamos brevemente depois da reunião. Ela disse que precisava confirmar um horário.
 
@@ -26,11 +26,9 @@ Encontrou-a ocupada com uma questão de logística, cercada por dois assessores 
 
 Nareva hesitou antes de completar, escolhendo a frase com o cuidado que aplicava a tudo.
 
-— Selina não perderia essa final por escolha própria, Dareth. Isso eu sei dizer com certeza.
+— Selina não perderia a final por vontade própria, Dareth. Disso tenho certeza.
 
-Dareth saiu com a mesma pergunta e mais urgência.
-
-Não havia tempo para investigar.
+Dareth saiu preocupado, sem resposta e com menos tempo para procurar.
 
 Um funcionário Braedar já circulava pelo setor Polar, chamando os últimos preparativos, repetindo horários que ninguém precisava ouvir de novo. Dareth olhou uma última vez para o caminho que vinha da Administração, esperando, contra qualquer razão, ver Selina surgir ali, apressada, com uma explicação simples e irritante para o atraso. Ninguém apareceu.
 
@@ -38,7 +36,7 @@ Foi.
 
 Selina era a representante Polar registrada. A ausência dela importava de um jeito formal, não só pessoal: se Dareth ficasse inconsciente, fisicamente incapaz de fazer o gesto de rendição, ninguém ali estava autorizado a declará-la em seu nome. Ele podia se render sozinho, se quisesse. Não podia ser rendido por outra pessoa.
 
-Um funcionário mencionou, sem muita convicção, a possibilidade de uma substituição emergencial de representação. Dareth recusou antes de ouvir os detalhes.
+Um funcionário Braedar ofereceu iniciar o procedimento de substituição emergencial do representante Polar. Dareth recusou, ainda esperando que Selina aparecesse. Se caísse incapaz de fazer o gesto de rendição, não haveria quem o fizesse por ele.
 
 Não ia adiar o Torneio sem saber o que acontecera a Selina. Talvez ela ainda aparecesse antes da luta.
 
@@ -60,15 +58,15 @@ Saren, o braço ainda tratado depois da luta contra Orven, apareceu por perto. O
 
 Curadores Lusdar levavam material extra para a arena. Trabalhadores Braedar reforçavam as amarras das arquibancadas superiores. Um Grastar vendia réplicas dos três estandartes, quase esgotadas.
 
-A final começaria no fim da tarde, o sol ainda alto o bastante para iluminar toda a arena. Entre a apresentação, os procedimentos, as inspeções de equipamento e a duração que ninguém sabia calcular, a noite chegaria antes do fim do combate. Braseiros e estruturas de iluminação esperavam montados ao redor de todo o perímetro, prontos para quando a luz do dia não bastasse.
+A final começaria no fim da tarde. Braseiros já estavam montados para iluminar a arena quando o sol baixasse. Braseiros e estruturas de iluminação esperavam montados ao redor de todo o perímetro, prontos para quando a luz do dia não bastasse.
 
 Dareth reparou naquilo a caminho da área de preparação e não deu importância. Só mais um detalhe que a Administração resolvera de antemão.
 
 Encontrou Orven por acaso, no corredor de acesso, sendo ajudado por Maerys a ajustar uma última peça de equipamento.
 
-— Não inventa nada hoje — ela disse, num tom que passava perto o bastante de brincadeira para não chamar atenção de quem não estivesse prestando atenção de verdade.
+— Nada de inventar coisa nova hoje, ouviu? — disse Maerys, sem conseguir esconder a preocupação.
 
-— Quando eu inventei alguma coisa? — Orven respondeu, sorrindo.
+— Eu? Nunca inventei nada — respondeu Orven, sorrindo.
 
 Maerys riu, um riso curto, e voltou a mexer numa fivela qualquer sem dizer mais nada.
 
@@ -128,13 +126,13 @@ A mudança não veio como discurso. Veio no corpo.
 
 Um golpe que antes teria desviado no último instante foi até o fim. Uma abertura que Orven usaria só para deslocar Dareth virou, sem aviso, uma tentativa clara de perfuração. A intensidade cresceu sem explicação óbvia.
 
-Dareth não soube dizer por quê. Só sabia, com a certeza física de quem já enfrentara aquele homem, que Orven estava diferente. Reconhecia o jeito como ele procurava vantagem, dias antes, na luta em que os dois quase se mataram no meio do grupo. Agora Orven não procurava vantagem. Procurava morte.
+Dareth já trocara golpes com Orven e reconhecia a mudança. A espada vinha com força para atravessar, não só para afastar. Reconhecia o jeito como ele procurava vantagem, dias antes, na luta em que os dois quase se mataram no meio do grupo. Agora Orven não procurava vantagem. Procurava morte.
 
 Khalir também percebeu.
 
 Não havia como formular aquilo em pensamento, no meio de um combate daquele tamanho, mas o comportamento dele mudou: passou a pressionar Orven com mais força, interrompendo, mais de uma vez, um ataque perigoso na direção de Dareth. Para quem assistia, parecia apenas a lógica natural de uma luta de três, em que o adversário mais perigoso atraía mais atenção.
 
-Dareth não tinha espaço mental para questionar o motivo. Só sentiu o alívio breve de continuar de pé.
+Dareth aproveitou as aberturas que Khalir criava. Não tinha fôlego para perguntar por quê.
 
 Foi perto dali, na arquibancada, que Maerys parou de rir.
 
@@ -181,7 +179,7 @@ Não havia mais razão para esconder nada. Atacou com uma intenção que Dareth 
 
 Num afastamento breve, os dois recuperando o fôlego, Dareth perguntou, sem fôlego de sobra para mais palavras:
 
-— Não lutou assim comigo antes.
+— Na primeira luta, você não quis me matar.
 
 — Não — Orven respondeu.
 
@@ -189,17 +187,17 @@ Num afastamento breve, os dois recuperando o fôlego, Dareth perguntou, sem fôl
 
 Orven evitou a pergunta.
 
-— Porque esta é a final.
+— Porque agora não tenho outra luta pra guardar forças.
 
 A resposta soou plausível para quem assistisse de fora.
 
 Durante o resto da troca, Orven falou pouco, mas o pouco que disse entregava mais do que ele pretendia.
 
-— Olha em volta, Quatro-Dedos — disse, num instante em que os dois se mediam a distância curta. — Acha mesmo que eu vou atravessar tudo isso para entregar meu nome a você?
+— Olha em volta, Quatro-Dedos! — Orven apontou com a espada para as arquibancadas. — Acha que vou chegar tão longe e entregar a glória pra você?
 
 Dareth não respondeu. Não tinha resposta pronta para aquilo.
 
-— O primeiro campeão de Jesed não precisa ser Polar — Orven completou, e havia ali algo mais parecido com convicção do que com raiva.
+— O primeiro campeão de Jesed não precisa ser Polar! — gritou Orven.
 
 O corpo de Dareth começou a cobrar tudo de uma vez: o ferimento de Serka, a idade, as lutas anteriores, o descanso insuficiente, Rhevara, o sangue perdido dias antes que o corpo nunca repusera por completo. As mãos custavam a fechar em volta do cabo da espada. Os joelhos absorviam cada aterrissagem com um atraso que ele sentia antes de corrigir. O ar entrava mais curto a cada respiração. Orven, mesmo ferido, tinha mais mobilidade, e parecia saber, alongando cada troca de posição o bastante para obrigar Dareth a perseguir sombra.
 
@@ -223,13 +221,13 @@ Dareth, incapaz de se mover direito, conseguiu apenas uma pergunta.
 
 Orven pareceu entender aquilo como pergunta sobre a própria tentativa de matá-lo.
 
-— Porque eu podia ganhar — respondeu, a voz já fina.
+— Porque eu queria ganhar — respondeu Orven, quase sem voz.
 
 — Podia ter tentado antes — Dareth disse, e não era acusação, era só a única coisa que fazia sentido perguntar.
 
 Orven olhou para ele por um instante mais longo do que parecia ter fôlego para sustentar.
 
-— Antes você só precisava chegar.
+— Antes, você só precisava chegar até aqui.
 
 Dareth não entendeu.
 
@@ -237,7 +235,7 @@ Dareth não entendeu.
 
 Algo parecido com ironia passou pelo rosto de Orven, mesmo ali, mesmo daquele jeito.
 
-— Ainda acha que chegou aqui sozinho?
+— Ainda acha que chegou até aqui sozinho?
 
 — Quem? — Dareth perguntou, a voz quase tão fraca quanto a dele. — Do que você está falando?
 
@@ -247,7 +245,7 @@ Morreu ali, ao lado dele, sem entregar mais nada.
 
 Dareth olhou para Khalir.
 
-As peças começaram a se mexer na cabeça dele sem encaixar em lugar nenhum: Karev, deteriorando aos poucos numa luta que não deveria ter perdido daquele jeito. Serka, recuando quando tinha vantagem clara. Orven, na primeira luta contra ele, cometendo um erro pequeno demais para ser natural. Rhevara, afrouxando a pressão num instante em que não precisava afrouxar. Selina, desaparecida na noite antes da final. E agora Khalir, atacando Orven no instante exato em que Orven decidira matá-lo de verdade.
+As peças começaram a se mexer na cabeça dele sem encaixar em lugar nenhum: Karev, deteriorando aos poucos numa luta que não deveria ter perdido daquele jeito. Serka, recuando quando tinha vantagem clara. Orven, nas primeiras lutas, deixando escapar uma oportunidade que podia ter decidido o combate. Rhevara, afrouxando a pressão num instante em que não precisava afrouxar. Selina, desaparecida na noite antes da final. E agora Khalir, atacando Orven no instante exato em que Orven decidira matá-lo de verdade.
 
 Deitado na areia, Dareth não conseguia ligar aqueles episódios. A ausência de Selina tampouco tinha explicação.
 
@@ -255,9 +253,9 @@ Khalir ainda respirava, mal, mas respirava. Tecnicamente, o Confronto não termi
 
 Dareth tentou se levantar. Não conseguiu direito. Khalir também não. A arena inteira, milhares de pessoas de pé, observou por um tempo esquisito dois homens quase imóveis ainda tentando, cada um à sua maneira, continuar sendo campeão.
 
-Khalir morreu sem confissão. Sem olhar significativo na direção de Dareth, sem última palavra, sem gesto que explicasse qualquer coisa. O corpo perdeu a última força que restava, e parou.
+Khalir não disse nada. Tentou respirar mais uma vez, não conseguiu e ficou imóvel. Dareth não recebeu explicação para o último golpe que salvara sua vida.
 
-Dareth permaneceu. Ferido, quase inconsciente, mas vivo. Não se rendera.
+Dareth continuava vivo. Não se rendera.
 
 Curadores e oficiais entraram na arena juntos, verificando primeiro Orven, depois Khalir, por fim Dareth. Dois mortos.
 
@@ -265,7 +263,7 @@ Um ativo.
 
 Antes de qualquer anúncio formal, um silêncio esquisito caiu sobre a arena. Todo mundo já sabia. Ainda assim, precisavam ouvir.
 
-Averna Braedar avançou até o centro, a voz carregando sem esforço até as fileiras mais altas.
+Averna Braedar veio ao centro para proclamar o resultado. Um funcionário confirmou que os dois adversários estavam mortos, e os curadores pediram espaço para atender Dareth.
 
 — Dareth Quatro-Dedos. Campeão da Dinastia Polar. Vencedor do Primeiro Torneio Decenal.
 
@@ -291,7 +289,7 @@ Não vinha só dos Polar. Alguns Braedar aderiram, batendo palmas no ritmo do no
 
 Nem todo mundo comemorava. Os Buldar tinham acabado de perder Khalir, e o setor deles permanecia de pé, quieto, alguns com as mãos apoiadas na grade. Os Vendrar tinham perdido Orven, e uma mulher, em algum ponto daquele setor, chorava sem esconder o rosto, cercada por outros que não sabiam se deviam consolá-la ou guardar o próprio luto. Os Quendrar já carregavam Karev desde o dia anterior, e o vazio que Yamara deixara entre eles era, para quem soubesse olhar, mais visível do que qualquer bandeira. Setores inteiros permaneciam parados, alguns aplaudindo por respeito ao que testemunharam, sem alegria verdadeira por trás do gesto.
 
-Dareth olhou para os dez estandartes acima da arena.
+Dareth ergueu os olhos para os dez estandartes.
 
 Pensou em Kalan, que nunca veria aquele resultado, e em Elis, que o empurrara de volta para um caminho que ele já decidira abandonar. A lembrança da esposa e da filha veio depois e, pela primeira vez em muito tempo, não terminou no incêndio. Conseguiu imaginá-las vivas: a filha rindo do apelido Quatro-Dedos, a esposa dizendo algo seco sobre ele ter transformado até a aposentadoria em guerra. Gostaria que estivessem ali.
 

@@ -28,9 +28,7 @@ Varron soltou um som baixo.
 
 Alyra não confirmou nem negou. O nome Tondrar bastou para que a sala completasse a acusação.
 
-Nos dias seguintes, Marken falou ainda menos.
-
-Desde a conversa com Kaelina e o fragmento de sino, Marken passara a ocupar o silêncio pintando.
+Nos dias seguintes, Marken passou a maior parte do tempo pintando. Desde a conversa sobre o fragmento de sino, quase não respondia às perguntas dos guardas.
 
 Pedira madeira lisa, carvão, pigmentos, gordura para prender cor, sal fino e tecido em moldura. Kaelina autorizara apesar das objeções de Maelis e Varron. Marken continuava no quarto que ela se recusava a chamar de cela, com guarda e rondas do lado de fora, mas sem tranca.
 
@@ -64,7 +62,7 @@ Ele encheu a concha, levou à boca e cuspiu imediatamente.
 
 — Que droga tem nessa água?
 
-Uma mulher aproximou-se, sorrindo, como quem vai provar que homens exageram quando perdem pose. Pegou água na concha, cheirou e o sorriso desapareceu.
+Uma mulher aproximou-se para ver o que havia acontecido. Cheirou a água na concha e a devolveu à fonte sem beber.
 
 — Chama um servo.
 
@@ -204,7 +202,7 @@ Alyra soltou um riso curto, sem alegria.
 
 Kaelina sustentou o olhar dela.
 
-— Talvez seja isso que soberanos fazem quando o próprio povo queima em terra Polar.
+— Alestir fica em nossas terras. Não vou esperar aqui enquanto o povo precisa de ajuda.
 
 Os dedos de Alyra apertaram o braço do trono. Daryon percebeu.
 
@@ -306,7 +304,7 @@ Edran não piscou.
 
 Kaelina lembrou do rio, dos rumores, de Yvenn e das perguntas de Marken. Edran falou mais baixo:
 
-— Permita-me ir primeiro. Levarei homens suficientes para procurar sobreviventes e avaliar a ameaça. Se for seguro, mando aviso. Se for isca, serei eu a pisar nela.
+— Deixe-me ir primeiro. Levo uma patrulha para procurar sobreviventes e avaliar o caminho. Se houver armadilha, meus homens saberão recuar. Mando aviso antes de chamar reforços.
 
 Kaelina olhou para ele.
 
@@ -318,7 +316,7 @@ Kaelina olhou para ele.
 
 Edran sustentou o olhar dela.
 
-— Entre o perigo e a filha de Orionus — disse, hesitando antes de continuar — Prometi ao seu pai que cuidaria das meninas dele.
+— Entre a vila e quem ainda pode estar preso lá — disse Edran. — Conheço aquela estrada. Meus homens também.
 
 Kaelina fechou os olhos. Quando os abriu, a raiva ainda estava lá.
 
@@ -351,8 +349,6 @@ O caminho para Alestir atravessava campos, casas, depósitos de raiz seca, horta
 — Primeiro procuramos vivos. Depois inimigos. Dois a dois. Quem ouvir criança, chama. Quem vir óleo, recua. Quem encontrar rastro, não pisa.
 
 Os soldados assentiram e desceram. A vila ainda ardia em vários pontos. Telhados tinham cedido, paredes fumegavam, cercas viraram linhas negras no chão. Um depósito de grão crepitava no centro, cuspindo faíscas. Perto da fonte, dois corpos estavam abraçados de lado, tão queimados que já não se sabia onde terminava um e começava o outro. Um dos soldados virou o rosto. Edran não.
-
-Edran continuou olhando.
 
 — Espalhem-se. Dois a dois.
 
@@ -404,7 +400,7 @@ O homem engasgou. Um fio de sangue escorreu pelo canto da boca.
 
 — Não vi... rostos. Só... fogo. Passos. Gritos. Tudo tão rápido.
 
-Edran tocou o ombro dele, não para consolar, mas para mantê-lo ali mais um instante.
+Edran apertou o ombro do homem, tentando mantê-lo consciente.
 
 — Ouviu alguma coisa deles? Sabem quem são?
 
@@ -470,7 +466,7 @@ O sorriso de Daryon diminuiu. Alyra virou-se.
 
 — Basta.
 
-Alyra não defendia Edran. Irritava-se porque a tensão não lhe pertencia. Ela apontou para as ruínas.
+Alyra apontou para as ruínas antes que Daryon respondesse.
 
 — Vasculhem. Casa por casa. Depósito por depósito. Se houver um único inimigo escondido, quero-o vivo por tempo suficiente para se arrepender.
 
@@ -486,7 +482,7 @@ O homem tentou levar dois dedos à testa. Não conseguiu. Talvez tivesse respond
 
 Quando se levantou, Alyra já avançava entre as ruínas. Edran sentiu algo errado além da precisão do ataque: o cheiro.
 
-Ele atravessava a fumaça como um segredo. Doce, metálico e oleoso, como fruta apodrecida dentro de uma forja.
+O cheiro era doce, metálico e oleoso, lembrando fruta apodrecida dentro de uma forja.
 
 Edran caminhou alguns passos em direção a um galpão de mantimentos que ainda estava de pé. A porta pendia torta. Dentro, no escuro, havia um ruído. Tac. Pausa. Tac. Como madeira batendo em pedra. Três soldados se aproximaram da entrada.
 
@@ -530,11 +526,11 @@ Não vinha como soldado. Não tinha formação, nem escudo, nem grito. Vinha bai
 
 A soberana tentou levar a mão à lâmina, mas a arma já não estava na cintura. Talvez perdida na queda. Talvez debaixo do tarrak morto.
 
-O homem acelerou. Edran colocou-se diante dela, não como guerreiro, mas como muralha.
+O homem acelerou. Edran colocou-se diante de Alyra. Quando o desconhecido ergueu a lâmina, uma fita escura apareceu justa demais no pulso, marcada de sangue antigo. Edran não teve tempo de examiná-la.
 
 A primeira pancada veio alta e feroz. Edran desviou por pouco, sentindo a lâmina raspar na proteção do ombro. Respondeu com golpe curto, preciso, mirando o pulso. O homem recuou. Era rápido. Mais rápido do que parecia. Então veio o segundo golpe, e o terceiro.
 
-O homem atacava para conduzir Edran, empurrando-o para posições escolhidas.
+Os golpes empurravam Edran na direção das vigas partidas, afastando-o da rua aberta.
 
 O homem avançou. Edran aparou, girou o corpo e golpeou a lateral dele. A lâmina mordeu carne. O atacante gritou, mas o grito não veio de dor. Parecia vir de raiva. Alyra atrás dele respirava rápido.
 
@@ -570,13 +566,13 @@ O homem caiu para trás como se ferido demais para continuar. A mão esquerda to
 
 A corda levantou uma linha de ganchos de osso e metal entre duas vigas partidas. Não para matar, para prender.
 
-O pé de Edran enroscou. O corpo avançou sem a perna. Ele caiu de lado, mas rolou antes que a lâmina do Fendelar acertasse o pescoço. O golpe pegou ombro, fundo o suficiente para roubar força do braço. Edran tentou levantar-se.
+O pé de Edran enroscou. O corpo avançou sem a perna. Ele caiu de lado, mas rolou antes que a lâmina do atacante acertasse o pescoço. O golpe acertou o ombro, fundo o suficiente para enfraquecer o braço. Edran tentou levantar-se.
 
-Outra coisa apertou sua perna. Um laço. Tendão tratado, escondido na lama. As armadilhas eram Fendelar: ganchos baixos, tendão tratado, laços escondidos onde o olho procurava corpo em vez de chão. Aquele homem não tinha pintura nem movimento Tondrar. Movia-se como mata fechada. Surgiu sobre Edran, sangrando do quadril.
+Outra coisa apertou sua perna. Um laço. Tendão tratado, escondido na lama. Edran reconheceu a técnica de armadilha de mata: ganchos baixos, tendão tratado, laços escondidos onde um homem procuraria apoio. Não era modo de lutar dos Tondrar. O desconhecido surgiu sobre ele, sangrando do quadril.
 
-Edran socou-o no maxilar. O homem quase caiu, mas caiu para frente. A espada entrou sob as costelas de Edran. O Fendelar avançou ainda mais, impedindo-o de recuar.
+Edran socou-o no maxilar. O homem quase caiu, mas caiu para frente. A espada entrou sob as costelas de Edran. O desconhecido avançou ainda mais, impedindo-o de recuar.
 
-Edran sentiu a lâmina antes da dor. Depois a dor veio inteira, quente, absoluta. O ar fugiu. O mundo tentou diminuir até caber nos olhos do homem sobre ele. Olhos sanguinários. O Fendelar respirava contra o rosto dele.
+Edran sentiu a lâmina antes da dor. Depois a dor veio inteira, quente, absoluta. O ar fugiu. O mundo tentou diminuir até caber nos olhos do homem sobre ele. Os olhos do atacante estavam fixos nele. A respiração quente atingia o rosto de Edran.
 
 — Tua Dinastia vai cair, Polar — rosnou.
 

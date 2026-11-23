@@ -2,37 +2,37 @@ Beatriz quase derrubou Lioro.
 
 Ele mal terminara de abrir os braços quando a menina se chocou contra a barriga dele, molhando o manto inteiro. O homem soltou uma risada surpresa e se abaixou para abraçá-la. Uma das quatro toalhas que carregava escorregou do braço e caiu bem na cabeça dela.
 
-— Eu não estava à espera de uma tempestade tão pequena — disse ele.
+— Eu não esperava uma tempestade tão pequena — disse ele.
 
 — A gente voltou! — Beatriz falou de dentro da toalha, sem soltá-lo. — Vocês sabiam que a gente ia voltar?
 
-— Sabia que a passagem estava próxima de abrir. Não sabia se vocês conseguiriam encontrá-la antes que fechasse.
+— Eu sabia que a passagem ia abrir logo. Não sabia se vocês iam achar ela antes de fechar.
 
-Banjo já estava ali também, tentando abraçar Lioro sem esmagar Farol contra o próprio peito. Breno chegou logo atrás e apertou a mão do homem, forte demais para um cumprimento. Bruno permaneceu alguns passos afastado, sentado no chão com a mochila entre os joelhos.
+Banjo tentou abraçar Lioro sem esmagar Farol contra o próprio peito. Breno apertou a mão do homem, forte demais para um cumprimento. Bruno continuava alguns passos atrás, sentado no chão com a mochila entre os joelhos.
 
 — E o telefone? — perguntou Breno. — Era você gritando do outro lado?
 
-— Você reconheceu a minha voz? — Lioro inclinou a cabeça. — Eu não tinha certeza de que ela atravessava. A passagem quase fechou enquanto eu falava.
+— Você reconheceu a minha voz? — Lioro inclinou a cabeça. — Eu não tinha certeza se ela atravessava. A passagem quase fechou enquanto eu falava.
 
 — Eu quase não ouvi nada — respondeu Breno. — Só "poça" e "chão", e o resto era chiado, igual rádio fora de estação.
 
-— Por isso eu gritei. Ainda estou rouco, olhem.
+— Por isso eu gritei. Ainda estou rouco, olha só.
 
 — Podia ter dito logo que era o senhor, pô — reclamou Bruno, levantando-se com dificuldade. — Eu achei que a gente tava sendo sequestrado por uma poça.
 
-— Se eu dissesse o meu nome, teria adiantado?
+— Se eu falasse meu nome, ia adiantar?
 
-— Pra mim teria, porque eu ia fingir que reconhecia e não ia ficar com medo.
+— Pra mim ia, porque eu ia fingir que reconhecia e não ia ficar com medo.
 
 — Você estava ocupado demais caindo dentro dela — disse Breno, tirando uma gota de dentro da orelha.
 
-Banjo riu. Beatriz ainda não havia largado Lioro. Depois de um ano inteiro ouvindo ônibus, sinal de escola e televisão do vizinho, escutar alguém falar de uma passagem entre dimensões como se fosse uma questão de horários parecia maravilhoso.
+Banjo riu. Beatriz ainda não havia largado Lioro.
 
 Lioro distribuiu as toalhas. Beatriz enrolou uma na cabeça. Bruno a esfregou nos cabelos até ficar ainda mais despenteado, e Breno aproveitou a sua para limpar os óculos de Banjo. O menino protestou, pegou-os de volta e colocou-os no rosto antes de as lentes secarem por completo.
 
 A pequena criatura de pelo castanho continuava ao lado de Lioro. Tinha os braços carregados de etiquetas e um colete cheio de bolsos, dos quais saíam lápis, cordões e uma régua curta. Observava os irmãos com os olhos arregalados.
 
-— Este é Bug — apresentou Lioro. — Ele trabalha aqui na Central. Não costuma falar muito com quem não conhece.
+— Este é Bug — apresentou Lioro. — Trabalha aqui na Central, cuida dos registros das passagens e das aves. Não costuma falar muito com quem não conhece.
 
 — Eu falo — disse a criatura, prontamente. — Só demoro um pouco para conhecer quem falo.
 
@@ -46,7 +46,7 @@ Bug levou um instante para pensar.
 
 Beatriz deu uma risada. Bug sorriu também, mostrando dentes pequenos e muito brancos. Estendeu a mão na direção das mochilas.
 
-— Eu guardo as bagagens. Vocês podem buscar quando voltarem, ou eu posso mandar depois que chegarem.
+— Eu guardo as malas. Vocês podem buscar depois, ou eu mando pra casa.
 
 — A minha eu levo — disse Banjo, apertando a mochila contra o peito. — O Farol estranha lugar novo.
 
@@ -56,9 +56,9 @@ Farol aproveitou a abertura do zíper para pôr o focinho de fora. Bug abaixou a
 
 — Mais do que o Breno — respondeu Bruno.
 
-— Eu gostei da viagem — retrucou Breno. — Só não gostei de quase perder vocês dentro dela.
+— Não tenho nada contra a viagem — retrucou Breno. — Só queria que vocês parassem de se jogar em portais sem saber onde vão parar.
 
-Lioro recebeu das mãos dos irmãos as mochilas que puderam dispensar e as entregou ao ajudante. A de Banjo permaneceu com ele. Bug fez uma anotação numa das etiquetas, guardou-a no bolso errado e precisou procurar em outros três antes de encontrá-la.
+Lioro recebeu as mochilas que os irmãos puderam dispensar e as entregou ao ajudante. A de Banjo permaneceu com ele. Bug contou os volumes, anotou o destino nas etiquetas e guardou uma no bolso errado. Precisou procurar em outros três até achá-la.
 
 — Venham — chamou Lioro. — O Velho-Sábio está no Edifício Arcano. Precisa assinar a readmissão de vocês, e Garmande vai receber os aprendizes do novo ciclo daqui a pouco.
 
@@ -68,13 +68,13 @@ Lioro recebeu das mãos dos irmãos as mochilas que puderam dispensar e as entre
 
 — E por que ele não veio?
 
-— Porque eu o convenci de que não adiantava passar o dia inteiro de pé diante de um portal que podia abrir em qualquer instante. Alguém precisava cuidar da papelada. — Lioro olhou para Breno. — E alguém precisava atender ao telefone.
+— Porque eu convenci ele de que não adiantava passar o dia inteiro de pé na frente de um portal que podia abrir a qualquer hora. Alguém precisava cuidar da papelada. — Lioro olhou para Breno. — E alguém precisava atender ao telefone.
 
-Ao saírem do salão, Beatriz se virou uma última vez. Os caminhos de luz continuavam cruzando a Central em todas as direções, as aves vermelhas passavam rente à cúpula e os arcos de metal líquido recebiam viajantes de mundos que ela nem sabia nomear. O portal por onde tinham vindo já não mostrava nada da rua da escola. Na sua superfície prateada, as cores do salão corriam sem formar imagem alguma.
+Ao sair, Beatriz olhou para o portal. A rua da escola havia sumido da superfície prateada.
 
 Ela apertou a mão sobre o anel. Voltara a ficar frio, depois do calor de antes. Na escola, o metal não impedira que a caixa pegasse fogo. Beatriz afastou o pensamento antes que ele estragasse aquele momento e correu para alcançar os irmãos.
 
-A estação das túbulas ficava ligada à Central por um caminho coberto. Os carrinhos prateados passavam dentro de tubos transparentes, enfileirados, e um funcionário orientava os passageiros diante de uma placa luminosa. Os irmãos já os tinham visto no primeiro ano, mas haviam usado dassis tantas vezes que Banjo nunca fizera uma viagem inteira naquele transporte.
+A estação das túbulas era ligada à Central por um caminho coberto. Banjo ainda não tinha feito uma viagem inteira nos carrinhos prateados que corriam dentro de tubos transparentes.
 
 — Aquilo cabe cinco pessoas? — perguntou Bruno, olhando o karto que parava diante deles. — Eu acho que cabe quatro e meia, e a meia é o Banjo.
 
@@ -84,7 +84,7 @@ A estação das túbulas ficava ligada à Central por um caminho coberto. Os car
 
 — O tubo aguenta mais do que o seu dassi — respondeu Lioro, entrando primeiro.
 
-O karto tinha bancos baixos presos por suportes de metal, sem teto próprio, porque o tubo o protegia da chuva e do vento. Quando todos se acomodaram, uma barra acolchoada desceu à frente dos passageiros. Não foi preciso que ninguém usasse magia: Lioro colocou uma ficha de passagem no leitor, e o mecanismo soltou dois estalos antes de partir.
+O karto tinha bancos baixos presos por suportes de metal. Uma barra acolchoada desceu à frente dos passageiros assim que se sentaram. Lioro colocou a ficha no leitor; dois estalos, um solavanco, e o carrinho partiu pelo tubo transparente.
 
 Beatriz segurou a barra no primeiro impulso. O carrinho ganhou velocidade e a cidade se abriu do outro lado do tubo. Tayo surgiu inteira entre prédios altos, jardins suspensos e fachadas curvas. Uma faixa de árvores de folhas azuis acompanhava uma avenida. Dassis translúcidos cruzavam o céu acima dela, e num terraço duas mulheres estendiam lençóis de cores tão vivas que pareciam iluminar a roupa de quem passava.
 
@@ -96,7 +96,7 @@ Banjo já tinha visto.
 
 O animal enfiou o focinho entre as frutas, puxou uma bolinha verde e saiu correndo. O homem agitou os braços, e os outros bichos se dispersaram. Banjo deu uma gargalhada que os vidros do karto devolveram em eco.
 
-Bruno procurou um ponto conhecido entre os telhados. Beatriz viu o irmão se inclinar para a janela, prestando atenção em cada rua que aparecia. Um ano antes, ele tinha opinião sobre todos os dassis de Tayo. Agora comentava as fachadas, as árvores e até os cartazes, sem conseguir ficar quieto.
+Bruno encostou o nariz na janela à procura de lugares conhecidos. Um ano antes, tinha opinião sobre todos os dassis de Tayo. Agora comentava as fachadas, as árvores e até os cartazes, sem conseguir ficar quieto.
 
 — Ali! — gritou, apontando para a distância. — As três torres!
 
@@ -106,27 +106,31 @@ As torres de Velur apareciam acima do centro, com a Alvel mais alta que Meril e 
 
 — Ainda bem — respondeu Bruno. — Eu mal aprendi o mapa da primeira vez.
 
-A túbula curvou à direita e entrou num trecho mais largo, onde dois carrinhos viajavam lado a lado. Um menino de uniforme azul, no outro, percebeu quem estava sentado com Lioro e cutucou a mulher ao seu lado. Ela olhou para os irmãos, reconheceu-os e acenou. Beatriz acenou de volta.
+A túbula curvou à direita e entrou num trecho mais largo, onde dois carrinhos viajavam lado a lado. Um menino de uniforme azul, no outro, percebeu quem estava sentado com Lioro e cutucou a mulher ao seu lado. Ela olhou para os irmãos, reconheceu-os e acenou. Beatriz acenou de volta. Não esperava que alguém ainda lembrasse deles depois de tanto tempo.
 
 Na estação seguinte, um homem com uma sacola de ferramentas também os reconheceu. Olhou primeiro para o rosto de Bruno e depois para a marca escura, quase apagada, de uma antiga queimadura na capa que o menino trazia amarrada à mochila. Não cumprimentou ninguém. Quando o karto arrancou, o homem já lhes dava as costas.
 
 Beatriz baixou a mão.
 
-— O moço lá atrás estava bravo com a gente? — perguntou Beatriz. — Ele olhou pro Bruno e virou as costas.
+— Aquele moço tava bravo com a gente? — Beatriz apontou discretamente para trás. — Ele olhou pro Bruno e nem deu tchau.
 
-— Não sei, pequena — respondeu Lioro. — Tayo ouviu muitas histórias sobre vocês nesse ano, e nem todas foram contadas do mesmo jeito. Tem gente que acha que vocês salvaram a cidade e gente que acha que quase a perderam.
+— Não sei, pequena — respondeu Lioro. — Contaram muita história sobre vocês nesse ano, e nem todas do mesmo jeito. Tem gente que acha que vocês salvaram a cidade e gente que acha que quase perderam ela.
 
-— A gente salvou a cidade, fala sério — disse Bruno. — Cadê a nossa estátua? Pode ser de gelo, que eu mesmo faço.
+— A gente salvou a cidade, pô — disse Bruno. — Cadê a nossa estátua? Pode ser de gelo, que eu mesmo faço.
 
-— Ajudamos a salvar muita gente — corrigiu Breno. — E não fomos só nós.
+— Vai derreter — respondeu Banjo.
 
-— É o que eu falei, só que mais curto. Modéstia é uma palavra comprida demais pra contar uma batalha.
+— Então uma estátua nova por semana. Dá emprego pra mim.
+
+— Tinha um monte de gente ajudando, Bruno — corrigiu Breno.
+
+— Tá, tá. A estátua pode ser de todo mundo.
 
 Lioro não discutiu. Apontou adiante, para as paredes espelhadas de um prédio que refletia as nuvens por cima do teto.
 
 — Chegamos.
 
-O Edifício Arcano continuava enorme. Beatriz reconheceu o jardim da entrada, as janelas que ocupavam andares inteiros e as portas de vidro pelas quais havia passado no ano anterior. Na primeira visita sentira vontade de correr e de se esconder ao mesmo tempo. Agora correu na frente.
+O Edifício Arcano continuava enorme, com o jardim da entrada, janelas que ocupavam andares inteiros e portas de vidro que Beatriz conhecia. Na primeira visita, sentira vontade de correr e se esconder ao mesmo tempo. Agora correu na frente.
 
 Um rapaz à porta segurou a mão dela antes que entrasse.
 
@@ -162,7 +166,7 @@ Banjo parou para observar uma espécie de aro com três discos giratórios.
 
 A entrada do salão principal estava cheia de aprendizes. Alguns eram mais altos que Breno. Outros mal passavam do ombro de Banjo. Havia grupos de recém-chegados que seguravam a identificação com cuidado, com medo de perdê-la, e veteranos que se cumprimentavam aos gritos, comparando uniformes, medalhas e as férias que haviam passado em Tayo.
 
-Beatriz sentiu um frio na barriga. Desde que entrara no Edifício Arcano pela primeira vez, aprendera a reconhecer o cheiro das oficinas, os pisos claros e o barulho de dezenas de conversas se misturando. Mesmo assim, ao ver tantos rostos desconhecidos, procurou os irmãos antes de seguir. À margem do grupo, Beatriz julgou ver uma senhora muito magra, de cabelos claros e soltos, olhando na sua direção. Tinha o pescoço comprido e não parecia acompanhar ninguém. Um grupo de aprendizes atravessou o corredor; quando passou, a mulher já não estava lá.
+Beatriz sentiu um frio na barriga. Desde que entrara no Edifício Arcano pela primeira vez, aprendera a reconhecer o cheiro das oficinas, os pisos claros e o barulho de dezenas de conversas se misturando. Mesmo assim, ao ver tantos rostos desconhecidos, procurou os irmãos antes de seguir. Uma das placas de vidro refletiu o rosto de Beatriz entre as letras dos novos horários. Ela ajeitou a toalha no pescoço. Ainda estava encharcada, enquanto todos os outros pareciam ter chegado de manhã como pessoas normais.
 
 Uma menina de cabelos ruivo-dourados apareceu entre dois grupos.
 
@@ -184,13 +188,17 @@ Shirley endireitou as costas para comparar a altura dos dois. Banjo ergueu discr
 
 — Deixa eu acreditar por cinco minutos, Shirley.
 
-Beatriz riu da discussão, mas alguém a agarrou pelos ombros antes que ela pudesse entrar na brincadeira.
+Beatriz riu, e Shirley abriu espaço para ela no meio dos aprendizes.
+
+— Bia! Vem cá, também quero te dar um abraço!
+
+Mas alguém agarrou os ombros da menina antes que Shirley a alcançasse.
 
 — Bia!
 
 Eshley tinha aparecido do outro lado e a abraçou com tanta força que a toalha de Lioro caiu da cabeça da menina. Depois se afastou o suficiente para examiná-la.
 
-— Você está bem? Eu soube que vocês voltariam, mas ninguém dizia quando. E o teu cabelo está molhado!
+— Você está bem? Eu soube que vocês voltariam, mas ninguém dizia quando. E o seu cabelo tá molhado!
 
 — Choveu um pouquinho — respondeu Beatriz.
 
@@ -226,7 +234,7 @@ Ela desapareceu entre os aprendizes. Beatriz viu Banjo acompanhá-la com os olho
 
 Garmande Koraveli entrou pouco depois. O manto com detalhes dourados estava tão bem ajeitado quanto na primeira vez em que Beatriz o vira. Os alunos foram se calando, aos poucos, até restarem apenas o estalo de um mecanismo de ventilação e o ruído dos sapatos de um menino que corria para alcançar a sua fila.
 
-— Sejam bem-vindos ao novo ciclo — começou Garmande. — Aos que chegaram a Belfex há pouco tempo, espero que encontrem aqui mais do que imaginavam. Aos que regressam, espero que se lembrem do que aprenderam.
+— Sejam bem-vindos ao novo ciclo — começou Garmande. — Aos que chegaram a Belfex há pouco tempo, espero que encontrem aqui mais do que imaginavam. Aos que voltam, espero que se lembrem do que aprenderam.
 
 Ele falou primeiro dos novos dimensais. Explicou que seriam acompanhados por tutores, teriam tempo de aprender as bases da magia e enfrentariam desafios próprios para avançar na formação. Depois se dirigiu aos veteranos, que ocupavam as fileiras mais próximas das janelas.
 
@@ -236,7 +244,7 @@ Bruno abriu um sorriso pequeno, daquele que aparecia sempre que alguém menciona
 
 Breno não sorriu. Endireitou-se, ouvindo com atenção.
 
-— Alguns dos que regressam — continuou Garmande — viveram acontecimentos que toda Tayo acompanhou. Isso não lhes dará vantagens aqui dentro. Nem servirá de razão para desrespeitá-los.
+— Alguns dos que voltam — continuou Garmande — viveram acontecimentos que toda Tayo acompanhou. Isso não vai dar vantagens a eles aqui dentro. Também não é motivo para desrespeitá-los.
 
 Foi o bastante para muitos alunos virarem a cabeça na direção dos irmãos. Um grupo começou a bater palmas. Outros acompanharam, e o som cresceu por alguns segundos. Beatriz reconheceu dois aprendizes que tinham visto os quatro no festival. Uma menina na fileira oposta sorriu e ergueu os polegares.
 
@@ -244,11 +252,11 @@ Perto da porta, porém, um rapaz cochichou alguma coisa no ouvido de outro. Ambo
 
 Beatriz lembrou-se da cortina preta na escola. A vontade de esconder as mãos veio tão depressa que ela as fechou atrás das costas. Breno, ao seu lado, percebeu.
 
-— Não olha pra eles — sussurrou Breno, sem mexer a boca. — Olha pro palco. Eu já tentei de tudo, e esse é o jeito que menos dá errado.
+— Bia, olha pra frente — murmurou Breno. — Deixa eles falarem.
 
-— Eu não estava olhando — disse Beatriz, baixinho.
+— Eu não fiz nada pra eles — murmurou Beatriz.
 
-— Estava, sim. Três vezes, eu contei. Eu também olhei, se isso ajuda, mas só uma.
+— Eu sei. — Breno se aproximou um pouco mais, sem tirar os olhos do palco.
 
 Ela virou o rosto para o palco. Ainda podia sentir o tecido quente da toalha em volta do pescoço. Resolveu prestar atenção nas palavras de Garmande, que já falava de responsabilidade, horários e da importância de não usar magia fora dos espaços preparados para isso.
 
@@ -266,7 +274,7 @@ Banjo passou por Beatriz numa corrida tão rápida que os dois chegaram juntos. 
 
 — Eu sabia que vocês encontrariam o caminho — murmurou Velho-Sábio.
 
-— Mentira, né? — disse Banjo. — Desculpa, mas a gente quase não encontrou nada. Foi o Breno que atendeu o telefone. Eu só pulei na poça.
+— A gente quase perdeu a passagem! — disse Banjo. — O Breno atendeu o telefone e, quando vi, o Bruno já tinha sumido na poça.
 
 — Então vou agradecer a ele.
 
@@ -278,7 +286,7 @@ Ficou diante de Velho-Sábio, com a alça da mochila apertada entre os dedos. Ol
 
 — E aí, velho! Toca aqui!
 
-Velho-Sábio olhou a mão estendida. Depois olhou para Bruno, tentando descobrir o que ele esperava. Ergueu a própria mão e tocou com dois dedos bem no meio da palma do garoto.
+Velho-Sábio examinou a palma estendida de Bruno. Ergueu a própria mão e encostou dois dedos bem no meio dela.
 
 — Aqui.
 
@@ -294,13 +302,13 @@ Velho-Sábio soltou a mão dele. Os dois sorriram. Bruno baixou o braço depress
 
 O mago voltou a olhar para os quatro.
 
-— Deixem-me ver. Breno, ainda sério. Banjo, ainda trazendo coisas escondidas. Beatriz, ainda com essas tranças que nunca ficam no lugar. E Bruno...
+— Vejamos... — Velho-Sábio ajeitou os óculos de Banjo, que estavam tortos, e examinou o moletom dele. — Vocês mal chegaram e já trouxeram hóspedes clandestinos. E você, Bruno...
 
 — Mais bonito do que nunca — completou Bruno, passando a mão no cabelo, que continuava teimosamente para cima. — E dois dedos mais alto, o senhor reparou?
 
-— Ia dizer que continua interrompendo os outros — respondeu Velho-Sábio, com um brilho miúdo nos olhos. — Mas reparei nos dois dedos também. Pelo jeito, o crescimento foi todo para o pescoço.
+— Ia perguntar se continua interrompendo os outros — respondeu Velho-Sábio. — Mas acho que já tenho a resposta.
 
-— Eu só interrompo quando tenho razão.
+— Pô, com uma pergunta dessas o senhor me complica.
 
 O som de uma porta abrindo fez Velho-Sábio se virar. Dois funcionários o chamavam para assinar os últimos registros. Um deles levou a mão à testa, exausto.
 
@@ -310,43 +318,55 @@ O som de uma porta abrindo fez Velho-Sábio se virar. Dois funcionários o chama
 
 — Até o encerramento do ciclo?
 
-Velho-Sábio olhou de novo para os irmãos, que ainda estavam encharcados de água da Terra e agitados demais para ficar quietos.
+Velho-Sábio voltou a atenção aos irmãos, ainda encharcados pela chuva da Terra.
 
 — Enquanto eu puder cuidar deles, sim.
 
+O funcionário passou o dedo por outra linha do painel. A cor do nome de Beatriz mudou para laranja.
+
+— Há uma objeção de Beker à readmissão dos quatro — explicou, baixando a voz. — O Conselho ainda não retirou a observação.
+
+Velho-Sábio tirou um documento dobrado de dentro da manga.
+
+— Garmande autorizou o regresso deles ao Arcano. Está assinado. A objeção pode ficar registrada, mas não impede as aulas.
+
+O homem leu o documento, confirmou os nomes e tornou a passar o dedo pelo vidro. O laranja desapareceu. Durante um instante, entre as letras que se apagavam, Beatriz viu o reflexo de uma senhora de trança branca passando atrás dela. Quando olhou por cima do ombro, encontrou apenas os aprendizes na fila. Voltou ao painel. Seu nome já estava na cor dos outros.
+
+— Pronto — disse o funcionário. — Residência confirmada.
+
 Beatriz sorriu antes de perceber. Por um instante quis puxar Breno pela manga e dizer que iam voltar a dormir no mesmo quarto, que o relógio de estrelas estaria no teto e que Kali provavelmente ainda saberia quando ela acordava para beber água. Não disse nada. Ficou esperando o funcionário terminar de preencher o papel.
 
-No corredor, um homem de roupa azul se despedia de dois tutores. Beatriz ouviu apenas o fim da conversa porque ele parou perto da porta.
+Na saída do corredor, um rapaz ruivo estava diante de uma mesa de informações, com o capacete debaixo do braço. Beatriz reconheceu Ferris antes que ele se virasse.
 
-— ...e Ferris continua perguntando por ele. Já disseram que não há notícia.
+— Não quero entrar na sala — dizia ele a um funcionário. — Só quero saber qual foi o último dia em que meu pai trabalhou lá.
 
-— De quem? — perguntou um dos tutores.
+— Já solicitou essa informação, senhor Montfort. A investigação continua aberta.
 
-— Kalev Montfort. O pai de Ferris. É um dos magos mais capazes que conheço e sumiu faz semanas. Ninguém sabe o que aconteceu.
+— Isso não é uma resposta.
 
-O tutor baixou o tom de voz.
+— É a que tenho para lhe dar.
 
-— Então não é só atraso de pesquisa?
+Ferris apertou a borda do capacete. Quando percebeu os irmãos, ficou imóvel por um instante. Não sorriu nem foi falar com eles. Recolheu um papel da mesa e seguiu pelo corredor, tão depressa que esbarrou no ombro de um aprendiz sem perceber.
 
-— A essa altura, acho difícil.
+— Era o Ferris? — perguntou Beatriz.
 
-Velho-Sábio havia terminado de assinar. Não parecia ter ouvido a conversa, ou não quis demonstrar que ouvira. Beatriz olhou para Breno. Ele também prestara atenção.
+— Era — respondeu Lioro.
 
-— O pai do Ferris está desaparecido? — perguntou ela.
+— O que aconteceu com o pai dele?
 
-Lioro, que caminhava ao lado, assentiu.
+Lioro demorou um pouco a responder.
 
-— Estão procurando por ele. Ainda não encontraram nada que explique o sumiço.
+— Kalev Montfort desapareceu durante uma pesquisa, há algumas semanas. A Vigilância está procurando, mas até agora não trouxe notícia.
 
-— O Ferris deve estar preocupado — disse Banjo.
+— O Ferris não parece querer esperar — disse Breno.
 
-— Está — respondeu Lioro. — Mas vocês poderão falar com ele quando o encontrarem.
+— E você esperaria? — perguntou Bruno.
 
-Beatriz se lembrou do rapaz ruivo que vira pela última vez no Edifício Arcano, sempre com uma expressão que fazia Bruno reclamar de alguma coisa. Não conhecia o pai dele. Mesmo assim, imaginou como seria voltar para Belfex e descobrir que o próprio pai tinha desaparecido. Sentiu vontade de encontrar Ferris e dizer alguma coisa, mas não sabia o quê.
+Ninguém respondeu. Beatriz lembrou de como Ferris reclamava quando Bruno se atrasava cinco minutos para um treino. Não imaginava como ele aguentaria semanas sem saber do pai.
 
 Velho-Sábio recolheu o cajado e começou a caminhar.
 
-— Por hoje vocês já tiveram emoções suficientes. Vamos para casa. Há alguém que anda fazendo um escândalo desde que soube que voltariam.
+— Por hoje vocês já tiveram emoção demais. Vamos pra casa. Tem alguém fazendo o maior escândalo desde que soube que vocês voltariam.
 
 — O Átila? — perguntou Banjo.
 
@@ -354,23 +374,23 @@ Velho-Sábio recolheu o cajado e começou a caminhar.
 
 — O senhor podia ter dito o meu nome — reclamou Bruno.
 
-— Você também faz escândalo, mas não precisa que eu o anuncie.
+— Você também faz escândalo, mas não precisa que eu anuncie.
 
-A viagem para Brisália foi mais tranquila. Bruno passou boa parte do trajeto apontando lugares conhecidos pela janela do karto. Acertou o Largo dos Ponteiros, confundiu duas estações de túbula e jurou reconhecer um dassi pelo jeito convencido com que fazia as curvas.
+A viagem para Brisália foi mais tranquila. Bruno apontou o Largo dos Ponteiros pela janela e confundiu duas estações de túbula e jurou reconhecer um dassi pelo jeito convencido com que fazia as curvas.
 
 — Todos os dassis voam desse jeito — disse Breno.
 
 — Aquele sabe que é bonito. Os outros só estão tentando.
 
-Beatriz riu. Lá fora, os edifícios altos de Sorevan cediam lugar às fachadas baixas, às árvores inclinadas sobre as calçadas e às lojas de portas abertas. Bruno reconheceu a florista que reclamava quando ele congelava a água dos vasos. Ela também o reconheceu e gritou «Voltaram!» da porta da loja. Banjo acenou até a mochila quase cair.
+Beatriz riu. Lá fora, os edifícios altos de Sorevan cediam lugar às fachadas baixas, às árvores inclinadas sobre as calçadas e às lojas de portas abertas. Bruno reconheceu a florista que reclamava quando ele congelava a água dos vasos. Ela também o reconheceu e gritou "Voltaram!" da porta da loja. Banjo acenou até a mochila quase cair.
 
 Perto do relógio da praça, o cheiro de pão quente fez Beatriz parar.
 
-— É a padaria do Pelan! Eu quero pão com canela!
+— A padaria do Pelan! — Beatriz quase entrou antes de terminar de falar. — Tem pão com canela?
 
 — Primeiro a casa — disse Breno.
 
-— A despensa está vazia — interveio Velho-Sábio, olhando a vitrine. — E eu não me oponho a uma compra sensata.
+— A despensa está vazia — interveio Velho-Sábio, olhando a vitrine. — E eu não sou contra uma compra sensata.
 
 Pelan tirava uma fornada quando os viu. Parou com a pá no ar, deixando um pão escorregar para o balcão.
 
@@ -378,19 +398,19 @@ Pelan tirava uma fornada quando os viu. Parou com a pá no ar, deixando um pão 
 
 — Se esse for meu, pode acreditar — respondeu Beatriz.
 
-Ele pôs doze pães num saco e acrescentou um décimo terceiro diante dos olhos dela. Beatriz contou todos, muito séria. Bruno roubou um ainda quente para «testar a qualidade», e Breno quis saber quem pagaria por aquilo. Velho-Sábio deixou as moedas no balcão antes que a discussão crescesse.
+Ele pôs doze pães num saco e acrescentou um décimo terceiro diante dos olhos dela. Beatriz contou todos, muito séria. Bruno roubou um ainda quente para "testar a qualidade", e Breno quis saber quem pagaria por aquilo. Velho-Sábio deixou as moedas no balcão antes que a discussão crescesse.
 
 — Contaram que vocês enfrentaram Korvo num lago com um dragão — disse Pelan, baixando a voz. — É verdade?
 
-— O dragão é uma parte excelente da história — respondeu Bruno.
+— Pô, quem contou essa versão? Eu quero conhecer! — respondeu Bruno.
 
-— Uma parte inventada — corrigiu Breno.
+— Não tinha dragão nenhum — corrigiu Breno.
 
-— Inventada por quem? Isso ainda não foi investigado.
+— Não estraga, Breno. Era uma ótima história.
 
 Pelan ia perguntar mais quando Velho-Sábio pousou a mão no ombro dele.
 
-— Os meninos acabaram de chegar. Deixe as aventuras para outra hora, amigo.
+— Os meninos acabaram de chegar. Deixa as aventuras pra outra hora, amigo.
 
 O padeiro olhou a freguesa junto à janela, que havia parado de escolher bolos para ouvir, e assentiu. Entregou a Beatriz mais um pão embrulhado à parte e prometeu que da próxima vez perguntaria apenas pela escola. Na rua, Bruno já contava como teria montado no dragão, com Breno segurando a cauda e Beatriz incendiando-lhe as asas.
 
@@ -406,7 +426,11 @@ Alguém latiu antes que Velho-Sábio abrisse o portão.
 
 — Átila! — gritou Banjo.
 
-O cão saiu disparado da porta da casa, branco e caramelo, as orelhas longas voando com a corrida. Pulou sobre Banjo com tanta alegria que o garoto precisou se apoiar na parede para não cair. Farol espiou da mochila, viu o focinho chegando perto e se escondeu de novo. Banjo abriu o zíper e estendeu na palma o último pedaço de maçã. — Come, vai. Ele é do bem, é só grande. Farol cheirou, desconfiou e aceitou o pedaço sem tirar os olhos do cachorro.
+O cão saiu disparado da porta da casa, branco e caramelo, as orelhas longas voando com a corrida. Pulou sobre Banjo com tanta alegria que o garoto precisou se apoiar na parede para não cair. Farol espiou da mochila, viu o focinho chegando perto e se escondeu de novo. Banjo abriu o zíper e estendeu na palma o último pedaço de maçã.
+
+— Come, vai. Ele é do bem, é só grande.
+
+Farol cheirou, desconfiou e aceitou o pedaço sem tirar os olhos do cachorro.
 
 — Você tá grande! — Banjo falou, agarrando o pescoço do cachorro. — Você lembra de mim?
 
@@ -440,7 +464,7 @@ Ele se virou.
 
 — O quê? Vai reclamar que eu entrei com o sapato molhado?
 
-— A toalha azul de que você gostava continua no armário à esquerda do quarto. E a sua coleção de pedras, na segunda gaveta, está marcada no registro da casa como "não jogar fora", onde ninguém mexeria.
+— A toalha azul de que você gostava continua no armário à esquerda do quarto. E a sua coleção de pedras, na segunda gaveta, está marcada no registro da casa como "não jogar fora".
 
 Bruno ficou parado, olhando para a tela.
 
@@ -482,7 +506,7 @@ O relógio começou a projetar as primeiras estrelas da noite.
 
 Bruno ia responder que o relógio era só um relógio, mas desistiu. Deitou-se na cama de cima e ficou acompanhando as estrelas se acenderem, uma após a outra.
 
-Breno abriu a mochila. Tirou o caderno de desenhos da Terra, as roupas molhadas e um lápis que tinha se partido durante a viagem. Colocou tudo sobre a mesa e começou a separar o que precisava secar. Era o tipo de coisa que Frank faria. Pensar no tio fez Bruno lembrar que eles tinham saído para pegar o ônibus e simplesmente desaparecido.
+Breno abriu a mochila e espalhou as roupas molhadas sobre uma cadeira. Tirou também o caderno de desenhos e um lápis quebrado. Bruno acompanhou o movimento e lembrou de repente: tinham saído de casa para pegar o ônibus. O tio Frank estaria esperando por eles.
 
 — Será que o tio Frank já sabe? — perguntou Bruno, sem olhar para ninguém. — A gente saiu pra pegar o ônibus e sumiu.
 
@@ -492,29 +516,29 @@ Breno parou de mexer na mochila.
 
 — Ele deve estar furioso. Ou desesperado. E o tio desesperado faz macarrão demais.
 
-— Ele fica preocupado primeiro — disse Beatriz, sentando-se. — A raiva só vem depois, quando passa o susto.
+— Ele vai ligar pra escola — disse Beatriz, sentando-se. — E a professora vai falar que a gente nem chegou.
 
 — Aí vêm os dois juntos — completou Bruno — e a gente leva uma bronca de mais de uma hora.
 
 Velho-Sábio apareceu na porta com o saco dos pães e uma caneca de chá.
 
-— Lioro vai cuidar de avisá-lo assim que a passagem permitir. Não vou deixá-lo sem notícias.
+— O Lioro vai avisar ele assim que a passagem deixar. Não vou deixar ele sem notícias.
 
 Breno soltou o ar.
 
 — Obrigado.
 
-O velho inclinou a cabeça e observou os quatro espalhados pelo quarto. Deu dois passos para dentro, verificou o estado das camas e das janelas e parecia prestes a recomendar que todos dormissem. Em vez disso, pousou o saco sobre a mesa.
+O velho examinou as roupas molhadas e pousou o saco de pães sobre a mesa.
 
-— Kali me informou que vocês não comeram direito desde que chegaram. Vão descer?
+— A Kali me avisou que vocês não comeram direito desde que chegaram. Vão descer?
 
 — O Bruno já comeu três pães! — protestou Beatriz.
 
 — Dois e meio — corrigiu Bruno. — O Átila ficou com a metade.
 
-— Então teremos de alimentar o cachorro antes de você o culpar por alguma coisa — respondeu Velho-Sábio.
+— Então a gente tem que alimentar o cachorro antes de você botar a culpa nele — respondeu Velho-Sábio.
 
-A mesa de jantar ficou cheia de pratos em poucos minutos. Velho-Sábio trouxera legumes, uma travessa de pão com canela e uma sopa que Kali dizia estar na temperatura perfeita, embora Bruno tivesse uma opinião diferente sobre temperaturas perfeitas. Banjo começou a contar sobre o passarinho que ajudara na escola. Beatriz acrescentou que a árvore tinha mexido um galho, e ele tentou explicar como sentira o movimento antes de vê-lo.
+À mesa, Velho-Sábio serviu sopa, legumes e pão com canela. Bruno esfriou a própria colherada antes de Kali terminar o aviso sobre a temperatura. Banjo começou a contar sobre o passarinho que ajudara na escola. Beatriz acrescentou que a árvore tinha mexido um galho, e ele tentou explicar como sentira o movimento antes de vê-lo.
 
 Velho-Sábio ouviu sem interromper. Pediu que Banjo contasse de novo a parte em que a árvore segurara o ninho.
 
@@ -542,19 +566,21 @@ Velho-Sábio olhou de um para o outro.
 
 — Alguém se machucou?
 
-— Só o orgulho dele, e ele tinha de sobra.
+— O Pedro só escorregou. E ele tinha orgulho de sobra.
 
-— Bruno.
+— O Nathan bateu o cotovelo — lembrou Banjo, baixando a colher. — Na hora nem achei tão engraçado.
+
+— Bruno — chamou Velho-Sábio.
 
 — Tá bom, foi errado, eu sei. Mas ele zoou o Banjo o recreio inteiro, e o Banjo só ficava olhando pro chão, com aquela cara que ele faz.
 
 O mentor apoiou a colher no prato. Não parecia zangado. Esperou até Bruno acabar de olhar para a mesa e erguer de novo a cabeça.
 
-— E você podia ter chamado um adulto, Bruno. Eu entendo que ficou bravo. Só não precisava machucar outro menino por isso.
+— Você podia ter chamado um professor. O que aconteceria se ele tivesse batido a cabeça num daqueles degraus?
 
 Bruno fez uma careta.
 
-— Na próxima eu deixo ele escorregar sozinho.
+— Foi só um escorregão, pô. Ninguém quebrou nada.
 
 — Na próxima você fala comigo — disse Breno.
 
@@ -566,11 +592,11 @@ Banjo, que mastigava, ergueu a mão.
 
 — Aí! — Bruno apontou para ele. — Pelo menos um agradecido.
 
-— Mas eu não gostei quando o Nathan caiu também.
+— Só que podia ter dado muito errado — acrescentou Banjo.
 
-— Esse foi bônus.
+— Tá bom, da próxima eu penso antes de congelar o chão — resmungou Bruno.
 
-Beatriz riu tanto que precisou pousar a caneca. Velho-Sábio balançou a cabeça, mas o canto da boca se mexeu. Havia sido uma semana difícil para os irmãos na Terra, e nenhum deles queria conversar sobre tudo naquela primeira noite.
+Beatriz riu tanto que precisou pousar a caneca. Velho-Sábio balançou a cabeça, mas o canto da boca se mexeu. 
 
 Foi Breno quem mencionou Kalev de novo, quando a mesa já estava quase vazia.
 
@@ -578,7 +604,7 @@ Foi Breno quem mencionou Kalev de novo, quando a mesa já estava quase vazia.
 
 Velho-Sábio limpou a colher e deixou-a ao lado do prato.
 
-— Ainda não sabemos. Kalev Montfort tem muita experiência e costuma trabalhar em pesquisas complicadas. A ausência dele preocupa os amigos, sobretudo o filho.
+— Ainda não sabemos. O Kalev tem muita experiência e costuma trabalhar em pesquisas complicadas. O sumiço dele preocupa os amigos, principalmente o filho.
 
 — O Ferris está ajudando nas buscas? — perguntou Banjo.
 
@@ -586,7 +612,7 @@ Velho-Sábio limpou a colher e deixou-a ao lado do prato.
 
 — A gente pode ajudar? — Beatriz se inclinou sobre a mesa.
 
-— Por enquanto, quero que vocês voltem aos treinos e à rotina. Amanhã encontrarão seus colegas. Se houver algo que possam fazer, eu direi.
+— Por enquanto, quero que vocês voltem aos treinos e à rotina. Amanhã vocês vão encontrar os colegas. Se tiver alguma coisa que possam fazer, eu falo.
 
 Bruno olhou para Breno, esperando alguma reclamação sobre ficar de fora de um assunto interessante, mas o irmão apenas assentiu. Beatriz não pareceu satisfeita.
 
@@ -644,7 +670,7 @@ Ela ergueu a cabeça, surpresa, e soltou uma risada.
 
 — O que aconteceu? — Ele se ajoelhou ao lado dela, segurou seu braço e virou o cotovelo para a luz. Havia um arranhão vermelho, pequeno, sem sangue. — Vocês acabaram de voltar e já estão brincando com fogo? E com gelo no chão?
 
-— Foi sem querer! — disse Bruno. — O gelo era meu, mas quem escorregou foi a Bia!
+— Foi sem querer! — disse Bruno. — Eu fiz o gelo, mas não achei que ela ia correr por ali!
 
 — Eu escorreguei sozinha — corrigiu Beatriz.
 
@@ -674,37 +700,39 @@ Bruno soltou um riso pelo nariz.
 
 Beatriz sentou-se melhor na grama, apoiando a mão que não estava machucada.
 
-— Você não precisava gritar assim.
+— Breninho, o susto foi maior que o tombo.
 
 Breno respirou fundo. Olhou outra vez para o arranhão, para a pedra junto ao canteiro e para o lugar onde o gelo tinha estado. Abriu a boca para dizer alguma coisa, mas Velho-Sábio apareceu no caminho de pedras, trazendo um pano limpo.
 
-— Parece que teremos de inaugurar a caixa de curativos antes do primeiro treino — disse.
+— Parece que a gente vai ter que inaugurar a caixa de curativos antes do primeiro treino — disse.
 
 — Ela podia ter se machucado de verdade — afirmou Breno.
 
-— Podia — concordou o mentor, entregando-lhe o pano. — Mas olhe para ela.
+— Podia — concordou o mentor, entregando-lhe o pano. — Mas olha pra ela.
 
 Breno olhou.
 
 Beatriz já estava de pé. Segurava a folha de Banjo numa das mãos e tentava esconder um sorriso atrás da outra. Quando viu o irmão olhando, abriu os braços.
 
-— Eu tô inteira! Quer contar?
+— Eu tô inteira! Olha! — Beatriz deu uma volta, abrindo os braços.
 
 Bruno se adiantou:
 
-— Uma Beatriz, dois braços, duas pernas e uma cabeça que não funciona muito bem — contou Bruno, apontando cada parte. — Eu conferi tudo, Breno, pode assinar embaixo. O nariz está no lugar, e a boca também, infelizmente, porque ela nunca fica quieta.
+— Tá vendo, doutor Breno? — Bruno apontou para a irmã. — Se não fosse essa pedra, nem tinha acontecido nada.
 
-— Bruninho! — reclamou Beatriz, dando um tapinha nele. — Eu mereço respeito, eu me machuquei! E a cabeça funciona, sim, muito bem, só que de um jeito diferente da sua.
+— Bruninho! — Beatriz deu um tapinha nele. — A pedra não me empurrou. Foi o seu gelo!
+
+— Eu sei, eu sei. Foi mal, Bia — respondeu Bruno, enfim. — Eu só queria acertar a folha.
 
 Breno soltou o ar e passou o pano com delicadeza sobre o arranhão. Demorou mais um pouco do que precisava, ainda verificando se não havia nada além daquilo. Depois deixou o braço da irmã em paz.
 
-— Só toma cuidado, tá? — disse Breno, ainda com o pano. — Eu não estou bravo. É que quando eu levo susto eu falo alto sem querer.
+— Da próxima vez, espera eu tirar o gelo do chão antes de sair correndo — disse Breno, lançando um olhar a Bruno. — E você não precisa me dar outro susto desses.
 
-— Tá — respondeu ela. — Eu rio quando me assusto. Você também devia tomar cuidado.
+— Tá bom. Mas você gritou tão alto que o Átila até saiu correndo.
 
 — Eu? Por quê?
 
-— Da próxima vez que sair correndo desse jeito, quem escorrega é você, e aí eu vou rir muito mais.
+— E aí, se você escorregar também, a culpa é de quem?
 
 Banjo gargalhou. Até Breno deixou escapar um sorriso, pequeno e contrariado.
 
@@ -724,25 +752,23 @@ Velho-Sábio começou a subir a escada, fingindo não ouvir a discussão. Bruno 
 
 — Velho! Toca aqui!
 
-O mago parou. Olhou a palma aberta, pensou por um instante e encostou a sua na de Bruno com cuidado, mas sem bater. Ficou segurando-a, esperando.
+O mago parou, olhou a palma aberta e encostou a sua na de Bruno, devagar, sem bater.
 
-Bruno abriu um sorriso.
+— Quase! — Bruno riu. — Tem que bater, velho. Assim, ó.
 
-— Quase — disse Bruno. — O senhor encostou, só faltou o barulho. Estou orgulhoso, de verdade. Na semana que vem a gente tenta de novo.
+Soltou a mão do mentor e deu uma palmada na própria mão para mostrar.
 
-— Quase é uma melhora considerável, Bruno.
+Velho-Sábio tentou imitá-lo. Quando ergueu o braço, porém, Bruno já tinha baixado o seu. O mago bateu no ar e ficou olhando para a mão vazia.
 
-— Um dia o senhor acerta, e aí eu vou ficar com saudade de quando errava.
+— Pô, o senhor precisa treinar isso — disse Bruno, rindo.
 
-— Espero que tenha paciência comigo, garoto. Estou aprendendo hábitos novos aos poucos.
+— Uma coisa de cada vez, rapaz. Hoje já reaprendi a cuidar de quatro crianças.
 
-— Com o senhor? Vou precisar de muita. Mas eu tenho um estoque guardado, e o Banjo me ajuda a gastar.
-
-Soltaram as mãos. Velho-Sábio seguiu pelo corredor com o cajado, e Bruno ficou ouvindo a voz dos irmãos discutindo o que fariam no jogo. Entrou no quarto antes que Breno começasse a impor regras.
+Velho-Sábio seguiu pelo corredor com o cajado. Bruno ficou ouvindo os irmãos discutirem o jogo, depois entrou antes que Breno começasse a impor regras.
 
 No quarto, os irmãos brigavam por uma cama, Átila procurava um lugar para dormir e Kali avisava que o jogo não ia durar só cinco minutos.
 
-— Fale baixo, Kali — pediu ele. — Se o Breno descobrir, a culpa vai ser minha.
+— Fala baixo, Kali — pediu ele. — Se o Breno descobrir, a culpa vai ser minha.
 
 — Já descobri! — gritou Breno lá de dentro.
 
@@ -750,7 +776,7 @@ Bruno riu e fechou a porta atrás de si.
 
 O jogo durou quase uma hora. Beatriz, que enfiara a bola amarela de BBBB no fundo da mochila na noite anterior, "por precaução", tentou de tudo para provar que os dados também valiam ponto de tabela, e Kali, a pedido de quem perdeu, jurou que os dados tinham sido trocados. Foi depois da meia-noite, com os irmãos já enrolados nos lençóis e Átila roncando num canto, que Bruno acordou com a mão formigando de frio. A casquinha branca já tinha subido pelo travesseiro. Ele a esfregou na manta, desceu a escada na ponta dos pés atrás de um copo de água e parou no último degrau.
 
-A luz da cozinha estava acesa. Velho-Sábio estava de pé diante da janela, de costas, com o cajado encostado na mesa e um papel dobrado na mão. Era um papel grosso, de lacre cinzento rachado ao meio, e ele o segurava longe do corpo, do jeito de quem recebeu uma conta que não quer pagar. Em cima da mesa, ao lado do cajado, havia duas xícaras. Uma tinha chá pela metade. A outra estava cheia e intocada, e o vapor dela já tinha parado de subir.
+A luz da cozinha estava acesa. Velho-Sábio estava diante da janela, com o cajado encostado na mesa e um papel dobrado na mão. O lacre cinzento estava rachado ao meio. O velho passou o polegar sobre a rachadura e tornou a dobrar o papel. Em cima da mesa, ao lado do cajado, havia duas xícaras. Uma tinha chá pela metade. A outra estava cheia e intocada, e o vapor dela já tinha parado de subir.
 
 — Você devia estar dormindo, Bruno — disse o mago, sem se virar.
 
@@ -762,6 +788,6 @@ Velho-Sábio demorou a responder. Dobrou o papel mais uma vez, até virar um qua
 
 — Quer que eu esquente? Eu sei esfriar, mas esquentar eu aprendo rápido.
 
-— Obrigado, não. Ela esfria bem sem ajuda. — O mago pegou as duas xícaras, a cheia e a pela metade, e levou ambas à pia. — Volte para a cama. Amanhã o treino começa cedo e vai ser duro, e eu prefiro que vocês cheguem ao Arcano com sono de verdade do que com sono de preocupação.
+— Obrigado, não. Ela esfria bem sozinha. — O mago pegou as duas xícaras, a cheia e a pela metade, e levou ambas à pia. — Volta pra cama. Amanhã o treino começa cedo e vai ser puxado, e eu prefiro que vocês cheguem ao Arcano com sono de verdade, e não de tanto se preocupar.
 
-Bruno subiu devagar. No meio da escada, olhou para baixo. Velho-Sábio não tinha ligado a torneira. Estava parado diante da janela outra vez, de mãos vazias, olhando a rua molhada como quem espera alguém atravessar.
+No meio da escada, Bruno espiou a cozinha. Velho-Sábio não tinha ligado a torneira. Continuava diante da janela, de mãos vazias, como se esperasse alguém na rua molhada.

@@ -84,7 +84,7 @@ O grito de Orel atravessou o pátio por cima dos pergaminhos, selos e fórmulas 
 
 Hadris ainda não terminara de organizar os papéis quando Selina atravessou o espaço reservado e parou ao lado da mesa.
 
-— Eu falo pela defesa.
+— Requeiro a palavra para representar a defesa dos acusados.
 
 O murmúrio que percorreu o pátio dessa vez tinha um som diferente do anterior: não hostilidade, surpresa.
 
@@ -108,7 +108,7 @@ Chamou os quatro jovens citados na denúncia original. Vieram em fila, Darven à
 
 Darven falou primeiro, a voz ensaiada.
 
-— A gente estava passando. O homem... — apontou vagamente na direção de Orel, sem nomeá-lo. — Ele nos atacou. Sem motivo.
+— Nós estávamos de passagem. Aquele homem... — Darven apontou para Orel, evitando dizer o nome. — Ele avançou contra nós sem ser provocado.
 
 Os outros três confirmaram, quase em uníssono, como quem já tinha decorado a mesma frase.
 
@@ -152,11 +152,11 @@ Selina deixou a pergunta parada ali, sem alívio, olhando para os quatro um de c
 
 Darven cedeu primeiro, o orgulho falando mais alto que a cautela.
 
-— A gente chegou perto. Ficamos rindo dele, tá bom? De como ele fala. Ele ficou nervoso, tentou afastar a gente, e foi quando...
+— Nós chegamos perto, está bem? — Darven abriu as mãos, indignado por ser pressionado. — Fizemos comentários sobre o jeito como ele fala. Ele se irritou, tentou nos afastar e então...
 
 — Vocês provocaram primeiro.
 
-— A gente não bateu primeiro!
+— Não fomos nós que agredimos primeiro!
 
 — Mas provocaram.
 
@@ -198,11 +198,11 @@ Voltou-se para Tair.
 
 Tair engoliu em seco, mas respondeu sem hesitar mais do que o medo exigia.
 
-— Eu tinha copiado cobranças ligadas a uma mulher chamada Meral Nular. O nome de Darven aparecia como dependente dela. Eu conhecia essa relação. Quando os guardas perguntaram, completei o resto sozinho, achei que sabia. Não sabia que a responsabilidade tinha sido transferida para Belan.
+— Eu copiava cobranças da Meral Nular. O nome do Darven aparecia lá como dependente dela. Quando os guardas perguntaram, falei o que tinha visto. Só que eu entendi errado. Não sabia que tinham passado a responsabilidade pro Belan.
 
 — Você inventou o nome de Meral?
 
-— Não. Ela existe. É real. Eu só confundi um vínculo administrativo com linhagem.
+— Não, senhora. A Meral existe. Eu só pensei que o nome dela na cobrança queria dizer que ele era da família dela. Não era.
 
 Selina se voltou para Hadris.
 
@@ -264,7 +264,7 @@ O pátio reagiu com um murmúrio grave.
 
 Selina sentiu o terreno se mover sob os pés, mas não deixou que aparecesse no rosto.
 
-— E o tribunal gostaria de explicar em que circunstâncias essa confissão foi obtida?
+— Requeiro que se esclareçam as circunstâncias em que essa confissão foi obtida.
 
 Hadris não respondeu de imediato.
 
@@ -332,11 +332,11 @@ Chamou Rovan Polar.
 
 Rovan veio com o passo de quem gosta de ser ouvido, o desprezo já pronto no rosto.
 
-— Todo mundo em Maruva sabe. Esse homem some por dias, às vezes ciclos inteiros. Os garotos ficam sozinhos, sem ninguém pra responder por eles.
+— Não há quem não saiba disso em Maruva. O homem desaparece por dias, por vezes durante ciclos. Os jovens ficam entregues à própria sorte, sem um adulto que responda por eles.
 
 — Isso é comum? — perguntou Hadris.
 
-— Sempre foi. Nunca vi esse tal Karesis cumprir função de responsável de verdade. É só um nome no papel.
+— Desde que me lembro. Nunca vi Karesis cumprir de fato os deveres de responsável. Seu nome consta nos registros, mas isso não significa que esteja presente.
 
 Hadris voltou-se para a mesa alta.
 
@@ -358,7 +358,7 @@ Sovar assentiu, sem entusiasmo, mas sem hesitar.
 
 Selina voltou-se para Hadris.
 
-— Ausência não é abandono legal. Se fosse, metade dos responsáveis de Kaeliran, Polar ou Nular, já teriam perdido a condição há anos.
+— A ausência física não extingue, por si só, uma responsabilidade legal. Se extinguisse, muitos responsáveis registados, inclusive famílias Polar, estariam em situação irregular.
 
 Foi nesse instante que um homem começou a abrir caminho pela multidão.
 
@@ -370,7 +370,7 @@ O pátio inteiro se virou. Selina também, e não reconheceu de imediato o homem
 
 Hadris olhou para ele, calculando rapidamente quem seria.
 
-— Sou o responsável deles — disse o homem, a voz rouca de quem não a usava com frequência, mas firme o bastante para atravessar o pátio.
+— Eu sou o responsável por eles — disse Karesis. A voz saiu rouca, mas todos ouviram.
 
 Kalan virou a cabeça. O alívio apareceu primeiro, e a irritação veio logo depois, quando reconheceu Karesis.
 
@@ -380,7 +380,7 @@ Karesis.
 
 Ele não precisava dizer mais nada. A frase não informava a Hadris nada que ele já não soubesse, pois o nome do responsável constava em todos os registros. Mas dizia outra coisa, mais forte: o homem descrito como ausente, como abandono em pessoa, estava ali, de pé, reivindicando a própria responsabilidade diante de toda a cidade.
 
-— Reafirmo, formalmente, minha responsabilidade sobre a casa e sobre os dois — continuou Karesis. — Nunca registrei abandono. Nunca pedi que fossem retirados da minha responsabilidade. Se há obrigação pendente, respondo por ela agora mesmo, diante deste tribunal.
+— Meu nome tá nos registros — continuou Karesis. — Não abandonei a casa. Nunca pedi pra tirar esses dois da minha responsabilidade. Se faltar alguma obrigação, eu respondo por ela aqui, na frente de vocês.
 
 Um murmúrio de desagrado passou pela parte alta do pátio. Não era a reviravolta que aquele público viera assistir: um homem usando a própria lei Polar para proteger dois Nulares.
 
@@ -452,7 +452,7 @@ Hadris assentiu. Não parecia derrotado.
 
 — E nenhuma dessas Tábuas transforma Kalan em Polar, absolve furto ou impede julgamento por crime religioso.
 
-— Eu não disse que transforma.
+— Não sustentei nenhuma dessas conclusões.
 
 Era por isso que Selina escolhera aquele caminho. Hadris não precisava quebrar a lei para chegar onde queria. Bastava escolher, entre camadas verdadeiras, a que pesava mais contra Kalan. Ela precisava encontrar outra que ainda sustentasse alguma coisa embaixo dele.
 
@@ -478,7 +478,7 @@ Não significava que passassem a gostar dele. Significava, por alguns segundos, 
 
 Selina usou aquele silêncio.
 
-— Se o sangue é o que torna alguém Polar, eles possuem esse sangue. Se o registro é o que torna alguém Polar, então não estamos falando de sangue nenhum. Estamos falando de quem recebeu autorização para pertencer.
+— Se o sangue determina o pertencimento, a ascendência deles deve ser considerada. Se apenas o registro determina, então é a validação de uma instituição que os distingue dos demais Polar. O tribunal precisa reconhecer qual regra está aplicando.
 
 Deixou a pergunta seguinte pairar sem formulá-la inteira: se um escriba, uma avó, uma validação tivessem sido diferentes anos atrás, Kalan valeria mais, ali, naquele pátio? Seria menos culpado? Sua vida seria mais difícil de tirar?
 
@@ -564,15 +564,15 @@ Antes da sentença, Teral concedeu a palavra ao acusado.
 
 Kalan deu um passo à frente, as correntes tilintando contra a pedra.
 
-— Eu roubei a caixa — disse, sem rodeios, sem procurar desculpa. — Isso é verdade. Fiz isso porque sabia que, se os guardas conferissem os registros, achariam Darven Polar, e a história ia virar contra Orel antes de alguém perguntar quem tinha começado. Sabia quem tinha nome Polar atrás e quem não tinha. Sabia qual história seria ouvida primeiro.
+— Eu roubei a caixa — disse Kalan. — Fui eu. Quando vi que o Darven era Polar, fiquei com medo de os guardas irem atrás do Orel sem nem perguntar o que aqueles quatro tinham feito. Eles têm família e nome para defender. O Orel não tinha ninguém ali além da gente.
 
 Fez uma pausa, os olhos percorrendo o pátio devagar.
 
-— Fiz uma escolha errada tentando proteger alguém. Não vou fingir que não fiz.
+— Foi errado roubar. Eu sei. Mas queria proteger meu amigo.
 
 Olhou então diretamente para a mesa alta.
 
-— Mas Tair não sabia o que eu ia fazer. Orel não sabia. Elis não sabia. Karesis não sabia. Se alguém precisa responder por isso, sou eu. Só eu.
+— Mas ninguém lá de casa sabia que eu ia fazer aquilo. Nem o Tair, nem o Orel, nem a Elis, nem o Karesis. Não foi culpa deles. Fui eu.
 
 Teral se levantou.
 

@@ -146,7 +146,7 @@ Ela ficou alguns segundos me encarando, desistiu e saiu, fechando a porta. Fique
 
 — Você é muito idiota — ri de verdade. — Tá, como foi seu dia, já que puxou assunto?
 
-— Minha mãe comprou uma geladeira nova e eu ajudei a carregar escada acima. A escadaria lá de casa é gigante.
+— Minha mãe comprou uma geladeira nova e eu ajudei a carregar escada acima. A escadaria lá de casa é gigante. Meu pai, lá de São Paulo, ofereceu mandar alguém pra ajudar, mas ela preferiu se virar sozinha.
 
 — Deve ser ótimo pras pernas.
 

@@ -1,4 +1,4 @@
-Os Tondrar comemoravam como se Alestir tivesse sido Kaendar.
+Os Tondrar comemoravam a destruição de Alestir.
 
 Estavam em terras Buldar, longe da Boca Seca. Homens Tondrar de cabeça raspada e rosto pintado batiam lâminas em escudos, pés no chão e ossos uns nos outros ao redor das fogueiras. Celebravam o fato de os Polar terem provado perda.
 
@@ -6,7 +6,7 @@ Os Buldar observavam com desconforto. Alguns jovens Ceifadores de Campo partilha
 
 Os Glydar tinham vindo em menor número, com lanças de pesca, facas curvas, cordas, redes e bolsas impermeáveis de zírrio seco e raiz de margem. Longe do rio, pareciam deslocados.
 
-Lorde Ossar da Margem Funda apertava e soltava a borda do cinto enquanto olhava para o norte. Os Glydar tinham lançado óleo corrente abaixo: suas margens continuavam limpas, enquanto a água chegava doente a Kaendar. A decisão parecera inteligente. Agora Ossar pensava em quem os Polar procurariam primeiro quando seguissem o rio. Nynestra Buldar também não celebrava.
+Lorde Ossar da Margem Funda apertava e soltava a borda do cinto enquanto olhava para o norte. Os Glydar tinham lançado óleo corrente abaixo, preservando as próprias margens e contaminando a água que chegava a Kaendar. Agora Ossar pensava em quem os Polar procurariam primeiro quando seguissem o rio. Nynestra Buldar também não celebrava.
 
 Sentada diante de uma mesa baixa, Nynestra estudava grão, rotas e pedras de clãs enquanto uma tigela de raiz vermelha esfriava ao lado. Calculava o custo do ataque.
 
@@ -16,7 +16,7 @@ Rendar atravessou o espaço entre as fogueiras com o rosto sujo de viagem, as tr
 
 Rendar parou no centro e percorreu com os olhos as fogueiras, as lâminas e os homens que ainda respiravam como se tivessem vencido algo maior.
 
-— Vocês comemoram como se o inimigo tivesse caído.
+— Vocês comemoram por uma vila queimada.
 
 Ninguém respondeu. Um Tondrar alto, com cicatrizes no peito, sorriu de lado.
 
@@ -34,15 +34,15 @@ O sorriso morreu.
 
 Alguns Tondrar endureceram. Torgun observou as mãos que se aproximavam das armas. Rendar continuou:
 
-— Acham que venceram porque viram casas arder. Casas se levantam. Mortos viram discursos. Cinza vira juramento. Os Polar sabem fazer isso melhor do que qualquer clã.
+— Acham que venceram porque viram casas arder. Kaendar vai usar esses mortos para reunir mais homens contra nós.
 
 Rendar caminhou até uma das fogueiras e chutou um pedaço de madeira ardida para dentro do fogo.
 
-— A vitória foi sobre o estômago deles.
+— O que conseguimos foi destruir os mantimentos deles.
 
 Nynestra olhou para os grãos espalhados sobre a mesa. Rendar seguiu o olhar dela.
 
-— Sacos de grão-de-caule. Farinha escura. Raiz amarela seca. Zírrio de depósito. Carne salgada. Conserva. Barris de flor-de-sal. Mantimento guardado para travessia, cerco e estação ruim. Tudo aquilo queimou. Aquilo não irá virar discurso. Aquilo vira falta, vira contagem, vira homens dividindo água fervida, fiscal escondendo barril. Vira divisão.
+— Sacos de grão-de-caule, farinha escura, raiz amarela, carne salgada e conservas. Barris inteiros de flor-de-sal. Era a reserva que levariam para uma campanha longa. Agora terão de dividir o que sobrou e vigiar os próprios depósitos.
 
 Nynestra ergueu os olhos da mesa. Rendar apontou para o norte.
 
@@ -54,7 +54,7 @@ Lorde Ossar ficou imóvel. Alguns Glydar trocaram olhares rápidos.
 
 Rendar virou-se para os Tondrar com uma calma dura.
 
-— Fizemos eles sentirem fome e sede antes de saber quem odiar. Mas isso é começo. Não vitória.
+— Estão com menos comida e não confiam mais na água. Isso nos dá vantagem por enquanto. Ainda não vencemos.
 
 Lorde Ossar deu um passo à frente.
 
@@ -154,7 +154,7 @@ Alguns Buldar protestaram de imediato.
 
 Ela nem olhou para quem falara.
 
-— Os Urtistar deram resposta a mim também. Se isto for aliança, alguém Buldar precisa estar presente quando ela começar a custar sangue.
+— Os Urtistar também responderam a mim. Quero ouvir o acordo pessoalmente e ver quem vai cumpri-lo. Não vou deixar que decidam por nós.
 
 — Não precisamos dos Buldar na Boca Seca — disse Torgun.
 
@@ -180,7 +180,7 @@ Rendar olhou para ele.
 
 — Sempre depois disso.
 
-— Se capturarmos homens Polar perto da Boca Seca, teremos o que arrancar deles. Informações sobre Kaendar. Sobre as soberanas. Sobre quem elas enviaram e por quê.
+— Se capturarmos homens Polar perto da Boca Seca, poderemos interrogá-los. Quero saber quem os enviou, que ordens receberam e o que Kaendar sabe sobre nós.
 
 — E se os Polar vierem ao rio antes?
 
@@ -262,7 +262,7 @@ Kahul olhou para ele sem mudar o rosto.
 
 Um dos homens de Torgun rosnou baixo. Nynestra ergueu a mão.
 
-— Viemos capturar, não matar. Se forem enviados de Kaendar, precisamos deles respirando.
+— Viemos capturar, não matar. Se forem enviados de Kaendar, preciso que cheguem vivos para serem interrogados.
 
 — E quem ficará com os prisioneiros? — perguntou Kahul.
 
@@ -296,7 +296,7 @@ Kahul olhou de relance para a mulher das tábuas antes de responder. Não pediu 
 
 — Isso é um compromisso dos Urtistar? — perguntou Nynestra.
 
-— É compromisso desta rota, dos homens que respondo aqui e da minha casa. Urtar-Vesh não cabe na minha boca inteira. Há sete capitães, e nenhum deles promete os outros seis numa pedra de estrada.
+— É compromisso desta rota, dos homens sob meu comando e da minha casa. Há sete capitães em Urtar-Vesh. Não posso falar pelos outros seis.
 
 — Então Kahul não governa todos os Urtistar.
 
@@ -354,7 +354,7 @@ Chegaram aos tarraks. Os animais bufavam, nervosos, mas não fugiam. A primeira 
 
 — Eu abro.
 
-O Buldar hesitou. Torgun cortou a corda num gesto curto e puxou a lona. O cheiro de carne queimada e cinza saiu sob a lona. Dentro havia três formas carbonizadas, talvez menos ou mais, difíceis de distinguir. Acima delas, uma Raiz enorme estava queimada na madeira da carroça.
+O Buldar hesitou. Torgun cortou a corda num gesto curto e puxou a lona. O cheiro de carne queimada e cinza saiu sob a lona. Dentro havia corpos carbonizados sob a lona. Nynestra contou três formas, mas a carne queimada e os panos dificultavam distinguir onde cada uma terminava. Acima delas, uma Raiz enorme estava queimada na madeira da carroça.
 
 Ninguém falou. Nynestra tentou entender. Então um Glydar caiu. Não houve grito. Só um som curto, molhado, quase confundido com o barro. A rede enrolada no ombro dele soltou-se devagar, inútil antes de tocar o chão. A cabeça virou antes do corpo, a garganta aberta de lado a lado. Nynestra girou, puxando a faca. Por um instante, pensou que havia Polar escondidos entre as pedras.
 
@@ -380,7 +380,7 @@ A garoa virou chuva densa. Nynestra escorregou e bateu o joelho numa pedra. Torg
 
 Ela girou e cortou o braço do perseguidor. Não fundo. O homem hesitou. Torgun terminou o serviço, golpeando-lhe o peito com força suficiente para derrubá-lo de costas.
 
-Nynestra não sabia se eram três ou quatro. Havia mais perseguidores do que os avistados na chegada, escondidos até então.
+Nynestra perdeu a conta dos perseguidores. Havia outros escondidos entre as rochas, além dos avistados na chegada.
 
 Correram entre rochas baixas, arbustos de caule-gordo e fendas onde a água desaparecia depressa demais, por uma rota que Torgun parecia conhecer mesmo ferido. Só ouviam respiração, chuva, metal, barro, trovão e o próprio sangue batendo nos ouvidos. Uma flecha passou por eles e bateu na pedra adiante.
 
@@ -415,6 +415,6 @@ Eles viram Torgun. Depois, uma mulher Buldar ajoelhada ao lado dele, coberta de 
 
 Nynestra tentou levantar-se, mas a perna ferida não deixou. Então soltou a faca no barro. Devagar, muito devagar, e ergueu as duas mãos.
 
-A tempestade caiu sobre ela, sobre Torgun, sobre a Boca Seca, sobre os crânios e as lâminas.
+A chuva escorria pelas mãos erguidas de Nynestra e pelo rosto de Torgun, imóvel no barro.
 
 Ninguém perguntou seu nome nem o que havia acontecido. Os Tondrar apenas a cercaram.

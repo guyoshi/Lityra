@@ -14,13 +14,13 @@ Elis ficou olhando para a madeira, como se pudesse continuar vendo Kalan do outr
 
 Encontrou Selina ainda perto da mesa alta, guardando os próprios papéis com mãos que pareciam mais lentas do que o normal.
 
-— Eu quero falar com ele.
+— Eu preciso falar com o Kalan.
 
 Selina ergueu os olhos.
 
 — Elis...
 
-— Eu quero falar com ele.
+— Eu preciso ver meu irmão.
 
 Não era um pedido que admitia negociação. Selina olhou para os guardas, para Hadris ainda conversando baixo com um oficial, para o pátio inteiro se organizando ao redor de uma sentença já dita em voz alta.
 
@@ -28,9 +28,9 @@ Não era um pedido que admitia negociação. Selina olhou para os guardas, para 
 
 Alguma coisa na garganta de Elis se apertou até doer.
 
-— Por favor. — A voz saiu quebrada, e ela não conseguiu impedir. — Eu preciso falar com ele.
+— Por favor — pediu Elis, com a voz falhando. — Só um pouquinho. Deixa eu ver meu irmão.
 
-Não lembrava a última vez que pedira alguma coisa assim, com a voz inteira aberta, sem guardar nada. Viu isso alcançar Selina como nenhum argumento jurídico alcançara a manhã inteira.
+Elis apertou os dedos na roupa da conselheira. Tinha aprendido a se virar sozinha em Maruva, mas nunca precisara implorar para abraçar o irmão.
 
 Selina respirou fundo.
 
@@ -72,7 +72,7 @@ Estava livre.
 
 Então ele a abraçou de volta, com a força que as correntes permitiam, e por um momento nenhum dos dois disse nada.
 
-— Selina ainda está tentando — disse Elis, as palavras atropeladas contra o ombro dele. — Dareth foi buscar Vetarius. Vão conseguir uma ordem. Talvez tenha outro recurso, talvez o julgamento possa ser revisto, eu não sei direito como funciona, mas a Selina sabe, ela sempre dá um jeito, e a gente vai tirar você daqui.
+— A Selina ainda tá tentando — disse Elis depressa, contra o ombro dele. — E o Dareth foi atrás de Vetarius. Ele pode mandar parar isso, não pode? A Selina conhece as leis. Eles vão achar um jeito de tirar você daqui.
 
 Kalan olhou para ela.
 
@@ -98,9 +98,9 @@ Kalan segurou Orel com a força que sobrava, uma das mãos presas subindo o sufi
 
 Orel balançou a cabeça contra o ombro dele, sem soltar.
 
-— Eu faria aquilo de novo — continuou Kalan. — Entrar. Ficar entre você e eles. Faria de novo, sem pensar duas vezes.
+— Eu faria de novo, Orel — continuou Kalan. — Se aqueles quatro encostassem em você outra vez, eu entrava na frente. Nem pensava.
 
-Tocou o rosto de Orel, gentil, o gesto de quando os dois eram menores. Orel não entendia tudo o que acontecia, e Elis via a confusão por trás do medo dele, mas entendia o bastante: Kalan estava preso, estavam levando Kalan, alguma coisa ruim acontecia. Era suficiente para doer, mesmo sem entender o resto.
+Tocou o rosto de Orel, gentil, o gesto de quando os dois eram menores. Orel segurou a roupa de Kalan com as duas mãos e não quis largar. Elis conhecia aquele gesto. Ele podia ter dificuldade para explicar, mas sabia muito bem que queriam levá-lo de novo.
 
 Tair esperou, os olhos já molhados antes mesmo de se aproximar.
 
@@ -112,7 +112,7 @@ Não conseguiu terminar. As lágrimas vieram antes das palavras.
 
 — Para — disse Kalan.
 
-— Se eu não tivesse falado errado sobre o Darven, nada disso...
+— Se eu não tivesse falado aquela besteira do Darven, nada disso...
 
 — Não foi você.
 
@@ -124,7 +124,7 @@ Depois olhou para Elis. Para Orel.
 
 O ar da sala pareceu mudar. Elis sentiu, sem saber nomear o motivo, que aquela frase pesava mais do que qualquer outra dita ali dentro.
 
-— Você mesmo vai cuidar — disse, rápido demais, quase brava. — Para de falar assim.
+— Você vai sair daqui e cuidar você mesmo! — Elis falou alto demais. — Para de falar como se não fosse voltar.
 
 Kalan a olhou por um segundo. Recuou.
 
@@ -134,7 +134,7 @@ Voltou a fingir com ela que existia outra saída. Elis preferiu aquilo. Preferiu
 
 Tair ainda chorava, mas assentiu, a voz saindo em pedaços.
 
-— Eu cuido. Prometo.
+— Eu cuido deles, Kalan. Prometo.
 
 Um guarda bateu na porta.
 
@@ -172,7 +172,7 @@ Foi até ele.
 
 Karesis não respondeu.
 
-— Faz alguma coisa.
+— Faz alguma coisa, pelo amor da Raiz!
 
 Ele parecia mais velho do que de manhã, os ombros curvados de um jeito que Elis nunca vira, nem nos piores dias em que desaparecia por semanas.
 
@@ -180,7 +180,7 @@ Ele parecia mais velho do que de manhã, os ombros curvados de um jeito que Elis
 
 A raiva subiu antes que Elis conseguisse pensar em impedi-la.
 
-— Então pra que você serve?
+— Então pra que você tá aqui, Karesis? Pra quê?
 
 Viu o golpe alcançá-lo, não como raiva, não como defesa. Karesis nem ergueu os olhos para ela.
 
@@ -204,7 +204,7 @@ Elis sentiu o chão se mover, mesmo estando parada.
 
 — Ainda não voltou.
 
-— Mas ele vai voltar. Ele vai conseguir a tempo.
+— Mas ele vai voltar. Você falou que ia dar tempo.
 
 Selina não respondeu aquilo. Só segurou o ombro de Elis, um gesto pequeno, e disse:
 
@@ -224,7 +224,7 @@ Não gritavam. Não riam. Janelas se abriam, uma a uma, rostos que Elis reconhec
 
 Alguns choravam. Uma mulher levou a mão à boca quando Kalan passou. Um homem baixou o rosto, incapaz de continuar olhando. Uma mãe puxou o filho pequeno para dentro de casa antes que ele conseguisse perguntar o que estava acontecendo.
 
-Aquelas pessoas conheciam Kalan. Não conheciam "o condenado".
+Ali não era um estranho que passava acorrentado. Era o rapaz que ajudava a descarregar carroça, dividia pão e voltava tarde do cais. Elis reconheceu vizinhos que se recusavam a olhar.
 
 Hadris, montado logo atrás da escolta, ergueu a voz o suficiente para que as ruas próximas ouvissem.
 

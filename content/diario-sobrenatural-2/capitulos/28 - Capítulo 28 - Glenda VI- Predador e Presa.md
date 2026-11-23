@@ -6,7 +6,7 @@ A casa estava diferente naquela noite, não por causa dos balões ou do bolo com
 
 Lembro do cheiro de refrigerante aberto, do suor doce de gente dançando sem saber dançar, do copo de vidro batendo em bandeja, de alguém comentando uma banda que tinha passado na MTV na noite anterior. Um primo de algum convidado exibia um Discman novo para todo mundo; no corredor, alguém mostrava um papel com um número de ICQ, senha de clube secreto. Eu estava um pouco acima de tudo, não por ser melhor, mas por ser mais desconfiada. E estava feliz, de um jeito prático: gostava da casa grande, do espaço, do barulho de gente que tinha vindo me ver, mesmo quando não gostava das pessoas. O mundo, naquele dia, era a minha festa.
 
-A conversa diminuiu quando Diego apareceu na porta com Jason. Meu pai ajeitou o paletó assim que os reconheceu. Não era respeito: era reflexo. Diego tinha essa habilidade de fazer homens mais velhos se lembrarem do que nunca foram. Era “boa pinta”, como diziam, e parecia ter nascido sabendo onde colocar a mão, onde pousar o olhar, onde deixar a voz. O terno não era exagerado, o relógio não era ostentação, e o sorriso… o sorriso era a parte mais perigosa, porque parecia simples, quase gentil. Jason vinha junto, tentando parecer adulto demais para a idade, e eu lembro de pensar, com uma pontada de vaidade ridícula, que a festa tinha ficado melhor com eles ali. Eu me sentia importante só porque ele tinha reparado em mim. Lembrar disso ainda me dava vergonha.
+A conversa diminuiu quando Diego apareceu na porta com Jason. Meu pai ajeitou o paletó assim que os reconheceu. Diego tinha essa habilidade de fazer homens mais velhos se lembrarem do que nunca foram. Era “boa pinta”, como diziam, e parecia ter nascido sabendo onde colocar a mão, onde pousar o olhar, onde deixar a voz. O terno não era exagerado, o relógio não era ostentação, e o sorriso… o sorriso era a parte mais perigosa, porque parecia simples, quase gentil. Jason vinha junto, tentando parecer adulto demais para a idade, e eu lembro de pensar, com uma pontada de vaidade ridícula, que a festa tinha ficado melhor com eles ali. Eu me sentia importante só porque ele tinha reparado em mim. Lembrar disso ainda me dava vergonha.
 
 Diego me cumprimentou com a naturalidade de quem acha que tudo é dele. Encostou de leve no meu ombro e disse alguma coisa sobre eu estar crescendo, sobre como o tempo passa, e eu ri do jeito certo, com o tom certo, porque eu sabia jogar o jogo social antes mesmo de entender as regras. Eu não me senti pequena; eu me senti escolhida. E, por algum motivo que eu ainda não sabia nomear, eu gostei disso.
 
@@ -266,7 +266,7 @@ Eu poderia ter ligado para a polícia. Era o que se espera de uma pessoa decente
 
 Digitei também o nome impresso no rótulo do frasco. Li sobre efeito, sobre tempo, sobre o que acontecia com quem misturava aquilo com álcool. Li até ter certeza.
 
-Eu tinha vindo àquela casa achando que encontraria material suficiente para uma reportagem. Agora havia uma mulher morta escondida no andar de cima e uma lista de nomes que incluía o meu. Peguei o telefone. Fiquei com ele na mão, pensando em quantas vezes Diego recebera visitas de policiais e saíra sorrindo. Desliguei antes de discar.
+Peguei o telefone. Fiquei com ele na mão, pensando em quantas vezes Diego recebera visitas de policiais e saíra sorrindo. Desliguei antes de discar.
 
 Do lado de fora, o portão da garagem rangeu. Fui até a janela e vi Diego sair para a rua de bermuda, tênis e camiseta, o fone no pescoço, alongando um joelho. Corria toda noite, duas horas, chovesse ou não, como quem precisa lembrar ao corpo quem manda. Naquela noite saiu do mesmo jeito, porque um homem como Diego precisa provar a si mesmo que nada o abala.
 
@@ -328,7 +328,7 @@ As pernas falharam no meio do movimento, e a pose de predador escorregou para al
 
 — Agora quem está no controle sou eu — eu disse, sem gritar, sem tremor, com a mesma voz que usava para narrar coisas num papel quando queria que parecessem verdade.
 
-A mão dele veio fraca para o meu braço, mas já não era mão de dono. Era mão de homem com medo. Alcancei a gaveta da cômoda, puxei a placa de fundo falso com a facilidade de quem já tinha ensaiado, e peguei o revólver prateado. O metal estava frio e pesado, e senti algo parecido com alívio quando apontei para a cabeça dele. Não era a arma em si; era a inversão. Era o mundo voltando ao lugar.
+A mão dele veio fraca para o meu braço, mas já não era mão de dono. Era mão de homem com medo. Alcancei a gaveta da cômoda, puxei a placa de fundo falso com a facilidade de quem já tinha ensaiado, e peguei o revólver prateado. O metal estava frio e pesado, e senti algo parecido com alívio quando apontei para a cabeça dele.
 
 Diego tentou falar, mas a língua parecia pesada demais para as palavras. Peguei a garrafa de uísque, a preferida dele, a que ele guardava com tanto carinho, destampei e derramei devagar sobre o rosto dele, sobre a boca, sobre o nariz, sem pressa, como quem batiza um cadáver.
 
@@ -368,7 +368,7 @@ A cobra deslizou de dentro dos cabides, pesada o bastante para fazer a madeira r
 
 Olhei para o chão do quarto. Um pequeno pedaço do assado ainda estava perto do rodapé. Recolhi-o com a ponta dos dedos e senti o cheiro de gordura no vestido. A porta do terrário tinha ficado aberta.
 
-O quarto escuro no andar de cima, o terrário de Gisele, o calor do quarto de Diego e o resto da comida de D. Tereza. Tudo estivera naquela casa o tempo inteiro. Diego nunca prestara atenção em nada que não considerasse importante.
+O quarto escuro no andar de cima, o terrário de Gisele, o calor do quarto de Diego e o resto da comida de D. Tereza. Tudo estivera naquela casa o tempo inteiro.
 
 Não consegui desviar os olhos. Quando tudo terminou, percebi que estava tremendo. Sentei na beira da cama, esperando o coração desacelerar. Não me senti feliz. Só sabia que Diego não voltaria a entrar no meu quarto. Quando o silêncio voltou ao quarto, me movi como alguém que termina um trabalho: repus a placa de fundo falso com a gaveta vazia e guardei o revólver na cintura, sob a blusa, porque ninguém sabia que ele existia e o corpo me dizia que a noite não ia acabar naquela casa; lavei os copos no banheiro e os coloquei de volta na cômoda. Recolhi a faca e lavei. Quebrei um dos copos de cristal ao lado da cama, para que o corte na coxa tivesse um culpado. Recolhi o batom da escrivaninha. Deixei a garrafa de uísque derrubada, como se tivesse caído sozinha, e a porta do guarda-roupa aberta. Subi uma última vez ao último andar para deixar também a porta do terrário escancarada, porque o que viesse depois precisava ter uma explicação com escamas.
 
@@ -378,7 +378,7 @@ O celular de Diego estava no bolso da bermuda dele, no chão. Peguei com nojo co
 
 Escolhi três imagens do telefone de Diego, as que mostravam mais claramente o que ele fizera, e as enviei para Jason a partir do número do próprio pai. O telefone confirmou o envio das três. Não escrevi nenhuma mensagem. Imaginei a cara do meu primo ao vê-las e tive vontade de ligar antes que as abrisse. Não liguei.
 
-Pensei no Lucas. Durante dois anos o Jason tinha guardado a memória do irmão como quem guarda uma coisa frágil dentro de uma casa que o pai ocupava. Eu estava tirando esse peso dele, e sabia que ia doer antes de aliviar.
+Pensei no Lucas. Durante dois anos o Jason tinha guardado a memória do irmão como quem guarda uma coisa frágil dentro de uma casa que o pai ocupava.
 
 Guardei o aparelho na mochila: ainda ia precisar dele. Depois eu pensaria no que dizer à polícia.
 

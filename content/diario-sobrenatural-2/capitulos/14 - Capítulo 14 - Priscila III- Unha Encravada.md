@@ -194,7 +194,17 @@ Eu continuei andando. O carro ligou de novo e começou a me acompanhar. Eu apert
 
 Peguei o celular e liguei para o número que ele tinha me passado na terça-feira. Eu esperava que tocasse dentro do carro. Não tocou. Eu me virei para o carro enquanto o telefone chamava. Então os vidros começaram a descer lentamente, como se alguém quisesse me dar um espetáculo.
 
-O que eu vi lá dentro me fez desligar a chamada na hora e fechar os olhos, como se fechar os olhos apagasse a realidade: o corpo da Kelly, pálido e sem vida, como no velório, estava na direção.
+Primeiro vi uma mão no volante. Os dedos estavam escuros, inchados, com a pele aberta junto às unhas. Depois distingui o braço, a manga grudada a alguma coisa negra. A pessoa ao volante mantinha a cabeça baixa, os cabelos pendendo sobre o rosto.
+
+— Jason? — chamei de novo, embora já soubesse que não era ele.
+
+A cabeça se levantou aos poucos. Havia terra presa ao cabelo. Um lado do rosto parecia ter afundado, e os lábios tinham recuado dos dentes. Sob o queixo, a pele se abria em linhas escuras. O olho direito estava turvo; o esquerdo, voltado para mim, ainda tinha o formato do olhar que eu conhecia desde pequena.
+
+Kelly.
+
+A minha irmã estava morta havia quase um ano. Eu tinha visto o caixão. Sabia o que a terra fazia aos corpos. Mesmo assim, demorei para aceitar que aquilo era uma tentativa de reproduzir o rosto dela. O peito do vestido estava rasgado no lugar onde a tinham atingido. Uma coisa úmida se movia por baixo do tecido.
+
+O celular continuava chamando junto à minha orelha. Desliguei a ligação sem olhar para a tela. Quando ergui os olhos outra vez, a janela do carro estava subindo. A boca da minha irmã se abriu antes que o vidro cobrisse o rosto. Não ouvi palavra nenhuma. Os faróis se apagaram.
 
 Foi aí que eu senti o frio. Aquele frio específico. Eu abri os olhos e olhei para o outro lado da rua. Havia alguém parado ao lado de um poste cuja luz estava queimada. Eu não via o rosto, só o corpo envolto num moletom, um volume de gente no escuro.
 
@@ -204,9 +214,15 @@ Quando abri a porta de casa, eu senti aquela sensação de fortaleza. Meu único
 
 Eu caí no chão e chorei. Chorei muito. Com as luzes apagadas, a porta fechada, era só eu e as minhas lágrimas. E o meu dedo do pé latejando, a unha encravada pulsando como se quisesse me lembrar que sempre tem dor extra.
 
-Então uma luz forte surgiu. Eu me virei e vi a televisão ligada. Quando olhei, a imagem da Kelly apareceu de novo, pálida, me olhando.
+A televisão acendeu sozinha. Primeiro veio o chiado, alto demais para o volume em que eu costumava deixá-la. Depois a imagem estabilizou. Não era um programa. Havia uma sala escura na tela, com uma cadeira e alguém sentado de costas. Reconheci o cabelo antes de conseguir ver o rosto.
 
-Eu gritei, peguei o ferro de passar roupa que estava ao meu lado e atirei na televisão. Faíscas voaram para todos os lados e o aparelho desligou. Eu caí de novo no chão, soluçando, até o choro cansar o corpo e o sono me derrubar.
+A cadeira virou devagar. O rosto que vi era o do carro. O cadáver abriu a boca. A imagem não tinha som, mas eu sabia ler aqueles lábios; passara a infância inteira brigando com a dona deles.
+
+*Você não me queria perto.*
+
+— Cala a boca — falei. Peguei o controle e apertei o botão de desligar. A tela escureceu por um segundo. Quando voltou, o rosto estava mais perto, quase preenchendo tudo. A boca se abriu novamente. Não aguentei ver o que viria depois.
+
+Atirei o ferro de passar roupa contra a televisão. O vidro estalou, faíscas voaram para o chão e o aparelho morreu. Fiquei encolhida junto à cama até o silêncio voltar a parecer silêncio. Depois chorei até não ter mais forças.
 
 Acordei no meio da madrugada com o som do celular tocando. No visor: Jason.
 

@@ -16,7 +16,7 @@ Alguns conselheiros olharam para Varron Meio-Olho, como se a ferida dele pudesse
 
 Estava diante da mesa central, a Ramagem refeita duas vezes desde o amanhecer porque o suor da guerra a desfazia mais rápido do que o pintor conseguia acompanhar, vestida de couro escuro sobre túnica cinzenta, o braço ainda marcado pelas faixas de Alestir e o cabelo preso de modo severo. A palidez recente não lhe tirava força. Dava-lhe uma aparência de lâmina recém-limpa, ainda fria, ainda lembrando sangue. Atrás dela, Cal Kadrir permanecia como sombra armada, o corte no rosto mal fechado, a nova autoridade de Primeiro Kae assentando-lhe no corpo com rapidez perigosa.
 
-Daryon estava à esquerda, discreto, elegante e quase imóvel. Kaelina não estava ali. A ausência dela ocupava uma cadeira com mais força do que sua presença teria ocupado.
+Daryon estava à esquerda, discreto e quase imóvel. A cadeira de Kaelina continuava vazia. Alguns conselheiros olhavam para ela antes de responder a Alyra.
 
 — Minha irmã continua fora da cidade — disse Alyra, deixando a frase pousar sobre a mesa como um prato servido frio. — Meus homens confirmaram que deixou Kaendar sem convocar escolta apropriada, sem comunicar o Conselho e sem deixar instruções de governo. Em tempos normais, poderíamos chamar isso de capricho. Hoje, chamaremos pelo nome correto: abandono de dever.
 
@@ -26,7 +26,7 @@ Iressa Mão-de-Sal apertou a boca, mas não respondeu. Talvez porque soubesse qu
 
 — E terá homens — respondeu Alyra. — Kadrir já destinou duas linhas do Anel Médio para as forjas até o fim da noite.
 
-Brokan pareceu satisfeito por meio instante, antes de perceber que ela decidira sem perguntar.
+Brokan assentiu, mas olhou para Kadrir ao saber que a decisão já fora tomada.
 
 Nalia do Rio inclinou-se sobre os mapas fluviais. Os dedos dela, fortes e marcados por anos de margem, estavam sobre a curva do Rio Grande acima de Kaendar.
 
@@ -74,7 +74,7 @@ A frase caiu mal antes mesmo de terminar. Alyra ergueu os olhos do mapa. Não de
 
 — O que você quis dizer com isso?
 
-Lurok limpou a garganta com cuidado. Ele sempre fazia isso antes de dizer algo covarde com roupa de prudência.
+Lurok limpou a garganta antes de responder.
 
 — Minha soberana, eu apenas quis dizer que vosso pai conseguiu evitar uma guerra ampla por muitos ciclos e que agora…
 
@@ -86,7 +86,7 @@ Lurok piscou.
 
 — Foi exatamente isso que disse. Só teve educação suficiente para esconder o insulto dentro do nome do meu pai.
 
-Lurok engoliu seco. O velho sangue das Casas Antigas não parecia tão antigo naquele instante. Parecia apenas sangue comum procurando onde se esconder.
+Lurok engoliu seco. Ele olhou de um conselheiro a outro, procurando apoio.
 
 Brokan desviou o olhar para o mapa. Maelis das Contagens manteve o estilete parado sobre a madeira. Odran Porta-Baixa olhou para baixo. Seron das Obras fingiu ajustar uma tábua de acesso que não precisava de ajuste algum. Lurok abriu as mãos, numa tentativa pobre de conciliação.
 
@@ -110,7 +110,7 @@ Lurok tremeu. Alyra repetiu, mas não levantou a voz.
 
 — Eu estava tentando preservar…
 
-— Está tentando sobreviver à própria covardia. Faça isso fora da minha mesa.
+— Então vá se explicar lá fora. Não na minha mesa.
 
 Lurok procurou apoio nos outros conselheiros. Não encontrou o bastante. Brokan continuou imóvel. Maelis não escreveu nada. Odran manteve os olhos baixos. Seron descobriu, naquele instante, uma falha imaginária na madeira. Alyra sustentou o olhar dele.
 
@@ -178,7 +178,7 @@ O silêncio apertou.
 
 Kadrir deu meio passo, não ameaçador ainda, mas presente. Alyra ergueu a mão e o conteve.
 
-— O Conselho está dispensado. Brokan, quero as forjas até a noite. — Nalia, traga-me todos os mapas de corrente entre a Margem dos Zírrios e o Cais dos Zírrios, e prepare o cais para receber o Terceiro Kae Lutharus quando ele voltar. Iressa, conte comida para cerco, não para marcha. Thoren, pare de olhar para o chão como se ele fosse responder por você. E Maelis, registre que as decisões desta reunião foram tomadas em defesa direta de Kaendar diante de ameaça externa coordenada. Quem quiser discutir palavra, discuta depois de vencer.
+— O Conselho está dispensado. Brokan, quero as forjas até a noite. Nalia, traga-me todos os mapas de corrente entre a Margem dos Zírrios e o Cais dos Zírrios, e prepare o cais para receber o Terceiro Kae Lutharus quando ele voltar. Iressa, conte comida para cerco, não para marcha. Thoren, pare de olhar para o chão como se ele fosse responder por você. E Maelis, registre que as decisões desta reunião foram tomadas em defesa direta de Kaendar diante de ameaça externa coordenada. Quem quiser discutir palavra, discuta depois de vencer.
 
 Quando a sala começou a esvaziar, Daryon não saiu. Esperou os passos diminuírem, esperou Maelis recolher tábuas e passar por ele sem levantar o olhar, esperou Nalia dobrar os mapas com força contida. Kadrir continuou perto de Alyra, mas ela fez um gesto seco para que se afastasse.
 
@@ -216,7 +216,7 @@ Alyra não mudou o rosto.
 
 — Eu pensei se você estava viva. Se estava ferida. Se alguém tinha chegado perto demais. Se o Cal tinha conseguido tirar você dali. Se Kaelina tinha feito alguma idiotice. Se a cidade ainda tinha tua voz. Tudo que pensei, Alyra, foi em você.
 
-A palavra final saiu baixa demais. Ela sustentou o olhar dele, mas não ofereceu nada. Daryon sorriu, e o sorriso partiu antes de terminar.
+A palavra final saiu baixa demais. Ela sustentou o olhar dele, mas não ofereceu nada. Daryon tentou sorrir, mas desviou os olhos.
 
 — E quando eu voltei, você não perguntou.
 
@@ -240,11 +240,11 @@ Ele fechou os olhos por menos de um segundo. Quando abriu, havia algo quase dese
 
 — De Kadrir.
 
-O mundo não se moveu. Foi isso que tornou a frase pior.
+Daryon ficou em silêncio, sem conseguir olhar para ela.
 
-Daryon não recuou. Não gritou. Não tocou a mesa. O corpo inteiro dele apenas parou, como se alguém tivesse retirado de dentro dele a ordem de continuar humano. Os olhos desceram para a mão dela sobre a barriga. Depois subiram para o rosto. Depois foram para a porta por onde Kadrir saíra. A garganta dele trabalhou uma vez, mas nenhum som veio.
+Daryon ficou imóvel. Olhou para a mão dela sobre a barriga, depois para o rosto de Alyra. Quando voltou os olhos para a porta por onde Kadrir saíra, tentou dizer alguma coisa, mas a voz falhou.
 
-Alyra observou cada detalhe. O pequeno atraso da respiração. A mão direita fechando devagar. O olhar procurando uma conta impossível: tempo, noites, ausências, portas fechadas, ferimentos de Alestir, a proximidade de Kadrir, a maneira como ela confiara nele sem explicar, o modo como o novo Primeiro Kae às vezes respondia antes de Daryon terminar de formular uma estratégia.
+Alyra viu Daryon apertar a mão direita e olhar para a porta por onde Kadrir saíra. Ele parecia refazer em silêncio o tempo das ausências dela, das noites em que não o recebera e da proximidade recente do Primeiro Kae.
 
 Daryon falou enfim.
 
@@ -294,7 +294,7 @@ Alyra pegou o manto.
 
 — Lutharus deve estar chegando com nossos prisioneiros.
 
-A noite sobre o rio tinha cor de ferro molhado.
+O rio corria escuro sob as lanternas do cais.
 
 Kaendar erguia-se atrás deles em camadas de pedra, madeira, sal e luz controlada. O Cais dos Zírrios, normalmente cheio de vozes, peixe seco, cordas, barris e homens reclamando de carga, estava quase vazio, guardado por lanternas baixas e fileiras de Vigias. A água escura corria ao lado da cidade com um brilho sujo, ainda marcada pelo óleo em pontos que apanhavam a luz e a deformavam. O cheiro era pior à noite. Menos claro, mais íntimo. Entrava no nariz como culpa.
 
@@ -304,13 +304,13 @@ O barco vinha devagar, descendo pela escuridão como coisa abandonada. Não traz
 
 — Onde estão os homens? — perguntou um guarda.
 
-Nalia não respondeu. O barco aproximou-se do cais e bateu com suavidade contra a madeira. Um dos guardas prendeu a corda com gancho. Outro ergueu a lança, como se lança servisse contra silêncio. Daryon foi o primeiro a tocar os panos.
+Nalia não respondeu. O barco aproximou-se do cais e bateu com suavidade contra a madeira. Um dos guardas prendeu a corda com gancho. Outro ergueu a lança ao ver os panos que cobriam os corpos. Daryon foi o primeiro a tocar os panos.
 
 Talvez porque precisasse fazer alguma coisa com as mãos antes que a memória da sala voltasse. Talvez porque a suspeita nele ainda fosse mais rápida do que o medo. Puxou uma ponta. O cheiro saiu antes da imagem. Sangue frio. Água. Óleo. Sob os panos estavam os homens de Kaendar.
 
 Alguns com a garganta cortada. Outros com marcas de queimadura pequenas, circulares, como se uma ponta quente tivesse entrado no corpo antes do golpe final. Um deles ainda tinha a boca aberta, os dentes manchados de sangue escuro. Outro trazia corda Glydar enrolada no pescoço.
 
-Daryon afastou outro pano e viu o anel. Ferro escuro. Três cortes. Raiz interna. O corpo estava queimado de um lado, com a pele presa ao couro endurecido e a mão direita contraída como se ainda tentasse segurar a espada. O rosto, embora deformado pelo fogo e pela água, mantinha o suficiente da arrogância morta para ser reconhecido.
+Daryon afastou outro pano e reconheceu o sinal de Terceiro Kae preso ao uniforme. Lutharus estava queimado de um lado, com a pele grudada ao couro endurecido. O anel de ferro escuro, com três cortes e a Raiz gravada por dentro, já não estava na mão direita. O rosto, embora deformado pelo fogo e pela água, mantinha o suficiente da arrogância morta para ser reconhecido.
 
 Nalia cobriu a boca com uma das mãos. Alyra olhou para o morto sem piscar.
 
@@ -342,7 +342,7 @@ O fogo tocou o fundo escuro. Por meio fôlego, nada aconteceu. Então o barco ab
 
 Não como trovão de céu. Como barril cuspindo inferno para os lados. A labareda saltou baixa e larga, alimentada pelo Bafo-de-Fenda escondido sob os corpos e pelos panos encharcados de óleo. A força empurrou o barco contra o cais, partiu madeira, arrebentou cordas e lançou dois guardas para trás. Um caiu na água já queimando, gritando até o rio fechar sobre sua boca. Outro bateu contra os barris junto à plataforma e ficou imóvel, com metade da capa tomada por fogo.
 
-Daryon puxou Alyra para baixo atrás de uma mureta de pedra e a cobriu com o próprio corpo quando o calor passou por cima deles. Alyra sentiu o impacto dele, o cheiro de tecido queimado, a respiração presa junto ao ouvido. A mão dele estava na nuca dela, dura, protetora, quase desesperada. Kadrir já estava de pé, a espada fora da bainha, o rosto iluminado pela explosão.
+Daryon puxou Alyra para baixo atrás de uma mureta de pedra e a protegeu com o próprio corpo quando o calor passou por cima deles. Alyra sentiu o impacto dele, o cheiro de tecido queimado, a respiração presa junto ao ouvido. A mão dele estava na nuca dela, dura, protetora, quase desesperada. Kadrir já estava de pé, a espada fora da bainha, o rosto iluminado pela explosão.
 
 — Portão do cais! Fechem! Nalia, para dentro! Todos para dentro!
 
@@ -470,7 +470,7 @@ A humilhação foi pequena. Por isso funcionou. Daryon retirou a espada da cintu
 
 Os guardas olharam para Alyra. Ela assentiu. A porta fechou-se, deixando os guardas e servos do lado de fora. Dentro da Câmara do Primeiro Abrigo ficaram apenas os dois, a pedra antiga, as lamparinas tremendo e a guerra batendo contra Kaendar como um punho distante.
 
-Os sons da guerra diminuíram, mas não sumiram. A pedra filtrava tudo: sinos, passos, gritos distantes, pancadas surdas, estalos de fogo, chifres. O mundo parecia acontecer debaixo de água. Daryon virou-se para ela.
+Os sons da guerra diminuíram, mas não sumiram. A pedra filtrava tudo: sinos, passos, gritos distantes, pancadas surdas, estalos de fogo, chifres. Os sons chegavam abafados pelas paredes grossas. Daryon virou-se para ela.
 
 — Estamos cercados.
 
@@ -500,11 +500,11 @@ Daryon não respondeu. Observava onde ela queria chegar. Alyra caminhou até a m
 
 — Há meses, Daryon. Meses. Eu vejo. Cada conselho que me dá termina sempre no mesmo lugar: você entre mim e o mundo. Você traduz minha raiva. Você dá palavras à minha vontade. Você aproxima aliados, afasta vozes, organiza medo, e depois olha para mim como se a força que eu uso tivesse passado primeiro pela tua mão.
 
-— Este não é o meu papel? Te ajudar?
+— Não é pra isso que estou aqui? Pra te ajudar?
 
 — Não me parece que quer me ajudar. Parece que quer estar no centro.
 
-— Não, Alyra. Eu quero estar ao seu lado.
+— Não, Alyra. Quero estar do teu lado.
 
 Alyra riu, baixo.
 
@@ -614,7 +614,7 @@ Ela estudou o rosto dele.
 
 Alyra guardou o silêncio. Daryon aproximou-se, com cuidado agora, não por medo da faca, mas dela.
 
-— Eu fiz e faria tudo de novo por você. Se quiser que eu limpe tuas botas a vida inteira, eu limpo. Se quiser que eu minta para o Conselho, eu minto. Se quiser que eu sorria enquanto me corta diante de homens menores, eu sorrio. Mas não me diga que isso é sobre poder. Não me diga que eu fiz tudo isso para sentar numa cadeira.
+— Eu fiz e faria de novo por você. Já menti ao Conselho. Já aceitei tuas humilhações diante de homens que me desprezam. Mas não diz que fiz tudo isso para sentar no teu trono.
 
 A voz dele quebrou apenas no final.
 
@@ -660,15 +660,15 @@ A máscara deixou de importar. Daryon fechou os olhos, e as lágrimas que ele se
 
 — Por quê?
 
-— Porque não confiava em você.
+— Porque achei que você ia me abandonar se pensasse que Kadrir estava no meu lugar.
 
 Ele olhou para ela como se quisesse odiá-la. Talvez odiasse, mas o amor dele era uma coisa doente, antiga, alimentada por tudo que deveria tê-lo matado.
 
 Alyra soltou a faca sobre a mesa. O som foi pequeno. Daryon olhou para a lâmina, e depois para ela. A soberana tocou a mão dele e a levou até a própria barriga. Daryon tremeu, não muito, mas o bastante.
 
-Lá fora, algo bateu contra uma das muralhas com força suficiente para fazer poeira cair do teto da Câmara do Primeiro Abrigo. Homens gritaram em algum corredor distante. Os sinos continuavam. Os chifres respondiam. Kaendar, a cidade que fingira por séculos que pedra e lei bastavam para impedir o mundo, ardia nas bordas.
+Lá fora, algo bateu contra uma das muralhas com força suficiente para fazer poeira cair do teto da Câmara do Primeiro Abrigo. Homens gritaram em algum corredor distante. Os sinos continuavam. Os chifres respondiam. Kaendar ardia nas bordas, e os dois ainda estavam fechados na Câmara do Primeiro Abrigo.
 
-Daryon beijou Alyra como quem tenta provar que ainda existe dentro da própria ruína.
+Daryon a beijou depois de olhar uma última vez para a porta, onde Kadrir poderia reaparecer.
 
 Ela respondeu com a mesma violência contida com que governava, puxando-o para si, prendendo a mão na nuca dele, mordendo-lhe a culpa antes que ele pudesse transformá-la em palavra. Ele a envolveu com cuidado no primeiro instante, lembrando da criança, lembrando do corpo dela, lembrando de tudo aquilo que quase perdera para uma mentira que ela escolhera dizer por medo de perder o que tinha. Depois o cuidado misturou-se à fome, e a fome à raiva, e a raiva ao alívio.
 

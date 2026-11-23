@@ -1,12 +1,10 @@
-Kaendar não foi ferida por descuido.
-
-Os portões estavam fechados. Os sinos já haviam tocado antes, quando o primeiro ataque fez o Cais dos Zírrios acordar em ferro, água e grito. Cal Kadrir movera homens como um Primeiro Kae deveria mover: não com pânico, mas com resposta. As famílias do cais tinham sido retiradas às pressas, os portões ribeirinhos trancados, as passagens internas vigiadas e os corredores de carga postos sob guarda. Kaendar não abriu a boca porque dormia. Abriu porque alguém lhe enfiou uma faca contra a própria garganta.
+Os portões de Kaendar permaneciam fechados. Os sinos já haviam tocado quando o primeiro ataque fez o Cais dos Zírrios acordar em ferro, água e grito. Cal Kadrir movera homens como um Primeiro Kae deveria mover: não com pânico, mas com resposta. As famílias do cais tinham sido retiradas às pressas, os portões ribeirinhos trancados, as passagens internas vigiadas e os corredores de carga postos sob guarda. Rendar procurou justamente o lugar onde uma ordem de Cal Kadrir demoraria mais a chegar.
 
 Kaelina caminhava com os pulsos presos, o corpo dolorido e o pescoço gelado pela lâmina de Rendar. Não sabia havia quanto tempo andavam. A noite havia perdido medida quando os primeiros sinos soaram do lado do rio, e depois outro som maior cresceu diante das muralhas principais, distante o bastante para parecer outro mundo e próximo o bastante para fazer o chão tremer sob as botas dos homens. Kaelina reconheceu o plano. Primeiro, o cais. Depois, o cerco diante dos portões maiores. A maior parte dos defensores estaria voltada para a entrada principal.
 
 O Cais dos Zírrios ficava do outro lado do esforço principal, colado ao Rio Grande como uma cicatriz úmida no Anel Baixo. Não era lugar que se alcançasse rápido contornando Kaendar com um exército inteiro. Por isso Rendar não levara um exército inteiro. Levava o bastante. Homens que sabiam andar com pouco som, Glydar que conheciam a margem por terem entrado tantas vezes com peixe, redes, salmoro seco, cestos de zírrio e conversa baixa de comércio. Homens que sabiam qual portão recebia carga, qual grade rangia mais, em que ponto os guardas pediam registro antes de olhar rosto, e onde a pressa de uma noite de sinos podia fazer uma ordem demorar um instante a mais.
 
-Um instante era pouca coisa para uma cidade. Era tudo para um caçador.
+Rendar precisava apenas que os homens do cais hesitassem ao reconhecer Kaelina.
 
 Kaelina tropeçou numa pedra úmida e Rendar a segurou antes que caísse, não por cuidado, mas porque ainda precisava dela inteira. Os dedos dele apertaram seu braço com precisão desconfortável, e a faca voltou ao lugar junto ao pescoço antes que ela pudesse transformar a perda de equilíbrio em tentativa de fuga. Ela não tinha força para isso. O corpo ainda carregava fome, marcha, medo e a humilhação de ser conduzida como objeto de troca. A faixa sob as costelas estava dura de sangue antigo, e os pontos puxavam a cada inspiração mais funda. A pele parecia fina demais sobre os ossos. Respirar sem demonstrar dor já exigia atenção.
 
@@ -24,11 +22,11 @@ Não houve anúncio. Não houve explicação. Apenas um deslocamento silencioso,
 
 Kaelina sentiu o frio dessa imagem antes de entendê-la por completo. Aqueles homens não pertenciam a Rendar, mas também já não pareciam pertencer a Alyra. Tinham sido chamados para sustentar uma guerra que talvez julgassem vantajosa quando ainda parecia controlada. Agora viam barcos no cais, fogo Vendrar, Tondrar diante das muralhas, sinos demais, sombras demais e uma cidade que começava a se fechar sobre todos como uma armadilha de pedra.
 
-Talvez tivessem visto um sinal, talvez as escrituras tivessem sido lidas de outro modo, talvez os capitães tivessem decidido que o pagamento de Alyra comprava lâminas, mas não comprava o olho. Talvez apenas tivessem entendido que, se Kaendar caísse naquela noite, morrer ali significaria cair por uma raiz que não era deles.
+Kaelina não sabia se os Urtistar haviam recebido um sinal, seguido uma leitura dos escritos ou considerado o acordo rompido. Nenhum deles ofereceu explicação.
 
 Kaelina não teve tempo de saber. Rendar a empurrou adiante, e a dúvida ficou para trás com os homens de barba longa que viravam as costas para a guerra de Alyra. Os barcos já estavam no Cais dos Zírrios.
 
-Não eram muitos, mas pareciam mais numerosos na confusão da noite, porque cada casco trazia sombra, homem, corda, remo, madeira batendo em madeira e sussurros na língua da margem. Alguns Glydar mantinham os pés firmes nas tábuas como se o rio fosse extensão do corpo. Outros já estavam na pedra do cais, agachados atrás de cestos virados, mastros baixos e cargas falsas abandonadas de propósito. A água escura do Rio Grande rangia contra os suportes, e o cheiro de peixe velho misturava-se ao sal, à lama e ao ferro.
+Eram poucos barcos, mas cada um trazia homens, cordas, remos e armas escondidas sob as cargas. Alguns Glydar mantinham os pés firmes nas tábuas como se o rio fosse extensão do corpo. Outros já estavam na pedra do cais, agachados atrás de cestos virados, mastros baixos e cargas falsas abandonadas de propósito. A água escura do Rio Grande rangia contra os suportes, e o cheiro de peixe velho misturava-se ao sal, à lama e ao ferro.
 
 Os portões do cais estavam fechados.
 
@@ -40,7 +38,7 @@ A voz dele não tremeu. Kaelina quis lembrar o nome dele, mas a dor e o cansaço
 
 — Abram.
 
-O oficial não respondeu de imediato. Olhou para Kaelina, depois para os barcos. O homem estava contando. Kaelina viu isso nos olhos dele. Quantos inimigos? Quantas flechas antes que a faca abrisse sua garganta? Quanto tempo até uma ordem de Cal Kadrir chegar? Qual das soberanas tinha autoridade ali, a que estava presa ou a que talvez ainda estivesse no alto da cidade?
+O oficial não respondeu de imediato. Olhou para Kaelina, depois para os barcos. O oficial contou os homens nos barcos e os que já estavam no cais. Olhou para as bestas de seus guardas, depois para a faca no pescoço da soberana. Uma ordem de Kadrir ainda não chegara.
 
 — O cais está fechado por ordem do Primeiro Kae — disse ele. — Nenhuma carga entra, nenhum barco descarrega, nenhum homem atravessa sem confirmação do Anel Médio.
 
@@ -82,11 +80,11 @@ O oficial do cais endureceu.
 
 O guarda tremeu. Tavra riu baixo, mas alguns dos próprios Glydar não riram. Havia gente ali que queria passagem, não incêndio. Havia gente que queria vingança, não controle. E havia Rendar, no centro, tentando fazer uma guerra obedecer a um homem que a havia soltado.
 
-O oficial do cais respirou fundo e baixou a ponta da arma. Não a soltou. Rendar moveu a faca de novo. Kaelina sentiu a ameaça antes do corte. O oficial olhou para a linha de sangue no pescoço dela, depois largou a arma no chão de pedra. Uma a uma, as outras armas caíram. Não todas ao mesmo tempo. Nenhuma rendição verdadeira cai bonita. Algumas mãos resistiram até o último instante. Um soldado jovem quase ergueu a besta quando um Glydar se aproximou para tomá-la. Um Vendrar viu o movimento e enfiou uma lâmina sob a costela dele antes que alguém gritasse.
+O oficial do cais respirou fundo e baixou a ponta da arma. Não a soltou. Rendar moveu a faca de novo. Kaelina sentiu a ameaça antes do corte. O oficial olhou para a linha de sangue no pescoço dela, depois largou a arma no chão de pedra. Uma a uma, as outras armas caíram. Não todas ao mesmo tempo. Um dos soldados segurou a besta por mais tempo que os outros antes de largá-la. Algumas mãos resistiram até o último instante. Um soldado jovem quase ergueu a besta quando um Glydar se aproximou para tomá-la. Um Vendrar viu o movimento e enfiou uma lâmina sob a costela dele antes que alguém gritasse.
 
 O rapaz caiu de joelhos, surpreso com a própria morte. Por um segundo, tudo ameaçou se romper.
 
-Outro invasor avançou contra um Polar desarmado. Rendar soltou Kaelina só o suficiente para girar o corpo e bater com o cabo da própria faca na mão do homem, desviando o golpe antes que a lâmina entrasse. O invasor recuou dois passos, xingando, mais irritado do que intimidado.
+Outro invasor avançou contra um Polar desarmado. Sem afastar Kaelina do próprio corpo, Rendar bateu com o cabo da faca na mão do homem e desviou o golpe antes que a lâmina entrasse. O invasor recuou dois passos, xingando, mais irritado do que intimidado.
 
 — PAREM! Não matem os rendidos — disse Rendar.
 
@@ -114,11 +112,11 @@ Kaelina quis dizer que saíssem das ruas. Quis ordenar que fechassem os corredor
 
 No alto de uma passagem lateral, ela viu Nalia do Rio correndo com dois guardas e um rapaz de contagem carregando tábuas presas contra o peito. A conselheira vinha com o rosto fechado, o cabelo preso sem nenhum enfeite, a roupa escura manchada de umidade. Gritava ordens sobre grades internas, barcos presos e correntes que não deveriam ser soltas. Não viu Kaelina. Passou por uma abertura, desapareceu atrás de um grupo de homens armados e continuou correndo como se o Conselho inteiro tivesse virado perna, pulmão e medo.
 
-Kaelina sentiu um alívio cruel por não ser vista. Depois veio a emboscada.
+Kaelina chegou a pensar em chamar Nalia. Antes que abrisse a boca, veio a primeira flecha.
 
 A primeira flecha acertou um Glydar no pescoço. Ele caiu sem som, as mãos fechadas na própria garganta, e o homem atrás tropeçou nele. A segunda veio de uma janela alta, atravessando o ombro de um Vendrar. Em seguida, pedras despencaram de uma passarela, lanças curtas foram arremessadas de um telhado, e uma fileira de soldados Polar surgiu nas posições superiores como se a própria cidade tivesse criado dentes.
 
-A aparente desordem obedecia a uma resposta organizada.
+As posições tinham sido preparadas antes de os invasores alcançarem a escadaria.
 
 Os homens de Kaendar tinham deixado a subida avançar o bastante para prender parte da aliança entre a escadaria e a rua estreita. Flechas vinham de cima, golpes vinham dos lados, e as janelas que pareciam vazias agora tinham braços, cordas e morte. Um Vendrar tentou recuar e esbarrou nos que ainda subiam do cais. Outro tentou avançar e levou uma pedra na cabeça. O som foi seco, definitivo.
 
@@ -184,7 +182,7 @@ Kaelina soltou um riso pequeno, seco e sem humor.
 
 — Você invadiu minha cidade com uma faca no meu pescoço e quer falar de escolhas?
 
-Rendar olhou para ela então. Não havia arrependimento no rosto dele, mas havia algo pior: atenção. Ele a estudava como estudaria pegada em lama fresca, não para admirá-la, mas para entender quanto peso passara por ali.
+Rendar olhou para ela então. Rendar estudava o rosto dela, atento ao que dizia, mas sem qualquer sinal de arrependimento.
 
 — Quero saber qual das duas governa de verdade.
 
@@ -194,11 +192,11 @@ Kaelina sustentou o olhar dele. A fraqueza tornava tudo mais difícil. Manter a 
 
 Rendar ficou quieto. Lá fora, uma flecha bateu no batente da janela. Ele nem piscou.
 
-— Então é Alyra, o nome dela?
+— Então é Alyra quem está mandando atirar, mesmo com você aqui?
 
-— Achei que eram caçadores. Os Fendelar. Mas nem ao menos nosso nome sabe? — perguntou Kaelina.
+— Não sei quem deu a ordem. E você parece pouco interessado em saber qual das duas está falando — respondeu Kaelina.
 
-— Eu não me importo com nomes. Pra mim vocês foram sempre a mesma coisa. Mas vejo que me equivoquei. Vocês são duas pessoas.
+— Até agora só precisei saber o que os Polar fizeram com meu clã.
 
 A frase saiu áspera.
 
@@ -214,25 +212,25 @@ Ela estava encostada à parede, com os pulsos marcados, a pele acinzentada, uma 
 
 — Você ameaça mal.
 
-— Ameaço mal? Você não me parece um estrategista de batalha. Não é inteligente entrar numa fortaleza como Kaendar e esperar sair vivo dela. O que você quer afinal? Por que quer a mim e Alyra?
+— Você conseguiu entrar, mas ainda tem vários anéis pela frente. Acha mesmo que vai encontrar Alyra e sair vivo daqui? O que pretende fazer com ela?
 
 Do lado de fora, alguém gritou que a passagem estava abrindo. Rendar não se moveu ainda. Havia outra coisa nele, uma dívida que subia à boca porque talvez aquela fosse a única forma de ferir Kaelina sem encostar a faca.
 
 — Sua irmã é uma assassina. Ela matou meus amigos… meus parentes… minha família.
 
-— Ela não matou ninguém. Vocês mataram um dos nossos. Nós respondemos.
+— Não sei tudo o que Alyra ordenou em Mirval. Mas também não vou deixar você matá-la sem responder pelo que fez aqui.
 
-— O Polar que foi enviado até nós para nos obrigar a nos submeter a vocês foi devorado por um Raukhar.
+— O enviado Polar que desceu a trilha de Mirval encontrou um Raukhar. Foi a fera que o matou.
 
 Kaelina sentiu o estômago apertar.
 
 — Isso é mentira.
 
-— Eu vi, soberana. O que sobrou dele. Pouca coisa.
+— Encontrei a fivela, o estandarte rasgado e os rastros da fera. Não encontrei o corpo. Avara ainda o tinha avisado para não descer por ali.
 
 Ela queria responder. Mas não disse nada. Talvez porque, depois de tudo o que ouviu e pesquisou nos últimos dias, não acreditava em mais nada. Rendar voltou à janela.
 
-— A tua Dinastia transformou uma fera em homem para poder matar gente pequena demais para se defender na história.
+— Depois mandaram homens para Velarim e deixaram um talismã Tondrar entre os mortos. Eu sei o que vi. Aqueles homens não eram Tondrar.
 
 Um movimento na rua fez o corpo dele mudar. Kaelina percebeu antes que ele falasse. O caçador ouvira algo onde ela só ouvia caos.
 
@@ -286,7 +284,7 @@ Eles saíram pelos fundos.
 
 Duas flechas bateram na parede atrás deles antes que alcançassem a viela. Kaelina não soube se vieram de homens de Rendar, de Glydar perdidos ou de soldados Polar que viam movimento onde só podiam imaginar inimigo. Marken a puxou por uma passagem estreita entre duas casas. Um homem armado surgiu na esquina e correu na direção deles. Marken empurrou um varal baixo, derrubando roupas, fibras e uma tábua sobre o caminho. O homem tropeçou, e Kaelina, por instinto, chutou um cesto vazio contra a perna dele antes de seguir. A dor do esforço subiu até sua cabeça como luz branca.
 
-A cidade parecia ter enlouquecido sem perder inteligência.
+Kaendar não desmoronara. A defesa reagia de maneira organizada.
 
 Isso era o pior. Kaendar não gritava como povo vencido. Ela respondia. Homens corriam com ordens. Guardas fechavam grades internas. Feridos eram arrastados para dentro de depósitos. Famílias escapavam por corredores de serviço. Uma mulher carregava um bebê sob o manto e uma faca entre os dentes. Dois velhos tentavam abrir a porta de uma casa vizinha com os ombros enquanto fogo lambia a beirada de um telhado. Em uma esquina, três soldados Polar formavam barreira com escudos para que crianças atravessassem.
 
@@ -316,7 +314,7 @@ Kaelina odiou a frase porque era verdade.
 
 — Venha comigo.
 
-Ele não gritou. Não suplicou. Não explicou. E talvez por isso ela obedeceu, furiosa com ele, consigo mesma e com o próprio corpo. Eles atravessaram uma passagem coberta, desceram dois degraus apenas para subir doze depois, cruzaram um corredor de depósito onde sacos de sal tinham sido rasgados e deixavam o chão branco como osso. O Anel Baixo ficou para trás aos poucos, não de uma vez. A subida por Kaendar era trabalho. Sempre fora. A cidade ensinava hierarquia com pedra, escada e fôlego. Quem subia entendia o próprio lugar antes de chegar.
+Ele não gritou. Não suplicou. Não explicou. E talvez por isso ela obedeceu, furiosa com ele, consigo mesma e com o próprio corpo. Eles atravessaram uma passagem coberta, desceram dois degraus apenas para subir doze depois, cruzaram um corredor de depósito onde sacos de sal tinham sido rasgados e deixavam o chão branco como osso. O Anel Baixo ficou para trás aos poucos, não de uma vez. A subida por Kaendar era trabalho. Sempre fora. Quanto mais subiam, mais longe ficavam das casas apertadas e das pessoas que tentavam salvar o pouco que tinham.
 
 Kaelina apoiou a mão numa parede úmida e parou para respirar. A subida repuxara os pontos até a lateral do corpo arder sob a faixa. Ela pressionou o flanco por alguns segundos e só continuou quando a dor deixou de pulsar no ritmo do coração. O som do cais ainda chegava, mas agora vinha misturado ao bater de sinos internos e ao rumor das oficinas do Anel Médio sendo fechadas às pressas. Havia cheiro de fumaça, ferro quente apagado rápido demais, couro queimado, peixe, sal e gente assustada. Passaram por fundos de forjas onde aprendizes carregavam barras de metal para dentro, por uma casa de contagem com tábuas espalhadas pelo chão, por um corredor onde um homem chorava segurando a perna aberta e mandando outro continuar sem ele.
 
@@ -324,7 +322,7 @@ Kaelina queria parar para cada um. Não podia. O rosto dela começou a esfriar. 
 
 Eles chegaram a uma área menos tomada pela batalha, não silenciosa, apenas mais distante do primeiro choque. Corredores de serviço ligavam o Anel Médio a partes antigas da cidade, onde a pedra era mais velha, mais escura e menos polida. Ali, a luz das tochas era menor. As paredes tinham marcas de reparos antigos, algumas cobertas por camadas de argamassa, outras ainda mostrando a forma rude de uma Kaendar que fora abrigo antes de ser símbolo.
 
-Foi quando Kaelina viu Daryon. Ele atravessou o fim de um corredor lateral, sozinho.
+Foi quando Kaelina viu Daryon atravessar o fim de um corredor lateral, sozinho.
 
 Por um instante, ela achou que a tontura havia criado o rosto dele. Mas não. Era Daryon, com a postura controlada mesmo em meio à ruína da noite, o manto escuro preso de modo simples, os movimentos rápidos, porém não apressados. Ele não olhava em volta como quem procura ordem. Movia-se como quem já sabia que ordem seguir. Kaelina prendeu a respiração.
 
@@ -340,7 +338,7 @@ Kaelina ficou imóvel.
 
 Marken conduziu Kaelina por um corredor paralelo, tão estreito que ela precisou virar o corpo para passar em alguns trechos. A parede raspava seus ombros. A pedra ali era fria, úmida e cheirava a pó antigo. O barulho da batalha ficou abafado à medida que avançavam. Por uma abertura quase invisível, Marken empurrou uma placa de madeira escura coberta por poeira, e os dois entraram num espaço estreito entre paredes, um vazio estrutural escondido dentro de Kaendar.
 
-A passagem seguia o mesmo rumo de Daryon, mas não o mesmo caminho. Isso Kaelina entendeu pela inclinação do piso e pelo som distante de passos à frente, abafados por pedra. Marken conhecia o lugar. Não como quem aprendeu em mapa. Como quem já havia caminhado ali em outra vida, ou em muitas.
+A passagem seguia o mesmo rumo de Daryon, mas não o mesmo caminho. Isso Kaelina entendeu pela inclinação do piso e pelo som distante de passos à frente, abafados por pedra. Marken conhecia o lugar. Encontrava passagens onde Kaelina só via parede e não precisava parar para escolher o caminho.
 
 — Para onde ele vai? — sussurrou Kaelina.
 
@@ -350,10 +348,10 @@ Kaelina e Marken chegaram a uma abertura estreita no fim da passagem. Do outro l
 
 Kaelina sentiu um frio mais fundo que a noite. A voz de Daryon ficou mais clara. Então uma mulher respondeu.
 
-Kaelina se aproximou da fenda com cuidado, apoiando-se na parede para que o corpo não traísse o silêncio. Viu primeiro a borda de uma mesa. Depois uma mão. Dedos finos, secos, parados ao lado de uma lamparina. Viu tecido escuro, cabelo preso sem cuidado, pele marcada por uma vida que não passara em paz. Quando o rosto da mulher virou de leve para a luz, Kaelina reconheceu. Ylvena.
+Kaelina se aproximou da fenda com cuidado, apoiando-se na parede para que o corpo não traísse o silêncio. Viu primeiro a borda de uma mesa. Depois uma mão. Dedos finos, secos, parados ao lado de uma lamparina. Viu tecido escuro, cabelo preso sem cuidado, pele marcada por uma vida que não passara em paz. Quando o rosto da mulher virou de leve para a luz, Kaelina reconheceu.
 
-O nome não precisou ser dito para ocupar o cômodo inteiro dentro dela. A mulher que encontrara Orionus morto. A mulher acusada de envenenar o soberano. A mulher inocentada depois de registros confusos, testemunhos alterados, dúvida suficiente e medo demais. A mulher que deixara Kaendar depois do escândalo, exilada das terras Polar, apagada dos corredores como se nunca tivesse sido mais que uma ferida inconveniente na memória da Dinastia.
+Marken segurou seu braço antes que ela batesse na parede.
 
-Ylvena estava ali, escondida em Kaendar durante o cerco, diante de Daryon.
+Ylvena. A mulher acusada de envenenar Orionus estava viva, escondida sob Kaendar.
 
-Kaelina sentiu a mão de Marken tocar de leve seu braço, avisando-a para não se mover. A fraqueza, o medo e a revelação a prenderam mais do que qualquer corda.
+E Daryon acabara de entrar no quarto dela.

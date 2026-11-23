@@ -196,7 +196,7 @@ Um matagal alto cobria quase toda a frente do terreno e, lá atrás, surgia a ca
 
 — Uau. É enorme — disse Kelly.
 
-— Pois é. Eu moro aqui perto há anos e nunca senti a menor vontade de fazer o que a gente tá prestes a fazer.
+— Pois é — falei. — Eu moro aqui perto há anos e nunca senti a menor vontade de fazer o que a gente tá prestes a fazer.
 
 Kelly entrou primeiro no mato. Do outro lado, havia madeiras velhas empilhadas e uma escadinha até a porta.
 
@@ -405,6 +405,8 @@ Engoli seco.
 — Esse Ibliso é o lobisomem? — perguntou Kelly.
 
 — Ibliso não é lobisomem. É o nosso cachorro.
+
+— Chama aquele bicho peludo de cachorro da família? — perguntou Pedro, indignado.
 
 — Diz pra gente: quem matou o garoto que entrou aqui essa semana? — perguntei.
 
@@ -630,7 +632,7 @@ Ela olhou bem nos meus olhos antes de continuar:
 
 Eu ainda não tinha pensado assim. Aos poucos, tudo começou a se encaixar.
 
-— O menino disse que a avó usa os olhos pra fazer a gente dormir. Na noite em que o Pedro dormiu lá em casa, eu vi dois olhos brancos enormes antes de apagar. Aposto que eram dela.
+— O menino disse que a avó usa os olhos pra fazer a gente dormir — falei. — Na noite em que o Pedro dormiu lá em casa, eu vi dois olhos brancos enormes antes de apagar. Aposto que eram dela.
 
 — Ele disse que o cachorro sente cheiro — completou Pedro. — O lobisomem que eu vi na sua casa e depois na floresta era o Ibliso. A carne podre deve chamar tanta atenção que ele não resiste.
 

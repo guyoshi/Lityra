@@ -70,7 +70,7 @@ O silêncio agora foi mais longo.
 
 Eu não queria ouvir, mas ela continuava. 
 
-— Você não faz ideia do buraco que ficamos ao perder Kelly e você ao mesmo tempo. 
+— Você não faz ideia do buraco que ficamos ao perder Kelly e você ao mesmo tempo. Já tínhamos enterrado o Enzo. Agora passo dias sem saber se a minha outra filha está viva. 
 
 — Eu não vou ouvir isso — falei. 
 
@@ -168,29 +168,37 @@ Depois do almoço improvisado, peguei a bolsa e saí para o mercado. Precisava d
 
 No mercado, passei pelas marcas que costumava comprar e fui direto às prateleiras mais baratas. Comparei dois pacotes de bolachas durante tanto tempo que uma senhora me perguntou se precisava de ajuda. Precisava de um emprego, não de ajuda com bolachas. Peguei pão, uma refeição pronta e o pacote mais barato.
 
-Eu já estava indo para o caixa quando vi.
+Eu já estava indo para o caixa quando vi uma garota no fim do corredor, parada diante das conservas. Estava de costas, com os cabelos escuros colados à roupa. A cabeça pendia um pouco para o lado. Ela não segurava cesto nem carrinho.
 
-Nada de visão nem de espírito: só o reflexo num conjunto de copos de vidro, daqueles empilhados, transparentes, alinhados com perfeição. Eu passei por eles e, por um segundo, vi o rosto dela no brilho do vidro. O mesmo ângulo do queixo, a mesma expressão de quem me olhava como se eu fosse um problema difícil de amar.
+Havia gente no mercado. Um funcionário passava preços de um papel para as prateleiras, duas senhoras discutiam o valor do arroz. Aquela garota podia ser qualquer pessoa. Eu disse isso a mim mesma e fui para o corredor seguinte.
 
-Meu corpo reagiu primeiro. Parei no meio do corredor, segurando o cesto com força demais, encarando os copos como uma idiota. A luz do mercado era cruel, branca, fazendo tudo parecer mais feio e mais verdadeiro, e mesmo assim aquele reflexo insistia.
+Ela estava lá outra vez, na outra ponta, entre os pacotes de açúcar. Não a vi passar. A luz branca batia em seu pescoço, revelando manchas escuras sob o cabelo. Eu parei. O cesto começou a pesar na minha mão.
 
-Eu pisquei rápido, virei o rosto, voltei a olhar. Nada. Só o meu. Só eu, com uma cara que eu não reconhecia direito.
+— Kelly? — escapou, antes que eu conseguisse me impedir.
 
-Continuei andando, com a garganta apertada. Não sabia se estava com mais saudade da Kelly ou com mais raiva dela.
+A garota virou. Primeiro o ombro, depois a cabeça. Parte da bochecha havia desaparecido, deixando os dentes expostos. Um dos olhos parecia ter encolhido para dentro. Reconheci o rosto apesar de tudo; foi isso que me apavorou. A boca mexeu, e ouvi o som de uma voz saindo muito perto do meu ouvido, embora ela estivesse a vários metros.
 
-Do lado de fora, o vento bateu no meu cabelo e eu respirei como quem sai de um lugar sem oxigênio. Caminhei até minha casa com as sacolas batendo na perna.
+— Agora você olha pra mim.
+
+Ela começou a andar. As pernas se moviam depressa demais para a velocidade do corpo. Eu recuei e derrubei o pacote de bolachas. Uma senhora passou entre nós empurrando um carrinho e reclamou do pacote no chão. Quando ela se afastou, não havia ninguém no corredor. A voz também tinha sumido.
+
+Deixei o cesto no primeiro balcão que encontrei. O funcionário perguntou se eu ia levar as compras. Não consegui responder. Saí de mãos vazias. Na rua, ainda ouvi o carrinho de supermercado atrás de mim, rodando sobre o piso liso. Virei. Havia só um menino com um saco de pão.
+
+Pensei em telefonar para Jason. Ele tinha perguntado tantas vezes se eu estava bem. Talvez acreditasse em mim. Mas como contar que eu vira o rosto apodrecido da minha irmã no meio dos pacotes de açúcar? Guardei o celular. Eu estava começando a gostar dele de verdade. Não queria que ele olhasse para mim e visse apenas alguém que precisava de ajuda.
+
+Voltei para casa com as mãos vazias, ainda sentindo o peso do cesto.
 
 Enquanto destrancava a porta, pensei, sem querer: será que o Pedro e a Jennifer tinham conseguido encontrar a minha avó? Eu os imaginava correndo atrás de respostas, insistindo em verdades que ninguém queria ouvir, e uma parte de mim, a parte que eu odeio admitir que existe, queria estar com eles.
 
 Porque, no fim, era isso. Aqueles pirralhos irritantes eram os únicos que sabiam a verdade inteira sobre a Kelly. Não a versão de velório, não a de mãe em luto, não a de gente que precisava de um culpado para conseguir dormir. E, por mais que eu quisesse fingir que já tinha superado, eu era a única em São Paulo carregando o diário dela dentro da bolsa como se fosse um órgão do meu corpo.
 
-Comi no sofá com a televisão ligada, volume baixo, qualquer programa que me deixasse pensar em nada. Não funcionou. A fome sumiu no meio do prato e larguei o resto. Arrumei duas coisas, desarrumei três. Abri o diário da Kelly e fechei de novo sem ler. Palavras eram perigosas, porque lembravam que minha irmã tinha sido uma pessoa inteira, com pensamentos, sonhos, culpa, e que eu tinha sido só o lado escuro da história, por muito tempo.
+Comi no sofá ouvindo a televisão da vizinha atravessar a parede. A minha continuava quebrada, encostada num canto desde aquela noite. Não funcionou como distração. A fome sumiu no meio do prato e larguei o resto. Arrumei duas coisas, desarrumei três. Abri o diário da Kelly e fechei de novo sem ler. Palavras eram perigosas, porque lembravam que minha irmã tinha sido uma pessoa inteira, com pensamentos, sonhos, culpa, e que eu tinha sido só o lado escuro da história, por muito tempo.
 
 Perto do fim da tarde decidi me arrumar. Não porque estivesse animada, mas porque ficar em casa me fazia sentir pequena, e eu detestava me sentir pequena.
 
 Tomei banho de novo, prendi o cabelo de um jeito que parecia desleixado, mas era calculado. Perfume, uma blusa preta justa de alça, uma calça de cintura baixa, um cinto de fivela brilhante, um salto que eu odiava mas que me fazia parecer alguém sem medo de nada. Batom mais escuro, delineador puxado, meio agressivo. Se eu ia sair, ia sair parecendo que escolhi isso.
 
-Quando bateram na porta, eu já estava sentada com a TV ligada, fingindo que era só mais uma noite qualquer.
+Quando bateram na porta, eu já estava sentada com o rádio ligado, fingindo que era só mais uma noite qualquer.
 
 Abri a porta e Jason estava ali.
 
@@ -304,7 +312,7 @@ Olhei para ele, ainda desconfiada, e, por algum motivo estúpido, levantei.
 
 Saímos. Do lado de fora, o ar estava frio. O comandante nos guiou até um Mercedes-Benz classe S, preto, daqueles que eu só via em filme ou em novela, brilhando sob a luz da rua.
 
-Meu coração deu um salto.
+Meu coração deu um salto. Eu já tinha entendido que o pai de Jason tinha dinheiro. Mas aquele carro, com motorista me esperando na porta, parecia uma resposta para uma pergunta que eu nem havia feito. Olhei para Jason. Ele estava à vontade, como se nada daquilo fosse extraordinário.
 
 Jason abriu a porta para mim. Eu entrei devagar, ainda sem entender. Ele entrou depois, ao meu lado.
 
@@ -337,6 +345,18 @@ O outro homem, mais jovem, com sorriso fácil, acenou.
 Eu olhei.
 
 O helicóptero que nos dirigíamos era vermelho vivo, elegante, moderno demais para eu acreditar. Parecia coisa de celebridade.
+
+— Jason… você alugou um helicóptero?
+
+— Reservei um voo pra gente.
+
+— Isso deve custar uma fortuna!
+
+Ele abriu um sorriso, meio sem jeito.
+
+— Eu queria que fosse especial.
+
+Olhei para o helicóptero outra vez. Lembrei do Jason que eu conhecia da escola em Vila Velha, das conversas no intervalo e do baile. Como é que aquele garoto tinha se tornado alguém capaz de organizar uma noite dessas sem nem me avisar? Ou melhor, como é que eu nunca soube que ele podia? Eu tinha passado tanto tempo achando que conhecia as pessoas.
 
 Eu fiquei sem palavras. Eu, que sempre tinha palavra.
 
@@ -436,7 +456,21 @@ Quando nos afastamos, ele sorriu, divertido.
 
 — Não começa — eu murmurei, tentando recuperar a pose, falhando.
 
-Então começamos a conversar. Conversamos sobre o que podia fazer, para onde poderia ir. Sobre que faculdade gostaria de fazer. Ele ouviu de verdade, sem interromper, sem tentar consertar tudo com frases prontas.
+Então começamos a conversar. Conversamos sobre o que eu podia fazer, para onde poderia ir, sobre que faculdade gostaria de cursar. Ele ouviu de verdade, sem interromper, sem tentar consertar tudo com frases prontas.
+
+Depois me contou que já tinha prestado dois vestibulares para Educação Física. Gostava de esporte e queria trabalhar com aquilo, mesmo que o pai esperasse outra coisa. Ainda tinha mais uma prova pela frente e andava conferindo o resultado das outras como se isso fizesse a lista sair mais rápido.
+
+— Você vai passar — falei.
+
+— E se eu não passar?
+
+— Presta de novo, ué. Você não fica me dizendo pra não desistir das coisas?
+
+Ele sorriu.
+
+— Vai torcer por mim?
+
+— Já tô torcendo, besta. E, quando passar, não vai conseguir me fazer calar a boca.
 
 Em algum momento, ele comentou, quase como se fosse uma coisa qualquer:
 

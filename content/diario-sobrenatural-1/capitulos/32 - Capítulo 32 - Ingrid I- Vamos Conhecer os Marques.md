@@ -542,7 +542,7 @@ O ursinho me prendia àquilo. Enquanto meu Elo permanecesse inteiro, o demônio 
 
 A minha alma, entre todas as da casa, é uma das mais difíceis de controlar. Por isso às vezes eu escapo um pouco. Consigo avisar. Consigo ajudar. Foi assim que trouxe vocês para ver a verdade.
 
-O Meu Senhor sentiu cada um de vocês chegando. Jovens com culpas, desejos fundos, traumas frescos, sonhos grandes demais. Ele procurava alguém que pudesse servir ao fim que queria. Por isso me mandou trazer vocês. Com os seis perto da casa, ficou mais forte. Usou o Francis, o homem que matou meu pai e a mim, como ponte. Usou o pacto antigo, usou os Elos espalhados por vocês. Se aproximou devagar, testando corações, procurando aquele que abriria a porta por vontade própria.
+O Meu Senhor não precisou escolher seis pessoas. Primeiro sentiu algo diferente em um garoto. Depois foi puxando para perto dele quem podia ser útil: uma menina que ainda chorava pelo irmão, o melhor amigo do garoto, a irmã dela, o namorado da irmã. Usou o Francis, o homem que matou meu pai e a mim, como ponte. Fez chegar alguns Elos às casas, onde seus servos poderiam alcançar aqueles jovens. E havia Jennifer, que enxergava os mortos. Ele achou que podia assustá-la como aos outros. Com todos por perto, seus demônios alcançavam cada vez mais longe. Mas a porta dependia da escolha de um só.
 
 Ele acredita estar perto da alma que procura. Talvez mais perto do que vocês imaginam.
 

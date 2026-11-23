@@ -256,9 +256,9 @@ Obedecemos e sentamos no sofá, desconfortáveis por molhá-lo. A mulher pousou 
 
 Não sabia quem ia começar a explicar, mas quando eu ia abrir a boca, Jennifer foi mais rápida.
 
-— Eu tive um sonho. Neste sonho eu vi a casa de sua neta. E ela mencionou você enquanto conversávamos. E por alguma razão... eu sinto uma energia familiar aqui. Como se eu te conhecesse de algum lugar.
+— Sonhei com a casa da sua neta. Quando cheguei lá, ela falou da senhora. E agora estou aqui. Eu sei que parece estranho.
 
-— Você é uma médium — disse a senhora — eu sinto sua energia, menina.
+— Você vê os mortos, não vê? — perguntou a senhora, sem tirar os olhos de Jennifer.
 
 — Ela é mais do que uma médium. É uma selifa — disse Filipo.
 
@@ -266,7 +266,7 @@ Não sabia quem ia começar a explicar, mas quando eu ia abrir a boca, Jennifer 
 
 — Dezessete — respondeu Jennifer — por que a pergunta?
 
-— Porque selifas não costumam viver muito — respondeu Filipo — é por isso que são raras. Elas são muito procuradas por entidades e demônios. Porque podem ser usadas como porta de passagem entre mundos.
+— Meu avô dizia que poucas selifas chegam à idade adulta sem que alguma coisa venha atrás delas — respondeu Filipo. — Nunca soube se era verdade.
 
 — Epa, calma aí. Essa história de selifas não viverem muito, por acaso vocês já viram alguma selifa antes, para falar isso? Ou se baseiam em histórias contadas? — perguntei.
 
@@ -276,15 +276,15 @@ A senhora ficou um tempo olhando a chama mais próxima. Quando falou, falou deva
 
 — Então essas visões e esses pesadelos estranhos que eu tenho... — começou Jennifer.
 
-— Muitos deles são entidades querendo se conectar com você — disse a senhora — que bom que está sã e consciente.
+— Não sei dizer o que entra no sonho de outra pessoa — respondeu Olívia. — Mas sei como é acordar e encontrar uma coisa do sonho ainda dentro de casa.
 
 — O que quer dizer com isso? — perguntou Jennifer.
 
-— Não é fácil ser quem somos — disse a senhora. — Alguns enlouquecem. Não pedimos para ser médiums. Não pedimos para ver tudo aquilo que vemos. Mas nascemos assim, e temos de aceitar nosso destino. Mas você, menina, sendo uma selifa, tem um fardo maior nas costas. Você é como se fosse um radar para as criaturas mais terríveis que existem.
+— A Sara também começou assim. Um dia disse que havia alguém parado no quarto, olhando para a cama dela. No outro, não queria mais fechar os olhos. — Olívia afastou a xícara. — E eu não soube ajudá-la.
 
 Jennifer hesitou e observou as teias de aranha nas altas telhas da casa da senhora.
 
-— É possível uma selifa controlar um espírito? — Jennifer perguntou. — Ontem eu pensei no que queria e dois deles me ajudaram. Não sei se escolheram fazer aquilo.
+— Ontem eu quis uma coisa e dois espíritos fizeram exatamente aquilo — Jennifer disse. — Não sei se escolheram me ajudar. É isso que me assusta.
 
 A Sra. Olívia pousou a xícara.
 
@@ -326,11 +326,11 @@ Fiquei sem jeito. Meu primeiro impulso foi fazer alguma piada sobre cavalos sent
 
 Olívia esperou Jennifer tirar a mão antes de falar.
 
-— Isso que você sentiu é a vitalidade dela. Os animais também a têm. Se consegue percebê-la desse jeito, talvez consiga perceber a dos mortos. Mas sentir não é mandar.
+— Sara chamava isso de vitalidade. Nunca conseguiu me explicar direito. Mas sentir alguma coisa não é o mesmo que poder mandar nela.
 
 — Então eu posso ter obrigado aqueles espíritos a me ajudar?
 
-— Pode ter pedido, e eles podem ter concordado. Também pode ter feito mais do que pedir, e essa diferença importa. Um espírito que percebe que foi usado pode se voltar contra você.
+— Não sei o que aconteceu naquele momento — disse Olívia. — Você também não. É essa parte que deveria incomodar.
 
 Jennifer olhou outra vez para Leila, que mastigava tranquila um punhado de palha, e enxugou o rosto com a manga, ainda sorrindo.
 
@@ -472,7 +472,7 @@ Olívia não respondeu. Olhou para o espelho coberto mais próximo e demorou a d
 
 — Eu não imaginei que ela faria isso — a senhora disse, olhando para o chão, os olhos marejados.
 
-— Eu sinto muito — disse Jennifer. — Não é culpa sua. São eles que fazem isso com a gente. Querem que a gente se sinta fraca. Mas a senhora continuou mesmo depois de perder a Sara, formou uma família, ainda está de pé. Onde quer que ela esteja, deve estar feliz pela senhora.
+— Eu sinto muito — Jennifer disse. Estendeu a mão por cima da mesa, mas Olívia continuou olhando para o espelho coberto.
 
 — Depois que perdi a Sara para sempre, descobri que não havia só um demônio na cidade. Havia outros. E havia uma força que eu sentia todo dia, muito diferente de um demônio. Não sei se é esse devorador de almas, mas, assim que fiz dezoito anos, abandonei a cidade. Fugi da casa dos meus pais e fui para longe.
 
@@ -486,11 +486,11 @@ Ela respirou fundo antes de continuar.
 
 — Mas como? — perguntou Filipo. — Como derrotar uma coisa que nem sabemos o que é?
 
-— A resposta está com ela. — Apontou para Jennifer. — Você é uma selifa. Uma médium muito poderosa. Pode viajar entre os mundos e até levar alguém junto. Para isso precisa aprender a arte de ser uma selifa. Eu posso te ensinar o que sei, mas sugiro que deixe seus amigos irem embora.
+— Eu não sei derrotar essa coisa — disse Olívia. — E não vou fingir que sei. Há maneiras de reconhecer quando alguma coisa se aproxima. Posso mostrar à Jennifer o que aprendi, mas seria melhor que os amigos dela fossem embora.
 
 — O quê? Como assim? — perguntei.
 
-— Vou te ajudar a fortalecer a mente e a alma. Quando eles perceberem que não conseguem te ferir, vão tentar de outras formas. As pessoas que você mais ama. E a gente faz grandes burradas por quem ama.
+— Essas coisas não precisam atacar a pessoa que procuram — respondeu Olívia. — Às vezes basta chegar perto de quem ela ama. Foi assim que fizeram comigo.
 
 Houve um silêncio, e a senhora o quebrou.
 
@@ -537,17 +537,49 @@ No ano anterior, quando eu, Junior e Kelly ficamos perdidos na floresta, meus pa
 
 Quis ligar. De verdade. Mas, se descobrissem onde estávamos, viriam me buscar. Já bastava o Cara-de-Larva atrás de mim. Não queria que também fosse atrás dos dois. Decidi que procuraria uma maneira de avisar que estava vivo, sem dar o endereço. Era o mínimo que eles mereciam.
 
+— Posso perguntar uma coisa? — falei para o teto. — Na casa do Mike, quando aquela coisa entrou, eu estava vendo a quadra da escola. A turma inteira rindo de mim. Foi tão de verdade que eu senti o chão embaixo do tênis.
+
+O colchão rangeu quando Jennifer se virou na minha direção.
+
+— Não tinha quadra nenhuma, Pedro. Você ficou parado na sala, agarrado ao sofá.
+
+— Pois é. Bela notícia.
+
+— No hospital, eu ouvi minha mãe me chamar de dentro do quarto dela — Jennifer disse. — Estava no corredor de casa. Eu senti a maçaneta na mão. Aí você me puxou e era uma parede de hospital.
+
+Filipo demorou a falar.
+
+— Eu vi meu pai naquela escada. Ele estava vivo, sentado me esperando. Sabia que ele tinha morrido, mas, na hora, não importou. Eu fui até lá.
+
+— E ele pegou você — falei.
+
+Filipo assentiu na escuridão.
+
+— Então a gente não estava vendo as mesmas coisas — Jennifer murmurou.
+
+— O meu pai viu a Manu na sala — Filipo falou. — Ela não estava lá, mas ele foi até ela.
+
+— Você acha que aquela coisa faz a gente enxergar o que ela quer? — perguntei.
+
+— Acho que faz a gente parar onde ela quer — ele respondeu.
+
+— Então da próxima vez eu fecho os olhos.
+
+— E corre pra onde, Pedro? — Jennifer perguntou. — Pra cima dele?
+
+Não soube responder. Meu corte não tinha desaparecido quando a quadra desaparecera. O Mike também não voltara. Eu não sabia mais qual parte da próxima coisa horrível podia ser falsa, e descobri-la na hora errada parecia uma maneira excelente de morrer.
+
 — Não consegue dormir? — ouvi Filipo dizer. Ia me virar para respondê-lo, mas vi que ele falava com Jennifer.
 
 — Não sei se consigo. Disse que eles conseguem nos achar pelos sonhos, não é? — perguntou minha amiga.
 
-— Não disse isso. Disse que nos sonhos estamos mais vulneráveis. A questão é você saber controlar isso. Evite dormir com a cabeça cheia de problemas, evite pensar nas coisas ruins... não dê brechas para que eles te encontrem. No início cada sonho era uma tortura. Ver minha irmã sendo torturada. Ele estava me usando. Eu sei que ela está escondida. Ele não a achou ainda. Porque quando durmo preocupado, ele enche minha mente com esses pesadelos, para que eu volte para Alvorada.
+— Não sei o que entra no sonho dos outros — respondeu Filipo. — Só sei que ele usa a Manu nos meus. Às vezes acordo ouvindo a voz dela no corredor, e não sei dizer quando parou o sonho.
 
-— E como você faz isso? Relaxa a mente? — perguntou Jennifer.
+— E o que você faz quando acorda? — perguntou Jennifer.
 
-— Durma pensando em uma lembrança boa. Em momentos bons que teve com alguém. Mas não deixe que essa lembrança se torne triste — aconselhou-a Filipo.
+— Acendo a luz. Espero ter certeza de que estou sozinho. Às vezes demora — respondeu Filipo.
 
-Jennifer não respondeu, mas concluí que tinha assimilado. Eu lutei para dormir. A imagem do Cara-de-Larva, as larvas espalhadas pelo chão, todas aquelas coisas assustadoras me apavoravam. O peito começou a chiar, e tomei uma dose da bombinha debaixo do cobertor, para ninguém ouvir. O tempo todo eu abria os olhos procurando algo ou alguém. A casa não dormia. O vento passava as unhas pelas telhas, devagar, de uma ponta à outra do telhado, e parava. Em algum lugar acima do forro, alguma coisa rolou e foi encontrar a parede. Uma vez, uma tábua do corredor gemeu sob um peso, um passo e meio, um passo e meio, e eu pensei na Olívia, e tive vergonha de ter pensado. Do lado de fora, o tilintar dos vidrinhos do portão veio subindo o caminho até a janela e foi embora de novo. Casa velha fala, eu disse a mim mesmo, três vezes, como se a casa precisasse ouvir. Foi então que notei uma luz no quarto. Vinha de um pequeno ponto luminoso na cama de Jennifer. Levantei, ajoelhei ao lado da cama e vi que era o celular que tínhamos roubado. Roubar é uma palavra forte, cara... nós pegamos emprestado.
+Jennifer não respondeu. Eu lutei para dormir. A imagem do Cara-de-Larva, as larvas espalhadas pelo chão, todas aquelas coisas assustadoras me apavoravam. O peito começou a chiar, e tomei uma dose da bombinha debaixo do cobertor, para ninguém ouvir. O tempo todo eu abria os olhos procurando algo ou alguém. A casa não dormia. O vento passava as unhas pelas telhas, devagar, de uma ponta à outra do telhado, e parava. Em algum lugar acima do forro, alguma coisa rolou e foi encontrar a parede. Uma vez, uma tábua do corredor gemeu sob um peso, um passo e meio, um passo e meio, e eu pensei na Olívia, e tive vergonha de ter pensado. Do lado de fora, o tilintar dos vidrinhos do portão veio subindo o caminho até a janela e foi embora de novo. Casa velha fala, eu disse a mim mesmo, três vezes, como se a casa precisasse ouvir. Foi então que notei uma luz no quarto. Vinha de um pequeno ponto luminoso na cama de Jennifer. Levantei, ajoelhei ao lado da cama e vi que era o celular que tínhamos roubado. Roubar é uma palavra forte, cara... nós pegamos emprestado.
 
 A luz tinha se acendido, pois havia uma mensagem nova. De alguém não salvo nos contatos. Quando abri a mensagem vi escrito:
 

@@ -1,46 +1,46 @@
-Na sexta de manhã, Bruno passou pelo corredor dos painéis ensaiando um pedido de desculpas que ainda não tinha começo. Já tinha meio, que era "eu não sabia", e tinha o fim, que era "foi mal", mas faltava a parte do meio entre as duas, a que fazia o resto valer alguma coisa. Tinha dormido pouco. Cada vez que fechava os olhos via a luz dourada se encolhendo dentro do gelo e Dário parado com os cacos nas mãos, e acordava com a palma da mão fria.
+Na sexta-feira, Bruno atravessou o corredor dos painéis ensaiando uma desculpa para Dário. Tentou várias, mas todas acabavam na mesma imagem: o rapaz descendo a encosta de Verna, chorando, depois de deixar a brasa apagar. Bruno quase não dormira.
 
-No refeitório, ao passar pela porta, encontrou Amadou de pé em cima de um banco, contando alguma coisa a uma roda de seis aprendizes, com os braços abertos e a voz no tom de quem narra uma batalha. Parou de falar quando viu Bruno. Os seis se viraram ao mesmo tempo, e Bruno entendeu sem que ninguém explicasse que a corrente de Verna já tinha virado história, e que ele era o herói ou o vilão dela, conforme a pessoa que contasse.
+No refeitório, Amadou estava em pé sobre um banco, gesticulando para seis aprendizes reunidos em volta. Parou de falar quando viu Bruno. Os seis olharam para Bruno. Pelo jeito de Amadou esconder as mãos, já sabia qual era o assunto.
 
-— Eu só disse que foi genial! — Amadou desceu do banco depressa, com a cara de quem sabe que fez besteira e ainda espera um elogio. — Mas também falei que ninguém sabe quem escreve a carta, e que o Dário não confirmou nada. Eu estou sendo justo com todo mundo.
+— Eu só contei o que aconteceu! — Amadou desceu do banco depressa. — Falei que a Brenda e o Dário terminaram depois daquela história da carta, e que ele perdeu a prova. Mas também falei que ninguém sabe de quem era!
 
-— Você está espalhando — disse Bruno. — Eu pedi que não contasse a ninguém, véi.
+— Você tá espalhando de novo — disse Bruno. — Para com isso, véi.
 
-— Você não pediu nada. Você falou "foi justiça" e saiu andando.
+— Você que inventou a história, Bruno. Agora quer que ninguém fale dela?
 
-Bruno não respondeu. Pegou uma bandeja, deixou-a vazia na ponta da mesa e saiu pelo outro lado do refeitório com a fome fechada na garganta. Brenda atravessou o corredor no mesmo momento, de cabelo preso, com duas amigas atrás. Passou por ele sem diminuir o passo e sem desviar os olhos, o rosto firme e a boca apertada, e foi esse rosto que o fez parar. Ela não estava zangada com ele. Estava cansada de um jeito que não tinha nada a ver com a corrente, e ele soube, antes de entender o porquê, que ela não tinha sabido de nada daquilo antes de quinta-feira.
+Bruno não respondeu. Pegou uma bandeja, mas a devolveu vazia e saiu do refeitório sem comer. Brenda atravessou o corredor no mesmo momento, de cabelo preso, com duas amigas atrás. Brenda passou sem falar com ele. Estava com os olhos vermelhos e não parecia ter dormido bem. Bruno pensou em chamá-la, mas ela já tinha dobrado o corredor.
 
 — Garoto.
 
-A voz veio de um banco de pedra encostado à parede, atrás de uma coluna. O homem sentado ali era o mesmo da encosta, alto, de barba curta e cabelo grisalho cortado rente, com o casaco escuro aberto, um cachecol azul enrolado duas vezes no pescoço e os cotovelos nos joelhos e as mãos soltas entre as pernas. Tinha o rosto de quem acordou cedo e não pretende reclamar.
+A voz veio de um banco de pedra encostado à parede, atrás de uma coluna. Era o homem da encosta, com o mesmo cachecol azul de Verna e os cotovelos apoiados nos joelhos. Tinha olheiras fundas e não parecia disposto a conversar muito.
 
-— Senta — disse ele. — Eu sou o Tango. Sou o tutor do Dário, o que na prática quer dizer que passei a quinta inteira ouvindo um garoto respirar e fingindo que não percebia. Você tem dez minutos de sorte.
+— Senta aí. Sou Tango, tutor do Dário. Passei a noite com ele depois da prova. Tenho dez minutos antes da minha próxima turma.
 
 Bruno sentou. O banco estava frio e a pedra devolveu o frio para as costas. Pensou em dizer alguma coisa, mas Tango levantou a mão enluvada, e ele desistiu.
 
-— Vou ser direto, porque estou cansado e você não tem idade para ser poupado — continuou Tango. — Você acertou o Dário na única parte que ele não consegue segurar. Pontaria de primeira, eu estava olhando. Preciso saber se foi de propósito ou sorte.
+— Vou perguntar uma vez só, Bruno. Você sabia de quem era a carta quando falou aquilo para a Brenda?
 
-— Eu achei que era carta de outra garota — disse Bruno, e a frase soou pior em voz alta do que na cabeça. — Vi o envelope no campo de treino, vi ele lendo atrás da carruagem. O Amadou falou que devia ser uma prima, uma menina da cidade, sei lá. — Ele engoliu. — Eu queria que a Brenda soubesse. Achei que ela merecia.
+— Não — respondeu Bruno. — Vi ele lendo no Arcano, na quarta. Nem sabia se era de uma garota. Eu falei aquilo pra Brenda porque fiquei com raiva de ver os dois juntos. Queria que eles brigassem. — Passou a mão no cabelo. — Aí terminaram mesmo. E ontem ele não conseguia nem segurar a brasa. Fiz uma baita besteira.
 
-— Eu sei o que você achou. — Tango esfregou o queixo. — O Amadou contou pra meia ala às sete da manhã, com detalhe que inventou no caminho. Agora escuta o que é. Depois você decide se foi pontaria ou pontaria errada.
+— O Amadou já espalhou essa história para meia ala, e cada um acrescentou um pedaço — respondeu Tango. — Dário não queria que eu falasse de assunto de família com você. Mas, depois do que houve, concordou que eu esclarecesse o suficiente para parar esse boato. É só com você. E não é licença para espalhar.
 
-Tango tirou do bolso do casaco uma maçã pequena e a girou entre os dedos, sem morder, e Bruno percebeu que era a primeira vez em dias que alguém lhe falava sem pressa.
+Tango tirou uma maçã do bolso e começou a girá-la entre os dedos. Bruno esperou, sem saber onde pôr as mãos.
 
-— O pai do Dário foi julgado pela Sociedade no ciclo passado — disse. — Reprovado. Mandado pra terceira dimensão, sem direito de voltar. Pra sua.
+— A carta é do pai dele — disse Tango. — Está na terceira dimensão, a sua. Foi enviado para lá depois de um julgamento da Sociedade.
 
-Ele disse "a sua" sem olhar, como quem aponta a direção de um lugar.
+Bruno ergueu a cabeça ao ouvir *a sua*.
 
 — Pra Terra? — Bruno sentiu o estômago afundar. — Por quê? O que ele fez?
 
-— O crime não é meu pra contar. — A maçã deu uma volta inteira. — O Dário jura que o pai não fez. Eu não tenho prova. Tenho a cara dele quando jura, e não é de garoto que mente por vergonha.
+— O motivo do julgamento não é meu pra contar. — A maçã deu uma volta inteira. — O Dário acredita que houve um erro. Eu não tenho como saber.
 
 — E você acredita? — perguntou Bruno.
 
-— Eu não julgo ninguém, nem o pai nem o filho. Sou tutor. A minha parte é fazer o menino aguentar o ciclo.
+— Não estou aqui pra julgar o pai. Sou tutor do Dário. Meu trabalho é ajudá-lo a terminar o ciclo.
 
 — E a carta é do pai? — perguntou Bruno.
 
-— É. A Sociedade autoriza uma por ciclo, lida antes por quem precisa ler. — Tango girou a maçã de novo. — O pai pediu uma coisa só: que o menino não contasse a ninguém de quem é filho.
+— É. A Sociedade autoriza uma por ciclo, depois de verificar o conteúdo. — Tango girou a maçã de novo. — O pai pediu que o menino mantivesse tudo em segredo enquanto estudava aqui.
 
 — Por quê?
 
@@ -48,25 +48,25 @@ Ele disse "a sua" sem olhar, como quem aponta a direção de um lugar.
 
 — Mano — disse Bruno, baixo. — Nem a Brenda sabia?
 
-— Nem a Brenda. — Tango balançou a cabeça. — O Dário leu a carta cinquenta vezes, eu contei. Prometeu ao pai e cumpriu, até quinta, quando você gritou o envelope pra uma encosta inteira.
+— Nem a Brenda. Dário estava fazendo tudo para cumprir a promessa. Você inventou uma história antes da prova, e agora tem gente que acredita nela. Até quem sabe do término acha que Dário fez alguma coisa errada.
 
-Bruno fixou os olhos na linha entre duas lajes. Lembrou-se de Dário alisando a jaqueta sobre o envelope e de como entendera tudo ao contrário.
+Bruno olhou para as lajes de pedra. Lembrou-se de Dário junto ao pilar do Arcano, depois que Brenda se afastou, apertando a jaqueta no lugar do envelope.
 
-— O Garmande sabe — disse Tango, e Bruno levantou a cabeça. — Você reparou no olhar dele, eu reparei que você reparou. Sabe desde o começo e nunca disse uma palavra. Não conta pra ninguém e não faz teoria. Você já fez teoria demais essa semana.
+— O Garmande sabe — disse Tango, e Bruno levantou a cabeça. — Ele sabe desde o começo e não disse a ninguém. Não conta pra ninguém e não faz teoria. Você já fez teoria demais essa semana.
 
 — Eu posso pedir desculpa?
 
-— Pode. Ele não vai ouvir hoje, e eu não esperaria que ouvisse. Mas peça. — Tango guardou a maçã sem tê-la mordido, levantou-se, ajeitando o cachecol, e olhou para o corredor. — E pare de olhar pra mim como quem pede pena. Não tenho. Tenho dois garotos tristes em vez de um, e minha turma chega em três minutos.
+— Pode pedir. Mas ele não é obrigado a aceitar. E não repita o que eu disse aqui. — Tango guardou a maçã, levantou-se e ajeitou o cachecol. — Agora tenho aula.
 
-Foi embora sem se despedir. Bruno ficou no banco até as pernas pararem de tremer. Quando se levantou, viu Dário no fim do corredor, saindo de uma sala lateral com um caderno debaixo do braço, de jaqueta azul e passo reto, os olhos no chão. Bruno andou em direção a ele antes de decidir andar.
+Foi embora sem se despedir. Bruno ficou no banco até as pernas pararem de tremer. Quando se levantou, viu Dário no fim do corredor, saindo de uma sala lateral com um caderno debaixo do braço, de jaqueta azul e passo reto, os olhos no chão. Bruno foi atrás dele.
 
-— Dário. — A voz saiu mais baixa do que ele queria. — Eu soube agora. Não sabia o que era a carta. Achei que era outra coisa, e fiquei com raiva por causa da Brenda. Foi burrice minha. Eu não devia ter falado na frente de todo mundo. Desculpa.
+— Dário, espera. — Bruno parou à frente dele. — Eu não sabia de quem era a carta. Inventei que tinha outra garota porque fiquei com ciúme da Brenda. Queria fazer vocês brigarem, mas não... — Engoliu em seco. — Eu vi você perder a prova. Fiz uma coisa muito pior do que uma piada. Desculpa.
 
-Dário parou. Os olhos escuros subiram devagar até o rosto de Bruno e ficaram ali um instante, sem raiva, sem acusação, sem nada que Bruno soubesse nomear. A mão dele foi ao peito e voltou.
+Dário parou. Olhou Bruno por alguns segundos, depois levou a mão ao bolso da jaqueta, onde guardava o envelope.
 
 — Eu estou atrasado — disse. E passou por ele pelo lado, de ombros retos, e continuou andando pelo corredor sem olhar para trás, até a esquina.
 
-Bruno ficou parado no meio da pedra fria. Em algum ponto da parede, o ar da manhã passou por uma frincha e fez um assobio fino. Banjo apareceu da escada, com Farol enrolado no pescoço e um seixo flutuando atrás da orelha, e parou a dois passos dele sem perguntar nada. Sentou-se no banco de pedra, e depois de um momento Bruno sentou-se também. O seixo ficou girando entre os dois, devagar, e eles ficaram vendo o seixo girar.
+Bruno continuou no corredor. Dário já tinha ido embora quando soaram passos na escada. Banjo apareceu com Farol no pescoço e um seixo flutuando ao lado da cabeça. Viu o rosto de Bruno e não perguntou nada. Sentou-se no banco de pedra, e depois de um momento Bruno sentou-se também. O seixo continuou a girar entre os dois, sem que nenhum dos irmãos o apressasse.
 
 Sábado, ao entardecer, o pátio de Lioro estava cheio de uma luz alaranjada que fazia o muro baixo parecer feito de brasa. Beatriz tinha terminado a tarefa de apagar a chama três vezes seguidas sem Breno olhar, e comemorava quicando contra o muro a bola amarela de BBBB quase apagados, com regras que mudavam a cada quique.
 
@@ -74,19 +74,73 @@ Sábado, ao entardecer, o pátio de Lioro estava cheio de uma luz alaranjada que
 
 Banjo lia no chão, de costas para a árvore velha, e já tinha desistido de contestar o placar. Farol, em cima do livro, virava a cabeça a cada quique e seguia a bola com os olhos, de cauda acesa e patas encolhidas, só não pulava porque estava de guarda. Breno escrevia no caderno, no banco do outro lado, e pedia silêncio a cada três quiques. A cada três quiques Beatriz passava a quicar mais devagar, com muita dignidade, para poder dizer que tinha colaborado. E Bruno, que desde a quinta-feira estava de mau humor sem fazer piada nenhuma, o que era bem pior, olhava para a parede de pedra como se esperasse que ela falasse primeiro.
 
-A campainha do portão tocou uma vez. Era uma campainha de latão que ninguém usava, e o som saiu torto, como se a mão que a puxava não soubesse bem a força.
+Velho-Sábio atravessou o pátio a caminho da rua, levando uns papéis debaixo do braço. Usava os mesmos mantos de sempre, o cajado e um par de óculos escuros de armação redonda. Breno levantou a cabeça do caderno.
 
-Beatriz foi abrir, porque era a mais perto, com a bola debaixo do braço. A barra de ferro com a marca da mão aberta estava fria quando ela a puxou, e a porta rangeu para dentro. Do outro lado havia uma mulher de capa curta de barra molhada, com a poeira da estrada até os joelhos e uma crista de barbatanas azuis e violeta caída para trás da cabeça. Trazia na mão esquerda um estojo comprido de madeira escura e, no ombro, uma bolsa de pano. Cheirava a água corrente. Os olhos dela eram cor de âmbar, com a pupila comprida na vertical, e Beatriz lembrou deles na hora, porque tinham olhado para ela uma vez com uma cara tão quieta que ela tinha ficado com medo de estragar alguma coisa.
+— O que aconteceu com o senhor?
+
+— Nada. — O mago ajustou os óculos. — O Banjo disse que seriam úteis.
+
+— Eu falei! — Banjo se levantou para ver melhor. — Ficaram bons!
+
+Bruno olhou do chapéu ao cajado e aos óculos. Não disse nada. Beatriz deu uma risadinha.
+
+— É muito mais fácil enxergar com eles — admitiu Velho-Sábio. — Por que ninguém me avisou antes?
+
+— Eu aviso desde quinta-feira — lembrou Banjo.
+
+O mago saiu pelo portão, fingindo não ouvir. Banjo voltou ao livro, bastante satisfeito. Tirou das páginas uma folha dobrada, alisou-a sobre o joelho e foi até Bruno.
+
+— Fiz pra você — disse.
+
+No desenho, os quatro irmãos atravessavam o céu montados numa pedra enorme. Breno tentava segurar todo mundo, Beatriz levava a bola numa das mãos, Banjo tinha Farol enroscado no pescoço e Bruno ia na frente, com uma espada de gelo e um sorriso que ocupava metade do rosto. Banjo escrevera embaixo, com letra torta: *Ninguém fica pra trás.*
+
+— Ficou engraçado, não ficou? — perguntou Banjo. — Fiz você maior porque não coube a espada de outro jeito.
+
+Bruno quase riu. Depois reparou no próprio sorriso. Na sua cabeça, Dário ainda estava descendo a encosta de Verna com o rosto escondido nas luvas. No desenho, Bruno parecia o sujeito que chegava para salvar todo mundo.
+
+— Pô, Banjo. Você acha que é só desenhar a gente feliz e pronto? — perguntou, devolvendo a folha. — Tem coisa que não se conserta com seus desenhinhos.
+
+— Eu sei. — Banjo segurou o papel pelas bordas. — Não era pra consertar nada.
+
+— Então pra que fica atrás de mim com isso? Eu já tenho o Breno no meu pé o dia inteiro.
+
+Banjo baixou a folha. Farol saiu de cima do livro e correu para perto dele, mas o menino não o pegou.
+
+Beatriz parou de quicar a bola.
+
+— Bruno, você é muito chato!
+
+— Quê? Eu só falei...
+
+— Ele ficou a tarde toda fazendo isso pra você! — Ela apontou para o papel. — Você nem olhou direito!
+
+— Eu olhei, Bia. Era brincadeira.
+
+— Então por que só você tá rindo? — perguntou ela.
+
+Bruno fechou a boca. Não estava rindo.
+
+— Você faz isso toda hora! Fala uma coisa feia e depois diz que tava brincando. O Banjo não tava brincando, Bruno. Ele queria te deixar feliz!
+
+— Deixa, Bia — pediu Banjo, quase num sussurro. Dobrou a folha uma vez, com cuidado demais, e voltou para o banco da árvore.
+
+— Não deixa, não — respondeu Beatriz. Mas já não gritou. — É nosso irmão, Bruno.
+
+Bruno olhou para Banjo, que guardava a folha no livro sem a mostrar a ninguém. Quis pedir para ver o desenho de novo. Não encontrou um jeito de chamar o irmão sem ouvir a própria voz de segundos antes.
+
+A campainha de latão tocou uma vez. Beatriz correu até o portão, com a bola debaixo do braço.
+
+Levantou a tranca, ainda segurando a bola debaixo do braço. A barra de ferro com a marca da mão aberta estava fria quando ela a puxou, e a porta rangeu para dentro. Do outro lado havia uma mulher de capa curta de barra molhada, com a poeira da estrada até os joelhos e uma crista de barbatanas azuis e violeta caída para trás da cabeça. Trazia na mão esquerda um estojo comprido de madeira escura e, no ombro, uma bolsa de pano. Cheirava a água corrente. Os olhos cor de âmbar, de pupilas verticais, eram familiares. Beatriz reconheceu a visitante antes mesmo de ver o rosto por inteiro.
 
 — Mereditha — disse Beatriz.
 
-— Oi, Beatriz. — A voz da mulher saiu fina e rachada. — Eu ensaiei o que ia dizer durante três dias de viagem, e acabou de sair da minha cabeça.
+— Oi, Beatriz. — Mereditha tentou sorrir. — Eu pensei tanto no que ia dizer quando chegasse... Agora esqueci tudo.
 
-Ela estava chorando. As lágrimas desciam sem barulho, pelas duas faces, e as escamas do rosto e do pescoço dela, que eram prateadas, foram passando a um violeta pálido devagar, como o céu quando está para chover. Beatriz achou aquilo bonito e achou que não devia dizer, e passou a bola para a outra mão para não derrubar na hora errada.
+Ela estava chorando. As lágrimas desciam sem barulho, pelas duas faces, e as escamas do rosto e do pescoço dela, que eram prateadas, foram passando a um violeta pálido devagar, como o céu quando está para chover. Beatriz passou a bola para a outra mão e ficou olhando as escamas mudarem de cor.
 
-— Você está chorando — disse, porque achou que alguém tinha de dizer.
+— Aconteceu alguma coisa? — perguntou Beatriz. — Por que você está chorando?
 
-— Estou. Eu choro fácil, e não é porque algum de vocês esteja mal. — Mereditha passou as costas da mão pelo rosto e riu, uma risada úmida. — É porque estão aqui, os quatro, inteiros, na minha frente. Posso entrar?
+— Não aconteceu nada de ruim, pequena. — Mereditha limpou o rosto e soltou uma risada curta. — É que fazia muito tempo que eu queria ver vocês quatro. Posso entrar?
 
 Os três garotos já estavam de pé, atrás de Beatriz. Breno fechou o caderno. Bruno olhou para a visitante com a testa franzida e uma ponta de reconhecimento, e Banjo tinha deixado o livro cair no chão.
 
@@ -100,105 +154,115 @@ Mereditha entrou. Fechou o portão atrás de si com cuidado, sentou-se no banco 
 
 — Tem som.
 
-Mereditha abriu o estojo. Dentro, deitados em quatro buracos de veludo cinza, havia quatro objetos que Beatriz nunca tinha visto juntos e que ela olhou um por um, devagar, para não esquecer nenhum. Havia uma gaita pequena, de madeira escura, com as pontas de latão gastas pelo uso. Havia um tambor curto, do tamanho de um prato fundo, de pele esticada e com uma argola de metal pendurada na lateral. Havia uma flauta fina, de osso claro, com furos em espiral. E havia uma forquilha de prata fosca, de cabo envolto em fio azul, do tamanho da mão de um adulto.
+Mereditha abriu o estojo. Quatro objetos descansavam em encaixes de veludo cinza. Beatriz tentou guardar cada detalhe na memória. Havia uma gaita pequena, de madeira escura, com as pontas de latão gastas pelo uso. Havia um tambor curto, do tamanho de um prato fundo, de pele esticada e com uma argola de metal pendurada na lateral. Havia uma flauta fina, de osso claro, com furos em espiral. E havia uma forquilha de prata fosca, de cabo envolto em fio azul, do tamanho da mão de um adulto.
 
-— Os Quatro Timbres — disse Mereditha. — Era assim que se chamavam, porque cada um responde com uma voz que não é de nenhum outro. Quem fez foi um artesão de Tayo que já morreu, para quatro amigos inseparáveis. Eram quatro e nunca cinco, por mais que eu tentasse entrar na conta.
+— São os Quatro Timbres — explicou Mereditha. — Um artesão de Tayo os fez para quatro amigos inseparáveis. Cada instrumento tem sua própria magia. Eu sempre quis fazer parte daquele grupo, mas eles já eram quatro quando os conheci.
 
 Ela parou, e Beatriz esperou. Os três garotos estavam imóveis atrás dela, olhando o estojo. Foi Bruno quem falou, com a voz mais baixa que Beatriz já ouvira nele.
 
 — De quem eram?
 
-— Dois eram dos pais de vocês. — Mereditha levantou os olhos molhados. — A gaita era de Gabrielle. O tambor era de Jack. Os outros dois eram de Kofi e Yumi, que partiram cedo demais. Eu costumo ficar quieta quando lembro deles, e hoje não consegui.
+— Dois pertenciam aos pais de vocês. — Mereditha passou os dedos pela borda do estojo. — A gaita era de Gabrielle e o tambor, de Jack. Os outros dois pertenciam a Kofi e Yumi. Também sinto muita falta deles.
 
 Beatriz olhou para a gaita e sentiu uma coisa apertar do lado de dentro do peito, sem avisar, e não soube se era alegria ou tristeza ou as duas juntas. Estendeu a mão e parou a um dedo da madeira.
 
 — Pode pegar — disse Mereditha. — Eu trouxe quatro, e não vou dizer quem pega qual. Vocês escolhem.
 
-Não foi preciso escolher. Beatriz pegou a gaita, que era mais leve do que parecia e estava morna de ter ficado no estojo, e a madeira cheirava a mãos. Bruno pegou o tambor, com cuidado, e passou o polegar na pele, e a pele deu um som baixinho de coisa velha. Banjo pegou a flauta com as duas mãos, como se fosse um vidro. E Breno, que tinha ficado um passo atrás, pegou o diapasão pelo cabo de fio azul e o segurou diante dos olhos, calado, estudando.
+Não foi preciso escolher. Beatriz pegou a gaita. A madeira estava morna; as pontas de latão tinham marcas de muitos anos de uso. Bruno pegou o tambor, com cuidado, e passou o polegar na pele, e a pele deu um som baixinho de coisa velha. Banjo pegou a flauta com as duas mãos, como se fosse um vidro. E Breno, que tinha ficado um passo atrás, pegou o diapasão pelo cabo de fio azul e o segurou diante dos olhos, calado, estudando.
 
-— Eu não precisei dizer — murmurou Mereditha, e sorriu, e dois fios de lágrima desceram de novo.
+— Eu não precisei dizer — murmurou Mereditha. Ela tentava sorrir e limpar os olhos ao mesmo tempo.
 
 — Como é que funciona? — perguntou Breno, que não gostava de usar o que não entendia.
 
-— Não funciona por obrigação. Eles respondem a quem junta toda a magia que tem num ponto só e solta de uma vez. Quanto mais concentrada, mais forte. — Fez uma pausa pequena. — Eu tentei a vida inteira. Nunca responderam pra mim. Eu não consigo juntar nada sem chorar, e a magia vai junto com o choro.
+— É preciso concentrar a magia num ponto só e soltá-la no instrumento. Quanto mais concentração, mais forte o efeito. — Mereditha olhou para o estojo. — Eu tentei durante anos, mas nunca consegui fazer nenhum deles responder. Perco a concentração antes.
 
-Contou, depois, o que cada um fazia. O diapasão revelava quem estava por perto, até quem se escondia, e bastava bater de leve e escutar. O tambor fazia uma onda que deixava tudo mais devagar, por pouco tempo. A flauta adormecia mentes fracas, de bicho ou de gente que pensava pouco, mas cansava quem a tocava. E a gaita fazia criaturas dançarem, rirem, falarem besteira ou falarem a verdade, às vezes sem querer. Bruno perguntou se tinha limite de vezes, e Mereditha disse que não existia número, que o limite era a pessoa, que cansava, e que quem descansasse bem tinha força para tocar de novo.
+Contou, depois, o que sabia sobre cada um. O diapasão ajudava a perceber sinais de magia escondidos por perto; nem sempre dizia de quem vinham. O tambor podia fazer as coisas ao redor andarem mais devagar por alguns instantes. A flauta adormecia seres cuja mente não conseguisse resistir ao som, mas exigia bastante de quem tocava. A gaita provocava dança, riso e até palavras que alguém não pretendia dizer. Bruno perguntou quantas vezes podia usar o tambor.
 
-— Eu acho injusto — disse Beatriz, de repente, e todos olharam. — Quatro amigos e cinco pessoas. Se você andava junto, também era amiga. Cinco é um número bom.
+— Isso ninguém contou direito — respondeu Mereditha. — Depende de quem toca. E de quanto aguenta antes de cansar.
+
+— Então eu posso usar até cair no chão?
+
+— Você tem planos de cair no chão?
+
+— Não, mas gosto de saber minhas opções.
+
+— Comece tentando uma vez sem desmaiar — sugeriu Breno.
+
+— Mas você era amiga deles também, não era? — perguntou Beatriz. — Então eram cinco amigos, mesmo que só tivessem quatro instrumentos.
 
 Mereditha abriu a boca, fechou e riu pelo nariz, com os olhos de novo molhados.
 
-— Vou guardar isso — disse. — Num lugar bom.
+— É... acho que você tem razão — respondeu.
 
 — Posso tentar? — perguntou Beatriz, apontando para a gaita.
 
-— Deve.
+— Claro. Foi para isso que a trouxe.
 
-Beatriz levou a gaita à boca. Soprou, e saiu só ar, um fio fino e feio, como um assobio de quem não sabe assobiar. Tentou de novo e saiu um ronco. Franziu a testa. Fechou os olhos e pensou com força em uma coisa só, no calor da mão da mãe, e sentiu a palma esquentar e o anel esquentar, e o ar em volta da gaita estalou miúdo, como brasa de fogueira de acampamento. As mãos dela ficaram quentes de um jeito que ela conhecia bem. Parou na hora. Tirou a gaita da boca e olhou para as três caras que olhavam para ela. Por um instante, além do ombro de Mereditha, pareceu haver uma mulher velha junto à sombra da árvore, de rosto fino e pescoço comprido. Olhava diretamente para Beatriz. A menina piscou, e a sombra voltou a ser apenas a sombra da árvore.
+Beatriz levou a gaita à boca. Soprou, e saiu só ar, um fio fino e feio, como um assobio de quem não sabe assobiar. Tentou de novo e saiu um ronco. Franziu a testa. Fechou os olhos e pensou com força em uma coisa só, no calor da mão da mãe, e sentiu a palma esquentar e o anel esquentar, e o ar em volta da gaita estalou miúdo, como brasa de fogueira de acampamento. As mãos aqueceram daquele jeito que ela conhecia bem. Parou na hora, tirou a gaita da boca e viu os três irmãos observando-a. A madeira da gaita estava quente nas mãos de Beatriz. Por um segundo, teve a impressão de sentir cheiro de uma casa antiga, com chão molhado e ervas penduradas para secar. Não sabia de onde tirara aquela lembrança. Respirou devagar, esperando a sensação de fogo passar, e só então tentou apoiar os dedos nos furos de novo.
 
 — Não consigo — disse, baixinho. — Fica tudo espalhado. Eu penso numa coisa e aparece o fogo, e o fogo eu não quero.
 
-— Ainda — disse Mereditha. — Com o tempo, junta.
+— Hoje não — respondeu Mereditha. — Você vai aprender. Só não precisa resolver tudo na primeira tarde.
 
 — Deixa eu tentar — pediu Banjo. — Se você deixar.
 
-Beatriz entregou a gaita. Banjo largou a flauta no colo de Breno, que a segurou de má vontade, e levou a gaita à boca com o rosto muito sério e as orelhas vermelhas. Soprou. Saiu uma nota estranha e redonda, que ficou boiando no ar do pátio, e por baixo dela Banjo ouviu o sussurro de sempre, o das árvores velhas, parecendo achar graça. E Farol, que dormia em cima do livro de Banjo, acordou de uma vez, ergueu-se nas patas de trás e começou a dançar. Rodou sobre si mesmo com a cauda acesa desenhando espirais douradas no ar, bateu as patinhas na capa do livro no ritmo da nota, as orelhas grandes balançando para os dois lados, e Beatriz soltou uma gargalhada tão alta que a árvore velha balançou.
+Beatriz entregou a gaita. Banjo deixou a flauta com Breno e levou a gaita à boca, concentrado. Soprou. Saiu uma nota estranha e redonda, que ficou boiando no ar do pátio, e por baixo dela Banjo ouviu o sussurro de sempre, o das árvores velhas, parecendo achar graça. E Farol, que dormia em cima do livro de Banjo, acordou de uma vez, ergueu-se nas patas de trás e começou a dançar. Rodou sobre si mesmo com a cauda acesa desenhando espirais douradas no ar, bateu as patinhas na capa do livro no ritmo da nota, as orelhas grandes balançando para os dois lados, e Beatriz soltou uma gargalhada tão alta que a árvore velha balançou.
 
 — Para! — disse Bruno, rindo, e se sentou no chão. — Ele vai passar mal, Banjo!
 
 Farol deu três voltas, tropeçou na própria cauda e caiu de costas em cima do livro, com as quatro patinhas para o alto e a luz quase apagada, soltando um chilreio fino que podia ser riso. Banjo tirou a gaita da boca e ficou pálido, com os olhos meio fechados.
 
-— Eu acho que fiquei sem pernas — disse, e se sentou no chão ao lado de Bruno, de repente.
+— Acho que gastei toda a minha força — murmurou Banjo, sentando-se ao lado de Bruno.
 
 — Funcionou — disse Breno, em voz baixa, olhando para Farol com a sobrancelha levantada. Depois olhou para o diapasão e bateu com ele de leve na própria coxa. No beiral, o pequeno sino de barro que Lioro usava para avisar a cozinha deu uma nota sem ninguém tocar na corda. Banjo ergueu a cabeça, mas a nota da forquilha já estava enchendo o pátio.
 
-A forquilha cantou. Era uma nota limpa, comprida, que se espalhou pelo pátio e ficou ali, tremendo, e o zumbido grave de Breno, aquele de trem distante, subiu junto com ela sem que ele percebesse. Breno fechou os olhos e escutou, e Beatriz viu a testa dele se franzir do jeito que se franzia quando fazia conta de cabeça. Ele abriu os olhos.
+O diapasão soltou uma nota longa e limpa. Breno fechou os olhos para escutar. O som atravessou o pátio e, quando terminou, ele ouviu o piso ranger do lado de dentro da cozinha. Olhou para a porta fechada. Uma sombra se projetava pela fresta inferior.
 
-— Tem alguém na porta da cozinha — disse. — Parada. Está ouvindo faz algum tempo.
+— Tem alguém na cozinha — disse. — Acho que está escutando.
 
 A porta da cozinha se abriu.
 
 Ivy estava no vão, de trança grossa e avental manchado, com os braços cruzados. Tinha o rosto fechado e os olhos fixos em Mereditha, e não olhou para nenhum dos quatro.
 
-— Eu ouvi o metal cantar — disse. — A casa inteira ouviu. Eu sabia que era você antes de abrir a porta. Só você traz coisa de dimensal pra dentro desta casa com cara de quem está fazendo uma boa ação.
+— Ouvi o metal cantar lá de dentro. — Ivy encarou Mereditha. — Devia ter imaginado que era você. Chega trazendo mais objetos mágicos para esta casa sem falar com ninguém.
 
 — Ivy. — Mereditha levantou-se, com o estojo vazio nos braços. — São dos pais deles.
 
-— Eu sei de quem eram. — Ivy desceu o degrau e atravessou o pátio, devagar, parando a dois passos. — Você escolhe quem recebe, chega aqui chorando, e acha que isso dá o direito de dizer quem merece ser dimensal. Você nem é senavelita. Não tem o que eles têm. E fica distribuindo como se tivesse.
+— Eu sei de quem eram. — Ivy desceu o degrau e atravessou o pátio, devagar, parando a dois passos. — Você entrega essas coisas aos meninos e acha que pode decidir por todo mundo? Nem é senavelita, Mereditha. Não sabe o que isso vai custar pra eles.
 
 — Eu nunca disse quem merece. — As escamas de Mereditha, que eram violeta, escureceram para um vermelho de brasa, e Beatriz reparou que a cor se parecia com a do fogo dela. — Eu disse que gosto deles. É diferente, e você sabe que é.
 
-— Gostar é barato para quem não paga a conta. Esta casa recebe os seus escolhidos, e eu é que limpo o chão, e escuto o barulho, e passo a noite acordada. Eu cansei de ver gente chegar a Camporil com coisa bonita na mão e ir embora deixando o resto para nós.
+— Você aparece com presentes, vai embora, e quem fica aqui quando alguma coisa dá errado? — Ivy apontou para a cozinha. — Eu já vi gente demais chegar a Camporil e deixar os problemas para os outros resolverem.
 
-— Eu sei que você não gosta de mim. Nunca soube por quê. — A voz de Mereditha tremeu, e subiu. — Eu nasci de água, Ivy. Num rio que secava no verão. Ninguém me perguntou se eu merecia vir parar aqui. Fiz o que pude com o que tinha, e se você acha pouco...
+— Eu sei que você não gosta de mim, Ivy, mas não tem o direito de me acusar disso. — A voz de Mereditha tremeu. — Eu também não escolhi onde nasci. Só tentei ajudar os filhos dos meus amigos.
 
-— Eu acho que você chora por todo mundo e nenhum deles pediu.
+— E não precisa chorar por todo mundo, Mereditha. Nem todo mundo quer sua pena.
 
-Beatriz não gostava de gritaria. Cobriu as orelhas com as mãos, e a respiração dela ficou curta, e, sem perceber, começou a cantarolar baixinho, as três notas que subiam e voltavam, só para ter alguma coisa dentro da cabeça além daquela voz alta. Mereditha parou de falar no meio da frase. Virou o rosto devagar na direção dela, com os olhos arregalados, e o vermelho no pescoço dela foi passando a violeta, e depois a um prata que Beatriz nunca tinha visto, quase branco.
+Beatriz levou as mãos às orelhas. A discussão estava ficando alta demais. Começou a cantarolar as três notas da mãe, quase sem perceber. Mereditha parou de falar no meio da frase. Virou o rosto devagar na direção dela, com os olhos arregalados, e o vermelho no pescoço dela foi passando a violeta, e depois a um prata que Beatriz nunca tinha visto, quase branco.
 
-— Essa é a dela — disse Mereditha, em voz muito baixa.
+— Essa música... — Mereditha levou a mão à boca. — A Gabrielle cantava assim.
 
 — Chega! — A voz de Lioro cortou o pátio, vinda da porta da cozinha, e Beatriz levantou os olhos. Ele estava de pé com a toalha no ombro, de rosto vermelho de pressa. — Ivy. Mereditha. A minha mãe está dormindo no quarto de cima, e vocês gritam debaixo da janela dela. Se têm de discutir, discutam no portão. E baixo.
 
-Fez-se um silêncio comprido. Ivy olhou para Lioro, para os quatro, para o tambor e a flauta e a gaita e a forquilha, e a boca dela foi se apertando até quase sumir. Virou-se sem dizer uma palavra e entrou pela porta da cozinha, e a porta fechou por dentro.
+Ivy olhou para Lioro, depois para os instrumentos nas mãos dos irmãos. Apertou os lábios e voltou para a cozinha. A porta fechou atrás dela.
 
 — Desculpa, Lioro — disse Mereditha, e passou as duas mãos pelo rosto, e as escamas foram clareando aos poucos. — Eu devia ter esperado lá fora.
 
-— Devia mesmo — disse Lioro, com um cansaço bom na voz. — Eu estava na cozinha, ouvi o metal cantar e depois as vozes, e cheguei tarde. Meus jovens, vocês estão bem?
+— Devia — concordou Lioro, exausto. — Garotada, está tudo bem com vocês?
 
 — Estamos — respondeu Breno, e baixou o diapasão. — Ela estava ouvindo desde o começo.
 
 — Estava. — Lioro olhou para o estojo vazio. — Eu não sei o que ela ouviu nem o que entendeu, e prefiro que vocês não perguntem a ela esta noite.
 
-Foi só então que Beatriz reparou em Bruno. Ele estava sentado no chão, com o tambor entre os joelhos, de cabeça baixa, e os ombros se mexiam. Não fazia barulho nenhum. As lágrimas caíam na pele do tambor, uma de cada vez, e ele não passava a mão no rosto. Breno atravessou o pátio, sentou-se ao lado dele sem dizer palavra e pôs a mão no ombro dele, e Bruno não a empurrou.
+Beatriz só então reparou em Bruno, sentado no chão com o tambor entre os joelhos. Os ombros se moviam sem nenhum som. As lágrimas caíam na pele do instrumento, uma de cada vez, e ele não enxugava o rosto. Breno atravessou o pátio, sentou-se ao lado dele sem dizer palavra e pôs a mão no ombro dele, e Bruno não a empurrou.
 
-— Seu pai tocava esse tambor errando o tempo de propósito — disse Mereditha, e se agachou diante dele, com cuidado, de olhos molhados. — Pra fazer rir. Chegou atrasado ao primeiro desafio, a Noite dos Quatro Sinos, porque parou pra ajudar um garoto que tinha perdido a bota. E sua mãe chegou antes e esperou por ele. Ela fazia trança em quem deixava, Bruno. Até no Kofi, que tinha cabelo curto, uma trancinha de dois dedos só pra ele rir. Eu gostava dele mais do que contei a qualquer pessoa.
+— Seu pai tocava esse tambor — disse Mereditha, ajoelhando-se diante de Bruno. — Errava o tempo de propósito para fazer os outros rirem. Uma vez chegou atrasado à Noite dos Quatro Sinos porque parou para ajudar um garoto que tinha perdido a bota. A Gabrielle chegou antes dele e ficou esperando. Ela fazia tranças em todo mundo, até no Kofi, que tinha o cabelo curtinho. — Mereditha limpou o rosto. — Eu gostava muito deles.
 
 — Ele era bom? — Bruno levantou o rosto, e tinha a cara toda molhada. — O meu pai. Era bom?
 
-— Era incrível. — Mereditha riu e chorou ao mesmo tempo. — Os dois eram. Atravessaram a Travessia das Marés Cegas juntos, de olhos fechados, só pelo som. Eu fui atrás, e nunca vi ninguém tão calmo. Eu daria tudo pra vê-los de novo, nem que fosse uma hora, pra dizer que cuidei dos filhos deles como pude, de longe. E não cuidei.
+— Muito. — Mereditha sorriu entre as lágrimas. — Seu pai e sua mãe atravessaram a Travessia das Marés Cegas juntos, de olhos fechados, seguindo só o som. Eu estava atrás deles. Nunca esqueci. — Ela respirou fundo. — Queria tanto poder vê-los outra vez.
 
-— Você trouxe os timbres — disse Banjo, do chão, ainda pálido e agarrado à flauta. — Isso conta.
+— Você trouxe as coisas deles pra gente — disse Banjo, ainda sentado no chão com a flauta no colo. — Eu acho que eles iam gostar disso.
 
 Mereditha olhou para ele, e para os outros, e Beatriz viu que ela não conseguiria responder. Beatriz desceu do banco, foi até ela e a abraçou pela cintura, com a gaita ainda na mão. Mereditha ficou rígida um instante, e depois se curvou, e as barbatanas dela cheiravam a rio, e Beatriz sentiu soluços fundos, sem som, passarem pelo corpo inteiro dela.
 
@@ -206,4 +270,4 @@ Mereditha olhou para ele, e para os outros, e Beatriz viu que ela não conseguir
 
 — Pode, querida. — Mereditha afastou o rosto e passou a mão devagar na trança de Beatriz. — Canta o quanto quiser. Eu também sei só o pedaço, e a letra nunca soube. Ela cantava baixinho quando estava nervosa, e quando fazia trança nos outros.
 
-Lioro pigarreou na porta e disse que o jantar não ia esperar mais. Nenhum dos quatro se mexeu logo. A luz alaranjada tinha baixado, e as lajotas do pátio já estavam escuras, e a árvore velha pingava uma água que não tinha caído. Beatriz levou a gaita ao peito, apertada, e ficou de pé entre os irmãos, e cantarolou as três notas outra vez, só para si, enquanto atravessavam o pátio em direção à luz da cozinha.
+Bruno enxugou a cara na manga, tirou da mochila o Chapéu Espaçado e guardou o tambor dentro dele, que não mudou de forma. Pendurou o chapéu de volta sem dizer nada, e ninguém comentou. Lioro pigarreou na porta e disse que o jantar não ia esperar mais. Nenhum dos quatro se mexeu logo. A luz do fim da tarde desaparecera atrás do muro, deixando as lajotas do pátio na sombra. Beatriz levou a gaita ao peito, apertada, e ficou de pé entre os irmãos, e cantarolou as três notas outra vez, só para si, enquanto atravessavam o pátio em direção à luz da cozinha.

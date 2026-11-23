@@ -450,7 +450,7 @@ Era a vermelha. Uma explosão de fumaça vermelha tomou a caverna, e os trolhos 
 
 — Corram! — gritou ele, atirando o pote para Bruno.
 
-Bruno o guardou no chapéu arcanium num reflexo.
+Bruno o guardou no Chapéu Espaçado num reflexo.
 
 — O que você fez?
 

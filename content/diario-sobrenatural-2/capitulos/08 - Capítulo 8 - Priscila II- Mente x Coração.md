@@ -94,7 +94,9 @@ Não queria ouvi-la.
 
 — Vocês temiam que eu me tornasse errada — eu falei, e senti minha garganta apertar. — E parabéns: vocês conseguiram. Porque eu não consigo nem respirar nessa casa sem sentir que tô errada.
 
-— Você tá errada agora — ela disse, apontando pro chão como se eu fosse uma criança de novo. — Olha o que você tá fazendo. Você tá abandonando sua família. Ta fugindo da sua vida. Está querendo o caminho mais fácil.
+— Você tá errada agora — ela disse, apontando pro chão como se eu fosse uma criança de novo. — Olha o que você tá fazendo. Foi você quem insistiu em vir pra perto daquele Vinícius. Eu avisei. Se não tivesse trazido esse garoto pra nossa vida, talvez a Kelly ainda estivesse aqui. E agora tá abandonando sua família, fugindo da sua vida. Está querendo o caminho mais fácil.
+
+Eu sabia quem tinha disparado contra a Kelly. Minha mãe não. E tinha sido eu quem ajudara a convencê-la do contrário.
 
 — O caminho fácil? — eu repeti, quase rindo de tão absurdo. — Você acha que eu tô indo embora porque é fácil?
 
@@ -280,6 +282,18 @@ Revirei os olhos, mas entrei. Eu morava na rua de trás, sim. Isso não impedia 
 
 — Tá. Tá. Eu exagerei. Desculpa. — Ele soltou um sorriso rápido e olhou pra frente. — Pra onde você quer ir?
 
+Só então olhei direito para o carro. Bancos de couro, painel cheio de botões, tudo limpo e brilhando como se ninguém jamais tivesse derramado uma gota de refrigerante ali. Não era o tipo de carro que eu lembrava de ver perto da nossa escola em Vila Velha.
+
+— Isso aqui é seu?
+
+— Do meu pai. Peguei emprestado.
+
+— Seu pai tem bom gosto. E bastante dinheiro, pelo visto.
+
+— Ele gosta de carros — Jason disse, como se isso explicasse tudo.
+
+Olhei de novo para o painel. Eu conhecera o Jason de uniforme, mochila e conversa de corredor. Nunca tinha pensado em perguntar quanto custava a vida dele fora da escola. Agora estava começando a desconfiar.
+
 — Pra casa.
 
 — Não vai, não. — Ele disse isso com tanta naturalidade que pareceu que o “não” era dele. — Vou te levar pra um lugar melhor.
@@ -296,21 +310,9 @@ Eu disse:
 
 — Tá. Tudo bem.
 
-E foi aí que eu vi o primeiro erro da noite: o reflexo.
+Foi aí que vi alguém parada na calçada, na saída de uma avenida. Uma garota de costas, imóvel debaixo da chuva fina, sem guarda-chuva. Um carro passou na frente dela. Quando tive visão da calçada outra vez, não havia ninguém.
 
-Quando ele virou numa avenida mais iluminada, eu olhei pro vidro do passageiro, só por hábito, pra conferir meu batom. E por um segundo, um segundo curto demais pra eu ter certeza, o vidro não me devolveu só a minha cara.
-
-Tinha alguém atrás do meu ombro.
-
-Não “alguém” de verdade, não do jeito que eu poderia apontar e provar. Era um contorno, um brilho errado, um pedaço de rosto que não encaixava na luz do carro. Veio junto um frio rápido na nuca.
-
-Eu fechei os olhos.
-
-Abri de novo.
-
-O reflexo era normal. Só eu. Só o vidro. Só a cidade.
-
-Olhei pra rua, como se eu estivesse irritada com o trânsito. Como se eu não tivesse visto nada.
+Era uma cidade grande. Pessoas apareciam e desapareciam nas esquinas o tempo inteiro. Eu sabia disso. Mesmo assim, continuei olhando para trás até Jason dobrar a rua.
 
 — Você tá bem? — Jason perguntou.
 
@@ -475,19 +477,9 @@ E por um segundo, um segundo ridículo, eu deixei.
 
 O beijo foi contido, mas foi real. O vento frio misturado com o calor dele, o som distante dos carros lá embaixo, o centro de São Paulo brilhando como um monte de vidro… e eu ali, sentindo uma coisa boa demais pra ser segura.
 
-Eu abri os olhos.
+Eu abri os olhos. Por cima do ombro de Jason, vi alguma coisa perto da porta de acesso ao terraço. Uma ponta de cabelo escuro, molhado, recuando atrás da parede. Alguém podia ter subido sem a gente ouvir. Antes que eu conseguisse me afastar, senti dedos frios fecharem em volta do meu pulso.
 
-E vi de novo o vidro.
-
-Uma janela suja do terraço, de lado, refletindo a gente num ângulo errado. No reflexo, a imagem não parecia igual. Não era só “nós dois”. Havia um terceiro ponto, um detalhe fora do lugar.
-
-Uma mão.
-
-Uma mão que não era minha.
-
-No reflexo, os dedos passaram pelo cabelo do Jason, devagar, num carinho. Como se alguém estivesse ali há tempo demais.
-
-O frio não veio na nuca dessa vez. Veio no meu pulso, como se alguém tivesse encostado de verdade, um toque rápido, gelado, pessoal.
+Olhei para a minha mão. Não havia ninguém me segurando. A pressão continuou por mais um segundo, forte o suficiente para doer, e desapareceu.
 
 Eu afastei a boca dele num impulso.
 
@@ -513,13 +505,9 @@ Ele deu um passo pequeno, mas não me tocou. Foi perfeito. Se tivesse tentado me
 
 — Você quer ir embora? — ele perguntou, baixo. — A gente pode descer. A gente vai embora agora.
 
-Eu olhei pro vidro de novo.
+Olhei para a porta do terraço. Não havia ninguém ali, nem sinal de cabelo molhado no chão.
 
-O reflexo era normal.
-
-Só eu. Só ele. Só a janela suja.
-
-Como sempre: tudo parecia normal depois que eu passava vergonha.
+Como sempre, tudo parecia normal depois que eu passava vergonha.
 
 Forcei uma risada curta, amarga, do tipo que eu uso quando preciso fingir que tenho controle do meu próprio desastre.
 

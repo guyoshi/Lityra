@@ -300,6 +300,10 @@ Eu queria contestar, mas o lugar inteiro parecia construído para quebrar contes
 
 — Os tempos de liberdade vão chegar. E todos serão salvos.
 
+Lucinda virou o rosto para os bancos e ficou ouvindo os fiéis por alguns segundos. Uma criança tossiu no fundo da igreja.
+
+— Quando a Mãe chamar, ninguém vai ficar para trás — acrescentou. — Nem quem tiver medo.
+
 A frase poderia soar como esperança, mas na boca dela parecia ameaça. Como se a “liberdade” fosse uma porta que se abre, sim, mas abre para alguém entrar.
 
 Ela estendeu a mão e alguém colocou uma bíblia nas palmas dela. Era a mesma bíblia que eu tinha visto antes, com anotações, desenhos e palavras espalhadas. Quando Lucinda a abriu, parecia que ela sabia exatamente onde cair.

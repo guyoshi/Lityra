@@ -1,14 +1,14 @@
-Depois das terras Buldar e das comunidades Glydar junto ao rio, a paisagem mudou de um jeito que Selina não esperava.
+Ao deixarem as comunidades Glydar e os campos Buldar, Selina viu a estrada começar a subir sobre pontes e plataformas, onde a água corria por canais de pedra e madeira.
 
 O caminho deixou de ser apenas estrada. Em alguns trechos a própria rota era uma estrutura: pontes de madeira reforçada, plataformas suspensas sobre desníveis profundos, canais paralelos ao trajeto, passagens estreitas que obrigavam a comitiva a se dividir em grupos menores. Guardas Cendar controlavam tudo com uma precisão que não deixava espaço para exceção: peso, ordem de passagem, distância mínima entre carroças.
 
 Um dos nobres Polar se irritou quando um jovem fiscal Cendar mandou dividir a comitiva em duas levas antes de atravessar uma das pontes mais estreitas.
 
-— Sabe quem viaja nessa comitiva? — perguntou, indignado.
+— O senhor sabe quem está nesta comitiva? — perguntou o nobre, indignado.
 
 O rapaz olhou de relance para a mulher mais velha ao seu lado, que conferia uma prancheta sem prestar atenção à discussão. Ela não disse uma palavra. Ele voltou os olhos para o nobre, como se a resposta já estivesse decidida.
 
-— A ponte suporta um peso determinado — disse. — Não importa quem está em cima dela.
+— A capacidade da ponte é a mesma, senhor — respondeu o fiscal. — Nem a presença do soberano altera o peso que ela suporta.
 
 A mulher assinou alguma coisa na prancheta e entregou ao rapaz, que a levou ao próximo posto sem que mais nada precisasse ser dito entre os dois.
 
@@ -36,11 +36,11 @@ Ele largou a carroça na hora e foi buscar a faca maior, sem discutir, sem esper
 
 Um Buldar próximo protestou, preocupado com os alimentos que a carga levava.
 
-— Primeiro as pessoas — Edria respondeu, sem se alterar. — Depois os animais que puderem sair sem colocar mais gente em risco. A carga é a última coisa que me importa agora.
+— Primeiro tirem as pessoas — ordenou Edria. — Depois os animais, se for seguro. A carga fica por último.
 
 Alguém ainda hesitou ao olhar para a própria estrutura.
 
-— Faço outra — Edria disse. — Pessoas primeiro. Estrutura depois.
+— Essa estrutura a gente constrói de novo — disse Edria. — Não vou arriscar uma vida pra salvar madeira.
 
 Derrubaram outra parte da plataforma para liberar a passagem.
 
@@ -66,7 +66,7 @@ Um instante de pausa entre os dois.
 
 — Então estudou também — Serka disse, quase divertida.
 
-— O suficiente pra reconhecer a vara.
+— O bastante pra saber que esse gancho não serve só pra puxar tábua.
 
 Quando tudo terminou, ninguém tinha morrido. Houve feridos leves, carga perdida, madeira estilhaçada, uma seção inteira da estrutura inutilizada.
 
@@ -112,7 +112,7 @@ Isso levou Selina a comentar, quase de passagem, que os Polar também mantinham 
 
 — Foram construídos sob uma administração Polar antiga — Selina disse.
 
-— Foram pagos por ela — ele corrigiu.
+— A administração Polar pagou pela obra — corrigiu o guia. — Os construtores eram Cendar.
 
 A diferença pesou mais do que ela esperava. O homem explicou que muitas das antigas marcas de oficina, colocadas pelos próprios construtores Cendar, tinham sido removidas ao longo dos séculos, substituídas por outras inscrições ou raspadas das pedras em reformas posteriores. A equipe que trabalhara para Nerya usara vários sinais, entre eles o quadrado aberto sustentado por três traços, comum em peças de água e drenagem daquele período.
 
@@ -126,7 +126,7 @@ Um homem de meia-idade a acompanhava a um passo de distância, carregando os reg
 
 Vetarius comentou, em algum momento da recepção formal, sobre como Cendar-Vel tinha crescido desde a última vez que ouvira falar dela.
 
-— Crescer é fácil — Mavira respondeu, num tom que soava menos como profecia do que como constatação de engenharia e governo. — Continuar sustentando é que dá trabalho.
+— Crescer, Vossa Soberania, é a parte fácil — respondeu Mavira. — O trabalho é manter de pé o que foi construído.
 
 Selina observou Mavira conduzir a recepção enquanto o homem conferia os registros ao fundo.
 
@@ -146,11 +146,11 @@ Seguiu em frente.
 
 Foi um pouco depois, ouvindo outro trabalhador comentar uma alteração específica, que ela parou de vez. Não era algo ancestral, era uma modificação que Selina sabia, com certeza absoluta, ter sido feita durante sua própria vida administrativa: uma trava adicionada depois de uma enchente recente, uma galeria fechada havia poucos anos.
 
-— Vocês trabalharam em Kaeliran? — perguntou, casual.
+— A sua equipa executou alguma obra em Kaeliran recentemente? — perguntou Selina, mantendo o tom casual.
 
 — Não — o homem respondeu.
 
-— Então como sabe disso?
+— Então como teve acesso às alterações mais recentes?
 
 Ele apontou vagamente para uma pilha de papéis ao lado.
 
@@ -194,15 +194,15 @@ Antes da partida, Serka procurou Dareth mais uma vez, sozinha.
 
 Serka o observou por um instante enquanto ele ajustava o equipamento sobre uma das plataformas.
 
-— Você põe o peso primeiro na direita — comentou.
+— Você transfere o peso pra perna direita antes de firmar a esquerda — observou Serka.
 
 Dareth olhou para ela.
 
 — Me disseram que sua perna esquerda incomoda quando está cansado — Serka continuou.
 
-— Disseram errado.
+— Disseram mais do que sabem.
 
-— Ótimo.
+— Melhor pra você.
 
 Um menino magro correu até ela com um rolo de corda, chamando-a de "mãe". Serka o dispensou com um aceno, ainda olhando para Dareth. Depois foi embora, o filho dois passos atrás com o equipamento dela.
 
@@ -214,7 +214,7 @@ A paisagem mudou de novo, quase por completo. Água baixa entre vegetação dens
 
 Um dos nobres Polar, olhando ao redor, comentou casualmente sobre os "Pantanosos".
 
-— Eldur — corrigiu um Cendar próximo, sem alterar o tom.
+— O nome é Eldur — corrigiu um Cendar próximo, sem erguer a voz.
 
 — Foi o que eu disse — o Polar respondeu, distraído.
 

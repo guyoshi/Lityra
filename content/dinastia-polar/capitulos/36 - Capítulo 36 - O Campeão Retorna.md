@@ -1,12 +1,12 @@
-# Capítulo 36 — O Campeão Retorna
+# Capítulo 36: O Campeão Retorna
 
-O amanhecer depois da final encontrou o acampamento Polar barulhento de um jeito que nenhuma vitória anterior tinha produzido.
+Na manhã seguinte à final, os soldados Polar ainda comemoravam entre as tendas.
 
 Soldados que mal se falavam durante o Torneio agora bebiam juntos, repetindo entre risadas a mesma piada, cada vez maior: tinham sido necessárias nove outras dinastias, um incêndio, uma arena inteira e o sangue de dois campeões para descobrir que ninguém derrubava um velho Polar de quatro dedos. Alguém imitava o jeito como Khalir erguia o escudo. Outro imitava, sem piedade, o sotaque arrastado que atribuía aos Vendrar, e a plateia ria alto demais para o horário. Uma canção improvisada durante a noite já circulava entre as fogueiras, mudando de letra a cada pessoa que a repetia.
 
 Homens desconhecidos se abraçavam porque usavam o mesmo azul. Crianças repetiam "Quatro-Dedos". Apostas se pagavam entre risadas e protestos. Dareth participou de muito pouco daquilo.
 
-Estava ferido demais para fingir energia que não tinha, e perturbado demais para deixar a comemoração alcançá-lo. As últimas palavras de Orven continuavam girando, sem se acomodar em lugar nenhum. *Ainda acha que chegou aqui sozinho?*
+Estava ferido demais para fingir energia que não tinha, e perturbado demais para deixar a comemoração alcançá-lo. As últimas palavras de Orven continuavam girando, sem se acomodar em lugar nenhum. Ainda acha que chegou aqui sozinho?
 
 Deitado, incapaz de dormir direito, começou a reorganizar pequenos instantes do Torneio que na hora não tinham significado nada. Serka recuando cedo demais numa luta que podia ter vencido. Rhevara afrouxando a pressão num momento em que apertar um pouco mais teria bastado. Khalir, atacando Orven no instante exato em que Orven decidira matá-lo de verdade. Orven, na primeira luta contra ele, cometendo um erro pequeno demais para ser natural.
 
@@ -16,7 +16,7 @@ Ninguém sabia de nada novo. As coisas dela continuavam na tenda, no mesmo lugar
 
 A notícia chegou a Kaeliran pela rede de sinais antes que a comitiva desmontasse o acampamento. Torres repetiram o código ao longo das rotas abertas, e nos trechos sem linha de visão mensageiros trocaram de tarrak nos postos de revezamento e carregaram a confirmação até o ponto seguinte.
 
-Vetarius não quis esperar o filho de criação, o campeão, o velho amigo, atravessar o território até em casa sem anúncio. Decidiu, quase no instante em que recebeu a confirmação, transformar aquele retorno em celebração histórica.
+Vetarius não quis esperar o velho amigo voltar para começar a festa. Decidiu, quase no instante em que recebeu a confirmação, transformar aquele retorno em celebração histórica.
 
 Kaeliran abriria os portões para receber as delegações das dez dinastias. Não apenas soberanos e representantes oficiais, mas comitivas inteiras: comerciantes, artífices, religiosos, funcionários, animais, carruagens, presentes, mercadorias. O objetivo, anunciado em praça pública por arautos que se revezavam repetindo o mesmo texto, era transformar a vitória do Primeiro Torneio Decenal numa demonstração de união de Jesed sob a nova primazia Polar.
 
@@ -84,7 +84,7 @@ A conversa que Dareth mais precisava ter só aconteceu depois da cerimônia, lon
 
 Vetarius estava genuinamente feliz. O velho amigo vencera. O Torneio funcionara. Nenhuma guerra nova começara. Os Polar tinham recebido a primazia que ele apostara conseguir, e para ele aquele dia parecia prova viva de que a aposta estivera certa desde o início.
 
-— Devia ter visto a cara deles quando o arauto disse seu nome — disse, ainda rindo de leve. — Nove dinastias inteiras, e nenhuma delas conseguiu derrubar você.
+— Queria que tivesse visto o povo daqui quando anunciaram seu nome! — Vetarius ainda ria. — Nove dinastias, Dareth! E nenhuma conseguiu derrubar você.
 
 Contou de novo, sem que ninguém pedisse, um pedaço da Passagem de Arven, como fazia sempre que precisava lembrar a si mesmo, ou a quem estivesse por perto, do tipo de homem que Dareth sempre fora. Brincou que Dareth sempre reclamava primeiro para depois salvar todo mundo mesmo assim. Perguntou detalhes do combate, curioso de um jeito quase infantil, querendo saber como fora ver Khalir se levantar depois de tanto castigo, o que Dareth sentira no instante em que Orven decidira ir para cima dele de verdade. Dareth não conseguiu compartilhar aquela felicidade por completo.
 
@@ -92,7 +92,7 @@ Contou de novo, sem que ninguém pedisse, um pedaço da Passagem de Arven, como 
 
 Vetarius franziu a testa, a alegria diminuindo só um pouco.
 
-— Já mandei procurar. Vou providenciar mais gente ainda hoje, se precisar.
+— Já mandei procurá-la. Vou ampliar as buscas hoje mesmo, se for necessário.
 
 Dareth assentiu, sem se sentir aliviado de verdade, e contou o resto.
 
@@ -102,11 +102,11 @@ Não apresentou teoria. Contou fatos, do jeito seco que usava para relatar qualq
 
 Vetarius ouviu com atenção real. Considerou estranho, chegou a repetir a frase uma vez, baixo, como quem prova o peso dela. Mas não interrompeu a celebração por causa disso.
 
-— Amanhã a gente investiga isso com calma — disse. — Você acabou de sobreviver a dias de combate. É natural tentar encontrar sentido em decisões tomadas em segundos, no meio de uma arena, com metade do corpo já não respondendo direito.
+— Amanhã analisaremos os relatos com calma — respondeu Vetarius. — Você acabou de sair vivo de uma arena. É natural procurar explicação para o que os outros decidiram em segundos de combate.
 
 Vetarius falava como se houvesse tempo. Dareth pensou em Kalan.
 
-— Também havia tempo para Kalan.
+— Foi o que você disse quando Kalan ainda estava vivo.
 
 Vetarius parou.
 
@@ -118,7 +118,7 @@ Vetarius tentou se justificar, do jeito que sempre fazia quando algo daquele tam
 
 Vetarius terminou a conversa insistindo que resolveriam tudo depois. Selina. Orven. As irregularidades do Torneio. Tudo.
 
-— Hoje é noite de celebrar — disse, já virando o corpo para o salão, a energia de sempre voltando com a rapidez com que desaparecera por um instante. — Amanhã volto a ser soberano. Hoje eu só quero ser o homem que viu o velho amigo vencer.
+— Esta noite é de celebração — disse Vetarius, voltando-se para o salão. — Amanhã cuido das investigações. Hoje quero comemorar a vitória do meu velho amigo.
 
 No fim da tarde, pouco antes do jantar, Caeren circulava por Kaendar sem destino, entediado da formalidade que ainda faltava enfrentar, conhecendo o castelo bem demais para ficar parado onde mandavam.
 
@@ -128,21 +128,21 @@ Correu para avisar.
 
 Encontrou Amaric perto da entrada principal do salão, ocupado organizando a chegada dos últimos convidados.
 
-— Amaric. Tem gente onde não devia. Um acesso aberto. Homens de outra dinastia dentro de Kaendar, numa área que não é deles.
+— Amaric! Vi estrangeiros num corredor de serviço. Tem um acesso destrancado, e os guardas estão deixando homens armados entrar!
 
 Amaric olhou para ele com a expressão de quem já ouvira aquele garoto contar histórias demais para acreditar de imediato em qualquer uma nova. Conhecia Caeren havia anos. Conhecia os exageros, as invenções, o gosto antigo por criar emergências onde não existia nenhuma.
 
-— Hoje Kaendar está cheia de convidados de fora, Caeren. O próprio soberano autorizou circulação excepcional. Não é hora para isso.
+— O soberano autorizou a circulação de visitantes, Caeren. Algumas entradas de serviço estão em uso hoje. Não volte a inventar um ataque no meio da cerimônia.
 
-— Eu sei o que eu vi.
+— Eu não inventei! Estão indo pros aposentos internos!
 
-— Você sempre sabe.
+— Foi o que disse nas outras vezes também.
 
 Caeren insistiu, a voz subindo. Amaric já tinha voltado a atenção para outra coisa.
 
 Dois Filhos da Raiz se aproximaram, educados, quase gentis.
 
-— O soberano está ocupado — disse um deles. — O rapaz não deve continuar interrompendo autoridades hoje.
+— Vossa Soberania não pode ser interrompida agora — disse um dos Filhos da Raiz, com toda a cortesia. — Acompanharemos o jovem Caeren aos aposentos.
 
 Amaric assentiu, sem pensar duas vezes. Para ele, era só retirar um adolescente inconveniente do centro da maior celebração política da década.
 
@@ -164,7 +164,7 @@ Ela não apareceu.
 
 O jantar foi servido antes de escurecer de vez. Ninguém teve pressa de começar a comer, e aquilo, mais tarde, tornaria tudo pior.
 
-Vetarius estava extasiado. Perguntava detalhes das lutas a quem quisesse ouvir, pedindo a Dareth para descrever de novo o que sentira ao ver Khalir se levantar. Ria de uma história envolvendo Orven que um soldado contava com exagero evidente. Provocava, com bom humor, um soberano rival, comemorando a primazia sem parecer, nem por um segundo, cruel a respeito.
+Vetarius queria ouvir cada detalhe da final. Pediu a Dareth que contasse de novo como Khalir se levantara depois do ferimento. Ria de uma história envolvendo Orven que um soldado contava com exagero evidente. Provocava, com bom humor, um soberano rival, comemorando a primazia sem parecer, nem por um segundo, cruel a respeito.
 
 Vetarius falava de projetos, novas rotas comerciais e obras para depois daquela semana. Entre risadas, chegou a mencionar o Segundo Torneio Decenal, como se a tradição já estivesse garantida.
 
@@ -172,7 +172,7 @@ Amaric participava da conversa com o entusiasmo de sempre. O Conselho relaxava, 
 
 Os servidores começaram a trazer o vinho no meio da conversa mais animada, sem destaque além do necessário. Os jarros da mesa central vinham de um lote reservado aos anfitriões, e as delegações recebiam os seus junto às próprias mesas.
 
-— Parte disso chegou hoje de manhã, pelos cais da Balança — comentou alguém, entre um gole e outro, mais preocupado com o copo do que com qualquer outra coisa. — Ainda bem que deu tempo.
+— O último carregamento da Balança chegou hoje cedo — comentou um funcionário, erguendo a taça. — Tivemos sorte de receber tudo a tempo.
 
 Ninguém perguntou de qual barril cada jarro tinha saído. Cargas chegavam pelos cais da Balança todos os dias, e uma festa daquele tamanho consumia vinho demais para alguém acompanhar o caminho de cada um.
 
@@ -182,15 +182,15 @@ Enquanto o último resto de luz cinzenta aparecia entre as nuvens, alguém ligad
 
 Vetarius gostou da ideia imediatamente. Levantou-se, a taça na mão, o salão se aquietando para ouvi-lo.
 
-— À vitória — disse, sem discurso longo, do jeito direto que preferia mesmo em ocasiões formais. — À Dinastia Polar. Ao Primeiro Torneio Decenal. À paz entre as dez dinastias.
+— À vitória da Dinastia Polar! — proclamou Vetarius. — Ao Primeiro Torneio Decenal e à paz entre as dez dinastias!
 
 Fez uma pausa curta, olhando para Dareth com um orgulho que não precisava de mais palavras.
 
-— E a Dareth Quatro-Dedos.
+— E ao homem que nos trouxe essa vitória, Dareth Quatro-Dedos!
 
 Ergueu a própria taça mais alto.
 
-— Que todos bebam.
+— Bebamos todos!
 
 O salão levantou as taças ao mesmo tempo. Dareth também, sem beber quase nada. Vetarius bebeu. Amaric bebeu. O Sumo Vigia bebeu. Alveris bebeu. Corven bebeu. O Conselho inteiro bebeu. Os representantes estrangeiros beberam, um por um, em volta das próprias mesas.
 

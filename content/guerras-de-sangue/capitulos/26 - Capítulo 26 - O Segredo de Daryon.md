@@ -1,10 +1,10 @@
-Kaelina não entrou. O corpo inteiro quis fazer isso quando reconheceu Ylvena. As pernas, mesmo fracas, quiseram atravessar a fenda. A garganta quis gritar o nome daquela mulher com toda a força que não tinha. As mãos, ainda doloridas pela corda, quiseram procurar uma arma na pedra, no chão, no próprio osso, em qualquer coisa que pudesse transformar espanto em ação.
+Kaelina parou ao reconhecer Ylvena. A mulher estava viva, a poucos passos. Quis atravessar a fenda, agarrá-la e exigir que dissesse onde estivera durante todos aqueles ciclos. A dor nos pulsos a fez apoiar a mão na pedra.
 
-Mas Marken segurou seu braço. Não com força de carcereiro. Com força de quem impede alguém de pisar numa armadilha que ainda não viu. Os dedos dele estavam frios, úmidos de sangue seco e sombra, e o olhar que lançou a Kaelina não pedia obediência. Pedia silêncio.
+Marken segurou-lhe o braço. Não a puxou. Fez um sinal breve para que ficasse e escutasse.
 
-Do outro lado da fenda, Ylvena respirava como gente que havia passado tempo demais em lugar estreito. O cômodo escondido era baixo, escuro e gasto, iluminado por uma lamparina que mais parecia resistir do que arder. Havia uma mesa pequena, uma jarra coberta por pano, mantas dobradas, restos de pão endurecido, uma tigela vazia e um espelho sujo encostado contra uma caixa de madeira. O esconderijo não tinha a desordem de quem acabara de chegar. Tinha a tristeza de um lugar habitado por alguém que não podia existir.
+Do outro lado da fenda, Ylvena estava sentada perto da mesa, com os ombros tensos e as mãos imóveis. O cômodo escondido era baixo, escuro e gasto, iluminado por uma lamparina que mais parecia resistir do que arder. Havia uma mesa pequena, uma jarra coberta por pano, mantas dobradas, restos de pão endurecido, uma tigela vazia e um espelho sujo encostado contra uma caixa de madeira. O esconderijo tinha comida guardada e roupas gastas pelo uso. Ylvena vivia ali havia muito tempo.
 
-Daryon estava de costas para a fenda. Isso salvou Kaelina por um instante. Se ele tivesse se virado, talvez a visse. Talvez ouvisse sua respiração. Talvez percebesse que a cidade, tão cheia de segredos, acabara de entregar o pior deles à irmã errada.
+Daryon estava de costas para a fenda. Kaelina se encolheu contra a pedra e procurou respirar sem fazer ruído.
 
 — Você atravessou uma cidade sob cerco para me dizer que devo partir — disse Ylvena.
 
@@ -12,13 +12,13 @@ A voz dela estava mais rouca do que Kaelina lembrava, embora a lembrança que ti
 
 Ela estava ali, viva, magra, dura, com o rosto marcado por anos que não haviam sido gentis. A luz da lamparina fazia sombras fundas sob os olhos dela, e mesmo sentada parecia pronta para avançar.
 
-Daryon não respondeu de imediato. Ele olhou para a porta, depois para a parede, como se medisse a espessura da cidade ao redor deles.
+Daryon olhou para a porta. Depois para o corredor escondido atrás da parede.
 
-— Eu vim dizer que a noite mudou.
+— O cais foi atacado. Precisamos pensar em como tirar você daqui.
 
-Ylvena riu baixo, como um osso se partindo dentro da boca.
+Ylvena deu uma risada seca.
 
-— A noite sempre muda de acordo com seus interesses.
+— Precisamos? Você só lembra de nós quando precisa de alguma coisa.
 
 — Não torne isso mais difícil.
 
@@ -26,9 +26,13 @@ Ylvena riu baixo, como um osso se partindo dentro da boca.
 
 — Aqui você está segura. Eu protegi você.
 
-— Protegeu? — Ylvena levantou-se devagar, apoiando uma das mãos na mesa. — Quando me expulsaram das terras Polar, você protegeu? Quando precisei dormir em terras Tondrar, com a garganta seca e a faca na mão porque qualquer homem careca demais podia decidir que uma exilada valia menos que um odre vazio, você protegeu? Quando voltei, esperando nas florestas frias até tua mensagem chegar, você protegeu? Não, Daryon. Você me guardou. Coisa guardada não é protegida. É usada depois.
+— Protegeu? — Ylvena levantou-se, apoiando a mão na mesa. — Quando me botaram para fora das terras Polar, você apareceu? Passei noites em terra Tondrar com a faca na mão. Voltei porque você mandou chamar. E, desde então, vivo neste buraco.
 
-Kaelina sentiu o coração bater mais forte. Perto dos Tondrar. A mão de Marken apertou levemente seu braço, advertindo-a outra vez.
+— Aqui ninguém encontra você.
+
+— Pois é. Ninguém me encontra, ninguém me vê, ninguém sabe que existo. Você não me protegeu, Daryon. Você me guardou para quando precisasse de mim.
+
+Kaelina sentiu o coração acelerar. Ylvena estivera nas terras Tondrar depois do exílio, e Daryon a trouxera de volta. Marken apertou levemente seu braço, advertindo-a outra vez.
 
 Daryon aproximou-se da mesa, mas não tocou em Ylvena. A distância entre os dois carregava uma intimidade antiga, já apodrecida o bastante para doer.
 
@@ -46,47 +50,37 @@ A casa baixa de Savel. A chuva batendo no telhado. O velho tossindo sobre um cop
 
 Mas Kaendar não esperava ninguém com cadeira limpa. Kaendar esperava mãos úteis. Ylvena parecia saber disso melhor do que qualquer um.
 
-— Lembra do caminho? — perguntou ela.
+— Lembra quando saímos de Noreval? — perguntou Ylvena.
 
-Daryon ergueu os olhos, irritado, e Ylvena continuou.
+— Não comece com isso.
 
-— A chuva grudando na barra da roupa. A tua mão fechada em volta daquele pedaço de pão duro como se fosse uma promessa. Eu carregava a trouxa maior, porque você dizia que um homem com as mãos livres parecia menos pobre quando chegava diante de um portão.
+— Chovia. Eu carregava a trouxa grande. Você, só aquele pedaço de pão duro. Dizia que, se chegasse ao portão com as mãos livres, iam pensar que era alguém importante.
 
-— Eu era uma criança.
+— Eu era pequeno.
 
-— Não. — Ylvena sorriu sem doçura. — Você era pequeno. Criança, nunca foi.
+— Era. Mas já sabia o que queria.
 
-Kaelina sentiu a frase entrar nela com estranha precisão. Savel também dissera algo parecido, sem dizer. Contara sobre o menino que observava outras crianças brigarem por maçã-de-barro e, no fim, ficava com a parte doce sem parecer ter roubado nada. Ninguém quer a fruta, ele teria dito. Quer sentir que escolheu melhor. Daryon sempre quis subir sem que ninguém visse a escada.
+Savel lhe contara sobre o filho que conseguia ficar com a melhor parte de uma maçã sem parecer ter tirado nada de ninguém.
 
-Ylvena deu um passo lento ao redor da mesa.
+— No Anel Baixo, riram do teu jeito de falar — continuou Ylvena. — O escriba mandou você repetir o nome duas vezes. Naquela noite eu remendei tua manga. Você não queria se apresentar aos homens de registro com a roupa rasgada.
 
-— Nós viemos juntos. Não como amantes, não ainda. Não como cúmplices, não do jeito que nos tornamos depois. Viemos como dois nomes pequenos demais para Kaendar guardar. Você sem raiz limpa. Eu com uma língua boa para silêncio e mãos boas para costura. Lembra da primeira noite no Anel Baixo?
+Daryon desviou os olhos.
 
-Daryon desviou o olhar.
+— Nunca pedi que fizesse isso.
 
-— Não me lembro, Ylvena.
+— Não precisava pedir tudo. Naquele tempo, nem amantes éramos. Nem cúmplices. Eu costurava, você procurava uma porta que pudesse abrir. Achávamos que Kaendar tinha lugar para nós dois.
 
-— Mentira. Você lembra de tudo. Lembra do cheiro do peixe seco, dos guardas rindo do teu sotaque, do escriba perguntando teu nome duas vezes porque não gostou da primeira resposta. Lembra que eu remendei tua manga antes de você se apresentar para os homens de registro, porque você disse que ninguém confia em homem malvestido.
+— Eu consegui esse lugar para você.
 
-Kaelina quase não respirava.
+— Conseguiu um canto onde eu podia trabalhar e ficar calada sobre o rapaz que chegou de Noreval. Aí aprendeu a mexer nos registros, e o nome de antes deixou de lhe servir.
 
-Aquilo não era apenas passado. Era a raiz de Daryon exposta. Não a Raiz Polar, limpa, entalhada em pedra, repetida em gesto e lei. Era outra raiz, mais baixa, torta, envergonhada. Um menino de Noreval chegando a Kaendar com fome de lugar. Uma mulher ao lado dele, aprendendo cedo que servir a um homem que queria subir podia ser uma forma de subir junto, ou ao menos de não ser deixada na lama.
+— Ylvena...
 
-— Você gostava quando eu lembrava dessas coisas — disse Ylvena. — Gostava quando eu sabia de onde vinha a sujeira antes que você colocasse o manto por cima dela. Gostava quando eu chamava Daryon de Noreval e você fingia odiar, mas olhava para mim como se eu fosse a última pessoa viva que ainda sabia teu nome antes de Kaendar.
+— Eu me lembro dele. Você pode fazer o resto da cidade esquecer. Eu, não.
 
-— Não existe nome antes de Kaendar.
+— Quando o cerco acabar, vão revistar corredores, depósitos, passagens antigas — disse Daryon. — Tondrar, Glydar, Buldar e Vendrar já estão às portas. Você não pode continuar aqui.
 
-— Não existe porque você o matou tantas vezes que passou a acreditar nisso. Mas eu estava lá quando ele ainda respirava.
-
-Daryon aproximou-se dela.
-
-— E eu te trouxe para Kaendar. Dei a você uma posição melhor do que Noreval jamais daria.
-
-— Deu? — Ylvena inclinou a cabeça. — Ou precisava de alguém que soubesse quem você era antes que os registros aprendessem a mentir por você?
-
-Daryon não respondeu. Kaelina lembrou-se dos registros tardios, das correções e da origem que Savel pusera em dúvida. Apertou os dedos feridos até as unhas tocarem a palma.
-
-— A cidade está sob cerco — disse Daryon. — Há Glydar no cais, Tondrar, Buldar e Vendrar, diante dos portões. Quando isso terminar, qualquer canto será revistado. Qualquer corredor antigo será questionado. Você deve sair.
+Ylvena cruzou os braços.
 
 — Devo sair?
 
@@ -98,9 +92,9 @@ Daryon olhou para ela de frente.
 
 — Isso não é sobre o que eu quero.
 
-— Com você, sempre é. Você só chama de estratégia quando tem vergonha do desejo.
+— Com você, sempre é. Só muda o nome daquilo que quer.
 
-Kaelina viu Daryon endurecer. O rosto dele continuou calmo, mas o controle ficou mais frio. Era o mesmo homem que sorria ao lado de Alyra, o mesmo que parecia nunca ocupar o centro da sala porque preferia ocupar a decisão. Mas ali, diante de Ylvena, havia uma rachadura. Não grande. Não visível para quem não soubesse olhar. Mas Kaelina estava aprendendo, naquela noite, que rachaduras pequenas derrubavam ilhas.
+Daryon manteve o rosto imóvel. Só a mandíbula se contraía cada vez que Ylvena dizia o nome de Alyra.
 
 — Você vai sair de Kaendar quando o cerco se romper ou quando a cidade voltar a respirar — disse Daryon. — Não antes. Não fazendo barulho. Alyra não pode saber de nada.
 
@@ -116,9 +110,11 @@ Ylvena ficou imóvel.
 
 Ylvena abriu um sorriso sem alegria.
 
-— Eu sei o que ela quer. Sei o que você quer que ela seja. Sei o que você fez para entregar a ela uma guerra embrulhada em honra. Sei que, quando ela olha para você, você acredita estar diante de algo maior que a própria fome.
+— Sei que Alyra quer vencer. Sei que você faz questão de lhe dar um inimigo a cada vez que ela vacila. E sei que gosta de vê-la acreditar que tudo foi ideia dela.
 
-Daryon virou o rosto por um instante, e Kaelina percebeu algo que a atingiu com uma precisão inesperada. O que Kaelina viu nele parecia cansaço, não culpa. Um cansaço irritado, quase humilhado, como se amar Alyra tivesse deixado de ser escolha e se tornado trabalho.
+
+
+Daryon virou o rosto por um instante, e Kaelina percebeu algo que a atingiu com uma precisão inesperada. Kaelina viu Daryon apertar a mandíbula. Ele parecia exausto, mas continuava escolhendo as palavras com cuidado.
 
 — Há coisas agora que precisam permanecer limpas — disse ele.
 
@@ -134,7 +130,7 @@ Daryon não respondeu. Ylvena deu um passo na direção dele.
 
 — Por quê, Daryon?
 
-— Porque Alyra não pode carregar o futuro de Kaendar com você presa debaixo dos pés dela.
+— Porque Alyra precisa ficar longe disso. Agora mais do que nunca.
 
 Daryon ficou imóvel por um instante depois da frase. Kaelina, de seu esconderijo, não entendeu completamente o que havia escapado. Ylvena, porém, parou de respirar por meio sopro. Um músculo se moveu perto dos olhos. A boca abriu num quase sorriso. Ela inclinou a cabeça e voltou a olhar para Daryon, agora com atenção diferente.
 
@@ -152,7 +148,7 @@ Ylvena riu, e dessa vez o riso veio mais alto, feio, cortando o ar baixo do esco
 
 — Grávida.
 
-Kaelina quase recuou. Marken não a segurou dessa vez. Apenas permaneceu ao lado, como se soubesse que certas quedas acontecem por dentro. Ylvena parou de rir.
+Kaelina se apoiou na pedra. Marken permaneceu ao lado, sem tocá-la. Ylvena parou de rir.
 
 — Então é isso. É por isso que você me quer fora daqui.
 
@@ -174,63 +170,71 @@ Daryon fechou os olhos por um instante. Quando os abriu, a frieza havia voltado,
 
 Kaelina levou a mão à parede. As pedras estavam frias. Ylvena avançou mais um passo.
 
-— Eu esperei nas florestas frias por dias. Você sabe disso. Esperei até aparecerem dois garotos Polar achando que caçar era o mesmo que viver. Eram jovens demais para entender que o mundo já estava usando o nome deles antes de morrerem. Um deles tentou correr. O outro tentou defender o primeiro. Foi quase bonito, se beleza ainda significasse alguma coisa.
+— Esperei nas florestas frias até chegarem aqueles dois rapazes Polar — disse Ylvena. — Tinham saído para caçar. Um tentou fugir. O outro ficou para defendê-lo.
 
-Kaelina abriu a boca, mas nenhum som saiu. Os garotos. A Primeira Faísca. O pátio. A mãe caindo de joelhos na lama. Ylvena continuou, e sua voz não tremia.
+— Chega.
 
-— Depois deixei o talismã onde qualquer Vigia veria. Não perto demais para parecer plantado por uma idiota. Não longe demais para parecer perdido. O bastante para Kaendar encontrar o nome que queria odiar.
+— Depois pus o talismã perto deles, bem onde os Vigias acabariam procurando. Era só fazer Kaendar olhar para os Tondrar.
 
-— Você matou duas crianças — disse Daryon.
+Kaelina apertou a pedra com a mão ferida. Lembrou-se da mãe dos jovens no pátio, ajoelhada junto aos corpos.
 
-— Eu dei a Alyra o que ela queria.
+— Você matou dois meninos — disse Daryon.
 
-— Não use o nome dela para limpar tua mão.
+— Matei. E você sabia o que aquela marca faria com tua cidade.
 
-Ylvena aproximou o rosto do dele. A lamparina iluminou um lado de sua face, deixando o outro mergulhado em sombra.
+— Não ponha Alyra no meio disso.
 
-— Eu dei a você o que você queria dar a ela. Há diferença?
+— Eu fiz para você. Para que ela tivesse a guerra que você não podia lhe oferecer com as próprias mãos.
 
-Daryon ficou em silêncio. Kaelina sentiu as unhas entrarem na palma da mão.
+Daryon se calou. Kaelina sentiu as unhas entrarem na palma da mão.
 
-— Você me encontrou depois — disse Ylvena. — Lembra? Eu estava coberta de lama, e você me olhou como se eu fosse uma ferida aberta no teu próprio pensamento. Eu contei. Não escondi. Você podia ter me matado ali. Podia ter chamado os Vigias, podia ter deixado Kaendar me pendurar pelo pescoço e encerrar tudo antes da primeira reunião do Conselho. Mas não fez. Você me trouxe para dentro. Porque conhecia as passagens. Conhecia as muralhas por dentro como conhece gente por dentro. Paredes são fáceis para você, Daryon. Elas não choram quando são atravessadas.
+— Contei tudo quando voltei, ainda com a roupa suja de lama — disse Ylvena. — Você podia me entregar aos Vigias. Em vez disso, me trouxe pelas passagens escondidas.
+
+— Você não entende o que teria acontecido.
+
+— Entendo, sim. Podia me entregar. Não entregou.
 
 — Eu te trouxe porque você sabia demais.
 
-— Mentira.
+— E porque era perigosa? — perguntou Ylvena. — Foi isso que disse a si mesmo?
 
-— Porque você era perigosa.
+— Você era perigosa.
 
-— Mentira.
+— Então por que não me entregou?
 
-— Porque se fosse encontrada por Alyra, ela faria pior.
+— Porque, se Alyra a encontrasse...
 
-— Mentira.
+— Não use Alyra como desculpa. Por que me salvou?
 
-Daryon bateu a mão na mesa. A lamparina saltou, e a luz tremeu nas paredes.
+Daryon bateu a mão na mesa. A lamparina saltou.
 
 — Porque eu não consegui deixar você morrer!
 
-Depois disso, nenhuma das duas falou por alguns instantes. Ylvena respirou devagar. O rosto dela suavizou por um instante, não por ternura, mas por reconhecimento. Ela havia arrancado uma verdade e agora a segurava como quem segura uma faca pela lâmina sem se importar com o corte.
+Ylvena ficou em silêncio. A raiva diminuiu por um instante ao ouvir que Daryon não conseguira abandoná-la.
 
-— Você gosta de mim.
+— Você se importa comigo — disse Ylvena.
 
-Daryon não respondeu.
+Daryon olhou para o chão.
 
-— O bastante para me salvar — continuou ela. — Mas nunca me amou. Porque amor é a palavra que gente fraca usa quando quer que o mundo respeite sua fome sem chamá-la pelo nome. Eu amei você de forma útil. Fiz o que o sentimento sozinho nunca faria. Entendi o que você queria antes que você tivesse coragem de pedir.
+— O bastante para me esconder, mas não para ficar comigo. Eu te amei, Daryon. E, quando percebi que só tinha olhos para Alyra, tentei ser útil. Foi o que me restou.
 
-Kaelina ouviu a própria respiração ficar mais pesada. Quis tapar os ouvidos e, ao mesmo tempo, continuar ouvindo. Quis que Orionus entrasse pela parede e dissesse que tudo aquilo era uma mentira ridícula inventada por uma mulher quebrada. Mas Orionus estava morto. E aquela mulher acabara de dizer que sabia fazer mortes parecerem nomes de clã. Daryon respirou fundo.
+— Você matou pessoas.
+
+— E você aproveitou cada morte que podia aproveitar.
+
+
+
+Kaelina teve de apoiar a testa na pedra para continuar ouvindo. Queria que aquilo fosse uma mentira, mas as confissões encaixavam-se nos registros que encontrara e nas mortes que testemunhara. Daryon respirou fundo.
 
 — Você enlouqueceu.
 
 Ylvena sorriu.
 
-— Sabe… é muito curioso esse sentimento que tem pelos “meninos”. Você me colocou para dentro quando os meninos foram mortos, mas me colocou para fora quando nós dois sobrevivemos à morte de Orionus.
+— Quando Orionus morreu, você deixou que me expulsassem — disse Ylvena. — Depois dos dois meninos, me trouxe de volta e me enfiou neste buraco. Você sempre arranja um jeito de me tirar de vista.
 
-O nome do pai atravessou Kaelina. Ela se moveu antes de pensar.
+Kaelina encostou a mão na pedra. O nome do pai havia entrado naquela conversa como mais um crime.
 
-— Nós dois?
-
-— Eu como acusada e você como puro.
+— Fui eu que enfrentei a acusação — continuou Ylvena. — Você continuou nos salões, limpo.
 
 Daryon aproximou-se dela tão depressa que Kaelina pensou que fosse golpeá-la. Mas ele parou a um palmo de seu rosto.
 
@@ -242,7 +246,11 @@ A frase saiu baixa. Mais baixa do que as outras. Justamente por isso, pareceu ma
 
 Kaelina sentiu o mundo inclinar.
 
-— Colocou Beijo-da-Noite numa taça destinada a ela — continuou Daryon. — Uma dose pequena o bastante para parecer doença se demorasse. Forte o bastante para derrubar alguém que não esperava veneno dentro da própria casa. Era pra ela ter morrido no lugar de Orionus.
+— Você pôs Beijo-da-Noite na taça de Alyra — disse Daryon. — Uma dose para adoecer primeiro, para que ninguém desconfiasse de veneno. Se ela bebesse tudo, morreria. Mas foi Orionus quem bebeu.
+
+— Eu sei quem bebeu — respondeu Ylvena, seca.
+
+— Era Alyra que você queria matar. Não ele.
 
 O ar saiu dos pulmões de Kaelina. Ylvena baixou os olhos por um instante, e talvez ali houvesse alguma coisa parecida com tristeza. Mas, se havia, era velha demais para pedir perdão. Então ela ergueu o rosto, e a tristeza desapareceu.
 
@@ -256,15 +264,23 @@ Daryon apertou a mandíbula.
 
 Daryon olhou para a mesa, para a lamparina, para as paredes que o escondiam junto com ela. Quando falou, havia no rosto dele algo tão gasto que Kaelina quase não reconheceu o conselheiro de Alyra.
 
-— Eu destruí registros. Menti pra te salvar. Coloquei você no Corredor dos Mantos quando ninguém podia ter certeza. Fiz uma costureira lembrar do que nunca vira. Fiz horários mudarem de lugar como peças de jogo. Transformei erva-de-jijo em dúvida, mesmo sabendo que o Beijo-da-Noite nunca apareceria onde eu deixei que procurassem. Entreguei ao Conselho um veneno errado, uma presença errada, uma sequência errada. Não limpei teu nome. Só sujei a verdade até ninguém conseguir segurá-la.
+— Eu destruí registros para que não a condenassem — disse Daryon. — Fiz uma costureira jurar que viu o que nunca viu. Alterei os horários. Coloquei você no Corredor dos Mantos quando ninguém podia confirmar onde estava.
 
-Kaelina sentiu o estômago se contrair. As provas. Os registros. A dúvida. A inocência de Ylvena não fora inocência. Fora uma construção. Daryon não havia descoberto uma mulher injustiçada. Havia coberto uma assassina.
+Ylvena não o interrompeu.
 
-— Ainda assim… deixou que me expulsassem — disse Ylvena.
+— A erva-de-jijo foi outro desvio — continuou ele. — Sabia que não iam encontrar Beijo-da-Noite onde mandei procurar. Entreguei ao Conselho outro veneno, outros horários, outra testemunha. Depois de tanta coisa errada, ninguém conseguia provar nada.
 
-— Porque não pude fazer mais. Se eu fizesse, todos veriam minha mão.
+— E mesmo assim me expulsaram.
 
-— Sempre sua mão. Sempre teu cuidado com a mão. Você atravessa vidas inteiras e ainda quer manter os dedos limpos. Eu é que tenho que sujar as mãos. Perdi meu único amigo, lembra-se. Ou o mais próximo disso que uma mulher como eu podia ter depois que você me transformou em parede. Ele devia matar Kaelina. Abrir o caminho para sua Alyra. Mas morreu antes. Pelo desconhecido que vocês escondem no castelo.
+— Porque eu já não podia mexer em mais nada sem que descobrissem minha mão.
+
+Kaelina apertou os dedos contra a pedra até sentir a dor subir pelo pulso ferido.
+
+— Você sempre encontra um jeito de sair limpo — disse Ylvena. — Eu fiquei sozinha. Até o homem que mandei matar Kaelina morreu antes de cumprir o serviço.
+
+— O homem que tentou atacar aquele desconhecido no castelo?
+
+— Era o único em quem ainda podia confiar. Devia abrir o caminho para Alyra. Morreu por causa do rapaz que vocês escondem.
 
 — Um erro que quase nos custou. Se seu “amigo” fosse capturado e falasse…
 
@@ -276,7 +292,7 @@ Ele parou. Kaelina não entendeu de imediato. Daryon permaneceu de costas para Y
 
 — Não fale disso.
 
-— Por quê? Agora temos regras? Você pode jogar Orionus na minha cara, pode jogar Alyra, pode jogar os garotos, mas eu não posso tocar na tua obra?
+— Por quê? Agora temos regras? Você pode falar de Orionus, de Alyra, dos dois rapazes. Mas eu não posso falar do que você fez?
 
 Daryon virou-se. Havia ódio no rosto dele agora, mas não apenas contra ela. Contra si mesmo, talvez, contra Alyra, contra o fato de ter sido compreendido pela única pessoa que ele queria apagar.
 
@@ -286,17 +302,27 @@ Kaelina estava entendendo agora. A Lei do Portão. A morte durante a tentativa d
 
 — Se Alyra descobrisse que os Tondrar não mataram os garotos, iria desconfiar — disse ele. — Iria chegar até você.
 
-— Não, Daryon. Você o matou pela mesma razão que matei os garotos. Quis dar o poder nas mãos de Alyra. Quis fazer com que ela tenha o que sempre quis. Ser uma líder forte.
+— Você matou Yvenn porque sabia o que aconteceria depois. Sem trégua, Alyra teria a guerra que queria. Foi pelo mesmo motivo que matei os rapazes.
 
-Daryon podia dizer dez mil coisas, mas apenas uma palavra, pequena demais para o tamanho dela, saiu de sua boca:
+Daryon não tentou negar.
 
 — Sim.
 
 Kaelina levou a mão à boca. Não para impedir grito. Para impedir vômito. Daryon continuou, e agora parecia falar menos com Ylvena do que com uma ferida que o acompanhava desde então.
 
-— Eu não contei a Alyra. Eu dei a ela a guerra que ela não podia ordenar sem parecer monstro. Dei um morto à Lei do Portão, dei ao Conselho o medo de que até a paz fosse armadilha, dei a Kaendar um motivo para fechar a mão.
+— Não contei a Alyra — disse Daryon. — Ela não teria aceitado saber dos garotos. Precisava acreditar que os Tondrar tinham começado tudo.
 
-Ylvena olhava para ele com uma espécie de ternura horrível.
+— Então fez a trégua acabar — respondeu Ylvena.
+
+— Envenenei Yvenn. Sabia que, se morresse durante a trégua, ninguém no Conselho teria coragem de insistir na paz. Alyra nem precisaria mandar fazer aquilo.
+
+Daryon se apoiou na borda da mesa.
+
+— Dei a ela a guerra que ela queria, sem que precisasse pedir.
+
+
+
+Ylvena olhou para ele com uma ternura que Kaelina não conseguia compreender.
 
 — Viu? Você aprendeu.
 
@@ -318,17 +344,17 @@ Daryon retirou a mão.
 
 Ele foi até a parede oposta, tocou uma pedra baixa e outra mais alta, e uma passagem estreita se abriu. Ylvena ficou imóvel. Daryon atravessou a passagem, e a pedra voltou ao lugar com um ruído baixo, como se a cidade engolisse mais um segredo. Por um tempo, ninguém se moveu.
 
-Kaelina continuava atrás da fenda. A cabeça parecia cheia de sinos, embora ali embaixo quase não se ouvissem. Orionus. Os garotos. Yvenn Raiz-Branca. O assassino. Alyra. A criança. Daryon. Ylvena. Beijo-da-Noite. Corredor dos Mantos. Tudo se misturava, mas não virava confusão. Virava certeza demais. Ylvena respirou uma vez. Depois outra.
+Kaelina continuava atrás da fenda. Daryon encobrira as duas mortes, desviara a investigação de Orionus e fizera a Lei do Portão servir à guerra. Ylvena executara os crimes dos quais ele tirara proveito. Do outro lado da pedra, a mulher permaneceu imóvel depois que Daryon saiu.
 
 Então agarrou a jarra sobre a mesa e a arremessou contra a parede. O barro se quebrou em pedaços, a água escorreu pela pedra, e o som pareceu acordar Kaelina de dentro do próprio horror.
 
-Kaelina se moveu. Talvez Marken pudesse tê-la impedido se quisesse. Talvez pudesse tê-la arrastado dali, carregá-la pelos túneis, deixar Ylvena apodrecer sozinha naquele buraco. Mas Marken apenas ficou. E, por algum motivo que Kaelina nunca entenderia, deixou-a passar. A placa escondida rangeu quando Kaelina empurrou.
+Kaelina empurrou a placa escondida. Marken não a impediu. A pedra rangeu ao abrir.
 
 Ylvena virou-se de imediato, mas não viu Kaelina de frente. Viu primeiro o reflexo.
 
 O espelho sujo, rachado e encostado contra a caixa de madeira devolveu uma imagem quebrada: uma mulher pálida, de cabelos soltos pelo combate, sangue seco no pescoço, roupas manchadas de fumaça e lama, olhos fundos demais para uma soberana. Ylvena viu a imagem, e por um instante não soube se olhava para Kaelina ou para uma acusação que a pedra havia cuspido. Kaelina entrou devagar.
 
-Não porque quisesse parecer forte. Porque não conseguia andar mais depressa. Ylvena recuou um passo.
+Mal conseguia andar sem apoio. Ylvena recuou um passo.
 
 — Soberana — disse Ylvena.
 
@@ -360,19 +386,19 @@ Kaelina fechou os olhos por um instante. Viu a mãe no pátio abraçando o filho
 
 Quando abriu os olhos, Ylvena ainda estava ali. Pequena demais para tanto estrago.
 
-— Você destruiu minha vida — disse Kaelina.
+— Você matou meu pai e usou a morte dele para destruir a minha família — disse Kaelina.
 
 Ylvena soltou um suspiro.
 
-— Você corrompeu Kaendar.
+— Kaendar já estava podre antes de eu chegar.
 
 — Kaendar está corrompida desde que aprenderam a chamar sobrevivência de direito.
 
-Kaelina deu outro passo, e dessa vez Ylvena viu que havia algo mudando. Não coragem. Não autoridade. Algo mais baixo. Mais antigo. Algo que não precisava de trono.
+Kaelina deu outro passo. Ylvena acompanhou suas mãos, que se fechavam devagar.
 
 Ylvena olhou para a lamparina. Foi um movimento pequeno demais para ser casual. Então agarrou a lamparina e a lançou contra ela.
 
-Kaelina desviou por instinto, não por cálculo. O objeto passou raspando pelo ombro e bateu na parede atrás, espalhando óleo e chama pequena sobre a pedra úmida. O fogo não pegou forte, mas a luz saltou, e Ylvena avançou junto com ela, rápida demais para uma mulher que parecia tão gasta. O primeiro golpe acertou Kaelina no rosto.
+Kaelina desviou. O objeto passou raspando pelo ombro e bateu na parede atrás, espalhando óleo e chama pequena sobre a pedra úmida. O fogo não pegou forte, mas a luz saltou, e Ylvena avançou junto com ela, rápida demais para uma mulher que parecia tão gasta. O primeiro golpe acertou Kaelina no rosto.
 
 O soco veio cru: mão fechada, osso contra boca, raiva contra cansaço. Kaelina cambaleou e bateu as costas na parede. Ylvena tentou agarrar seu cabelo, mas Kaelina levantou o braço, pegando o pulso dela. A dor nos próprios pulsos fez sua força falhar. Ylvena aproveitou, empurrou-a contra a mesa e tentou alcançar uma lâmina pequena escondida entre panos.
 
@@ -408,11 +434,11 @@ E outra vez.
 
 O impacto seguinte fez o corpo de Ylvena perder força.
 
-— Você destruiu Kaendar.
+— Você fez meu povo acreditar numa mentira.
 
 Kaelina ainda bateu mais uma vez. O rosto de Ylvena já não respondia como antes, mas Kaelina mal o enxergava. Via Orionus deitado, sem ar, Yvenn Raiz-Branca morrendo diante da Lei do Portão. Via Edran ficando para trás na memória como se a cidade tivesse arrancado dele a última utilidade, a mãe no pátio, Alyra grávida, escondendo uma criança enquanto todos sangravam.
 
-Marken disse algo atrás dela. Talvez seu nome. Kaelina não ouviu. Bateu mais uma vez. E então parou. Não porque escolheu. Porque o corpo não conseguiu continuar. O silêncio veio de repente, brutal, quase ofensivo. Ylvena não se mexia.
+Marken disse algo atrás dela. Talvez seu nome. Kaelina não ouviu. Bateu mais uma vez. Então os braços falharam e ela parou. O silêncio veio de repente, brutal, quase ofensivo. Ylvena não se mexia.
 
 Kaelina ficou sobre ela, as mãos presas no cabelo da mulher, os dedos molhados, os joelhos doendo contra a pedra. A respiração vinha em pedaços. A lamparina caída ainda queimava fraca num canto, lambendo óleo que não encontrava alimento suficiente para crescer. A água da jarra quebrada se espalhava pelo chão, levando fios de sangue em linhas finas. Kaelina soltou Ylvena.
 
@@ -422,10 +448,10 @@ Havia sangue nos dedos, nas unhas, nas linhas da palma, escorrendo pelo pulso, m
 
 Kaelina olhou para o corpo. O que ela tinha feito? Viva, Ylvena podia falar. Morta, voltava a ser rumor.
 
-O pensamento veio tão claro que quase pareceu dito por outra pessoa. Ninguém nunca mais saberia a verdade como ela ouvira — Ylvena dizer que matou os garotos, confessar que Orionus bebera o Beijo-da-Noite destinado a Alyra, dizer que mandara um homem matar Kaelina. Tudo agora dependia de uma soberana coberta de sangue e de um homem que não pertencia a lugar nenhum.
+Ylvena confessara os dois jovens Polar, o Beijo-da-Noite destinado a Alyra e a ordem para matar Kaelina. Marken ouvira tudo. Mas quem acreditaria na soberana que acabara de matá-la e num estranho sem cargo nem nome reconhecido em Kaendar?
 
-Kaelina olhou para Marken, imóvel no fundo do cômodo, meio tomado pela escuridão da passagem. Seu rosto não oferecia piedade clara. Para Kaelina, parecia uma porta aberta para um lugar onde respostas nunca ficavam tempo suficiente para virar conforto.
+Kaelina procurou Marken no fundo do cômodo. Ele permanecia junto à passagem, sem se aproximar.
 
-Mas Marken apenas olhou para ela. Depois deu um passo para trás. Recuou mais, entrando na sombra da passagem estreita. A escuridão tomou primeiro o sangue seco em sua roupa, depois o braço ferido, depois metade do rosto. Por último, ficaram os olhos, calmos demais para uma noite como aquela. E então nem eles ficaram.
+Marken olhou para ela sem responder. Depois deu um passo para trás. Recuou mais, entrando na sombra da passagem estreita. A escuridão tomou primeiro o sangue seco em sua roupa, depois o braço ferido, depois metade do rosto. Por último, ficaram os olhos, calmos demais para uma noite como aquela. E então nem eles ficaram.
 
 Kaelina permaneceu sentada no chão do esconderijo, diante do corpo imóvel de Ylvena. Acima das pedras, Kaendar ardia.

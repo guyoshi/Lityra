@@ -114,7 +114,7 @@ Levantei a cabeça e vi uma senhora baixa e curvada, com o mesmo olhar carrancud
 
 Engoli a resposta fácil.
 
-— Fui morar perto da minha filha — ela disse. — Achei que ia ser bom. Família. Companhia. Mas eu sentia que tava atrapalhando mais que ajudando. Tem lugar que a gente ocupa sem querer… e mesmo assim ocupa.
+— Depois que caí da escada, meus filhos resolveram que eu não podia continuar aqui sozinha. Fui morar perto da minha filha — ela disse. — Ela jura que eu escorreguei. Meu filho perguntou umas três vezes no que eu tinha tropeçado, porque não havia nada nos degraus. Eu não lembro. Só lembro de estar lá em cima e depois no chão. Achei que ia ser bom morar com a família. Companhia. Mas eu sentia que tava atrapalhando mais que ajudando. Tem lugar que a gente ocupa sem querer… e mesmo assim ocupa.
 
 — Às vezes é melhor termos nosso espaço mesmo. Escuta, D. Esther… posso conversar com a senhora… em particular?
 
@@ -211,69 +211,19 @@ Funguei e limpei as lágrimas com o punho, sentindo vergonha de chorar em voz al
 
 — Eu sinto muito. Eu sinto muito mesmo.
 
-Fiquei ali por um tempo, com o sol batendo em cima de mim, e em algum momento apaguei. Foi menos um sono do que um desligar.
+Fiquei ali com o sol nas costas, escutando um pássaro insistir na mesma nota em algum lugar acima dos túmulos. Em algum momento fechei os olhos.
 
-Quando abri os olhos, já era noite.
+Quando voltei a abri-los, não havia mais sol. Uma luz amarela vinha do caminho principal, e eu estava deitado de lado, com a bochecha encostada na terra fria.
 
-A lua estava cheia.
+Levantei depressa. A última coisa de que me lembrava era ter dito que precisava seguir em frente. A tarde inteira tinha desaparecido. Olhei para o relógio e depois para a lápide. Tinha dormido? Desmaiado? Não sentia a moleza de quem acabara de acordar.
 
-Demorei alguns segundos para entender onde eu estava. E quando entendi, o medo veio como um soco.
+Peguei a mochila. Meu caderno estava fora dela, aberto no chão, algumas páginas amassadas pelo peso de uma pedra pequena. Na folha de cima havia a data daquele dia escrita três vezes. A letra era minha. A pressão da caneta tinha quase rasgado o papel. Procurei a caneta e a encontrei no bolso da calça, com a tampa encaixada.
 
-Eu morria de medo do escuro. Estar num cemitério à noite era uma forma de tortura que eu não teria escolhido nem para inimigo.
+Não lembrava de ter tirado o caderno. Nem de escrever. Fechei-o sem terminar de olhar. Eu morria de medo do escuro; ficar sozinho num cemitério depois que as visitas iam embora já era tortura suficiente sem precisar saber o que fizera durante aquelas horas.
 
-Estava frio. Eu me levantei e olhei ao redor com a sensação de que cada sombra podia estar olhando de volta.
+O portão rangeu enquanto eu saía. Parei na calçada, ouvi outra vez o mesmo ruído, mas o ferro estava imóvel. Fui embora antes que meu cérebro inventasse um motivo para voltar.
 
-Olhei mais uma vez para o túmulo da Kelly e me virei para sair.
-
-Foi quando ouvi um som atrás de mim.
-
-Um som que não combinava com vento. Nem com bicho comum.
-
-Era um guincho abafado, úmido, errado, como se alguma coisa estivesse tentando respirar dentro de uma garganta cheia de terra.
-
-Ouvi de novo, mais perto, mais insistente. E senti no fundo do estômago aquela certeza irracional que vinha do corpo.
-
-Eu me desloquei, dei a volta no túmulo. E vi… alguma coisa se erguer do chão.
-
-Era um corpo cadavérico. Pele escura, apodrecida, cabelo sujo de barro. Dentes à mostra. Os olhos eram só órbitas vazias. O que restava das coxas tinha uma mistura de roxo e preto. Pedaços internos apareciam por aberturas da decomposição e tinham uma cor que não fazia sentido, viva e morta ao mesmo tempo.
-
-O cheiro era uma agressão. Era como respirar o fim de alguma coisa.
-
-E então, de um jeito que fez meu cérebro travar, eu reconheci.
-
-A voz veio dela, ou do que quer que aquilo fosse.
-
-— Olha o que você fez comigo.
-
-Eu fiquei imóvel.
-
-O corpo apontou para um buraco no peito.
-
-— Você me matou.
-
-— Não — eu disse, recuando, e a palavra saiu mais como reflexo do que como argumento.
-
-— E agora você quer me abandonar? — ela falou, e cada sílaba parecia arranhar. — Você é quem deveria estar no meu lugar.
-
-A cabeça tombou para o lado e, enquanto ela andava, alguns pedaços ficavam para trás. Eu vi fragmentos de carne caírem, como se nem a matéria dela quisesse continuar junta. Então ela berrou.
-
-Um berro que parecia rasgar o ar.
-
-E correu na minha direção.
-
-Eu não pensei. Eu fugi.
-
-Corri o mais rápido que consegui em direção à saída do cemitério. Olhei para trás: ela estava alcançando. Quando alcancei o portão, empurrei, e ele cedeu com um rangido.
-
-Passei, puxei de volta, fechei com força e continuei correndo, como se as casas, os postes e o asfalto pudessem me proteger só por existirem.
-
-Quando olhei para trás, nada me perseguia.
-
-O cadáver tinha ficado no cemitério.
-
-Aquilo tinha sido mais do que sonho. Voltei para casa a passos largos, aflito, com a sensação de que o mundo estava brincando com as minhas lembranças.
-
-E então eu vi uma garota parada em frente à minha porta.
+Quando cheguei à minha rua, havia uma garota parada em frente à minha porta.
 
 Ela tinha olhos escuros. A franja caída na testa. O rosto e o cabelo estavam sujos de terra, de estrada, de fuga.
 

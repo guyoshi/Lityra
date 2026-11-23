@@ -159,23 +159,31 @@ Eu forcei um sorriso só o suficiente para ele ir embora com a sensação de que
 
 Ele olhou por cima do meu ombro e franziu a testa.
 
-— Por que tem uma toalha no espelho do guarda-roupa?
+— Foi você que cobriu o espelho menor também? — Jason perguntou, olhando para a porta do guarda-roupa. — Eu tinha mandado cobrir o grande.
 
-Eu não tinha resposta pronta, e deixei isso aparecer no rosto.
+— Foi. Algum problema?
 
-— Glenda. — Ele inclinou a cabeça, num tom que não era de brincadeira nem de acusação. — Você se acha feia? Você é a pessoa mais olhada que eu conheço.
+— Nenhum. Só que... — Ele se aproximou e pegou uma ponta da toalha. — Minha mãe dizia que, quando a gente não gosta de alguma coisa no próprio rosto, tem que olhar até acostumar. Eu sei que parece conversa de mãe, mas...
 
-— Não é isso. — Eu mexi na mecha branca, que sempre foi um bom álibi, e deixei a voz diminuir no ponto exato. — Na escola, lá no Rio, era o que mais me enchiam o saco. Cruella, bruxa, olho de gato. Teve uma época em que um grupo me esperava na saída só para ver se eu ia chorar. Eu aprendi a não me olhar. Só isso. É besteira.
+A toalha escorregou, deixando aparecer uma tira de vidro.
 
-— Por que você nunca me contou?
+— NÃO!
 
-— Porque eu já tenho a minha cara para lidar. Não precisava te dar mais um problema.
+Jason largou o tecido no mesmo instante. Eu o puxei de volta com as duas mãos, prendendo-o na madeira. Só depois percebi que tinha gritado. Jason me olhava sem entender.
 
-Jason passou a mão no meu ombro, desajeitado, com a culpa de quem queria ter estado lá.
+— Desculpa. Eu não queria... Eu achei que você estava triste por causa das coisas que falavam de você, daquela mecha no cabelo, dos seus olhos. Sua mãe disse que você passou por isso na escola.
 
-— Se precisar de um espelho melhor, a gente compra.
+— Passei, Jason. Mas essa tua terapia de tirar pano dos móveis é uma porcaria. — Apertei a ponta da toalha mais uma vez. — Deixa onde está, tá?
 
-Ele sorriu, convencido de que tinha entendido tudo, e eu deixei. A melhor mentira é a que a pessoa constrói sozinha partindo de um pedaço de verdade.
+Ele passou a mão pela nuca, visivelmente sem graça.
+
+— Tá. Claro. Só queria ajudar. Você sabe que eu te acho bonita, né? Não precisa ficar tentando esconder o rosto por minha causa.
+
+Eu quase ri, mas a minha garganta continuava apertada.
+
+— Eu sei, querido. E agradeço pela consulta. Agora vai lá encontrar tua namorada antes que ela encontre alguém com diploma em Psicologia.
+
+Ele sorriu, aliviado por eu ter feito uma piada, e saiu. Esperei até ouvir os passos dele desaparecerem na escada. O tecido estava no lugar. Não olhei para conferir o que havia por baixo.
 
 Peguei a filmadora na mochila. Eu vinha gravando o meu diário em vídeo por rotina, e o que não é registrado pode ser negado. Saí do quarto e fui até o banheiro do piso superior.
 
@@ -319,6 +327,6 @@ O pavor tinha mudado de lugar.
 
 Sentei no vaso e, aos poucos, uma tranquilidade estranha me acometeu. Eu comecei a rir. Não uma risada bonita, nem baixa, nem controlada. Eu ri como se fosse outra pessoa, assistindo à minha própria vida e finalmente entendendo a piada.
 
-Porque era isso: o horror podia correr atrás de mim com um facão, mas a coisa que me beijou sem permissão tinha um nome, uma casa, uma arma e uma reputação, e ainda assim o mundo chamava aquilo de “segurança”.
+Lembrei do facão erguido atrás de mim e depois da mão de Diego segurando a minha. O corredor continuava quieto. Naquela casa, o silêncio não significava que eu estivesse sozinha.
 
 Fiquei sentada ali até a risada passar. Depois lavei o rosto e fui para o quarto. As mãos ainda tremiam. Eu estava cansada de ter medo de Diego, mas naquela noite não consegui dormir.

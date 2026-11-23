@@ -1,10 +1,8 @@
-# Capítulo 34 — Marcas na Cidade
+# Capítulo 34: Marcas na Cidade
 
-Desde a madrugada em que vira a Balança descarregar caixas numa oficina de Maruva, Elis prestava mais atenção às ruas antes do amanhecer.
+Desde que vira os homens da Balança descarregarem caixas numa oficina de Maruva, Elis passou a sair antes do sol. Refazia o caminho, examinava portas e voltava sem descobrir nada.
 
-Quando acordava cedo, refazia parte do caminho daquela madrugada, olhando esquinas, portas e soleiras, e voltava sem encontrar nada.
-
-Naquela manhã acordou antes da claridade, por escolha já transformada em hábito.
+Naquela manhã, acordou ainda no escuro.
 
 Karesis dormia no térreo, a respiração pesada e regular chegando até ela por cima do silêncio da casa. Orel também dormia. Tair, do outro lado do cômodo, respirava devagar, um braço jogado para fora do cobertor fino.
 
@@ -34,7 +32,7 @@ Elis quase pulou. Virou-se rápido demais, o coração disparado, e encontrou Ta
 
 Ela hesitou, calculando se valia explicar ou inventar uma desculpa rápida. Decidiu pela verdade.
 
-— Tem um homem marcando portas.
+— Tem um cara fazendo risco nas portas.
 
 — Marcando o quê?
 
@@ -44,9 +42,9 @@ Ela apontou para a base da porta mais próxima. Tair se aproximou, examinou o ri
 
 — Eu vi ele fazer.
 
-— Você viu quem fazer?
+— Viu quem foi?
 
-— Não sei quem. Um homem qualquer. Ele fez isso e foi embora, por ali. — Ela apontou na direção que o homem tinha tomado.
+— Não conheço ele. Riscou essa porta e foi por ali. — Elis apontou a esquina.
 
 Tair olhou para o caminho, depois para a marca, depois para Elis, como quem decidia algo em silêncio.
 
@@ -54,7 +52,7 @@ Tair olhou para o caminho, depois para a marca, depois para Elis, como quem deci
 
 Não era pergunta. Elis assentiu mesmo assim.
 
-— Depois do que aconteceu com Kalan — Tair começou, devagar, escolhendo as palavras — você não devia seguir gente estranha sozinha por aí.
+— Depois do que fizeram com Kalan, você ainda sai seguindo desconhecido sozinha? — Tair baixou a voz.
 
 — Eu sei.
 
@@ -70,11 +68,11 @@ Ele olhou para a rua por onde o homem tinha desaparecido. Elis conhecia aquela h
 
 — Eu sei que não preciso. — Ele já estava ajustando a própria roupa, se preparando para seguir. — Vou mesmo assim.
 
-— Se a gente for pego — Tair disse, ajeitando a própria roupa contra o frio —, eu quero que fique registrado que eu avisei.
+— Se pegarem a gente, não esquece que eu avisei — disse Tair, apertando a roupa contra o frio.
 
-— Registrado onde?
+— Quer que eu escreva onde?
 
-— Não sei. Em algum lugar. No universo.
+— Escreve na testa, se der tempo.
 
 Elis quase riu.
 
@@ -92,11 +90,11 @@ As marcas começaram a se multiplicar aos olhos de Elis, agora que sabia o que p
 
 Elis parou, olhou a rua inteira, voltou alguns passos, comparou as marcas anteriores com a que tinha acabado de ver.
 
-— Isso não é identificação de pessoa nenhuma — disse, mais para si mesma do que para Tair.
+— Isso não é nome nem número de casa — murmurou Elis.
 
 — O que é, então?
 
-— É caminho. — Ela sentiu a certeza se formar enquanto falava, como se dizer em voz alta ajudasse a entender melhor. — Alguém está marcando o caminho. Para quem não sabe andar por aqui.
+— É pra mostrar por onde ir! — Elis comparou as marcas. — Pra quem não conhece essas ruas.
 
 Elis conhecia aquelas ruas desde pequena. Quem precisaria das marcas?
 
@@ -148,7 +146,7 @@ Tair ficou olhando para ela por um tempo longo demais para ser confortável.
 
 Ele soltou um som que não era bem riso, frustração misturada com uma admiração forçada.
 
-— Eu vou processar isso depois. Agora, me mostra o caminho.
+— Depois você vai me contar quantas vezes fez isso. Agora anda, me mostra o caminho.
 
 Debaixo da cidade, tudo mudava.
 
@@ -160,9 +158,9 @@ Tair, normalmente o mais cuidadoso dos dois, o que calculava risco antes de qual
 
 — Eu não enxergo. Eu lembro.
 
-— Isso não é reconfortante.
+— Isso não me deixa mais tranquilo.
 
-— Não precisa ser reconfortante. Precisa funcionar.
+— Mas funciona, não funciona? Então vem!
 
 Ele resmungou qualquer coisa entre dentes, mas continuou seguindo.
 
@@ -172,11 +170,11 @@ Ele resmungou qualquer coisa entre dentes, mas continuou seguindo.
 
 — "Desde sempre" não é resposta.
 
-— Desde que eu era pequena o suficiente para caber em lugares que ninguém mais cabia. — Elis desviou de uma poça sem precisar olhar para baixo. — Ninguém perguntava onde eu estava, contanto que eu voltasse antes de escurecer.
+— Desde que eu cabia em buraco que vocês nem conseguiam passar — disse Elis, desviando de uma poça. — Ninguém queria saber onde eu tava, só se eu voltava pra jantar.
 
 Tair não disse mais nada por um tempo.
 
-Emergiram bem além do posto de controle, no começo do Anel Médio. O ar ali era mais frio, cortado por um vento que não existia lá embaixo, carregando um cheiro mais limpo e mais distante.
+Saíram do túnel depois do posto de controle, já no começo do Anel Intermediário. O ar ali era mais frio, cortado por um vento que não existia lá embaixo, carregando um cheiro mais limpo e mais distante.
 
 — Está congelando — Tair reclamou baixinho, os braços cruzados contra o próprio corpo. — Acho que já descobrimos o suficiente por hoje.
 
@@ -246,11 +244,11 @@ Não bateram. Ficaram parados, escutando, até os corações se acalmarem um pou
 
 Elis contornou o prédio, avaliando cada janela e cada porta. Encontrou uma abertura lateral cuja madeira cedia havia anos, o ponto fraco que qualquer casa daquele bairro acabava tendo em algum lugar.
 
-— Isso é invasão de propriedade.
+— A gente tá invadindo uma casa, Elis.
 
-— A propriedade de quem, Tair? Ninguém mora aqui.
+— Casa de quem? Tá vazia!
 
-— Isso não muda o fato de ser invasão.
+— Continua sendo invasão.
 
 Mesmo assim ele ajudou a forçar a abertura, os dedos escorregando na madeira úmida, resmungando o tempo todo que era uma péssima ideia enquanto empurrava com a mesma força que ela.
 
@@ -272,7 +270,7 @@ Elis lembrou, de repente, com clareza incômoda, da frase que ouvira semanas ant
 
 — O quê?
 
-— Foi o que um deles disse quando perguntaram se aquilo não devia estar em outro depósito: "No registro, está." — Ela olhou para as caixas etiquetadas como coisa comum. — Não sei o que escreveram sobre estas.
+— Um deles perguntou se a carga não devia estar noutro depósito. O outro respondeu que, no registro, estava — disse Elis, olhando as etiquetas. — E se escreveram mentira nestas também?
 
 Tair não respondeu, mas o jeito como olhou para as caixas mudou completamente.
 
@@ -282,7 +280,7 @@ Dentro, embrulhadas em pano oleado, havia armas desmontadas. Lâminas separadas 
 
 Tair recuou meio passo, sem esconder o desconforto.
 
-— Isso não é ferramenta de trabalho.
+— Isso aí não é pra trabalhar.
 
 — Não.
 
@@ -302,7 +300,7 @@ Foi a terceira que fez os dois pararem de vez.
 
 Dentro, num forro grosso, havia recipientes de metal reforçado, cada um com um pavio curto saindo de uma abertura lateral. Tair reconheceu num deles um símbolo que já vira em documentos de transporte, um aviso de risco que cargas comuns nunca precisavam carregar.
 
-— Isso é carga de ruptura — disse, a voz quase sem som. — Isso explode, Elis.
+— Isso é carga de ruptura — sussurrou Tair, reconhecendo o aviso que já copiara em registros. — Explode, Elis.
 
 Ela não precisava de mais explicação. Bastava a palavra.
 
@@ -326,21 +324,21 @@ Nada daquilo, sozinho, seria impossível de explicar. Juntos, naquele espaço, f
 
 — O que você quer dizer?
 
-— Minha mãe falava dela, quando eu era pequeno. Dizia que era de um garoto Nular que morava sozinho aqui, há muito tempo, antes de sumir de Maruva. Diziam que ele tinha virado gente importante do outro lado da cidade.
+— Minha mãe falava dessa casa. Um rapaz Nular morava aqui, há muitos ciclos. Depois sumiu. A casa ficou fechada, pelo menos era o que ela dizia.
 
 Elis sentiu um arrepio que não vinha do frio.
 
-— Importante como?
+— Sumiu pra onde?
 
-— Não sei. Minha mãe nunca soube dizer direito. Só falava com aquele tom de quem repete uma história sem ter certeza se é verdade.
+— Não sei. Ninguém soube dizer direito.
 
 — Sua mãe falava mais alguma coisa sobre ele?
 
 Tair pensou, reconstruindo uma lembrança que claramente não visitava havia anos.
 
-— Só que ele tinha sumido de um jeito estranho. Um dia estava lá, no dia seguinte não estava mais, e ninguém soube dizer direito para onde tinha ido. Depois começaram a dizer que ele tinha virado outra pessoa, do outro lado da cidade, com outro nome. Eu sempre achei que era história inventada para assustar criança, do tipo "olha, até um Nular pode sumir sem deixar rastro".
+— Um dia morava aqui, no outro não. Minha mãe achava que tinha mudado de distrito. Os vizinhos inventavam um monte de história.
 
-— E se não fosse história?
+— E se alguém ainda conhece ele?
 
 Tair não teve resposta. Ficou olhando as caixas, os tecidos dobrados, tudo que não combinava com uma casa simplesmente abandonada.
 

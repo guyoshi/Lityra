@@ -8,7 +8,9 @@ Cal Edran Polar ficava de pé junto à porta, sem cadeira na Mesa. Tinha as mão
 
 Daryon estava sentado à direita da cadeira vazia de Alyra, com os dedos longos repousados sobre a mesa.
 
-Brokan das Forjas mantinha os braços cruzados, as mãos deformadas por anos de martelo escondidas sob os cotovelos e cinza presa na barba espessa. Iressa Mão-de-Sal, seca e de unhas curtas, já fazia contas numa tábua. Varron Meio-Olho observava a sala com a cavidade esquerda descoberta, a cicatriz descendo até a maçã do rosto. Nalia do Rio permanecia calada, os punhos da roupa escura arrematados em corda trançada. Thoren dos Grãos tossia de tempos em tempos, farinha presa nas dobras da túnica. Odran Porta-Baixa, compacto, de cabeça raspada e pescoço grosso, vigiava a porta com as chaves quietas no cinto. Maelis preparava os registros, Yvenn Raiz-Branca murmurava entre os dedos longos, Lurok, de barba aparada e anéis discretos, acompanhava quem parecia vencer e Seron, com fios grisalhos no cabelo escuro, batia dois dedos na madeira.
+Brokan das Forjas mantinha os braços cruzados, escondendo as mãos deformadas por anos de martelo sob os cotovelos. A barba espessa ainda trazia cinza. Iressa Mão-de-Sal já fazia contas numa tábua, enquanto Varron Meio-Olho observava a sala com a cavidade esquerda descoberta. Nalia do Rio permanecia calada, os punhos da roupa escura arrematados em corda trançada.
+
+Do outro lado, Thoren dos Grãos tossia, com farinha nas dobras da túnica. Odran Porta-Baixa vigiava a porta, as chaves quietas no cinto. Maelis preparava os registros. Yvenn Raiz-Branca murmurava, os dedos longos entrelaçados. Lurok, de barba aparada e anéis discretos, acompanhava quem parecia ganhar a discussão. Seron, de cabelos grisalhos nas têmporas, batia dois dedos na madeira.
 
 Kaelina olhou de novo para a cadeira vazia.
 
@@ -112,7 +114,7 @@ Maelis pigarreou.
 
 Pão, água, sal, testemunha e palavra pública: o costume antigo.
 
-Varron Meio-Olho inclinou a cabeça, o olho bom parado no mapa como se já visse Vigias mortos em cada trilha.
+Varron Meio-Olho inclinou a cabeça, o olho bom fixo nas trilhas marcadas no mapa.
 
 — A Lei do Portão não é usada há anos. Orionus mesmo não a usou por muito tempo.
 
@@ -122,7 +124,7 @@ Edran, junto à porta, moveu os olhos para ele. Varron percebeu, mas não recuou
 
 Kaelina respirou fundo.
 
-— Meu pai criou a Lei do Portão para dias como este.
+— Meu pai fez da Lei do Portão uma obrigação justamente para dias como este.
 
 — Seu pai também sabia quando quebrar dentes — disse Brokan.
 
@@ -178,7 +180,7 @@ Kaelina levantou-se de novo, desta vez, rápido.
 
 — Cale-se agora!
 
-A frase bateu na pedra. Daryon ficou parado, o sorriso desaparecendo. Kaelina apoiou as duas mãos na mesa, inclinando-se para ele.
+Daryon deixou de sorrir. Kaelina apoiou as duas mãos na mesa, inclinando-se para ele.
 
 — Você não fala por mim. Nunca fale por mim. Cal Edran é honrado. É um dos homens mais confiáveis desta câmara, mesmo sem cadeira nela. E se qualquer um aqui duvida da lealdade dele, duvida também da minha capacidade de julgar os homens que me cercam.
 
@@ -296,9 +298,9 @@ Alyra cruzou os braços.
 
 — E você acredita que falarão a verdade? Que não inventarão de que os garotos os atacaram primeiro, ou que invadiram suas terras primeiro?
 
-— Temos provas de que eles não fizeram isso. Sabemos quem são os dois. Um deles era raiz-aprendiz, estava em treinamento. O outro… era apenas um adolescente aventureiro. Nenhum deles teria ido tão longe da fortaleza sozinhos.
+— Não temos prova de que foram os Tondrar que mataram os rapazes. Temos um talismã. Um deles era raiz-aprendiz. O outro vivia se aventurando fora das muralhas. Nem sabemos por que foram caçar tão longe.
 
-— É engraçado irmã, como sua ingenuidade é tamanha que acredita que eles irão realmente aceitar uma verdade nossa de bom grado e se declararem culpados.
+— Você acha que eles vão sentar à mesa e assumir a culpa só porque pediu com educação, irmã?
 
 Daryon inclinou-se para trás, observando. Varron Meio-Olho bateu o dedo na própria cicatriz.
 
@@ -336,23 +338,19 @@ Maelis parou de tentar escrever. Alyra riu sem humor.
 
 — Eles matariam você na primeira oportunidade.
 
-— Não.
-
-— Não?
-
-— Não sob a Lei do Portão.
+— Talvez. Mas teriam de fazê-lo diante de testemunhas.
 
 Alyra inclinou-se para a frente.
 
-— E por que não?
+— E por que isso os impediria?
 
 Kaelina olhou para Yvenn, depois para Iressa, depois para Varron.
 
-— Porque os Tondrar precisam de comércio. Precisam que os clãs acreditem que uma trégua ainda vale alguma coisa. Se matarem uma soberana sob costume antigo, não matam só a mim. Matam a confiança nas próprias rotas. Os Fendelar deixam de vender carne. Os Buldar deixam de arriscar grão. Os Vendrar aumentam o preço do fogo até virar punição. Todos os clãs pequenos podem odiar Kaendar, mas nenhum deles quer viver num mundo onde bandeira de trégua não protege ninguém.
+— Os Tondrar precisam de carne Fendelar, grão Buldar e metal Vendrar. Se matarem uma soberana durante a trégua, ninguém terá certeza de que a próxima negociação será respeitada. Até quem odeia Kaendar pode passar a exigir escolta e pagamento maior para pisar em terras Tondrar.
 
 Yvenn assentiu devagar. Kaelina continuou:
 
-— Além disso, se os Tondrar me matarem sob testemunha, dão a Kaendar uma guerra limpa. Uma guerra com luto, legitimidade e raiva. Até os clãs que não gostam de nós pensariam duas vezes antes de defender quem quebra trégua diante de pão e sal.
+— Se me matarem, ainda darão a Kaendar uma justificativa para a guerra. Até os clãs que nos detestam terão de escolher se vão defender um assassinato durante uma trégua.
 
 Thoren dos grãos murmurou:
 
@@ -378,7 +376,7 @@ Kaelina olhou para ela.
 
 — Somos duas porque nosso pai morreu antes de escolher qual de nós deveria carregar a cidade.
 
-Desta vez foi Kaelina quem ficou em silêncio. A frase era feia demais para ser dita e verdadeira demais para ser ignorada.
+Kaelina ficou em silêncio. Alyra pusera em palavras a dúvida que as duas evitavam desde a morte de Orionus.
 
 A satisfação de Alyra durou pouco. Daryon percebeu. Maelis levantou a voz:
 
@@ -386,7 +384,7 @@ A satisfação de Alyra durou pouco. Daryon percebeu. Maelis levantou a voz:
 
 Kaelina sentou-se. Alyra também. As duas ainda se olhavam como se a mesa entre elas fosse apenas uma pausa antes da lâmina.
 
-Maelis organizou as tábuas, alinhando-as como se uma decisão mal escrita pudesse matar tanto quanto uma decisão errada.
+Maelis alinhou as tábuas de votação e preparou o estilete.
 
 — Proposta um: estratégia de isolamento dos Tondrar, reforço da soberania Polar sobre clãs menores, pressão econômica sobre rotas de carne, sal, grão e resina, e preparação de golpe militar limitado caso necessário.
 
@@ -470,7 +468,7 @@ Lurok abriu a boca. Varron Meio-Olho praguejou baixo. Kaelina não reagiu de ime
 
 — Eu voto pela Lei do Portão.
 
-Maelis piscou duas vezes, como se a aritmética tivesse insultado a ordem natural do mundo.
+Maelis refez a conta na tábua, com o estilete parado no ar.
 
 — Com o peso da soberana Alyra… proposta dois recebe mais três. Total: nove. Proposta um permanece com oito.
 
@@ -530,7 +528,7 @@ Kaelina olhou para ela.
 
 Nalia não sorriu.
 
-— Onde de um lado há fartura, do outro há fome. Enquanto os Polar forem a Dinastia dominante, os clãs sempre desejarão o que temos. E, se estivéssemos do lado de fora das nossas muralhas, talvez fizéssemos o mesmo.
+— Quem tem sal, grão e portões costuma chamar a própria vantagem de ordem. Do lado de fora das nossas muralhas, talvez fizéssemos as mesmas exigências que hoje nos ofendem.
 
 Depois saiu. A porta se fechou e restaram apenas Kaelina e Edran. A câmara parecia maior vazia.
 

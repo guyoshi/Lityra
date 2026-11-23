@@ -12,6 +12,8 @@ Ele engoliu em seco.
 
 — E eu perdi o meu pai.
 
+O corpo de Mike tinha ficado no chão da minha sala. Meu pai ainda não sabia de nada, mas acabaria voltando para casa e encontrando aquilo.
+
 Fiquei furiosa. Não porque eu não compreendesse a dor dele, mas porque havia um tipo de dor que não dá direito a ninguém de arrastar os outros para o abismo. Ainda assim, o meu impulso foi respirar. Com raiva, a gente abre portas que não consegue fechar.
 
 — Aquilo não é um demônio, Filipo — eu disse, devagar, com o cuidado de quem tenta não despertar algo só por nomear. — Eu vi… nos olhos dele… dentro… havia…
@@ -20,7 +22,7 @@ Fiquei furiosa. Não porque eu não compreendesse a dor dele, mas porque havia u
 
 A palavra caiu na sala. Eu sabia o cheiro daquilo. Não era enxofre, nem fogo, nem “inferno” como as pessoas imaginam. Era ausência. Era roubo.
 
-— Você tem noção de que a notícia vai espalhar, não tem? A polícia vai querer saber o que aconteceu. E quando perguntarem, ninguém vai acreditar que um monstro apareceu e engoliu o seu pai vivo. Eles vão concluir que você foi até a minha casa com o carro do seu pai e tentou me matar. E eu não vou negar.
+— Você tem noção de que a notícia vai espalhar, não tem? A polícia vai querer saber o que aconteceu. E quando perguntarem, ninguém vai acreditar que um monstro apareceu, matou o seu pai e levou a alma dele. Eles vão concluir que você foi até a minha casa com o carro do seu pai e tentou me matar. E eu não vou negar.
 
 Eu tentei manter a minha mente no que era imediato: Pedro. Estável, disseram? Estável é uma palavra que os médicos usam quando querem que você aceite “quase”. E eu não queria “quase”. A ansiedade fez o que sempre faz comigo quando a realidade começa a escorregar: os meus dedos bateram um no outro, um hábito que eu odiava por me denunciar.
 
@@ -166,13 +168,13 @@ Pedro soltou um suspiro meio riso, meio vergonha.
 
 — Eu também nunca beijei ninguém — eu ri, e foi um riso raro. — Mas isso nunca me incomodou de verdade.
 
-— Não é que me incomode. É que… eu queria saber como é gostar de alguém e essa pessoa gostar de volta, sabe? Aquilo que a gente vê em filmes, tipo Como se fosse a Primeira Vez. O idiota encontra uma garota idiota que o completa e que o ama mesmo ele sendo idiota. Eu queria sentir isso com alguém.
+— Não é que me incomode. É que… eu queria saber como é gostar de alguém e essa pessoa gostar de volta, sabe? Aquilo que a gente vê em filmes, tipo 10 Coisas que Eu Odeio em Você. O idiota encontra uma garota idiota que o completa e que o ama mesmo ele sendo idiota. Eu queria sentir isso com alguém.
 
 Eu não entendo muito de amor. Eu entendo de permanência. De gente que fica por culpa, por promessa, por medo. Mas o jeito que Pedro falava era simples, quase limpo.
 
 — Eu não entendo muito de amor, Pedro — eu disse. — Mas enquanto você não encontra o seu amor… eu posso ser a sua idiota. Só não vou te beijar.
 
-Pedro gargalhou, e eu ri junto. Por alguns segundos, o hospital pareceu só um hospital.
+Pedro gargalhou, e eu ri junto. Por alguns segundos, o hospital pareceu só um hospital. Uma maca passou do outro lado da porta, com uma das rodinhas rangendo a cada volta. Ouvi uma enfermeira rir de alguma coisa que outra pessoa disse. Foram duas notas curtas. Ela começou a terceira e parou no meio, tão abruptamente que ergui os olhos. A maca continuou pelo corredor, e logo ouvi as vozes conversando outra vez. Devia ser apenas alguém interrompendo uma piada. Pedro nem percebeu. Os apitos espaçados do monitor continuavam normais, e eu voltei a olhar para ele.
 
 — Obrigado por salvar a minha vida, Jenni — ele disse.
 
@@ -208,19 +210,71 @@ Então ouvi um ruído no fim da rua. Virei instintivamente e arregalei os olhos.
 
 Quando abri os olhos, estava de volta no hospital.
 
-Pedro dormia ao meu lado. Mas algo estava errado. Estava frio demais. As luzes apagadas. Os equipamentos desligados.
+O monitor ao lado da cama soltou dois apitos. Esperei o terceiro, mas ele não veio. Havia um ruído no corredor, o mesmo rangido agudo de uma roda que eu ouvira enquanto conversávamos. Uma maca devia estar passando. O som se aproximou da porta e parou.
 
-— Pedro — eu o chamei, sacudindo o braço dele. — Pedro, acorda.
+Pedro dormia com a boca entreaberta. A lâmpada sobre a pia estava acesa, e o restante do quarto, escuro demais. Não lembrava de ter apagado a luz. Levantei a cabeça devagar. A tela do monitor havia ficado preta.
 
-Ele despertou assustado.
+Do outro lado da porta, ouvi uma mulher rir. O riso começou pequeno, cresceu em duas notas e terminou num soluço. Depois veio outra vez, idêntico, com a mesma pausa entre as notas. Como se alguém tivesse repetido um pedaço de conversa.
 
-— O quê? — perguntou, e então olhou ao redor. — Já está de noite?
+— Pedro?
 
-— Acho que não. Lembra do ano passado, quando o Agouro fez aquilo? O céu escuro, o frio, as pessoas paralisadas… acho que está acontecendo de novo.
+Ele se mexeu sem acordar. Eu toquei o braço dele.
 
-Pedro engoliu em seco.
+— Pedro. Acorda.
 
-— O que quer dizer que… tem algum demônio aqui?
+— Quê? — Ele abriu um olho, depois o outro. — Já é de noite?
+
+— Não sei. Escuta.
+
+Ficamos parados. O rangido da roda voltou. Um passo. Outro. Eu contava os passos para ter alguma coisa em que pensar. Ouvi cinco. Depois silêncio.
+
+— Deve ser a enfermeira — ele disse, ainda sonolento.
+
+Uma coisa bateu de leve na porta. Não foi uma batida de quem pede para entrar. Pareceu o toque de um cotovelo numa madeira ao passar. Levantei, mas Pedro segurou a ponta da minha blusa.
+
+— Jen. Não vai.
+
+A maçaneta se moveu para baixo, muito devagar. Esperamos que a porta abrisse. Ela voltou ao lugar sem fazer barulho.
+
+— Enfermeira? — perguntei.
+
+Ninguém respondeu.
+
+Foi então que percebi outra coisa. O hospital tinha deixado de fazer os ruídos que eu não notava até pararem. Não havia telefone tocando no posto, nem passos ao longe, nem a conversa abafada que atravessava a parede desde que chegáramos. Nem mesmo a chuva parecia chegar às janelas. Só ouvia Pedro respirando, cada vez mais depressa.
+
+Ele olhou para os aparelhos apagados.
+
+— Isso é falta de luz?
+
+— A lâmpada está acesa.
+
+Apontei para a pia. No instante em que nos viramos, ela se apagou também. O pequeno estalo do interruptor veio depois da escuridão, como se alguém tivesse decidido fazer os sons fora de ordem.
+
+Senti frio. Muito frio. E o cheiro do quarto tinha mudado. O desinfetante ainda estava ali, mas por baixo vinha alguma coisa adocicada, antiga, que me fez lembrar o corredor da casa dos Marques.
+
+Pedro pegou a bombinha na mesinha, apertando-a sem usar.
+
+— Jen, tem alguém atrás de você?
+
+Virei tão depressa que bati o quadril na cama. Não havia ninguém. A porta continuava fechada. Por baixo dela passou uma sombra comprida, como a de alguém muito alto cruzando o corredor. Ouvi um arrastar úmido. Depois nada.
+
+— Eu não vi ninguém — respondi.
+
+Ele engoliu em seco.
+
+— Eu também não. Só achei que tinha visto.
+
+A luz do corredor acendeu por baixo da porta. O relógio sobre a parede marcava exatamente a mesma hora que marcara quando eu acordara. Não sabia se havia se passado um minuto ou dez.
+
+— Lembra do ano passado, quando o Agouro fez aquilo? — perguntei. — O céu escuro, o frio, todo mundo parado...
+
+Pedro se sentou, esquecendo a dor na lateral do corpo por um segundo.
+
+— Tá dizendo que tem um demônio no hospital?
+
+A risada do corredor voltou. As mesmas duas notas. Desta vez, terminou perto demais, do outro lado da porta.
+
+Eu olhei para a maçaneta, esperando vê-la se mover outra vez.
 
 — Não é qualquer demônio.
 
@@ -284,7 +338,13 @@ Ele estava perto.
 
 — Vamos para o outro lado. Corram!
 
-Corremos na direção oposta, atravessamos corredores, descemos uma escadaria. Ouvi um grito e me virei: Filipo estava sendo puxado por um braço, ligado a um corpo branco coberto de cortes. Eu vi a cabeça cheia de larvas, a presença inteira como um erro da natureza.
+Corremos na direção oposta, atravessamos corredores, descemos uma escadaria. Filipo parou no meio de um lance, de repente, com a mão agarrada ao corrimão.
+
+— Pai? — disse, olhando para o patamar abaixo.
+
+Segui seus olhos. Havia apenas uma cadeira de rodas encostada na parede, vazia. Filipo começou a descer até ela, a expressão mudando de medo para um alívio que me fez gelar. Ele estendeu a mão, como se alguém o esperasse ali.
+
+Foi então que um braço branco, coberto de cortes, o agarrou pelo ombro. Filipo gritou, e a cabeça da criatura surgiu de trás da cadeira: larvas se empurrando no lugar do rosto, dentes entre elas. Não tive tempo de perguntar o que ele tinha visto.
 
 Subi os degraus e puxei Filipo com força. Quando ele se soltou, caímos juntos e rolamos escada abaixo. As minhas costas bateram e doeram, mas dor era luxo.
 
@@ -292,7 +352,21 @@ Subi os degraus e puxei Filipo com força. Quando ele se soltou, caímos juntos 
 
 Corremos. Pedro quase caiu ao escorregar nas larvas espalhadas no chão.
 
-O chão mudou. Se tornou gradeado. Portas fechadas. No fim do corredor havia uma porta aberta, com a luz morna de um abajur, e do outro lado uma voz de mulher disse o meu nome do jeito que só uma pessoa dizia. “Jen. Vem.” A minha vontade foi a de quem tem sono há muito tempo. Os meus pés viraram para lá antes de mim. O Pedro segurou o meu pulso.
+O corredor à nossa frente tinha piso de madeira. Eu conhecia aquele corredor; era o de casa, o que levava até o quarto da minha mãe. Um chinelo estava caído junto ao rodapé, no mesmo lugar em que ela sempre o deixava quando vinha me chamar de manhã.
+
+No fim, a porta do quarto estava entreaberta. Havia luz acesa por dentro e o cheiro do creme de cabelo que ela usava. Ouvi o ruído de uma gaveta fechando. Depois a voz dela, impaciente e carinhosa, exatamente como antes do acidente:
+
+— Jen. Vem.
+
+Eu quis responder. Não consegui. Andei na direção da porta sem perceber que tinha soltado o braço de Pedro. Havia algo passando devagar sob a fresta, uma sombra comprida demais para a largura da cama. Não parei. Queria ouvir aquela voz outra vez, mesmo se estivesse com medo do que encontraria lá dentro.
+
+Pedro me agarrou pelo pulso.
+
+— Pra lá não.
+
+Olhei para ele. Seu rosto estava úmido de suor, e atrás dele havia paredes brancas, uma placa de enfermaria e o chão frio do hospital. Pedro não parecia ver porta nenhuma. Ainda assim, por um instante senti entre os dedos a madeira da maçaneta que acabara de tocar.
+
+Filipo estava parado no meio do corredor, encarando a parede vazia. Abriu e fechou a boca, sem produzir som. Quando voltou a andar, olhou para trás duas vezes. No fim havia uma bifurcação: direita ou esquerda.
 
 — Pra lá não — ele disse, e percebi que ele não via porta nenhuma.
 
@@ -304,7 +378,19 @@ O Filipo tinha parado no meio do corredor, olhando a parede vazia, a boca se mex
 
 — Não. Para a direita — eu respondi. — É a saída.
 
-Ouvimos um ruído forte. Quando olhei para trás, vi o Cara-de-Larva parado na entrada. Ele começou a correr com passos pesados, largos. Eu gritei e corri com Filipo e Pedro até o portão de grades. Assim que atravessamos, fechamos e continuamos correndo até a avenida principal.
+Ouvimos um ruído forte. A entrada do corredor estava vazia quando olhei. Então as duas batidas vieram de novo, muito perto, e uma porta abriu onde antes havia parede. Por ela surgiu a figura alta, com a barriga rasgada e a cabeça tomada por larvas. O Cara-de-Larva correu na nossa direção.
+
+Eu gritei e corri com Filipo e Pedro até o portão de grades. Por um segundo ele pareceu estar atrás de nós e à nossa frente ao mesmo tempo, a sombra ocupando as duas extremidades do corredor. Só encontrei o trinco quando bati com a mão no metal. Atravessamos, fechamos o portão e continuamos correndo até a avenida principal.
+
+Um táxi parou na esquina, perto da entrada do hospital. Uma mulher desceu às pressas, quase deixando a bolsa cair, e um homem saiu pelo outro lado e foi atrás dela. Pedro parou tão de repente que quase esbarrei nas suas costas.
+
+— Meus pais — ele sussurrou.
+
+A mãe dele entrou no hospital olhando para todos os lados. O pai a seguiu, chamando alguém na portaria. Pedro deu um passo na direção deles. Vi seus olhos se encherem de lágrimas, mas ele ficou onde estava.
+
+— Se eu for até lá, eles vão me levar pra casa — falou, com a voz falhando. — E aquela coisa pode ir atrás de mim. Não posso fazer isso com eles.
+
+Segurei sua mão. Pedro olhou uma última vez para a entrada do hospital e veio conosco, limpando o rosto com a manga.
 
 Só quando paramos, ao lado de uma lanchonete, Pedro conseguiu falar sem ofegar.
 

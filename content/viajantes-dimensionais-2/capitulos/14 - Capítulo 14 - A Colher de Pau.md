@@ -1,22 +1,22 @@
-Banjo voltou da casa de Nayra com a flauta no bolso e o gosto de chá de gengibre na boca, e só percebeu que a rua estava silenciosa demais quando chegou ao portão de Lioro. Dois homens de capa cinza conversavam na esquina e pararam de conversar quando ele passou, coisa que andava acontecendo muito naquelas semanas.
+Banjo voltou da casa de Nayra com a flauta no bolso e o gosto de chá de gengibre na boca. Ao chegar ao portão de Lioro, estranhou o silêncio do pátio. Dois homens de capa cinza conversavam na esquina e pararam de conversar quando ele passou, coisa que andava acontecendo muito naquelas semanas.
 
-Era fim de tarde, e a luz descia dourada e comprida pelo muro baixo, do jeito que ele mais gostava. Nayra tinha levantado da cama, tinha feito troça da flauta ("parece um osso de galinha rico") e tinha dito que o vento já voltava a obedecer, só um pouquinho, só nas cortinas. Banjo vinha rindo sozinho da frase, com Farol enrolado no pescoço, pensando em contar aquilo a Beatriz e ouvir a gargalhada dela balançar a árvore velha do pátio.
+O sol da tarde alcançava a árvore velha. Nayra já saíra da cama, fizera troça da flauta ("parece um osso de galinha rico") e dissera que o vento voltava a obedecer, só um pouquinho, só nas cortinas. Banjo ainda ria da frase, imaginando a cara de Beatriz quando lhe contasse. Farol descansava enrolado em seu pescoço.
 
-Foi aí que reparou. O sussurro das árvores, que o acompanhava pela rua inteira como conversa de vizinhos, tinha parado na altura do portão. O pátio estava cheio de sol e de folhas quietas. Na pedra do banco, onde Beatriz sempre deixava alguma coisa, havia só a bola amarela, de BBBB quase apagados, parada junto ao encosto, com um pouco de poeira de lajota grudada de um lado.
+As folhas da árvore velha quase não se mexiam. Banjo procurou a voz de Beatriz entre os ruídos da casa, mas não ouviu ninguém. Sobre o banco estava a bola amarela de Beatriz, com as letras BBBB quase apagadas e um pouco de poeira de lajota grudada de um lado.
 
 — Bia? — chamou ele.
 
-A cozinha estava vazia. A mesa tinha um bilhete dobrado, preso por uma colher de pau, que era o jeito de Breno de impedir que um papel voasse dentro de uma casa fechada. Banjo desdobrou a folha com a letra pequena e reta do irmão.
+A cozinha estava vazia. Na mesa, um bilhete dobrado estava preso sob uma colher de pau. Banjo reconheceu a letra pequena e reta de Breno e desdobrou a folha.
 
 *Domingo, depois do almoço. Fomos com a Shirley à Casa de Pesquisa, no Coração Branco, buscar os cadernos do Kalev para o Ferris antes que a Vigilância os leve. Voltamos antes da noite. Breno.*
 
-Banjo olhou pela janela. A sombra do muro já alcançava o meio do pátio. Releu o bilhete, devagar, parando em cada palavra, como quem confere se o final mudou. Farol desenrolou-se do pescoço dele, desceu até o chão e ficou parado na porta, olhando o corredor, de cauda baixa e apagada.
+Banjo releu o bilhete. A sombra do muro já alcançava o meio do pátio. Se o irmão prometera voltar antes da noite, por que ainda não estava ali? Farol desenrolou-se do pescoço dele, desceu até o chão e ficou parado na porta, olhando o corredor, de cauda baixa e apagada.
 
-— Eles só tão atrasados, Farol — disse Banjo, para o bicho. — O Breno nunca atrasa, mas hoje pode, né? Pode.
+— Eles só estão atrasados, Farol. — Banjo se agachou ao lado do bichinho. — Hoje o Breno pode se atrasar um pouquinho, né?
 
-A porta da frente bateu. Bruno entrou com o casaco aberto, o cabelo bagunçado e uma poeira clara até os joelhos, de quem tinha andado muito sem destino. Não tinha sorrido, nem feito piada, nem perguntado o que tinha de lanche. Pendurou o casaco no gancho errado e ficou olhando para ele.
+A porta da frente bateu. Bruno entrou com o casaco aberto e poeira até os joelhos. Não disse nenhuma piada, nem perguntou se havia alguma coisa para comer. Pendurou o casaco no gancho errado e ficou olhando para ele.
 
-— Fui no Arcano de novo — disse. — O Tango disse que o Dário saiu cedo e não voltou. Esperei no banco da pedra uma hora e ele não veio. — Passou a mão no rosto. — Eu ia pedir desculpa de novo, mano. Eu ia pedir direito.
+— Fui ao Arcano de novo — disse Bruno. — O Tango falou que o Dário saiu cedo. Esperei quase uma hora e ele não apareceu. Eu queria tentar falar com ele outra vez, sabe?
 
 — Ele vai voltar — disse Banjo.
 
@@ -24,165 +24,263 @@ A porta da frente bateu. Bruno entrou com o casaco aberto, o cabelo bagunçado e
 
 Banjo entregou o bilhete.
 
-Bruno leu duas vezes, mexendo os lábios, e a segunda vez foi a que mudou o rosto dele. Olhou o relógio da parede, que Lioro mantinha uma hora adiantada de propósito, e o relógio dizia que já era mais tarde do que qualquer um dos dois queria.
+Bruno leu o bilhete duas vezes. Depois olhou para o relógio, que Lioro costumava manter uma hora adiantado. Mesmo descontando aquela hora, já estava ficando tarde.
 
-— Casa de Pesquisa? — Bruno já estava no degrau. — Isso é do outro lado da cidade. Eu vou lá.
+— Casa de Pesquisa? — Bruno correu até a porta. — Pô, fica do outro lado da cidade. Eu vou buscar eles.
 
 — Espera! — Banjo agarrou a manga dele. — E se eles voltarem e a gente não tiver aqui?
 
 Bruno olhou a estrada, o relógio, a mão de Banjo na manga.
 
-— Cinco minutos — disse. — No portão. Cinco.
+— Esperamos cinco minutos. Se não aparecerem, vamos atrás — decidiu Bruno.
 
-Esperaram. Banjo sentou no degrau de fora com a bola amarela no colo, girando-a devagar, e Bruno ficou de pé, de costas para ele, com os braços cruzados, olhando a estrada de terra até ela sumir no azul. O céu foi ficando cor de pêssego, e depois de roxo. Uma lamparina da rua acendeu sozinha. Passou uma carroça, e depois mais nenhuma.
+Esperaram. Banjo sentou no degrau com a bola amarela no colo. Bruno ficou de pé, os braços cruzados, vigiando a estrada de terra. O céu escureceu. As nuvens sobre a estrada ficaram arroxeadas. Uma lamparina da rua acendeu sozinha. Passou uma carroça, e depois mais nenhuma.
 
-Foi um barulho de passos que fez os dois se levantarem juntos. Alguém corria pela estrada, com o fôlego quebrado em pedaços.
+Os dois se levantaram ao ouvir passos apressados na estrada. Alguém vinha correndo em direção ao portão.
 
 — Bruno! Banjo! — A voz era de Shirley.
 
-Ela apareceu no círculo da lamparina, sem a jaqueta, de cabelo solto e a cara molhada, e quase caiu nos braços de Banjo ao chegar. Segurava o quadradinho de madeira do passe, apertado na mão como se tivesse medo de que escapasse. Tinha as botas brilhando, limpinhas, sem uma gota do barro que enchia a estrada, e Banjo só pensou, de longe, que ela devia ter vindo de carona numa carroça até a esquina.
+Ela apareceu no círculo da lamparina, sem a jaqueta, de cabelo solto e a cara molhada, e quase caiu nos braços de Banjo ao chegar. Apertava o passe quadrado de madeira na mão. As botas estavam salpicadas de lama, e a barra da roupa tinha manchas de poeira do caminho.
 
-— Eles sumiram — disse ela. — A Beatriz e o Breno. Eles... a máscara... — Ela respirou, e o ar travou de novo. — Eu vi. Eu estava na porta e eu vi.
+— Aconteceu uma coisa na Casa de Pesquisa — disse Shirley, tentando recuperar o fôlego. — O Breno e a Bia... eles desapareceram. Eu vi tudo.
 
-— Que máscara? — perguntou Bruno, já agarrando o braço dela. — Fala direito, Shirley. Onde eles estão?
+— Como assim, desapareceram? — Bruno segurou os ombros dela. — Shirley, onde eles estão?
 
-— Na sala do fundo. Na Casa de Pesquisa. Tinha uma máscara na mesa e a Beatriz encostou nela, e abriu um buraco no ar, e eles foram puxados, e o buraco fechou. — As lágrimas escorriam sem esforço. — Eu corri para a casa do Velho-Sábio, e a Kali disse que ele estava com a Sociedade. Eu corri para a Sociedade e disseram que ele tinha vindo para cá. Corri o caminho todo. Eu não sabia o que fazer, Banjo. Eu fiquei lá parada, olhando, e não fiz nada.
+— Na sala do fundo. Tinha uma máscara em cima da mesa. A Beatriz colocou no rosto e sumiu num buraco de luz. A máscara caiu de volta, aí o Breno pegou e colocou também. Ele foi atrás dela. Eu corri pra chamar ajuda, mas quando voltei não tinha mais nada. — Shirley passou a manga pelo rosto. — Fui procurar o Velho-Sábio, só que ele estava reunido com a Sociedade. Mandaram eu vir pra cá.
 
-— A Bia?! — A voz de Banjo saiu fina, quase um guincho. — Ela tá bem? Ela tava com medo? Eu vou lá! Eu vou lá agora!
+— A Bia também? — Banjo sentiu as pernas enfraquecerem. — Mas pra onde eles foram, Shirley? Você viu?
 
-— Eu devia ter segurado a Beatriz — disse Shirley.
+— Eu devia ter visto o que ia acontecer — disse Shirley, com a voz falhando.
 
-— E o buraco levou pra onde? — Bruno sacudiu o braço dela de leve. — Eles gritaram? O Breno falou alguma coisa? Pensa, Shirley!
+— O Breno tentou fazer alguma coisa? — perguntou Bruno. — Ele falou pra você chamar alguém?
 
-— Eu não sei! Fechou! Fechou e acabou!
+— Gritou pra chamar o Velho-Sábio, e eu pedi pra ele esperar! Mas ele colocou a máscara e desapareceu também. Depois fechou, Bruno. Não dava mais pra ver nada!
 
-— Então a gente abre de novo! — Bruno já descia o degrau, de punhos fechados. — Qual é o caminho? Eu vou agora.
+— Então a gente volta lá e abre de novo! — Bruno desceu o primeiro degrau. — Mostra onde fica, Shirley.
 
 — Eu também! — Banjo foi atrás, com a bola apertada no peito.
 
 A porta da casa abriu, e Lioro apareceu com uma toalha no ombro e a mãe, apoiada no braço de Ivy, atrás dele, de camisola e xale, porque tinha ouvido o grito. Ivy olhou para Shirley, para os dois garotos e para o portão aberto, e foi a única que não perguntou nada. Soltou o braço da velha, desceu o degrau e agarrou Bruno pela gola do casaco, sem esforço, como quem pega um gato fujão.
 
-— Chá — disse Ivy. — Para todo mundo. E ninguém sai desta casa até o Velho-Sábio chegar.
+— Pra dentro, os três. — Ivy segurou Bruno pela gola. — Vou fazer chá. Ninguém sai desta casa até o Velho-Sábio chegar.
 
 — A senhora não tá entendendo! A Bia...
 
-— Entendo. Chá.
+— Eu entendi, Bruno. Mas vocês não vão sozinhos.
 
 Velho-Sábio chegou quando a lamparina do portão já tremia, com a perna ruim pesando no cajado e Mereditha ao lado, de escamas pálidas. Atrás deles vinham dois homens que Banjo conhecia do Edifício: Grimaldus Graven, de casaco abotoado até o queixo e a tábua de contas debaixo do braço, e Garmande Koraveli, com o manto dourado por cima de um casaco escuro. Por último entrou Ferris, de capa escura e sem dizer nada, com a cara de quem tinha corrido a cidade inteira. Ninguém falou no pátio. Velho-Sábio entrou, viu a cozinha e a mesa com as xícaras, e só então virou-se para os garotos.
 
-— Contem do começo — disse. — Um de cada vez, e devagar. E me deem o bilhete.
+— Me contem exatamente o que aconteceu. Um de cada vez, por favor. Quero ver o bilhete.
 
-Contaram. Shirley contou duas vezes, porque o fôlego não deixou na primeira, e Grimaldus anotou em silêncio, com as contas estalando baixinho. O bilhete foi passando de mão em mão, e foi Garmande quem o leu por último, devolvendo-o a Velho-Sábio com uma dobra a mais no queixo.
+Shirley contou primeiro, aos soluços. Grimaldus pediu que repetisse a parte da máscara enquanto movia as contas da tábua. O bilhete foi passando de mão em mão, e foi Garmande quem o leu por último, devolvendo-o a Velho-Sábio com uma dobra a mais no queixo.
 
-— A sala do fundo da Casa de Pesquisa — disse ele. — Faz cinco semanas que está lacrada.
+— A sala do fundo da Casa de Pesquisa — disse Garmande. — Ela estava lacrada havia cinco semanas.
 
-— Com o lacre de Kalev — completou Velho-Sábio. — Ontem de manhã eu fui lá conferir o selo, e ele estava inteiro. — Esfregou os olhos. — Hoje de tarde o selo estava quebrado. Por dentro. A tinta do lacre voltada para a sala, e não para o corredor.
+— Com o lacre de Kalev — acrescentou Velho-Sábio. — Ontem ainda estava inteiro. Hoje encontramos a placa no chão, com os seis parafusos soltos.
 
-— Por dentro? — perguntou Banjo, e se arrependeu logo, porque todos olharam. — Como assim, por dentro? Quem tava lá dentro?
+— O Breno consegue transformar as mãos em metal — lembrou Banjo. — Talvez tenha conseguido soltar os parafusos. Ele também atravessa paredes, mas não ia deixar a Bia do lado de fora.
 
-— Boa pergunta — disse Velho-Sábio, e ninguém sorriu. — Só quem lacrou pode quebrar um lacre pelo lado de dentro. E quem lacrou foi o Kalev.
+— É o que parece — respondeu Velho-Sábio. — Eu e Garmande tentamos abrir o mesmo caminho. Só conseguimos alcançar uma sala vazia. Mereditha ouviu uma nota quando encostou a mão no chão, mas foi ficando fraca até desaparecer.
 
-— O pai do Ferris — disse Bruno. — Ele estava lá, então. O tempo todo.
+Garmande abriu sobre a mesa um desenho que haviam copiado na sala: um círculo pálido de três passos de largura, marcado no chão como geada que não derrete. Ao lado pousou um caderno gasto, retirado da mochila que Breno deixara lá dentro.
 
-— Estava, de algum jeito. Num lugar que não é a sala, mas que se abriu pela sala. — Velho-Sábio olhou para Garmande, que tirou do bolso do manto um quadradinho de papel, e o abriu em cima da mesa. Era um desenho a giz, copiado depressa, de um círculo pálido de três passos de largura, com uma linha fina saindo dele. — Isso é o que sobrou no chão. Geada que não derrete. E esta linha, na borda, é a letra de Kalev. Eu reconheceria em qualquer lugar.
+— A mochila estava no meio da sala — disse Garmande. — Os cadernos são de Kalev. Ferris, reconhece a letra?
 
-— Então a máscara pegou o Kalev também? — disse Banjo. — E agora pegou o Breno e a Bia?
+Ferris puxou o volume para perto. Na página aberta havia sete traços curtos e um laço na ponta.
 
-— É a hipótese que eu menos quero que seja verdadeira — respondeu Velho-Sábio. — E a que mais cabe nos fatos.
-
-Grimaldus bateu a ponta do dedo na linha fina do desenho, e a tábua de contas estalou duas vezes debaixo do braço dele.
-
-— Esta linha não é assinatura. É notação de dimensão. Sete traços curtos e um laço no fim.
-
-— Laço é lugar sem número — disse Ferris, e foi a primeira vez que abriu a boca. Os olhos continuavam no giz. — Meu pai só desenhava laço pra isso. Ele me ensinou quando eu tinha oito anos.
+— É dele — respondeu, passando o dedo sobre o desenho. — Quando eu era pequeno, ele me ensinou a reconhecer essas marcas. O laço era para lugar que não tinha número nos mapas.
 
 — Número de quê? — perguntou Banjo.
 
-Velho-Sábio esvaziou uma caixa de fósforos em cima da toalha e foi enfileirando os palitos, um por um, até a beira da mesa.
+Velho-Sábio puxou uma caixa de fósforos para o centro da mesa. Enfileirou os palitos até a borda da toalha.
 
-— Das dimensões que a gente conhece e consegue alcançar daqui. Vinte e um palitos, um para cada uma. Os portais da Central abrem para essas, e a Vigilância confere cada viagem num livro.
+— Das dimensões que a Central tem mapeadas e sabe alcançar. Vinte e uma.
 
-— Só vinte e um? — Banjo olhou os palitos, depois a toalha inteira, a cozinha e a janela escura. — Eu achava que dimensão era tipo estrela, que tinha um monte.
+— Só vinte e uma? — Banjo olhou para o resto da mesa vazia. — Eu achei que tinha um monte.
 
-— Tem infinitas. Essa mesa, a cozinha e o resto do mundo são só o começo. Mas de vinte e uma a gente tem mapa. As outras ficam no escuro, e cada uma manda nas próprias regras, do mesmo jeito que aqui o fogo queima e a água molha. Tem dimensão sem luz nenhuma. Tem dimensão que não aceita matéria, e quem entra nela não fica sem corpo, fica sem ser coisa alguma. Há uns trinta anos eu deixei um aprendiz espiar uma dessas. Voltou o chapéu.
+— Existem infinitas dimensões, garoto. Mas para a maioria delas não temos caminho conhecido. Se alguém vai parar numa dessas, não basta atravessar uma porta e procurar.
 
-— O chapéu? — disse Bruno.
+— E se o Breno e a Bia estiverem numa dessas? — perguntou Bruno.
 
-— Sem o aprendiz. — Velho-Sábio não sorriu. — Por isso ninguém sai atrás de ninguém sem saber para onde vai. O Kalev escreveu um laço, então o lugar fica fora dos vinte e um palitos, e a Central não tem rota nenhuma para ele.
+Velho-Sábio deixou a caixa de fósforos ao lado dos palitos.
 
-— Mas por que ele escreveu isso no chão, seu Velho-Sábio? — perguntou Banjo. — Se ninguém ia ler.
+— É por isso que não podemos abrir uma passagem ao acaso. Precisamos de alguma coisa que indique por onde começar.
 
-— Alguém ia, Banjo. Ele sabia que eu ia ser chamado. — Velho-Sábio girou a caixa de fósforos entre os dedos, devagar. — A máscara não caiu em Tayo por acaso, como a cidade inteira acredita. O Kalev foi buscá-la. Ouviu em algum canto da Central, e nunca me disse onde, que dava para chegar ao lugar onde ela dormia havia séculos. Saiu de madrugada há sete semanas, sem avisar nem o filho, porque desconfiava de um informante de Korvo por perto e não sabia quem era. Achava que uma coisa daquelas, nas mãos certas, seria uma arma contra o Korvo.
+— O senhor acha que foi a máscara que levou meu pai? — perguntou Ferris.
 
-— Sete semanas — disse Bruno, baixo, olhando para Ferris. — E ninguém contou nada pra ele.
+— Considero possível — respondeu o mentor. — Kalev estudava esses sinais bem antes de desaparecer. Tinha encontrado referências a um objeto que podia mudar de dimensão, mas eu não sabia quanto havia avançado. A Vigilância mandou lacrar a sala dos últimos testes depois do sumiço dele. Nem eu entrei lá antes de hoje.
 
-— Trouxe a máscara de volta por sete passagens, abrindo uma de cada vez — continuou Velho-Sábio. — Quando a última se abriu em cima do Coração Branco, ela caiu na praça, e é dessa queda que o povo fala. Ele chegou ferido, se trancou sozinho na sala, selou por dentro com o próprio lacre e me pediu três dias e segredo. Fui mestre dele quando ele era um garoto do tamanho do Banjo, e eu dei, o que foi um erro. Uma coisa dessas, quando leva alguém, só sabe voltar pelo caminho por onde veio. O Kalev conhecia o gênio dela e deixou a rota anotada no chão, para o caso de alguém precisar ir atrás.
+— E ele entrou mesmo lá? — perguntou Ferris.
 
-Ferris não se mexeu. Só o capacete, preso debaixo do braço, rangeu um pouco, apertado demais. Velho-Sábio olhou para ele, e a voz saiu mais baixa do que Banjo já tinha ouvido.
+— Não sabemos em que momento. Alguém falou de uma máscara encontrada nos arredores da cidade. Depois Kalev desapareceu. Achei que ele tivesse decidido estudá-la por conta própria e se arriscado demais. Mas isso era uma suposição minha. — Velho-Sábio fechou o caderno. — Não sei nem como o objeto foi parar naquela sala.
 
-— Eu devo isso a você, Ferris, e vou pagar o que devo, com a explicação inteira. Hoje não. Hoje a conta é a de Beatriz e Breno, e eu preciso que você me ajude a fazê-la.
+— Meu pai nunca ia deixar de falar comigo porque queria um objeto mágico — respondeu Ferris.
 
-— Hoje, tudo bem — respondeu Ferris, sem tirar os olhos do giz, e foi tudo o que disse.
+Ninguém discutiu. Velho-Sábio deixou que ele segurasse o caderno mais um pouco.
+
+— Eu devia ter procurado respostas com você desde o começo, Ferris — disse, por fim. — Mas agora também precisamos encontrar Breno e Beatriz. E vou precisar da sua ajuda.
+
+Ferris fechou o caderno, devagar.
+
+— Então me deixem ajudar.
 
 Mereditha tinha ficado de pé junto da pia, com as duas mãos sobre a boca, as escamas tão brancas que quase não se viam. Foi ela quem falou, com a voz fina:
 
-— Eu vi o estojo ontem na mão dela. Eu entreguei a gaita. Foi por isso que...
+— Fui eu que entreguei a gaita pra Beatriz. E se ela não tivesse levado...
 
-— Mereditha. — Velho-Sábio não levantou a voz. — Você trouxe quatro timbres que ficariam espalhados para sempre. Isto não é sobre a gaita.
+— Mereditha, você não tinha como imaginar que isso aconteceria. Os instrumentos pertenciam aos pais deles.
 
 — É um pouco sobre a gaita. — A voz dela falhou. — A Beatriz levou ela para dentro.
 
-— Levou — disse Banjo, e apertou a flauta no bolso, quente como uma coisa viva. — E o Breno tava com o diapasão. Eles não tão de mãos vazias, tão?
+— Mas eles estão com a gaita e o diapasão — lembrou Banjo, apertando a flauta no bolso. — Talvez consigam usar pra sair de lá.
 
 Houve um silêncio curto, e nele alguém bateu no portão com três pancadas secas.
 
 Era um rapaz de capa cinza, ofegante, com uma bolsa de couro cruzada no peito. Entregou a Lioro um envelope grosso, fechado por um selo de cera cinza, e saiu sem esperar resposta. Lioro o trouxe até a mesa como quem carrega um prato quente. Velho-Sábio quebrou o selo e leu, sem pressa, uma vez, e depois passou o papel a Garmande.
 
-— Em duas horas — disse Garmande, com uma careta. — Ele escreveu, carimbou e mandou entregar em duas horas.
+— Já? — Garmande leu o comunicado. — Faz só duas horas que aconteceu.
 
-— Ele sempre foi rápido para escrever comunicados — disse Velho-Sábio.
+— Beker não perdeu tempo — respondeu Velho-Sábio.
 
 Bruno se inclinou sobre a mesa e leu o papel de cabeça para baixo, que era uma coisa que ele sabia fazer.
 
 — "A Sociedade fica proibida de toda e qualquer saída de dimensionais até o término de investigação a cargo da Vigilância." — A voz dele foi ficando mais lenta. — Proibida de sair? Então a gente fica parado enquanto a Bia...
 
-— Isso não depende de vocês — cortou Garmande.
+— Vocês não vão atravessar um portal sem saber para onde ele leva — respondeu Garmande. — Mas precisamos do que vocês viram. Fiquem na mesa.
 
-— Dois vigilantes na esquina — disse Banjo, baixinho. — Eu vi quando cheguei. Eles pararam de conversar quando eu passei.
+Grimaldus empurrou as xícaras para um canto e desenrolou uma folha grande. Lioro trouxe outra lamparina e um tinteiro. Ferris se aproximou da mesa com os cadernos do pai; Shirley sentou ao lado de Banjo.
 
-— São quatro agora. — Lioro continuava encostado na porta, com o envelope vazio na mão. — Desde o meio-dia. Hoje cedo um deles me parou no mercado e perguntou se ensinar magia a menor é errado. Eu disse que errado é deixar menor sem ensino. Ele anotou.
+— Os dois vão ficar? — perguntou Grimaldus, apontando a pena na direção de Bruno e Banjo.
 
-Na tela pequena sobre a prateleira, o boletim local interrompeu a música. Lucan apareceu de casaco escuro, diante de três bandeiras de Tayo, pedindo calma e anunciando uma comissão para avaliar “a circulação excepcional de dimensionais” antes de qualquer decisão. Não disse nada sobre as crianças nas casas, os vigilantes nas esquinas ou o prazo da carta de Beker.
+— Vão ficar para contar o que sabem e conferir as pistas — respondeu Velho-Sábio. — São irmãos dos desaparecidos e conhecem os hábitos deles melhor que qualquer um aqui. Ferris reconhece os sinais do pai. E Shirley foi a última pessoa a ver a passagem abrir. Se surgir um detalhe novo, talvez só ela consiga confirmar. Nenhum dos quatro vai decidir autorizações ou comandar um resgate. Essa responsabilidade é nossa.
 
-— Uma comissão — disse Lioro. — Muito útil. Quando terminarem de avaliar a circulação, talvez descubram que as pessoas já não conseguem andar.
+Garmande assentiu e indicou as cadeiras.
 
-— A mim perguntaram quem autorizou a casa de Brisália — disse Velho-Sábio. — Lucan manda estudar o problema, Beker manda vigiar crianças, e ninguém manda proteger quem precisa. Um demora a decidir; o outro decide errado. A cidade está a um passo de brigar consigo mesma, rua contra rua.
+Garmande virou a folha para todos. Nas margens, já havia nomes, horários e tarefas anotados às pressas.
 
-— Por isso nenhum garoto sai desta casa — completou Garmande.
+— Temos três frentes — começou Garmande, riscando três colunas no papel. — Descobrir para onde a passagem foi. Conseguir autorização para atravessar. E manter os meninos seguros até lá.
 
-Quando os três da Sociedade foram embora, levando a carta e o círculo de giz, Mereditha ficou na cozinha mais um pouco, de olhos secos e rosto de quem só chorava na frente de gente, e foi embora também, depois de abraçar Banjo com uma força que ele sentiu nas costelas. Lioro levou a mãe para cima. Shirley dormiu no sofá da sala, de botas e tudo, com o passe preso na mão. Ivy ficou na pia lavando as xícaras uma por uma, e a água corria tão baixinho que Banjo mal escutou o resto.
+— Eu já fui à Casa de Pesquisa com Velho-Sábio — disse Mereditha. — Tentei acompanhar o som que ficou na pedra. Ouvi a última nota e perdi o rastro. Posso voltar com os instrumentos do Arcano. Mas não consigo seguir algo que já não está lá.
+
+— Encontramos o lugar vazio — confirmou Velho-Sábio. — Se abrirmos uma passagem sem destino, podemos perder mais gente.
+
+— A Central tem vinte e uma dimensões mapeadas — disse Garmande. — Karoli e Serafira já estão confrontando os horários das passagens com os registros públicos de chegada. Elowen ficou no Arcano examinando os instrumentos. Não precisam atravessar para começar.
+
+— E McCroys? — perguntou Lioro.
+
+— Está com dois homens na rua de trás da Casa de Pesquisa — respondeu Garmande. — Se a Vigilância retirar algum documento durante a noite, ele anota o que levaram e quem deu a ordem. Não vai entrar nem tocar em nada. Não vou dar a Beker um motivo para acusá-lo de roubo.
+
+Bruno apoiou as duas mãos na mesa.
+
+— Então vão começar agora?
+
+— Elas já começaram — respondeu Garmande. — O problema é o acesso ao livro de registros da Central.
+
+Grimaldus abriu outro papel. O selo cinza tinha sido marcado com uma linha vermelha.
+
+— Fiz o pedido de emergência antes de vir. A Vigilância negou. Beker pode suspender travessias da Sociedade durante uma investigação, mas não pode fechar a cidade inteira. Lucan recusou o fechamento total. Só que autorizou a comissão de segurança a rever cada saída extraordinária. O gabinete dele não libera uma equipe esta noite sem um destino identificado.
+
+— Duas crianças desapareceram! — Bruno deu um tapa no papel. — O que mais eles precisam?
+
+— Um destino verificável, segundo Lucan — respondeu Grimaldus. — Eu já contestei essa exigência numa situação com menores desaparecidos. Tenho a cópia do pedido e o nome do funcionário que recebeu. Beker bloqueou os registros completos; sem esses registros, o gabinete de Lucan diz que não há destino suficiente para liberar uma expedição.
+
+— Então um impede vocês de descobrir e o outro exige que descubram primeiro — disse Banjo.
+
+Grimaldus parou de escrever.
+
+— Exatamente. Vou usar essas duas respostas na audiência de amanhã. Obrigado, Banjo.
+
+Garmande marcou um círculo ao lado da coluna das autorizações.
+
+— Se Lucan liberar uma rota, uma equipe nossa atravessa na mesma hora. Já deixei gente de prontidão. Não vamos começar a procurar voluntários quando o papel chegar.
+
+— Enquanto eles discutem se o destino é seguro, nossos rastros vão ficando mais fracos — disse Mereditha, pousando dois dedos sobre o caderno de Kalev. — Vou voltar à Casa de Pesquisa antes que aquela última nota desapareça de vez.
+
+Na pequena tela da prateleira, o boletim local interrompeu a música. Lucan apareceu diante das bandeiras de Tayo, falando de calma e de uma comissão para avaliar a circulação excepcional de dimensais. Garmande desligou o aparelho antes do fim.
+
+— A Central vai entregar as entradas que puder entregar — decidiu. — E até amanhã quero uma lista do que nos negaram. Não vamos perder a noite a ouvir promessas.
+
+Ferris abriu o caderno gasto e pôs o dedo sobre os sete traços e o laço.
+
+— Meu pai fez esse desenho antes de sumir. Não quer dizer que ele tenha passado por lá. Mas ele marcava uma rota assim quando queria encontrar de novo um lugar sem número.
+
+— Você sabe por onde começa? — perguntou Grimaldus.
+
+— Não. — Ferris alisou o papel amassado. — Sei que cada risco indica uma passagem. E que ele guardava os nomes dos pontos de entrada em outro registro. Tentei pedir esse registro na Central. Não me deixaram nem subir a escada.
+
+— Tenho um conhecido no arquivo de mapas que pode verificar a numeração antiga — disse Lioro. — Vou mandar um recado ainda hoje. Ele não precisa abrir portal nenhum.
+
+Banjo olhou para o desenho e depois para a flauta em seu bolso.
+
+— A Shirley disse que a máscara cantava, não disse? E a Mereditha ouviu uma nota no chão. E o Breno levou o diapasão. Se ele estiver perto dela, talvez consiga saber quando a música muda.
+
+Mereditha virou-se para ele.
+
+— É uma possibilidade. Não podemos ouvi-lo daqui, mas, se chegarmos a uma passagem provável, teremos mais do que um palpite sobre o caminho. — Ela apontou para a coluna do destino. — Vou procurar nas anotações de Kalev qualquer coisa sobre som e deslocamento.
+
+— E a Bia levou a gaita da mamãe — acrescentou Banjo. — Os dois têm alguma coisa que a gente conhece.
+
+— O Breno sempre anota quando um instrumento reage — lembrou Bruno. — Ele escreveu até quantas vezes o diapasão esquentou no treino. Se aqueles cadernos ficaram na sala, pode ter escrito mais alguma coisa antes de sumir.
+
+— As folhas que trouxemos ainda não foram todas examinadas — disse Mereditha, puxando a mochila para perto. — Vou fazer isso agora, antes de voltar ao Arcano.
+
+— Então não vamos procurar apenas dois nomes — disse Velho-Sábio. — Vamos procurar os sinais dos instrumentos e qualquer anotação que Breno tenha deixado. Mereditha, mande uma cópia para Elowen. Não precisamos esperar o Conselho para ler papel.
+
+Grimaldus anotou. Garmande passou o dedo pela lista de nomes.
+
+Mereditha virou a página para a luz da lamparina.
+
+— Aqui, ao lado do laço. Kalev marcou três notas, e a última é longa. É parecida com a nota que ouvi na sala, quando o rastro desapareceu. Não prova para onde a máscara foi, mas pode dizer qual percurso ele estava estudando quando começou a escutar esse som.
+
+— Então temos uma razão para examinar esta rota primeiro — disse Garmande, assinalando a página. — Não uma certeza. Grimaldus, acrescente as notas ao pedido de acesso aos registros.
+
+— E quando acharmos a passagem? — perguntou Banjo.
+
+— Mereditha testa o rastro, Elowen verifica se o instrumento aguenta e eu levo uma equipe — respondeu Garmande. — Não vamos atirar ninguém ao primeiro arco que brilhar.
+
+— Ferris, venha comigo amanhã ao arquivo, com o caderno. Você reconhece os símbolos melhor do que qualquer um de nós.
+
+— Eu vou — respondeu Ferris, sem hesitar.
+
+— Nós também — disse Bruno.
+
+Velho-Sábio ajoelhou-se com dificuldade ao lado dele, para que não precisassem falar por cima da mesa.
+
+— Quero os quatro de volta tanto quanto vocês. Vou pedir a cada pessoa desta Sociedade que ajude. Mas, hoje, nenhum de nós sabe qual porta abrir. Se eu levá-los a uma passagem errada, posso perder vocês também.
+
+— E se o Beker não deixar vocês saírem amanhã? — perguntou Banjo.
+
+— Aí Grimaldus continua a contestar a ordem, e nós continuamos procurando sem atravessar — respondeu Garmande. — Não vamos abandonar a busca.
+
+Grimaldus dividiu as tarefas dos membros da Sociedade, escrevendo o responsável e a próxima hora de verificação ao lado de cada uma. Aos quatro jovens cabia colaborar com informações e aguardar em segurança, não sair em expedição por conta própria. Mereditha levou os cadernos e as pistas dos instrumentos; Garmande voltou a falar com Karoli e Serafira e manteve as equipes de resgate prontas. Lioro saiu para mandar o recado ao arquivo, enquanto Grimaldus preparava a contestação para a manhã seguinte. Na porta, os vigilantes já eram quatro. Um deles anotou a hora em que Lioro saiu.
+
+A reunião só terminou quando todos tinham uma tarefa. O resultado não era a passagem que Bruno queria, nem uma notícia sobre os irmãos. Era uma lista de coisas que podiam fazer, e nenhuma delas garantia encontrá-los antes do amanhecer.
+
+Mereditha abraçou Banjo com força antes de sair. Grimaldus levou a contestação ao Conselho, e Garmande guardou a outra metade dos documentos para os colegas que verificavam os mapas. Velho-Sábio ficou.
+
+Lioro voltou e levou a mãe para cima. Shirley dormiu no sofá da sala, de botas e tudo, com o passe preso na mão. Ivy lavava as xícaras na pia sem dizer palavra. Banjo ficou olhando o movimento das mãos dela.
 
 Velho-Sábio chamou os dois para o pátio quando a casa inteira já respirava de sono.
 
 Estava escuro. Farol se enrolara em volta da bola amarela, esquecida no banco, e a cauda acesa fazia um círculo dourado no chão. Velho-Sábio sentou na beira do banco, estendendo a perna.
 
-— Vou dizer três coisas, e quero que me escutem sem discutir — disse. — A primeira é que ninguém sai desta casa sem mim. Nem para ir à esquina, nem para ver a Nayra. A segunda é que a Sociedade e a Vigilância vão procurar Kalev, Breno e Beatriz do jeito que sabem, por papel e por ordem, e eu vou procurar do jeito que eu sei. A terceira é que vocês dois treinam amanhã às cinco, no pátio, e depois, e depois.
+— Primeiro, vocês dois não vão sair desta casa sem mim — disse Velho-Sábio. — Garmande já está tentando conseguir os registros; Mereditha vai procurar o sinal dos instrumentos, e Lioro vai verificar os mapas antigos. Eu vou falar com Lucan e, se for preciso, pedir uma audiência diante do Conselho. Até termos um caminho seguro, vocês precisam estar preparados. Amanhã, às cinco da manhã, nós três começamos a treinar no pátio.
 
 — Às cinco da manhã? — perguntou Bruno.
 
-— Às cinco da manhã. Vocês perderam um ano, Bruno. Um ano inteiro na terceira dimensão sem treino nenhum. Eu preciso recuperar isso em dias, e vocês vão detestar cada um deles.
+— Às cinco. Vocês ficaram um ano na Terra sem praticar. Não dá pra recuperar tudo em poucos dias, mas precisamos começar. Sei que não vão gostar do horário.
 
-— Eu não detesto nada que o senhor faz — disse Bruno, e quase sorriu. — Eu só vou dormir de pé.
+— Pô, às cinco eu ainda tô sonhando — reclamou Bruno, sem conseguir sorrir.
 
 O quase sorriso não durou. Ele olhou para o portão e se levantou do degrau.
 
 — Quatro vigilantes na esquina e a gente aqui, olhando a parede? Eu dava um jeito de passar por eles. Eu passo por qualquer um!
 
-— E eles escreveriam na caderneta que o garoto Lins saiu de noite desobedecendo a Vigilância — disse Velho-Sábio, sem levantar a voz. — É tudo o que o Beker precisa para fechar esta casa. Senta, Bruno.
+— E os vigilantes anotariam que você desobedeceu à ordem — respondeu Velho-Sábio. — Beker usaria isso para fechar a casa de Lioro. Senta, Bruno.
 
-Bruno sentou, mas com o joelho balançando, e ninguém falou nada até o joelho parar.
+Bruno se sentou. O joelho não parava de balançar, mas ele não discutiu mais.
 
-Ficaram os três em silêncio, e Farol rolou a bola até os pés de Bruno com o focinho. Bruno olhou para ela, e depois, sem querer, a pegou, quicou uma vez no chão de lajota e disse, com a voz mais mole do que gostaria:
+Farol empurrou a bola até os pés de Bruno. Ele a pegou sem pensar, deu um quique no chão de lajota e disse, com a voz mais mole do que gostaria:
 
 — Ponto do muro.
 
@@ -190,61 +288,69 @@ Banjo engoliu em seco. Era a regra da Bia, e ela não estava ali para dar o pont
 
 — Ponto da árvore — disse, e quicou a bola de volta.
 
-Velho-Sábio olhou para o céu, onde a primeira estrela começava, e fingiu ter encontrado alguma coisa muito interessante lá em cima.
+— O pai ia mudar as regras no meio do jogo só pra ganhar — comentou Bruno, sem olhar para o irmão.
 
-Às cinco da manhã, o pátio de Lioro estava azul e frio, e tinha mais gente do que Banjo esperava.
+— Ia errar a pontuação de propósito pra fazer a Bia rir — respondeu Banjo.
 
-Eshley chegou de capa de chuva sobre o pijama, com o cabelo preso de qualquer jeito e dois cantis pendurados, porque tinha ouvido pelo corredor do Arcano que ia ter treino, e não ia perder. Denis veio atrás, com um gorro de lã enterrado até as orelhas e o ar de quem tinha ouvido a mesma coisa, mas com muito mais detalhes. Amadou, que morava do outro lado da cidade, chegou por último, ofegante, com um pãozinho meio comido na mão e uma faísca azul saltando entre os dedos.
+Bruno pegou a bola e a segurou contra o peito. Era o tipo de coisa que Jack teria feito. Gabrielle reclamaria e acabaria rindo também.
 
-— Eu soube — disse Amadou. — Todo mundo sabe. O Velho-Sábio convocou a sala inteira. Ou foi o Grimaldus. Ou foi o rumor. Eu vim por precaução.
+Velho-Sábio virou o rosto para o céu por um instante, deixando que os dois irmãos brincassem.
 
-— Eu convoquei vocês três — disse Velho-Sábio, de pé no meio do pátio, com o cajado enfiado no chão e uma bandeja de madeira na mão que Banjo não tinha visto. — Porque os dois garotos Lins precisam de gente para errar junto, e vocês erram melhor do que qualquer um.
+Às cinco da manhã, Velho-Sábio já estava no pátio, com duas lanternas, uma corda e três tábuas encostadas na parede. Não havia comida nem prêmios sobre a mesa. Os quatro vigilantes continuavam na rua.
 
-— Isso foi um elogio? — perguntou Eshley.
+Eshley chegou pouco depois, de capa sobre o uniforme, trazendo dois cantis. Denis apareceu com o gorro até as orelhas e uma expressão preocupada que Banjo não costumava ver nele. Amadou veio de mais longe, com as mãos ainda frias da viagem.
 
-— Foi uma estatística — respondeu Velho-Sábio, e destampou a bandeja.
+— O Lioro avisou que o Breno e a Beatriz estão desaparecidos — disse Eshley. — Se o senhor precisar de gente para ajudar a procurar...
 
-Em cima dela havia seis pudins de leite, de calda escura, tremendo de leve, num prato de louça cada um. Cheiravam a caramelo e a manhã. Banjo olhou para Bruno, e Bruno olhou para Banjo, e nenhum dos dois ousou dizer nada.
+— Já falei com Garmande sobre vocês — respondeu Velho-Sábio. — Por enquanto, a maior ajuda que podem dar é aprender a trabalhar juntos sem derrubar ninguém. Se encontrarmos uma saída, talvez precisemos trazer pessoas feridas através dela.
 
-— O exercício é este — disse Velho-Sábio. — Um segura o pudim com a mente, sem tocar. O outro põe uma crosta de gelo na superfície, sem rachar o meio. Quem derrubar, come o que cair no chão. Se a crosta quebrar, quem congelou lava os pratos. O Bruno com o Banjo. A Eshley com o Denis. O Amadou fica de reserva, porque a faísca azul eu não quero perto da calda.
+Apoiou duas tábuas numa pedra baixa e fez uma terceira ficar suspensa na ponta de uma corda. Entre as tábuas havia um vão largo o suficiente para um adulto cair.
 
-— Eu não vou perto da calda nem se me pagarem — disse Amadou, escondendo as mãos nos bolsos.
+— Banjo, segure a tábua do meio com a mente. Bruno, faça uma base de gelo sob ela. Eshley, fique pronta para amparar quem escorregar. Denis, avise quando ouvir a corda estalar. Amadou, ilumine o vão. Nada de competir.
 
-Banjo estendeu a palma aberta diante do primeiro pudim, e sentiu a coisa mole e fria no meio do ar, como segurar um bicho dormindo. Ergueu-o um palmo. A calda balançou. Bruno aproximou os dedos e soltou o frio, devagar, e uma película branca desceu pela superfície, fina como vidro. Banjo respirou. Bruno respirou. A crosta cresceu para o meio, e foi quando o peito de Bruno chiou, bem de leve, um tilintar curto do sino de gelo, e o frio saiu da mão dele de uma vez. A crosta trincou de ponta a ponta, o pudim escorregou do ar e bateu no chão com um plof que fez Denis pular.
+Bruno estendeu as mãos sem discutir. O gelo apareceu como uma lâmina fina, branca, sob a madeira. Banjo ergueu a tábua, e a corda afrouxou. A princípio conseguiram mantê-la imóvel.
 
-— Pudim... dim... im! — disse o eco de Denis, sem ele querer, e todo mundo olhou. Denis ficou vermelho. — Isso não conta! Eu não estava nervoso! Eu só estava com pena do pudim!
+Velho-Sábio pousou um saco de areia em cima.
 
-— O pudim agradece — disse Velho-Sábio, sério, e entregou uma colher a Bruno. — Seu.
+O peso fez a tábua inclinar. Banjo tentou segurá-la com mais força; o gelo de Bruno engrossou de repente e partiu-se. O saco caiu. Eshley esticou os braços e conseguiu amortecer a queda antes que ele batesse nas lajotas.
 
-Bruno olhou a colher, o pudim no chão, e depois o mago.
+— Se fosse a Bia, eu tinha deixado ela cair — disse Banjo, olhando para o saco.
 
-— Esse pudim já estava perdido antes de eu começar — disse.
+— Não deixou cair — corrigiu Eshley. — Eu estava aqui.
 
-— E vai ficar mais perdido ainda se você não lavar a colher — respondeu Velho-Sábio, e ajeitou o chapéu.
+Velho-Sábio tirou a corda do chão e a entregou a Bruno.
 
-Comeram o pudim do chão em quatro colheres, com Farol roubando calda do prato, e repetiram o exercício mais seis vezes. Na segunda, Eshley deixou o ar mole debaixo de um pudim que caía e o segurou ali por quase dez segundos, de olhos apertados e língua entre os dentes, até que o ar cedeu de uma vez e a calda espirrou em Amadou dos pés à cabeça, que gritou "meu pão!" com tanta convicção que o pátio todo riu, até Ivy, na janela. Na quarta, Denis tentou dizer "bom dia" de propósito para o eco repetir, e nada voltou, e ele ficou olhando a parede, nervoso por não estar nervoso, até que o eco respondeu "bom dia, bom dia, dia", todo errado e atrasado, para ninguém. Na quinta, Amadou soltou uma faísca azul tão pequena que só acendeu a ponta do próprio gorro, e correu para o bebedouro com Eshley atrás, contando em voz alta que era a décima sétima do dia.
+— Vocês estavam tentando fazer tudo sozinhos. Em uma passagem estreita, isso pode ser o que derruba o grupo inteiro.
 
-Banjo sentia os braços tremerem e o nariz esquentar. Na sexta rodada, sem ter combinado com Bruno, soltou o pudim no ar e, em vez de segurar, empurrou devagar, como quem ajeita uma folha na água, e o prato inteiro ficou boiando, imóvel, a um palmo do chão. Bruno, ao lado, pôs a mão embaixo do prato sem encostar, e o gelo correu da palma dele para o ar e fez uma bandeja fina, branca, sustentando o pudim sem tocar a calda. Uma plataforma de gelo que o ar segurava. Ficaram os dois parados, de respiração presa.
+Recomeçaram. Desta vez Denis avisou que a madeira estava cedendo antes que Banjo sentisse a vibração; Amadou manteve uma faixa de luz fixa sobre o vão, para os outros enxergarem a borda. Bruno não engrossou o gelo quando o peso aumentou. Banjo soltou um pouco da força em vez de apertar mais.
 
-— Mais um segundo — disse Velho-Sábio, baixo. — Mais dois.
+O saco atravessou o vão sem cair.
 
-O gelo estalou. O pudim caiu na colher de Velho-Sábio, que já estava pronta, e ele o provou, e fez que sim com a cabeça.
+— De novo — pediu Bruno, antes que o mentor dissesse qualquer coisa.
 
-— Isso eu quero de novo amanhã — disse. — E depois de amanhã. Com mais peso e menos pudim.
+Repetiram até Banjo ficar pálido e Bruno começar a perder a precisão da linha de gelo. Velho-Sábio interrompeu o exercício.
 
-— Isso foi... bom? — perguntou Banjo, sem fôlego.
+— O pior erro numa travessia é continuar quando a mão já não obedece. Bebam água. Se for preciso repetir, repetiremos depois.
 
-— Isso foi bom — respondeu o mago, e não explicou mais. — Descansem.
+Bruno se sentou no degrau, respirando com dificuldade. Banjo foi ao banco onde Beatriz costumava deixar a bola amarela. Ela ainda estava lá, com as letras BBBB voltadas para cima.
+
+— Garmande já conseguiu os registros? — perguntou.
+
+— Ainda não — respondeu Velho-Sábio. — Grimaldus está na Torre Branca e Lioro espera notícia do arquivo. Não paramos de procurar, Banjo.
+
+O menino pegou a bola e a colocou de volta no banco, exatamente onde a irmã a deixara.
 
 Lioro saiu da cozinha nessa hora com duas mochilas de treino nos ombros e uma fatia de pão na boca. Shirley vinha atrás, de cabelo molhado e passe no pescoço, com cara de quem dormira pouco e mal.
 
 — Eshley, Shirley, é a vez de vocês — disse ele, engolindo o pão. — O Velho-Sábio ficou com os meninos até as seis, eu fico com vocês até o meio-dia, como toda semana. Pegaram o cantil?
 
-— Hoje? — perguntou Eshley, ainda com calda no cabelo. — Com tudo isso?
+— O senhor quer que a gente volte depois? — perguntou Eshley, ajeitando o cantil no ombro.
 
-— Justamente com tudo isso. — Lioro olhou para Velho-Sábio, que fez que sim. — Se o treino para, a cabeça só pensa no que não consegue resolver. Vamos para o campo atrás do moinho. Voltamos antes do almoço.
+— Se Garmande nos chamar para uma busca, interrompemos. Enquanto isso, vamos ao campo atrás do moinho, como combinado. Voltamos antes do almoço.
 
-Shirley olhou para Banjo antes de sair e tentou um sorriso que não pegou.
+Shirley tocou o ombro de Banjo antes de sair.
+
+— Se precisar de alguma coisa, eu volto depois do treino — disse ela.
 
 — Eu fico melhor fazendo alguma coisa — disse.
 
@@ -256,7 +362,7 @@ Os três saíram pelo portão, Lioro na frente com as mochilas. Na esquina, o ho
 
 — Levo — disse Lioro, sem parar. — Elas têm ficha, o senhor tem caderneta, e todo mundo aqui sabe ler.
 
-O vigilante anotou assim mesmo. Banjo ficou olhando até a curva da estrada engolir os quatro.
+O vigilante anotou assim mesmo. Banjo ficou olhando até a curva da estrada engolir os três.
 
 Foi no meio do descanso, quando o sol enfim pulou o muro e deixou o pátio cor de mel, que Bruno se afastou para beber água e Banjo o seguiu. Ivy estava de joelhos junto ao portão, com um balde e uma escova, esfregando o ferro com a força de quem apaga uma coisa errada.
 
@@ -270,32 +376,32 @@ No ferro, ainda úmida, havia uma marca de giz branco, um círculo com uma barra
 
 A escova parou. Ivy ergueu os olhos, marcados por um cansaço antigo.
 
-— O desenho que você viu na Campina tem uma história — disse Ivy. — Não é a mesma coisa que sujar o portão de alguém. — Voltou a esfregar. — Termina o treino e come alguma coisa.
+— O desenho na Campina tem uma história diferente — respondeu Ivy. — E não gosto de ver isso marcado na porta da minha casa. — Tornou a esfregar. — Vai terminar seu treino, Banjo.
 
 — Dona Ivy — disse Bruno, sem rodeio. — A capa da Bia. Como a senhora sabia o tamanho dela?
 
 — A capa estava pronta — disse Ivy, e a escova raspou o ferro. — Fim de conversa.
 
-Bruno olhou para Banjo, e Banjo para Bruno, e foi só isso. Mas Banjo guardou a frase no lugar das coisas que um dia iam servir.
+Os irmãos trocaram um olhar. Ivy não voltaria a explicar mais nada naquela manhã.
 
-Quando voltaram ao pátio, havia mais uma pessoa na cerca, encostada ao muro, com um carrinho de duas rodas ao lado e uma ave vermelha no ombro. Bug acenou de longe, com o colete cheio de etiquetas e os dentes pequenos à mostra. Ele não tinha o ar de sono de sempre. Tinha uma pressa de quem trazia uma coisa que não cabia no bolso.
+Quando voltaram ao pátio, havia mais uma pessoa na cerca, encostada ao muro, com um carrinho de duas rodas ao lado e uma ave vermelha no ombro. Bug acenou de longe, com o colete cheio de etiquetas e os dentes pequenos à mostra. Bug esperou que se aproximassem, apoiado no carrinho. O pão que levara para Ivy estava embrulhado num pano azul.
 
-— A dona Ivy mandou buscar cesta de pão — disse alto, para quem quisesse ouvir, e depois, baixo, só para os dois, quando eles chegaram à cerca: — Preciso falar com vocês e não pode ser aqui. É sobre os irmãos de vocês. O Ferris já sabe, foi me procurar ontem à noite por causa do pai, e topou.
+— A dona Ivy mandou buscar cesta de pão — disse alto, para quem quisesse ouvir, e depois, baixo, só para os dois, quando eles chegaram à cerca: — Preciso falar com vocês, mas não aqui. É sobre o Breno e a Beatriz. O Ferris me procurou ontem à noite, por causa do pai. Ele vai ajudar.
 
 — Quem é essa? — perguntou Banjo, olhando a ave. Era vermelha, de penas ralas na asa esquerda, e ela virou a cabeça para ele com um olho redondo e muito esperto.
 
-— A Pipa. — Bug sorriu, depressa demais. — Voltou ontem. Tinha ido para o norte. É mais escura do que eu lembrava, mas é a mesma. Acho.
+— A Pipa. — Bug ajeitou a alça da bolsa. — Voltou ontem. Tinha ido para o norte. As penas estão mais escuras do que eu lembrava.
 
 — Acha? — perguntou Bruno.
 
-— Eu perco muita etiqueta. — Bug passou a mão no bolso, e na palma havia uma etiqueta de papel velho, com um número pintado. Ele a mostrou rápido e guardou. — Eu trabalho de noite na Central, vocês sabem. Cuido da passagem e das aves. Os registros guardam toda hora que um portal abre, e eu sei a única hora em que ele abre sem ficar registrado. É um intervalo. Uma brecha. Dura o tempo de um sino.
+— Acho que é a mesma — respondeu Bug, pegando uma etiqueta antiga no bolso e guardando-a de novo. — Escutem. Trabalho à noite na Central, com os registros dos portais e das aves. Sei que existe um intervalo entre as rondas em que uma passagem pode abrir sem ficar registrada. Dura o tempo de um sino.
 
 — Quando? — perguntou Banjo, e o coração deu um pulo desajeitado no peito.
 
-— Hoje, depois da segunda ronda. — Bug olhou por cima do ombro, para o portão, para a porta da cozinha, para a janela de cima. — Eu não posso dizer mais nada. Se o senhor Velho-Sábio souber, ele não deixa. E a brecha não espera. Depois de hoje, só abre de novo daqui a um mês.
+— Hoje, depois da segunda ronda. — Bug olhou para a porta da cozinha, depois para a esquina. — Não contem ao Velho-Sábio. Ele não deixaria vocês irem. E só teremos outra oportunidade daqui a um mês.
 
 — Um mês — repetiu Bruno, e olhou para Banjo, e dessa vez não precisou de nenhuma palavra.
 
 Bug pôs a mão na ave, que arrepiou as penas, e saiu empurrando o carrinho pela estrada, assobiando uma música que Banjo não reconheceu. Atrás dele, no ferro do portão, a escova de Ivy tinha parado outra vez.
 
-Banjo olhou o sol, a bola amarela no banco e o cheiro de caramelo que ainda pairava no pátio. Depois sentiu a flauta quente no bolso e soube que ia querer a noite.
+Banjo olhou para a bola amarela de Beatriz, ainda sobre o banco. Apertou a flauta no bolso. Não queria passar mais um mês sem saber onde a irmã estava.

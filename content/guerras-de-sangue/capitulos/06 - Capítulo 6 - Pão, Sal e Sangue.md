@@ -6,7 +6,7 @@ O talismã não estava ali.
 
 Procurou entre os panos, sob a tábua e nos cantos da caixa. Nada.
 
-Restavam os corpos, os rastros, o couro levado e o relato dos Vigias. Sem o talismã, Kaelina teria de negociar a trégua sem a prova que ligava as mortes aos Tondrar.
+Restavam os corpos, os rastros, o couro levado e o relato dos Vigias. Sem o talismã, nem sequer poderia mostrar aos Tondrar o indício que os apontara como suspeitos.
 
 A porta abriu-se atrás dela.
 
@@ -46,7 +46,7 @@ Kaelina olhou para ela.
 
 — Para os Tondrar, não. Eles vão questionar. Vão dizer que inventamos a peça. Que chamamos uma negociação sem sequer trazer a acusação inteira.
 
-— Então deixa que questionem — disse Alyra, com a voz firme. — Quanto mais se agarram à ausência do talismã, mais parecem fugir dos mortos. O povo não precisa de madeira na mão para saber que dois garotos foram encontrados no barro. O Conselho não precisa de uma peça trançada para lembrar que Tondrar vivem de teatro. E os nossos homens, irmã, não vão olhar para uma caixa vazia e esquecer o cheiro dos corpos.
+— Que questionem — disse Alyra. — Os Vigias viram o talismã, e os garotos continuam mortos. Você quer dar aos Tondrar uma oportunidade de responder. Dê. Mas não volte de lá pedindo desculpas porque eles se recusaram a acreditar em nossos homens.
 
 Kaelina fechou a tampa devagar.
 
@@ -56,7 +56,7 @@ Kaelina fechou a tampa devagar.
 
 Alyra se aproximou.
 
-— Eu sei o que está tentando fazer. Quer levar pão a homens que mataram os nossos, usar a lei do nosso pai sem virar estátua dele e provar que Kaendar ainda pode ser forte sem parecer faminta por sangue. Isso não é fraqueza.
+— Eu sei por que insiste nessa trégua. Quer evitar mais mortes sem parecer fraca diante do Conselho. Não acho isso vergonhoso, Kaelina.
 
 Kaelina não esperava aquilo. Talvez por isso a frase a atingiu mais fundo do que uma acusação teria atingido.
 
@@ -72,7 +72,7 @@ Kaelina desviou os olhos para a peça rachada de Orionus sobre a lareira. Alyra 
 
 — Mas ele sabia que a guerra era a última opção.
 
-— E você acha que alguém quer guerra? Todos nós apenas queremos que esses desgraçados tenham uma lição. Quero que os dois garotos não tenham morrido em vão. Eles precisam entender que mexer com os Polar, traz consequências.
+— Quero que respondam por aqueles garotos. Se saírem de lá acreditando que podem nos matar sem pagar por isso, teremos mais mortos. E não serão apenas dois.
 
 Alyra ajeitou a dobra do manto nos ombros dela, um gesto doméstico raro entre as duas.
 
@@ -84,7 +84,7 @@ Então Alyra a abraçou. Kaelina ficou rígida no primeiro instante antes de ret
 
 Kaelina continuou inquieta.
 
-— Vamos levar pão, sal e sangue para os Tondrar — concluiu Alyra.
+— Vamos levar pão, sal e sangue aos Tondrar — concluiu Alyra.
 
 Kaelina franziu o cenho.
 
@@ -112,7 +112,7 @@ Alyra, ao lado dela, soltou um som breve.
 
 Kaelina não respondeu. Quanto mais se aproximavam do terreno intermediário, mais sentia a cautela dos homens ao redor.
 
-Duas carroças levavam grão-de-caule, couro de balili tratado, flor-de-sal e pães preparados sob os olhos de Iressa Mão-de-Sal, que seguia ao lado da carga. Yvenn Raiz-Branca vinha mais atrás, responsável pela palavra ritual e pelas testemunhas da Lei do Portão. Daryon cavalgava entre os conselheiros e os guardas.
+Duas carroças levavam grão-de-caule, couro de balili tratado, flor-de-sal e pães preparados sob os olhos de Iressa Mão-de-Sal, que seguia ao lado da carga. Yvenn Raiz-Branca vinha mais atrás, responsável pela palavra ritual e pelas testemunhas da Lei do Portão. Daryon seguia num tarrak entre os conselheiros e os guardas.
 
 O Marco das Três Pedras ficava entre a Garganta de Kaendar e as rotas secas para Khar-Tondr, numa clareira que nenhum clã reivindicava por inteiro. A maior das pedras trazia nomes apagados, outra tinha marcas de fogo, e a terceira era baixa e larga o bastante para servir de mesa.
 
@@ -138,7 +138,7 @@ Edran distribuiu os guardas entre as carroças, as bordas da clareira e as sober
 
 Os Tondrar chegaram quando o sol ainda estava baixo.
 
-Doze Tondrar carecas, com faixas negras de contornos duros nos rostos, surgiram pela trilha ao som de um tambor baixo. À frente caminhava Harvok Tondrar, a Voz do Círculo da Cabeça Nua, alto e magro. A Marca da Voz cobria-lhe quase todo o rosto de preto fosco, em planos rígidos da testa às faces, deixando os olhos à vista, e uma faixa ainda mais fechada atravessava a boca. A pintura continuava pelo pescoço até o peito.
+Doze Tondrar carecas, com faixas negras de contornos duros nos rostos, surgiram pela trilha ao som de um tambor baixo. À frente caminhava Dravun Tondrar, a Voz do Círculo da Cabeça Nua, alto e magro. A Marca da Voz cobria-lhe quase todo o rosto de preto fosco, em planos rígidos da testa às faces, deixando os olhos à vista, e uma faixa ainda mais fechada atravessava a boca. A pintura continuava pelo pescoço até o peito.
 
 Ao lado dele vinha Maedra, a Senhora dos Tambores, velha, careca, de dedos deformados e olhar impiedosamente vivo. Trazia um tambor pequeno preso ao corpo, mas não o tocava. Atrás, dois guerreiros de facas curvas, uma mulher com um saco de barro marcado por símbolos Tondrar e outros que Kaelina não soube classificar: testemunhas, guardas, talvez olhos de famílias diferentes.
 
@@ -150,7 +150,7 @@ Alyra olhou para a oferta e sorriu.
 
 — Comovente — disse ela. — Trouxeram migalhas.
 
-Maedra pousou dois dedos sobre o tambor, mas não bateu. Harvok não desviou os olhos de Kaelina.
+Maedra pousou dois dedos sobre o tambor, mas não bateu. Dravun não desviou os olhos de Kaelina.
 
 — Quem tem pouco e ainda divide entende mais de trégua do que quem oferece muito para ser visto oferecendo.
 
@@ -162,13 +162,13 @@ Iressa observou os pães Tondrar com atenção. Para um povo faminto, aquela ofe
 
 A irmã calou.
 
-Edran contou mãos, cintos e distâncias. Harvok percebeu e fez o mesmo.
+Edran contou mãos, cintos e distâncias. Dravun percebeu e fez o mesmo.
 
 Yvenn adiantou-se antes de todos.
 
 — Sob as Três Pedras, diante de pão, sal, água e testemunha, a Dinastia Polar invoca a Lei do Portão em terreno neutro. Aqui, não há anfitrião único. Quem exige confiança oferece primeiro, e quem aceita responde com a própria mesa. Quem come do outro reconhece a trégua. Quem fala aceita ser lembrado.
 
-Harvok olhou para o velho e depois para as soberanas.
+Dravun olhou para o velho e depois para as soberanas.
 
 — Orionus tinha voz mais áspera quando prendia homens com pão.
 
@@ -180,11 +180,11 @@ Alguns Tondrar trocaram olhares.
 
 Kaelina deu um passo à frente.
 
-— Harvok Tondrar, Voz do Círculo da Cabeça Nua, foste chamado porque dois jovens Polar foram encontrados mortos além de nossas muralhas. Havia restos de um balili abatido, couro levado, rastros demais para uma caçada comum e sinais que apontam para teu povo. Não viemos pagar pelo sangue deles. Não viemos comprar silêncio. Viemos exigir explicação diante de costume antigo.
+— Dravun Tondrar, Voz do Círculo da Cabeça Nua, foste chamado porque dois jovens Polar foram encontrados mortos além de nossas muralhas. Havia restos de um balili abatido, couro levado, rastros demais para uma caçada comum e sinais que apontam para teu povo. Não viemos pagar pelo sangue deles. Não viemos comprar silêncio. Viemos exigir explicação diante de costume antigo.
 
-A frase saiu firme. Mesmo sem o talismã em mãos, ela não desviou o olhar. Harvok percebeu a ausência.
+A frase saiu firme. Mesmo sem o talismã em mãos, ela não desviou o olhar. Dravun percebeu a ausência.
 
-Os olhos de Harvok passaram pela mesa e pelas mãos vazias dos Polar antes de voltarem para Kaelina.
+Os olhos de Dravun passaram pela mesa e pelas mãos vazias dos Polar antes de voltarem para Kaelina.
 
 — Palavra larga — disse ele. — Cabe muita mentira dentro.
 
@@ -192,7 +192,7 @@ Alyra deu um passo leve ao lado da irmã, mas Kaelina falou antes que ela pudess
 
 — Havia um talismã Tondrar junto aos corpos.
 
-Um dos guerreiros atrás de Harvok murmurou algo baixo demais para Kaelina entender. Maedra pousou dois dedos no tambor sem bater. Harvok apenas inclinou a cabeça.
+Um dos guerreiros atrás de Dravun murmurou algo baixo demais para Kaelina entender. Maedra pousou dois dedos no tambor sem bater. Dravun apenas inclinou a cabeça.
 
 — E onde está?
 
@@ -202,7 +202,7 @@ Kaelina sentiu o olhar de Alyra sobre ela.
 
 — Então mostra.
 
-Iressa virou o rosto para Kaelina. Yvenn fechou os olhos por um instante. Edran, atrás dela, não se mexeu, mas a presença dele ficou mais próxima, como se o próprio corpo quisesse impedir que a pergunta a atingisse outra vez.
+Iressa virou o rosto para Kaelina. Yvenn fechou os olhos. Atrás dela, Edran deu meio passo adiante, atento às mãos dos Tondrar.
 
 — A prova não está aqui — respondeu Kaelina.
 
@@ -210,7 +210,7 @@ Alyra falou então, calma demais:
 
 — Está a palavra dos Vigias. Está a palavra de Kaendar. Se os Tondrar vão fingir que nada disso vale só porque a madeira não está aqui diante dos teus olhos, então talvez não tenham vindo buscar verdade. Vieram buscar desculpa.
 
-Harvok virou os olhos para ela.
+Dravun virou os olhos para ela.
 
 — A outra soberana usa língua como faca porque talvez tema que a mão esteja vazia.
 
@@ -220,23 +220,23 @@ Alyra sorriu.
 
 Kaelina ergueu a mão, cortando o avanço antes que ele tivesse forma.
 
-— Harvok, a ausência do talismã aqui não muda o que foi encontrado. Mas se nega a marca, explica-a. Nenhum de nós atravessou esta distância para brincar de adivinhação.
+— Dravun, a ausência do talismã aqui não muda o que foi encontrado. Mas se nega a marca, explica-a. Nenhum de nós atravessou esta distância para brincar de adivinhação.
 
-Harvok retirou de dentro do manto um pequeno talismã de madeira escura e ergueu-o entre dois dedos. Não era o mesmo, mas era parecido o bastante para que alguns guardas Polar se tensionassem.
+Dravun retirou de dentro do manto um pequeno talismã de madeira escura e ergueu-o entre dois dedos. Não era o mesmo, mas era parecido o bastante para que alguns guardas Polar se tensionassem.
 
-— Isto é Tondrar. Cada nó diz família, cada ponto diz função, cada queimadura tem mão. Um talismã não cai do corpo como folha morta. Não é enfeite de criança, nem lixo de trilha. Quem perde uma marca dessas perde também a história que ela carrega. Se quiséssemos assumir as mortes, teriam ouvido tambor antes dos corpos esfriarem. Se quiséssemos esconder, não teriam encontrado nada. O que dizem ter encontrado é meio caminho entre orgulho e segredo. Isso não é prova. É isca.
+— Isto é Tondrar. Cada nó indica uma família. Os pontos indicam a função. Reconhecemos até a mão que queimou a madeira. Não deixamos uma marca assim para trás por descuido. Se quiséssemos assumir a morte dos seus jovens, teriam ouvido nossos tambores. Se quiséssemos escondê-la, não teriam encontrado o talismã. Alguém queria que olhassem para nós.
 
 A dúvida de Kaelina aumentou. Alyra aproximou-se da mesa.
 
-— É admirável como crescer mastigando raiz de pedra transforma vocês em filósofos esqueléticos.
+— Aprenderam tudo isso olhando para um pedaço de madeira?
 
 Maedra bateu uma vez no tambor. Alguns guardas se moveram, mas Edran os conteve com a mão.
 
 — Cuidado com o que insulta, soberana. Kaendar nunca precisou escolher quem come e quem espera. Quando precisar, talvez fale de escassez com menos facilidade.
 
-— Kaendar conhece estoque, rota e disciplina. Vocês só conhecem escassez. Por isso não me venham fingir que estão aqui por honra.
+— Kaendar sabe conservar comida e manter suas rotas abertas. Se os seus homens passassem menos tempo contando ofensas e mais tempo contando estoques, talvez não precisassem ameaçar quem lhes vende grão.
 
-Harvok olhou para ela sem mudar o rosto.
+Dravun olhou para ela sem mudar o rosto.
 
 — Estamos aqui porque guerra nos custaria caro. E custaria caro a vocês também.
 
@@ -254,7 +254,7 @@ Alyra virou os olhos para ela.
 
 — Estou defendendo contagem simples. Pão custa. Flor-de-sal custa. Grão-de-caule custa. Tarrak em marcha come. Soldado em marcha come mais ainda.
 
-Harvok olhou para Iressa com algo próximo de respeito.
+Dravun olhou para Iressa com algo próximo de respeito.
 
 — Pelo menos alguém aqui sabe o valor do que trouxe.
 
@@ -262,13 +262,13 @@ Kaelina aproveitou a abertura.
 
 — Então vamos tratar disso como gente que entende custo. Ninguém aqui ganha com uma guerra aberta. Comamos sob testemunha. Falemos sob testemunha. Se os Tondrar não têm culpa, a trégua protege vocês. Se têm algo a esconder, a própria recusa vai dizer mais do que qualquer acusação nossa.
 
-Harvok olhou para os pães. Yvenn aproximou-se, partiu um deles, tocou um pedaço no sal de Kaendar e o ergueu diante das pedras.
+Dravun olhou para os pães. Yvenn aproximou-se, partiu um deles, tocou um pedaço no sal de Kaendar e o ergueu diante das pedras.
 
 — Pela Lei do Portão em terreno neutro, cada lado come do pão do outro. Não porque confie. Porque deseja provar que ainda sabe arriscar confiança.
 
-Depois estendeu o pedaço a Harvok. A Voz dos Tondrar aceitou. Não comeu ainda.
+Depois estendeu o pedaço a Dravun. A Voz dos Tondrar aceitou. Não comeu ainda.
 
-Maedra partiu um dos pães escuros de seu povo. Algumas migalhas caíram sobre o pano.
+Maedra partiu um dos pães escuros de seu povo. Algumas migalhas caíram sobre o pano. Daryon adiantou-se apenas o bastante para segurar uma das tigelas que quase virou, recebeu de Iressa um olhar irritado e recuou antes que o gesto merecesse atenção.
 
 Yvenn tocou o pão Tondrar no sal escuro e comeu. Iressa fez o mesmo, e Kaelina também. O gosto era terroso, amargo e seco.
 
@@ -278,13 +278,13 @@ Alyra aceitou um pedaço menor. Olhou para ele antes de comer.
 
 Kaelina lançou-lhe um olhar duro, mas Alyra já mastigava.
 
-Do outro lado, Harvok comia o pão de Kaendar. Dois Tondrar atrás dele também comeram, com uma rigidez que deixava claro o desconforto de aceitar alimento Polar diante dos seus. Maedra não tocou no pão grande. Molhou a ponta dos dedos no sal de Kaendar e levou-os à testa. Kaelina aceitou o gesto.
+Do outro lado, Dravun comia o pão de Kaendar. Dois Tondrar atrás dele também comeram, com uma rigidez que deixava claro o desconforto de aceitar alimento Polar diante dos seus. Maedra não tocou no pão grande. Molhou a ponta dos dedos no sal de Kaendar e levou-os à testa. Kaelina aceitou o gesto.
 
 Daryon também comeu da oferta Tondrar. A trégua estava formalmente estabelecida.
 
 — Agora falem — disse Kaelina.
 
-Harvok engoliu o último pedaço antes de responder.
+Dravun engoliu o último pedaço antes de responder.
 
 — Há gente que lucra quando Polar e Tondrar se acusam. Vendrar vendem metal mais caro quando o medo sobe. Buldar fingem fraqueza com celeiros fechados. Clãs pequenos vendem trilha para quem prometer proteção. E dentro de muralhas grandes sempre há homens pequenos que crescem quando a cidade aprende a odiar na direção certa.
 
@@ -298,9 +298,9 @@ Um dos guerreiros Tondrar levou a mão ao cabo da faca. Não sacou. Mas tocou. A
 
 — Tira a mão daí — disse Edran, a voz baixa, imediata.
 
-Harvok ergueu dois dedos, e o guerreiro obedeceu, embora o ódio ficasse inteiro no rosto.
+Dravun ergueu dois dedos, e o guerreiro obedeceu, embora o ódio ficasse inteiro no rosto.
 
-— Sobreviventes não são inocentes — disse Harvok. — Inocência é luxo de povo com celeiro. Mas sobrevivente não joga pedra em colmeia se precisa do mel depois. Nós não matamos os seus jovens. Não deixamos talismã. Não queremos guerra.
+— Sobreviventes não são inocentes — disse Dravun. — Inocência é luxo de povo com celeiro. Mas sobrevivente não joga pedra em colmeia se precisa do mel depois. Nós não matamos os seus jovens. Não deixamos talismã. Não queremos guerra.
 
 Yvenn tossiu.
 
@@ -320,9 +320,9 @@ Ele tentou responder. Não conseguiu. Os olhos dele encontraram os dela por uma 
 
 O corpo bateu no chão entre a mesa e as pedras. Durante um segundo, ninguém se moveu.
 
-Harvok recuou meio passo. Maedra tirou as mãos do tambor. Um dos guerreiros Tondrar abriu a boca, mas nenhuma palavra saiu.
+Dravun recuou meio passo. Maedra tirou as mãos do tambor. Um dos guerreiros Tondrar abriu a boca, mas nenhuma palavra saiu.
 
-Iressa ajoelhou-se junto ao velho. Abriu-lhe a boca, tocou-lhe o pescoço, virou-lhe o rosto, como se ainda pudesse discutir com a morte por procedimento.
+Iressa ajoelhou-se junto ao velho. Abriu-lhe a boca, tocou-lhe o pescoço e procurou alguma passagem de ar. Não encontrou.
 
 — Ele não respira — disse ela, e a voz saiu irreconhecível.
 
@@ -330,7 +330,7 @@ Alyra gritou:
 
 — Veneno.
 
-Harvok ergueu as mãos.
+Dravun ergueu as mãos.
 
 — Não.
 
@@ -344,9 +344,9 @@ Os Tondrar sacaram armas. Os Polar avançaram. A mesa virou quando um corpo caiu
 
 A ordem perdeu-se no choque de metal. Um Tondrar saltou sobre o pano rasgado e recebeu um escudo no peito. Outro feriu um guarda Polar no rosto antes de cair sob duas lâminas. Iressa arrastou Yvenn para longe da mesa.
 
-Harvok ainda estava de pé e tentava falar. Não avançava. Uma mão permanecia erguida e a outra pressionava o lado ferido. Uma lança veio de lado.
+Dravun ainda estava de pé e tentava falar. Não avançava. Uma mão permanecia erguida e a outra pressionava o lado ferido. Uma lança veio de lado.
 
-Kaelina não viu quem a arremessou. Viu apenas o corpo de Harvok dobrar quando a ponta entrou abaixo das costelas e saiu vermelha pelo outro lado. A Voz caiu de joelhos, os olhos arregalados. Maedra gritou, e o tambor respondeu ao corpo dela quando um guarda a empurrou contra a mesa caída.
+Kaelina não viu quem a arremessou. Viu apenas o corpo de Dravun dobrar quando a ponta entrou abaixo das costelas e saiu vermelha pelo outro lado. A Voz caiu de joelhos, os olhos arregalados. Maedra gritou, e o tambor respondeu ao corpo dela quando um guarda a empurrou contra a mesa caída.
 
 — Edran, mande-os parar! — Kaelina tentou soltar-se. — Mande-os parar agora!
 
@@ -366,13 +366,13 @@ Alyra pegou o arco de um guarda caído e mirou.
 
 A flecha partiu. O Tondrar caiu antes de alcançar os arbustos. O corpo rolou uma vez, bateu contra uma raiz e ficou imóvel, metade à sombra, metade no sol fraco. Naquele instante, algo dentro de Kaelina entendeu antes dela. Nenhum deles sairia dali.
 
-Nenhum Tondrar sairia dali para contar que Harvok negara as mortes ou que a trégua existira por alguns instantes. Maedra foi a última perto da mesa.
+Nenhum Tondrar sairia dali para contar que Dravun negara as mortes ou que a trégua existira por alguns instantes. Maedra foi a última perto da mesa.
 
 Ela não atacou. Ao menos Kaelina não viu ataque. Viu a velha ajoelhada, uma das mãos sobre o tambor, a outra ensanguentada. Maedra bateu uma vez. Tum. Um som baixo, incompleto, triste demais para ser ameaça. Um guarda Polar levantou a espada. Kaelina tentou avançar, mas Edran segurou-a com força suficiente para doer. A lâmina desceu. O tambor calou-se.
 
 Quando a luta cessou, homens verificaram corpos entre pão esmagado, sal, couro e grão espalhados. Iressa permaneceu junto de Yvenn. Daryon estava pálido junto à terceira pedra.
 
-Alyra ergueu a espada ensanguentada, e os homens da Guarda da Raiz responderam.
+Alyra ergueu a espada ensanguentada. Os homens da Guarda da Raiz voltaram-se para ela.
 
 — Traidores sob pão e sal! — gritou Alyra. — Traidores sob a Lei do Portão!
 
@@ -382,7 +382,7 @@ Algo quente escorria pelo rosto de Kaelina. Ela levou a mão à face, e os dedos
 
 Não era seu sangue. Estava em sua pele, no pescoço, no manto e por cima da Ramagem branca.
 
-Edran olhava para Harvok, Maedra, Yvenn e o sal misturado ao sangue. Kaelina olhou para Alyra.
+Edran olhava para Dravun, Maedra, Yvenn e o sal misturado ao sangue. Kaelina olhou para Alyra.
 
 A irmã permanecia cercada pelos guardas, espada levantada, transformando a matança em vitória diante deles.
 

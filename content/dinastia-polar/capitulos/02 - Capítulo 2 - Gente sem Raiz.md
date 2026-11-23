@@ -42,7 +42,7 @@ Elis apontou vagamente para a parede.
 
 — Só caí por aí. 
 
-Kalan olhou para ela e Elis ignorou, andando perto dos recipientes de vidro no armário e passando os dedos sobre eles. Ele tornou a cortar a carne. Tinha dezessete ciclos, mas Elis achava que às vezes se esforçava para parecer quarenta. Não conseguia simplesmente perguntar alguma coisa e aceitar uma resposta: precisava descobrir onde ela estivera, por qual caminho passara, com quem falara e, se possível, quantas pedras havia pisado entre sair e voltar para casa.
+Kalan olhou para ela e Elis ignorou, andando perto dos recipientes de vidro no armário e passando os dedos sobre eles. Ele tornou a cortar a carne. Kalan tinha dezessete ciclos, mas Elis, aos treze, achava que ele fazia força para parecer quarenta. Não conseguia simplesmente perguntar alguma coisa e aceitar uma resposta: precisava descobrir onde ela estivera, por qual caminho passara, com quem falara e, se possível, quantas pedras havia pisado entre sair e voltar para casa.
 
 — Sabe que não é meu responsável, certo?
 
@@ -116,7 +116,7 @@ Kalan apoiou a faca sobre a mesa.
 
 — Dez campeões — disse Tair. — Um para cada dinastia. A vencedora terá primazia nas decisões sobre guerras e disputas entre elas. Está todo mundo falando disso.
 
-— Interessante — respondeu Elis.
+— É mesmo? — respondeu Elis, tentando não rir.
 
 Kalan ergueu uma sobrancelha. Elis bebeu mais água para manter a boca ocupada enquanto ele cortava outra tira, esfregava-a no sal e a pendurava.
 
@@ -136,11 +136,11 @@ Kalan tornou a trabalhar enquanto falava. Naro apostava que a Companhia teria de
 
 Kalan pensou antes de responder.
 
-— Se dez pessoas lutarem e evitarem que dez mil façam o mesmo, é uma conta fácil.
+— Prefiro dez pessoas brigando na arena a dez mil se matando numa estrada.
 
 Kalan terminou de pendurar mais uma tira.
 
-— Eu acho estranho chamar luta de paz. Mas nunca estamos realmente em paz, não é? 
+— Mas não sei se chamaria isso de paz. No fim, vão estar torcendo para ver alguém cair. 
 
 Elis ficou olhando para ele.
 
@@ -204,7 +204,7 @@ Elis o encarou.
 
 — No tempo de Naryon isso não acontecia — continuou ele. — Gente sem raiz agradecia por permanecer dentro das muralhas. Sabia qual era o próprio lugar. Agora exigem água, trabalho, passagem, registro. Daqui a pouco vão querer Kaendar.
 
-— Eu não quero Kaendar. Deve ser horrível viver entre nós, Sr. Rovan.
+— Eu não quero morar em Kaendar, não, senhor. Deve ser um horror ter que ouvir o senhor todo dia.
 
 — Eu reclamo porque vi esta cidade antes de vocês tomarem tudo.
 
@@ -224,7 +224,7 @@ Elis saltou para uma cobertura mais baixa antes que ele continuasse. Ouviu Rovan
 
 Na parede lateral de uma casa, quase escondido por cal nova, ainda aparecia um nome riscado fundo demais para desaparecer por completo:
 
-**SARVEN SEM-ANEL.**
+SARVEN SEM-ANEL.
 
 Alguém tentara raspar as letras anos antes, e restavam sulcos irregulares na pedra. Elis conhecia o nome como conhecia dezenas de coisas antigas de Kaeliran: sem saber a história inteira. Para os Filhos da Raiz, Sarven tinha sido traidor. Para alguns velhos de Maruva, era um nome que aparecia em discussões quando a água faltava ou um portão fechava cedo demais. Kalan já dissera para ela não repetir aquilo perto de gente do Culto.
 
@@ -288,7 +288,7 @@ O garoto que estava no chão sentou-se e olhou para ela antes de começar a rir 
 
 Elis reconheceu dois deles de vista, perto das oficinas e das cozinhas coletivas. O mais alto era fácil de lembrar porque falava alto o bastante para garantir que todos soubessem quando estava por perto.
 
-— Ele está com medo — disse Elis. — Vocês estão machucando ele.
+— Vocês não tão vendo que ele tá com medo? — Elis apontou para Orel. — Deixa ele levantar!
 
 — Medo? Olha o tamanho dele.
 
@@ -300,11 +300,11 @@ O garoto com a madeira sorriu.
 
 — Vai fazer o quê?
 
-— Posso começar falando para todo mundo que é preciso quatro gabais pra bater num homem que não consegue nem sequer se defender. 
+— Posso contar pra Maruva inteira que vocês são quatro valentões batendo num homem caído. Quero ver quem vai achar bonito. 
 
 O mais alto se aproximou.
 
-— Não interessa o que você fala menina. Meu tio é Polar de dentro.
+— Tenha cuidado com o que diz, menina. Meu tio é Polar da Cidade Interna.
 
 Elis arregalou os olhos teatralmente. O garoto pareceu satisfeito.
 
@@ -330,7 +330,7 @@ Os outros olharam para ele.
 
 Elis apontou para o garoto.
 
-— Ele não é guarda. Ele nem consegue entrar na Cidade Interna sem autorização de trabalho. Seu tio importante descarrega couro, que poderoso. E vocês quatro juntos conseguiram vencer Orel sentado no chão. Devem ser a família mais perigosa de Jesed.
+— Guarda? Seu tio descarrega couro em Roven! Precisa de autorização até pra passar do portão. — Elis olhou para os quatro. — E vocês ainda precisam se juntar pra bater no Orel caído. Que família de valentes, hein?
 
 Dois dos garotos riram. O mais alto avançou. Elis ainda teve tempo de perceber que talvez tivesse ido longe demais. A mão dele fechou em seu pescoço, e ela foi empurrada contra a parede.
 
@@ -856,7 +856,7 @@ Elis arregalou os olhos.
 
 — Então você mentiu?
 
-— Eu improvisei com informações verdadeiras.
+— Eu sabia de metade. A outra metade eu arrisquei.
 
 Kalan levou as duas mãos ao rosto.
 
@@ -882,4 +882,4 @@ Tair franziu a testa.
 
 — Para quê?
 
-— Para descobrir se sua improvisação verdadeira vai mandar nós três para custódia.
+— Pra descobrir se a metade que você arriscou vai mandar nós três pra custódia.

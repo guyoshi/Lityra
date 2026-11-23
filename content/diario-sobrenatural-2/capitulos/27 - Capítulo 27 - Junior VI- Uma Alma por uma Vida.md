@@ -244,7 +244,23 @@ Manu falou atrás de mim, mas não era mais a voz dela. Era uma voz carregada de
 
 — Ele tá aqui.
 
-Quando a luz piscou e acendeu de novo, Manu tinha desaparecido. Senti um frio encostar na minha nuca com intenção e me virei devagar, o corredor parecendo recuar um passo, como se a própria escola não quisesse ficar perto do que estava prestes aparecendo. Os azulejos verdes ficaram brancos, brancos de hospital, e voltaram, como cenário trocado entre duas tomadas. Não voltaram todos. O corredor ficou comprido demais, o piso virou madeira de casa velha, com o cheiro de poeira e sangue seco da casa dos Marques, e lá no fundo ouvi a voz da Kelly. Chamou o meu nome, só isso. Era a coisa mais cruel que ele podia ter escolhido, e ele sabia.
+Quando a luz piscou e acendeu de novo, Manu tinha desaparecido. O corredor estava comprido demais. Caminhei de costas, com a barra de ferro erguida, até sentir cheiro de grama molhada.
+
+Havia uma clareira diante de mim. Reconheci o lugar. Era onde tudo tinha acabado no ano anterior. Só que o sol ainda estava alto, os pássaros cantavam, e Kelly estava sentada na grama, viva, com os joelhos dobrados e o cabelo preso atrás da orelha. Ela abriu um sorriso quando me viu. Era aquele sorriso rápido, meio debochado, que eu tinha lembrado errado tantas vezes desde o enterro.
+
+— Júnior? Você trouxe?
+
+Não soube o que ela estava pedindo. Quis correr até ela, abraçá-la, dizer que podíamos ir embora antes que qualquer outra coisa acontecesse. Mas meus dedos estavam frios. Olhei para baixo. Na mão direita havia um revólver.
+
+Eu não lembrava de tê-lo pegado. A arma estava pesada, e minha mão direita se levantou sozinha, milímetro por milímetro, até ficar apontada para Kelly. Tentei abaixá-la. O braço não obedeceu.
+
+Kelly deixou de sorrir. Não chorou nem fugiu. Ficou olhando para mim com os olhos abertos, esperando. Aquilo foi pior do que qualquer grito.
+
+— Não — falei. — Não de novo.
+
+Uma larva caiu sobre o cano da arma. Depois outra. E outra. O som dos pássaros parou no meio de uma nota. Algo se aproximou pela grama às minhas costas, esmagando os talos com passos pesados. Virei para protegê-la.
+
+Havia uma porta onde a clareira terminava. A madeira estava manchada e, dentro do vão, um corpo alto demais se curvava para passar. A cabeça era uma massa de insetos se retorcendo. O Cara-de-Larva se endireitou. No instante em que seus olhos deveriam encontrar os meus, vi que não havia olhos.
 
 Ele estava ali.
 
@@ -294,6 +310,12 @@ Eu precisava voltar para a igreja.
 
 Corri pelas ruas com o peito ardendo, tentando lembrar o caminho como quem tenta lembrar a própria casa num sonho. A cada esquina, sombras pareciam se deslocar no limite da visão. Em alguma janela, algo arranhou o vidro. Eu não olhei.
 
+Na esquina seguinte, encontrei uma pessoa parada sob um casaco comprido, de costas, bem no meio do caminho. O tecido se mexia em vários lugares ao mesmo tempo. Achei que fosse o vento até perceber a forma de mãos pressionando o casaco por dentro, perto das costas e dos ombros, tentando alcançar a costura.
+
+Parei tão bruscamente que quase caí. O corpo girou para me encarar. Não tinha rosto visível sob a gola alta. Uma mão apareceu pelo tecido na altura do peito, depois outra perto do quadril, ambas grandes demais para caber ali dentro. O casaco avançou na minha direção com passos curtos e rápidos, embora as pernas parecessem imóveis.
+
+Dei meia-volta. O som dos passos veio atrás de mim, seco, irregular. Quando tentei cortar por um beco, vi o casaco parado na saída, como se tivesse atravessado as casas. Voltei para a rua principal, sem parar de correr. Uma das mãos surgiu da manga e raspou o muro ao meu lado, arrancando tinta e pedacinhos de reboco. Não sabia o que aquela coisa queria. Não tinha tempo de descobrir.
+
 Ouvi um grito chamando meu nome.
 
 — GAROTO! Aqui!
@@ -342,7 +364,7 @@ Vila Velha. Não olhei para ela.
 
 Lídia falou rápido, como se o tempo finalmente tivesse começado a cobrar.
 
-— Na igreja, todo mundo acredita na Lucinda — ela disse. — Porque ela tem dons. Eles acham que ela é uma representante de Deus, e que a Mãe… que a Mãe é a mulher de Deus. Acham que a Mãe protege, que decide quem entra, quem vive, quem merece.
+— Na igreja, todo mundo acredita na Lucinda — ela disse. — Porque ela tem dons. Eles acham que ela é uma representante de Deus, e que a Mãe… que a Mãe é a mulher de Deus. Acham que a Mãe protege, que decide quem entra, quem vive, quem merece. Ultimamente, ela não deixa ninguém dormir fora da igreja. Pergunta por quem falta, diz que todos precisam estar lá quando a Mãe chamar. Nunca explica o que vai acontecer.
 
 Tum. Tum.
 

@@ -34,7 +34,7 @@ Alyra ficou parada.
 
 Daryon sorriu sem mostrar os dentes.
 
-— Os Buldar sempre foram agricultores até na coragem. Antes de escolher lado, contam chuva, praga, herdeiro e celeiro.
+— Os Buldar medem o risco antes de abrir o celeiro. Se hesitam, é porque ainda estão calculando o preço.
 
 Alyra não olhou para ele, mas a frase a agradou.
 
@@ -44,7 +44,7 @@ Alyra não olhou para ele, mas a frase a agradou.
 
 — Covardia embrulhada em cortesia, então.
 
-O mensageiro abaixou a cabeça ainda mais, como se fosse culpa dele. O terceiro vinha das rotas Vendrar.
+O mensageiro abaixou a cabeça e saiu. O terceiro vinha das rotas Vendrar.
 
 Não se ajoelhou tão rápido. Não por desrespeito, mas por cansaço verdadeiro. Tinha a capa chamuscada numa ponta e uma queimadura recente atravessando dois dedos da mão esquerda. Alyra notou. Daryon também.
 
@@ -66,7 +66,7 @@ Daryon inclinou um pouco a cabeça.
 
 — Ao menos os Vendrar têm a delicadeza de vender indecência sem fingir virtude.
 
-— Eles venderiam a própria sombra se alguém prometesse acendê-la depois — disse Alyra.
+— Se descobrirem que precisamos de metal, vão cobrar o triplo — disse Alyra.
 
 O mensageiro continuava ajoelhado.
 
@@ -148,7 +148,7 @@ O silêncio mudou. Alyra olhou para ele. Daryon aproximou-se da lamparina e baix
 
 — Homens das Areias.
 
-Os Homens das Areias eram exilados, desertores, criminosos e famílias marcadas por traições antigas. Haviam perdido o direito à Raiz e sido empurrados para as terras secas ao sul. Kaendar nem sequer os reconhecia como clã.
+Os Homens das Areias reuniam exilados Polar e seus descendentes. Uns haviam cometido crimes. Outros herdaram a condenação dos pais ou foram expulsos por desafiar a autoridade. Sem direito à Raiz, viviam nas terras secas ao sul. Kaendar nem sequer os reconhecia como clã.
 
 Alyra caminhou até a parede. Havia um mapa antigo ali, quase apagado pela umidade. A região das areias não aparecia com detalhe. Nem os poços, nem as rotas dos harruns, nem as fendas onde sibilos-de-Ardash se enterravam durante o calor. Apenas uma mancha clara, sulcada por linhas que indicavam rotas mortas.
 
@@ -270,7 +270,7 @@ Daryon aceitou a mudança. Alyra voltou ao espelho e prendeu o cabelo com uma ti
 
 — Preciso só fazer algo antes.
 
-Cal Edran Polar vigiava a porta de Kaelina como se a madeira fosse uma fronteira e o corredor, uma guerra que ainda não escolhera lado.
+Cal Edran Polar estava de guarda à porta dos aposentos de Kaelina.
 
 Alyra apareceu sem escolta. Isso fez Edran endireitar-se um pouco. Não muito. Edran nunca dava ao mundo o prazer de parecer surpreendido.
 
@@ -398,13 +398,13 @@ A carruagem deixou os anéis pelos acessos de serviço e seguiu até a Ponte da 
 
 — Kaelina acha que sou impulsiva — disse Alyra.
 
-Daryon não respondeu de imediato.
+— E você deixa que ela pense assim.
 
-— Ela precisa achar isso.
+— Porque me convém.
 
-— Por quê?
+Daryon assentiu.
 
-— Porque se aceitar que você pensa, terá de levar suas decisões mais a sério. É mais confortável chamar de orgulho aquilo que ela não consegue controlar.
+— Enquanto discute teu temperamento, ela presta menos atenção ao que você faz.
 
 Alyra encostou a cabeça na madeira da carruagem. Sentiu um leve desconforto no estômago e fechou os olhos.
 
@@ -426,7 +426,7 @@ A primeira construção apareceu pouco antes de a lua maior alcançar o alto. A 
 
 Havia mulheres caçadoras, velhos, rapazes armados, meninas carregando jarros e bebês em cestos protegidos por pano. Alyra observou pela fresta as Raízes queimadas nos braços, o couro velho e as casas tortas. Pensou em quantos daqueles braços poderiam estar segurando lanças nas muralhas de Kaendar.
 
-Que desperdício. A carruagem coberta parou no centro do povoado. Não houve ordem audível. Mesmo assim, sombras se moveram.
+Alyra contou pelo menos uma dezena de braços capazes de carregar lança. A carruagem coberta parou no centro do povoado. Não houve ordem audível. Mesmo assim, sombras se moveram.
 
 Homens surgiram entre casas. Mulheres fecharam portas por dentro. Arcos apareceram em telhados baixos. Uma lança bateu no chão à frente dos tarraks. Outro homem veio por trás, cortando a retirada. O condutor ergueu as mãos, sabendo que qualquer heroísmo ali morreria sem testemunha. Daryon abriu a porta primeiro.
 
@@ -504,7 +504,7 @@ Sarkan inclinou a cabeça.
 
 — Que se danem os acordos. Orionus já determinou o exílio. E nós já lutamos o suficiente por vocês.
 
-— Orionus está morto. As leis do meu pai deixaram de valer no momento em que me tornei soberana.
+— Orionus está morto. Eu posso levar uma revisão dos exílios à Mesa da Raiz. E, se meus conselheiros quiserem discutir, terão de explicar por que recusam homens que fizeram o que Kaendar precisava.
 
 O povoado ficou mais quieto. Alyra caminhou até a carruagem, pegou um saco pequeno de sal e atirou-o aos pés de Sarkan. Ele olhou para baixo, mas não se abaixou.
 
@@ -518,7 +518,7 @@ Alyra olhou para ele.
 
 — Sim.
 
-A honestidade cortou o ar. Até Sarkan pareceu gostar.
+Sarkan estudou-a sem sorrir.
 
 — Kaendar usa vocês quando precisa de trabalho sujo. Depois fecha os portões e chama isso de justiça. Meu pai tolerou. Minha irmã fingiria pena. Eu acho desperdício.
 
@@ -586,7 +586,7 @@ Uma criança tossiu dentro de uma das casas. O som fez a frase parecer mais suja
 
 Sarkan falou em tom de cálculo. Daryon olhou para Alyra.
 
-Ela sentiu o desconforto no ventre outra vez, mais fundo agora, como se o corpo tivesse ouvido antes da consciência. Por um instante, viu a mãe no pátio de Kaendar abraçada ao filho morto. Alyra fechou a mão.
+O ventre voltou a apertar. Alyra lembrou-se da mãe ajoelhada no pátio de Kaendar, abraçada ao filho morto, e fechou a mão.
 
 — O clã inteiro.
 
@@ -610,17 +610,17 @@ Sarkan pegou o objeto. Virou-o entre os dedos. A boca partida deixava parte dos 
 
 Um homem atrás de Sarkan rosnou:
 
-— Não vamos fazer nada sem garantia.
+— E se ela nos fechar os portões depois? — perguntou um homem atrás de Sarkan.
 
 Alyra virou-se para ele.
 
 — Este homem fala por vocês?
 
-Sarkan ergueu a mão, calando-o.
+Sarkan ergueu a mão, pedindo silêncio.
 
-— Queremos comida e um lar seguro para nossas crianças. Tudo o que nos foi tirado.
+— Ele lembra do que acontece quando acreditamos em palavra Polar — disse. — A senhora não nos deu garantia. Mas trouxe comida. Quero que todos aqui se lembrem da diferença.
 
-— Então mereçam.
+— Então decida — disse Alyra.
 
 Sarkan fechou os dedos ao redor do talismã. Atrás dele, ninguém afastou os olhos dos sacos de comida.
 
@@ -694,7 +694,7 @@ Daryon ficou quieto. A brasa estalou. Um inseto pequeno queimou ao chegar perto 
 
 Daryon respondeu sem pressa.
 
-— Acho que você entende que monstros são muitas vezes ferramentas criadas por gente que depois finge horror ao vê-las usadas.
+— Acho que o Conselho vai fingir espanto se descobrir o que você fez. Mas, se der certo, os mesmos homens vão jurar que sempre estiveram do seu lado.
 
 Ela olhou para ele por tempo demais.
 
@@ -714,7 +714,7 @@ O silêncio entre os dois não era novo. Havia anos aparecia em corredores, reun
 
 Ela virou-se totalmente para ele e então puxou-o pela gola e beijou-o.
 
-Daryon respondeu ao beijo e a mão dele encontrou a cintura dela. Alyra prendeu a respiração quando o toque passou perto do ponto sensível do ventre, mas o puxou de volta quando ele tentou se afastar. Quando enfim se separaram, Daryon encostou a testa na dela.
+Daryon respondeu ao beijo, a mão encontrando a cintura dela. Alyra se enrijeceu quando ele tocou perto do ventre. Daryon tentou se afastar, mas ela o puxou de volta. Quando enfim se separaram, Daryon encostou a testa na dela.
 
 — Eu te amo.
 

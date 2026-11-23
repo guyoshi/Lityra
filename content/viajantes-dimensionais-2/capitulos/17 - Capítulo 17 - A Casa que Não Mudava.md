@@ -1,26 +1,26 @@
-Breno acordou com a bochecha numa coisa macia, e antes de abrir os olhos fez a lista, porque era o que sabia fazer. Cabeça inteira. Braços inteiros. Duas pernas, uma delas dormente. Um fio azul enrolado no pulso, preso a um diapasão que pesava na mão como uma colher de sopa de gelo. Uma criança de onze anos encostada nas costas dele, respirando fundo e com um ronco miúdo no fim de cada respiração.
+Breno acordou de bruços, com a bochecha encostada em alguma coisa macia. Tentou se mexer. Um braço doía, a perna direita estava dormente e o diapasão continuava preso ao pulso pelo fio azul. Atrás dele, Beatriz dormia encolhida, com um ronquinho no fim de cada respiração.
 
-Só depois abriu os olhos.
+Virou-se para ver onde tinham caído.
 
-Era um campo de neve. Branco até o horizonte, sem uma árvore, sem uma pedra, com um céu de cinza claro de onde os flocos desciam sem pressa, grandes e leves, e pousavam no cabelo dele sem derreter e sem esfriar. Breno ficou olhando a neve cair e esperou que o susto chegasse, porque o susto era o certo, e o que veio foi uma vontade de que aquilo fosse verdade, porque era a coisa mais bonita que ele via desde a manhã de neve em Brisália.
+Estavam num campo de neve. A brancura se estendia até o horizonte, sob um céu cinzento. Flocos grandes pousavam no cabelo de Breno, mas não derretiam. Nem estavam frios. Ele estendeu a mão e deixou alguns caírem na palma. Por um momento, quase esqueceu que haviam sido puxados pela máscara. A paisagem era bonita demais. Só que neve de verdade deveria gelar seus dedos.
 
-— Beatriz. — Sacudiu o ombro dela com dois dedos. — Acorda. Primeiro você me diz se alguma coisa dói.
+— Bia. — Breno tocou o ombro da irmã. — Acorda. Você se machucou?
 
-— A cabeça. — Ela virou de barriga para cima, de olhos fechados, com a gaita ainda agarrada contra o peito. — E a barriga, mas é de fome. Você sabe que dia é hoje? Porque eu acho que perdi o almoço, e o jantar de ontem, e a Ivy ia fazer broa.
+— Minha cabeça dói um pouquinho. — Beatriz se virou de barriga para cima, abraçando a gaita. — E eu tô com fome. A gente perdeu o jantar? A Ivy falou que ia fazer broa!
 
-— Eu não sei que dia é hoje. — Ele se sentou e olhou em volta. — Eu não sei onde a gente está. Quero que você levante devagar, fique do meu lado e me conte tudo que enxergar, mesmo que pareça bobagem. Principalmente se parecer bobagem.
+— Não sei quanto tempo passou — respondeu Breno, sentando-se. — Nem onde estamos. Levanta devagar, por favor. E não sai de perto de mim.
 
-— Tá bom. — Beatriz se sentou, abriu um olho e depois o outro. — Eu enxergo um campo e eu enxergo neve e eu enxergo você com cara de quem vai fazer uma lista.
+— Breno, tá nevando! — Beatriz abriu os olhos de vez e estendeu a mão para os flocos. — Mas não tá frio!
 
-— Eu já fiz.
+— Eu percebi. — Breno tentou se levantar e quase caiu quando a perna dormente falhou. Beatriz segurou seu braço.
 
-— Qual foi o primeiro item?
+— Você também se machucou?
 
-— Que você respirava. — Breno se levantou, sacudiu a calça, e a perna dormente reclamou. — Depois, que o diapasão não responde. Está frio e está mudo. Se existisse um jeito de eu saber quantas pessoas há por aqui, eu já teria feito isso.
+— Só fiquei com a perna dormente. — Ele bateu de leve no diapasão. O metal permaneceu mudo. Tentou mais uma vez, sem resultado. — Isso também parou de funcionar.
 
-Beatriz olhou para o diapasão, depois para o rosto dele, e não disse nada, o que em Beatriz era um sinal de que alguma coisa estava errada. Ela se levantou, pôs a gaita no bolso da capa e enfiou a mão na dele, e os dois ficaram parados um instante no meio da neve, ouvindo.
+Beatriz guardou a gaita na capa e tomou a mão dele. Ficaram lado a lado, ouvindo o vento passar pelo campo.
 
-Não havia nada para ouvir, a não ser o vento. Mas o vento tinha um desenho. Vinha de longe, comprido, subia por uma escala que Breno quase reconhecia e, quando chegava ao ponto em que devia descer, subia mais um tom, de propósito, como quem discorda de uma conversa. Durou uns cinco segundos e se desfez na neve.
+O vento trazia uma melodia baixa. Três notas subiam devagar, mas a última continuava a subir quando Breno esperava que terminasse. O som durou poucos segundos e desapareceu.
 
 — Você ouviu? — perguntou Beatriz.
 
@@ -28,85 +28,89 @@ Não havia nada para ouvir, a não ser o vento. Mas o vento tinha um desenho. Vi
 
 — Era ela. — Ela falou baixinho. — A máscara. Mas agora ela não está chamando o meu nome. Está só cantando.
 
-— Está cantando uma música errada — disse Breno, e quis acreditar que aquilo era uma observação de músico e não de pessoa com medo. — Sobe quando devia descer. Escolha uma direção. Eu quero sair desse campo antes de descobrir o que ele é, porque neve que não esfria não é neve.
+— Parece a música da sua mãe, mas tem uma nota diferente — disse Breno. Olhou para os flocos que se acumulavam sobre sua manga. — Acho melhor a gente sair daqui.
 
-— Aquela. — Beatriz apontou para uma colina baixa, com uma árvore preta no alto. — Eu escolhi porque tem árvore. Sempre que tem árvore alguém já passou ali.
+— Vamos pra lá? — Beatriz apontou uma colina baixa, com uma árvore preta no alto. — Quero ver se aquela árvore também é de mentira.
 
-Não era um argumento que Breno aceitasse numa aula, mas era o único que tinham. Andaram até a colina com neve pelos joelhos. A música tornou a subir um tom errado. Quando Breno percebeu, a colina já não estava lá.
+Não havia outro ponto de referência. Breno concordou e os dois seguiram pela neve até os joelhos. A melodia voltou. Quando ele olhou para a colina, ela havia desaparecido.
 
-— É uma duna — disse, com a voz de quem corrige uma leitura. — A gente está andando num deserto, e está nevando nele.
+— Bia, olha isso! — Breno parou. — A colina virou uma duna. E ainda está nevando.
 
 Sob os flocos que ainda caíam havia agora dunas de areia quente, cada uma com um chapéu branco de neve que não derretia. A árvore preta tinha virado um poste enferrujado com uma lâmpada quebrada. Breno voltou-se para conferir o caminho: o campo branco também desaparecera.
 
-— Foi ali que eu tive a ideia — disse Beatriz, apontando para a areia onde tinham passado. — Quando você estava contando passos. Eu vi a neve mudar um pouquinho, mas pensei que era o vento. Eu achei que não era importante.
+— Eu vi a neve mudar antes — comentou Beatriz, apontando para trás. — Achei que era o vento fazendo desenho na areia.
 
-— Beatriz, é importante. Tudo é importante. Da próxima vez que alguma coisa mudar, você me diz na hora, mesmo que seja um pouquinho.
+— Então me avisa se enxergar outra mudança, tá? — pediu Breno. — Nem sei se estamos indo pro lugar certo.
 
 — Tá. Esse poste mudou agora de novo.
 
-O poste virou tronco, criou folhas largas e cresceu até ser uma samambaia gigantesca. A areia cedeu sob as botas, transformada em lama morna; ao redor havia um pântano de água escura e folhas nevadas. Breno tentou firmar o pé. A mesma música precedera as duas mudanças.
+O poste virou tronco, criou folhas largas e cresceu até ser uma samambaia gigantesca. A areia cedeu sob as botas, transformada em lama morna. Ao redor havia um pântano de água escura e folhas nevadas. Breno tentou firmar o pé. A mesma música precedera as duas mudanças.
 
-— Regra número um — disse. — A gente não solta a mão. Regra número dois, a gente não acredita no que está vendo, só no que continua igual por mais de um minuto. Regra número três...
+— Não solta minha mão — pediu Breno, puxando a irmã para a parte mais firme do terreno. — E olha por onde pisa, porque tudo aqui muda de uma hora pra outra.
 
 — Breno. — Beatriz puxou a manga dele. — Tem um urso.
 
-Havia. Ele estava sentado numa cadeira de lona, no meio da lama, sob um guarda-sol listrado de verde e amarelo com um monte de neve em cima, e era marrom, e era grande, e usava um colete de lã com quatro botões, dois deles trocados. Tinha uma prancheta apoiada na barriga e um lápis atrás da orelha. Ao lado da cadeira, uma placa de madeira dizia, em letras redondas e tortas, DIREÇÕES, E CONSULTAS EM GERAL.
+Havia mesmo. Um urso marrom enorme estava sentado numa cadeira de lona, sob um guarda-sol verde e amarelo coberto de neve. Usava um colete de lã com quatro botões, dois deles diferentes, e equilibrava uma prancheta sobre a barriga. Um lápis descansava atrás da orelha. Ao lado da cadeira, uma placa dizia: DIREÇÕES E CONSULTAS EM GERAL.
 
 — Bom dia. — O urso tirou o lápis da orelha e virou uma folha da prancheta. — Os senhores têm hora marcada?
 
-Breno abriu a boca e fechou. A parte dele que fazia as listas tentou encaixar aquilo em algum item e desistiu. Quem respondeu foi Beatriz, que soltou a mão dele e deu três passos à frente, com a cara de quem acabou de ganhar um presente.
+Breno parou tão depressa que Beatriz quase esbarrou nele. Antes que conseguisse pensar numa resposta, ela soltou sua mão e correu três passos na direção do urso.
 
-— Você fala! — Ela se virou para o irmão, depois para o urso, de novo para o irmão. — Breno, ele fala! É um urso de verdade ou é uma miragem? Porque se for miragem eu quero perguntar se posso fazer carinho.
+— Você fala! — Beatriz arregalou os olhos. — Breno, é um urso que fala! Posso fazer carinho? Ou você morde?
 
-— Eu sou um urso, senhorita, e como todos os ursos eu prefiro que me perguntem antes. — Ele coçou o queixo com o lápis. — Quanto à miragem, depende da hora do dia. Ao meio-dia, sou muito sólido. Ao entardecer, tenho dias melhores e dias piores. Os senhores estão perdidos?
+— Só quando me acordam antes do almoço — respondeu o urso, coçando o queixo com o lápis. — Quanto a ser miragem, depende da hora. Ao meio-dia sou bastante sólido. Vocês estão perdidos?
 
-— Estamos — respondeu Breno, e se obrigou a falar com a voz de sempre. — Precisamos achar uma saída. Qualquer uma que leve para fora daqui, para um lugar que fique parado.
+— Estamos, sim — respondeu Breno, dando um passo à frente de Beatriz. — O senhor sabe como sair deste lugar?
 
-— Ah, uma saída. — O urso anotou alguma coisa e franziu o focinho. — É uma consulta cara. Uma direção simples sai por um botão. Uma saída sai por três, e eu só aceito botão de osso, de madeira ou de metal fino. O senhor tem botão?
+— Saída custa mais caro. Direção simples, um botão. Saída de verdade, três. Só aceito osso, madeira ou metal fino. — O urso ergueu o lápis. — Quantos vocês têm?
 
-Breno olhou para a própria camisa, depois para a capa, e arrancou um botão de baixo, de metal, que ofereceu na palma da mão aberta. O urso o pegou com as duas patas, examinou contra a luz, mordeu de leve, e o guardou no bolso do colete com um aceno satisfeito.
+Breno olhou para a camisa e arrancou um botão de metal da parte de baixo.
 
-— Muito bem. Para sair daqui o senhor segue sempre em frente, e quando chegar ao fim, vai um pouco mais. Em seguida vira à esquerda, a menos que seja terça, e em seguida segue o barulho. Se o barulho for de gente brigando, é por ali, e se o barulho for de gente rindo, é o contrário. Só não pare para olhar o que o vento carrega, porque ele cobra caro por cada olhada.
+— Só tenho um.
+
+— Serve de entrada — disse o urso, pegando o botão. Examinou-o contra a luz, mordeu de leve e o guardou no bolso do colete.
+
+— Pois bem. Sigam em frente até acabar o caminho, depois continuem mais um pouco. Virem à esquerda, a menos que seja terça-feira, e escutem o barulho. Se for gente brigando, sigam o som. Se estiverem rindo, façam o contrário. E não parem para olhar o que o vento carrega. Ele cobra por cada olhada.
 
 — Hoje é terça? — perguntou Beatriz.
 
-— Aqui é sempre a mesma coisa, senhorita. Depende de quem pergunta.
+— Aqui é sempre a mesma coisa, menina. Depende de quem pergunta.
 
-— E se a gente fizer o contrário de tudo que o senhor disse? — Era a primeira vez que Breno via a testa dela franzida daquele jeito, concentrada, de quem resolve uma conta. — Porque eu estou achando que o senhor deu três direções que não combinam, e eu acho que isso é de propósito.
+— Mas isso não faz sentido — disse Beatriz. — Se a gente seguir em frente e depois voltar, vai parar no mesmo lugar! O senhor tá brincando com a gente?
 
 O urso olhou para ela por um tempo comprido, e os bigodes tremeram.
 
-— Eu gosto da senhorita — disse, por fim. — É a primeira que me pergunta isso em, ora, deixe ver, nem sei em quanto tempo, porque aqui o tempo não é coisa que se conte. Nesse caso, eu devolvo metade da consulta. — Fez uma nota na prancheta, tirou do bolso o botão de metal, partiu-o ao meio com a pata como quem parte uma bolacha e entregou a metade a Beatriz. — A direção verdadeira é a terceira, mas a terceira só vale se for dita por último, e por isso eu falei no meio. É sempre assim. Só que, agora, eu não sei mais qual das três era a verdadeira, e isso também é cobrado.
+— Ora, você presta atenção! — O urso riu, consultou a prancheta e tornou a tirar o botão do bolso. Partiu-o ao meio e devolveu uma metade a Beatriz. — Devolução parcial. A direção verdadeira era a terceira, só que eu precisava dizê-la por último. Agora já misturei tudo e não lembro mais em que ordem falei.
 
-Breno sentiu a nuca esquentar.
+Breno apertou a mão que ainda segurava o diapasão.
 
 — O senhor disse que ia devolver metade.
 
-— Eu devolvi metade do botão. O resto do serviço é por conta da casa. — Ele recostou na cadeira, entrelaçou as patas sobre a barriga e olhou o céu, que a essa altura já escurecia num verde estranho. — Vão com Deus, ou com quem for o responsável por este pedaço.
+— Devolvi metade do botão, rapaz. — O urso se recostou, cruzando as patas sobre a barriga. — O resto é por conta da casa. Boa sorte com o caminho.
 
-Beatriz guardou a metade do botão no bolso, junto com a gaita, e acenou para o urso até ele sumir atrás de uma cortina de folhas largas. Breno andou dois passos antes de entender a coisa mais óbvia de todas.
+Beatriz guardou a metade do botão no bolso, junto com a gaita, e acenou para o urso até ele sumir atrás de uma cortina de folhas largas. Breno deu dois passos, mas parou e olhou para o urso mais uma vez.
 
-— Ele disse que não se conta o tempo — disse. — Disse que aqui é sempre a mesma coisa. E que o vento carrega coisas.
+— Ele falou que ninguém conta o tempo aqui — comentou Breno. — E que o vento carrega coisas. Será que isso tem a ver com a música?
 
-— Eu também achei estranho. — Beatriz olhava para a lama, que de repente tinha endurecido e rachado, com a neve escorrendo para dentro das rachaduras. — Mas ele era simpático. E eu gostei do colete.
+— Não sei. Mas gostei dele! — Beatriz olhou para a lama, que começava a endurecer. — Só achei um absurdo ele ficar com metade do seu botão.
 
-O contracanto soou mais uma vez. Quando terminou, estavam numa planície de capim amarelado, sob um céu laranja onde a neve caía dourada. O chão tremeu três vezes. Beatriz agarrou o braço de Breno.
+A cantiga da máscara soou mais uma vez. Quando terminou, estavam numa planície de capim amarelado, sob um céu laranja onde a neve caía dourada. O chão tremeu três vezes. Beatriz agarrou o braço de Breno.
 
 — Breno, é um terremoto?
 
-— Não é. — Ele a puxou para trás de uma pedra grande, a única coisa alta em volta. — É coisa grande andando.
+— Não sei — respondeu Breno, puxando-a para trás de uma pedra. — Mas tem alguma coisa enorme vindo pra cá.
 
 Primeiro apareceram as cabeças, longas, no alto de pescoços que subiam muito acima da neve e do capim, com a pele de um verde-acinzentado e olhos de pálpebra pesada. Depois, as patas, grossas como troncos, que pisavam devagar, uma de cada vez, e atrás delas um corpo comprido, uma cauda que varria o chão, e outro corpo, e outro. Eram oito, e depois onze, e atrás deles uma fila de filhotes do tamanho de um cachorro, com a pele manchada, trotando e tropeçando uns nos outros.
 
-— Dinossauros. — A voz de Beatriz saiu aguda, quase um assobio. — Breno, são dinossauros! É um rebanho! Os pescoços têm um monte de... eu não sei o nome, eu nunca vi um desses de verdade, só no livro do Banjo. É aquele que come folha no alto da árvore! Eu quero ver de perto, eu quero ver agora!
+— Dinossauros! — Beatriz agarrou o braço dele. — Breno, são dinossauros de verdade! Olha o tamanho dos pescoços! Eu vi um desses no livro do Banjo. Eu quero chegar mais perto!
 
 — Beatriz, é uma miragem.
 
 — Mas eu quero ver!
 
-— Beatriz. Se for uma miragem, ela some quando a gente chega perto. E se não for, um desses pisa na gente sem notar. Nos dois casos, o resultado é ruim.
+— Bia, você viu o tamanho das patas? Ele pode pisar na gente sem nem perceber. Fica aqui.
 
-Ela cruzou os braços e ficou olhando a fila passar, e Breno percebeu que a boca dela tremia, de leve, no canto. Os animais caminhavam com uma calma enorme, mastigando folhas que não existiam, e o chão balançava com cada passo. Um deles virou a cabeça para eles, e os olhos grandes e úmidos, de cílios compridos, os acharam atrás da pedra. O bicho parou. Estendeu o pescoço devagar, descendo do alto como um guindaste que se dobra, e pôs o focinho a um palmo do rosto de Beatriz. Ela prendeu a respiração. A língua, grossa e escura, saiu da boca do bicho e passou pela bochecha dela, de baixo para cima, inteira.
+Beatriz cruzou os braços, contrariada, mas continuou observando o rebanho por cima da pedra. Os animais caminhavam com uma calma enorme, mastigando folhas que não existiam, e o chão balançava com cada passo. Um deles virou a cabeça para eles, e os olhos grandes e úmidos, de cílios compridos, os acharam atrás da pedra. O bicho parou. Estendeu o pescoço devagar, descendo do alto como um guindaste que se dobra, e pôs o focinho a um palmo do rosto de Beatriz. Ela prendeu a respiração. A língua, grossa e escura, saiu da boca do bicho e passou pela bochecha dela, de baixo para cima, inteira.
 
 — Ele me lambeu — disse Beatriz, de olhos muito abertos, e a voz tremia de riso. — Breno, ele me lambeu! Miragem não lambe!
 
@@ -114,53 +118,105 @@ Ela cruzou os braços e ficou olhando a fila passar, e Breno percebeu que a boca
 
 — Eu vou chamar ele de Carlinhos.
 
-— Você não pode dar nome a um bicho que a gente nem sabe se existe, Beatriz. Se ele sumir, você vai ficar com saudade de um nome.
+— Você vai dar nome pra todo bicho que aparecer? — perguntou Breno, sem conseguir parar de olhar para o dinossauro.
 
-— Eu já dei, e o nome vai ficar mesmo que ele suma.
+— Esse é o Carlinhos. O próximo vai ser o Alfredinho!
 
-O dinossauro soltou pelo nariz um ar morno que despenteou o cabelo dela e que cheirava a capim molhado. Em seguida ele ergueu a cabeça, voltou para a fila e foi embora, e os filhotes foram atrás, e o rebanho todo se perdeu nos flocos dourados. Beatriz ficou em pé, com a bochecha brilhando de saliva, sorrindo para o horizonte. Breno teve vontade de dizer alguma coisa sensata e descobriu que não havia nada sensato para dizer.
+O dinossauro bufou um ar morno, com cheiro de capim molhado, e voltou para a fila. Os filhotes o seguiram até o rebanho desaparecer nos flocos dourados. Beatriz continuou sorrindo, com a bochecha cheia de saliva. Breno tentou limpá-la com a ponta da capa. Ela protestou, rindo.
+
+Mais adiante, o capim deu lugar a um jardim suspenso sobre uma névoa cor de pêssego. As árvores cresciam para baixo a partir de ilhas de terra no céu. Dos galhos pendiam frutos transparentes, cheios de pequenos peixes dourados. Por entre as raízes flutuavam casas de janelas acesas, cada uma presa a um fio que desaparecia nas nuvens.
+
+Beatriz parou para ver uma fileira de seres atravessar a praça do jardim. Um deles tinha a pele bordada de pontos luminosos e carregava um cesto sobre quatro braços. Outro andava sobre pernas compridas e finas, com o corpo coberto por folhas que mudavam de cor a cada passo. Duas crianças com olhos nas mãos brincavam de passar uma bola de água que nunca se derramava.
+
+— Breno, olha aquilo! — Beatriz apontou para a bola.
+
+— Eu tô olhando — respondeu ele, sem saber para qual das criaturas primeiro.
+
+Havia um caminho de pedras claras que saía da praça e atravessava um arco de árvores violetas. Beatriz foi na frente, ainda olhando para as crianças. Deu dois passos além do arco e bateu o nariz em alguma coisa.
+
+— Ai! — Recuou, apertando o rosto. — Quem pôs uma janela aqui?
+
+Não havia janela. Diante dela, o caminho continuava entre canteiros de flores altas, passava por uma ponte de madeira e alcançava outras casas, sob o céu cor de pêssego. Breno estendeu a mão. Seus dedos tocaram uma superfície lisa, firme e completamente invisível.
+
+Procurou a borda com as duas mãos. A parede ia de um lado ao outro do caminho, até muito acima de sua cabeça. Beatriz tentou passar pela direita. Encontrou a mesma resistência. Do outro lado, uma ave azul pousou numa ponte, levantou voo e pousou de novo exatamente da mesma maneira.
+
+— Ela fez isso duas vezes — disse Beatriz.
+
+Ficaram olhando. A ave repetiu o voo uma terceira vez. Uma das crianças do outro lado jogou a bola de água, que fez o mesmo arco e caiu no mesmo lugar.
+
+— É bonito, mas não continua de verdade — murmurou Breno.
+
+— Continua para os olhos — respondeu uma voz atrás deles. — Para os pés, não.
+
+Quem falava era a criatura de quatro braços que tinham visto na praça. De perto, sua pele era translúcida e mostrava pontos de luz movendo-se por dentro. Tinha os olhos nas palmas superiores e usava um casaco azul preso ao corpo por tiras de tecido. Nas mãos inferiores carregava um cesto de frutos vermelhos.
+
+— Vocês chegaram agora? — perguntou.
+
+— Hoje — respondeu Breno. — Ou ontem. Não sei.
+
+— É assim no começo. — A criatura encostou uma das mãos na parede invisível. — Eu também passei dias procurando a outra margem. Depois percebi que aquele pássaro nunca chega à terceira árvore.
+
+Beatriz olhou para a ave, que pousou na ponte pela quarta vez.
+
+— Você também foi puxado pela máscara?
+
+— Toquei nela numa feira do meu mundo. Uma mulher disse que eu poderia ouvir outros céus. Eu encostei os dedos na fenda de um dos olhos. — A criatura ergueu as mãos para ver melhor as próprias palmas. — Quando abri os meus, estava aqui. No meu mundo as casas vivem dentro de conchas. Aqui nenhuma delas se mexe quando eu peço.
+
+— Você está aqui há muito tempo? — perguntou Beatriz.
+
+— Tempo suficiente para a praça trocar de lugar várias vezes. Depois que cheguei, encontrei um homem que também procurava uma saída. Ele dizia que tinha um filho esperando por ele. A música mudou antes que eu pudesse perguntar mais.
+
+Breno pensou em Ferris, no capacete que ele nunca largava e na maneira como falava do pai. Queria perguntar aonde o homem havia ido, mas a criatura apontava para a parede, onde a ave azul repetia o mesmo voo.
+
+— Você sabe sair? — perguntou Breno.
+
+A criatura não respondeu logo. Retirou um fruto do cesto e o ofereceu à menina.
+
+— Sei voltar à praça. Não é a mesma coisa.
+
+Beatriz aceitou o fruto, mas o guardou sem comer. Queria saber se as crianças do outro lado percebiam que estavam repetindo a mesma brincadeira. Bateu de leve no vidro invisível; nenhuma delas virou a cabeça. Breno encostou os dedos na barreira e tentou torná-los intangíveis, como fazia ao atravessar paredes. A mão continuou encontrando a mesma resistência invisível. Ficaram mais um pouco olhando o pássaro azul alcançar sempre a mesma árvore e nunca a próxima. Então a música mudou e o jardim começou a desaparecer. A criatura de quatro braços despediu-se erguendo duas mãos, enquanto as outras seguravam o cesto.
 
 Mais adiante, a planície acabava numa borda reta. Diante deles erguia-se um mar vertical, de água azul e calma, cheio de peixes compridos. A neve entrava naquela parede sem molhar a terra. Breno parou com a ponta da bota suspensa no vazio.
 
 — O mar está de pé — disse Beatriz, baixinho. — E aquele peixe me olhou, Breno. Eu juro. Ele estava de cabeça para baixo ou eu estava, mas olhou.
 
-— Água não fica de pé — murmurou Breno. Depois daquilo tudo, a frase lhe pareceu pequena.
+— Eu nunca vi água fazer isso — murmurou Breno.
 
 A nota seguinte veio mais alta. O vento mudou de direção.
 
 Uma rajada gelada atingiu-os pela esquerda, arrancando o fio azul do diapasão da mão de Breno. O céu laranja tornou-se cinza-chumbo. O mar e os peixes desapareceram atrás de uma cortina de neve que corria de lado. Em segundos, mal conseguiam enxergar as próprias mãos.
 
-— A neve ficou brava! — gritou Beatriz, por cima do vento. — Breno, ela está bem mais forte, e eu continuo sem frio, e eu acho que isso não é normal!
+— Breno, não consigo enxergar nada! — gritou Beatriz. — E por que a neve continua sem gelar?
 
-— Nada aqui é normal! — Ele a puxou para junto do peito e tentou protegê-la com a capa. — Mão, Beatriz! Não solta, não solta, não solta!
+— Segura minha mão! — Breno puxou Beatriz para perto do peito e a cobriu com a capa. — Não solta, Bia!
 
-Breno levou Beatriz pela mão entre rajadas que escondiam o caminho. A terra subia numa encosta, depois afundava num desfiladeiro e terminava entre árvores sem folhas. A cada mudança, a música soava acima do vento. Beatriz começou a cantarolar suas três notas por baixo dela. O contracanto parou no meio de uma nota, como se esperasse a resposta dela.
+Breno levou Beatriz pela mão entre rajadas que escondiam o caminho. A terra subia numa encosta, depois afundava num desfiladeiro e terminava entre árvores sem folhas. A cada mudança, a música soava acima do vento. Beatriz começou a cantarolar suas três notas por baixo dela. A cantiga da máscara parou no meio de uma nota, como se esperasse a resposta dela.
 
-— Ela me escutou — disse Beatriz.
+— Ela parou! — Beatriz ergueu o rosto. — Breno, ela ouviu minha música!
 
 — Não responde — pediu Breno. — Pelo amor de Deus, Beatriz, não responde.
 
 — Eu não respondi. Eu só cantei.
 
-— É a mesma coisa.
+— Pra ela parece que é — respondeu Breno, apertando-lhe a mão.
 
-Foi então que Breno entendeu, com a clareza de quem acha o degrau que faltava.
+Breno se lembrou da colina que virara duna e do poste que se transformara em árvore.
 
-— É a música — disse. — Toda vez que ela passa, o cenário muda. A colina virou duna, o poste virou samambaia, o pântano virou planície, sempre no fim de uma frase dela. Eu estava errado. Não muda quando eu desvio o olhar, muda quando ela canta.
+— Toda vez que aquela música toca, alguma coisa muda — disse. — A colina, o poste, a planície... Foi sempre depois da última nota.
 
 — Então ela troca o cenário igual a Kali troca as luzes da casa. — Beatriz pensou um pouco, de testa franzida. — E se a gente cantasse junto, será que a gente escolhia o lugar?
 
-— Não. — Ele respondeu rápido demais. — Nada de cantar. A gente só anota, primeiro a música e depois a mudança, e fica de olho em qual vem a seguir.
+— Melhor não tentar agora — respondeu Breno. — Você viu como ela reagiu quando cantou junto. Vamos continuar andando.
 
 Os dois andaram mais uns minutos, e Breno ouviu uma voz, bem longe, rouca, seguida de outra, mais aguda, e as duas se misturavam com o vento. Eram vozes de gente, mas gritavam, e gritavam palavras que ele não entendia, e depois vinha o som de coisa pesada batendo em coisa pesada, e um chiado comprido, de água em chapa quente. Pensou no que o urso tinha dito. Se o barulho for de gente brigando, é por ali.
 
-— Eu não estou gostando disso — disse, e parou para escutar melhor o barulho. — Se tem gente brigando tão forte, a gente não deveria chegar perto.
+— Parece briga — disse Breno, parando. — Não gosto disso. Pode ser perigoso.
 
-— Mas ele falou que era por ali. — Beatriz apertou a mão dele. — O urso mandou seguir o barulho de briga, e esse é um barulho de briga.
+— Mas o urso falou pra seguir a briga! — Beatriz puxou sua mão. — E a gente não tem outro caminho.
 
-— Ele falou três coisas diferentes, e não sabia mais qual era a verdadeira.
+— O mesmo urso que não sabia nem pra onde estava mandando a gente?
 
-— A verdadeira era a do meio. — Beatriz pôs a cabeça de lado, escutando. — A do meio era seguir o barulho.
+— Mas essa foi a única parte que fez sentido — insistiu Beatriz, escutando.
 
 Subiram uma lomba escorregadia, atravessaram uma faixa de pedras cobertas de gelo, e no topo, numa clareira redonda onde a neve não pegava, encontraram a briga.
 
@@ -172,33 +228,31 @@ Eram duas figuras, quase do tamanho de homens grandes, e as duas pareciam feitas
 
 — Você nunca esteve de frente na vida, você anda de lado, que nem caranguejo!
 
-Beatriz soltou o ar num som que podia ser medo ou riso, e Breno apertou a mão dela e não soube se estava protegendo a menina ou se escorando nela. Pensou em voltar, pensou em esperar, pensou em duas ou três outras coisas. Mas as figuras já tinham derrubado um pinheiro e estavam rolando no chão, e se a briga não parasse alguém ia se queimar ou congelar. Ele deu um passo à frente. Respirou. Falou na voz mais firme que encontrou, a mesma que usava quando Bruno estava com a mão perto de uma coisa quebrável.
+Beatriz soltou uma risadinha nervosa. Breno apertou sua mão. As figuras de fogo e gelo não pareciam ter notado que havia gente na clareira. Breno considerou voltar pelo mesmo caminho, mas a neve já cobria suas pegadas. As figuras tinham derrubado um pinheiro e rolavam no chão. Se a briga continuasse, uma acabaria queimando ou congelando a outra. Breno saiu de trás da árvore e ergueu a voz.
 
-— Com licença. — Esperou. Nada. — Com licença! Os senhores poderiam parar um minuto? Nós só queremos fazer uma pergunta.
+— Com licença! — chamou. Nenhum dos dois ouviu. — Ei! Dá pra parar um minuto? Estamos perdidos!
 
-A de gelo respondeu com uma cotovelada, a de fogo com uma gargalhada que estalou, e nenhuma das duas levantou a cabeça. Breno tentou uma terceira vez, mais alto, com todas as palavras no lugar, e o barulho da briga engoliu a frase inteira. Sentiu a mão de Beatriz escorregar da dele.
+A de gelo respondeu com uma cotovelada, a de fogo com uma gargalhada que estalou, e nenhuma das duas levantou a cabeça. Breno chamou outra vez, mas as pancadas e os gritos abafaram sua voz. Sentiu a mão de Beatriz escorregar da dele.
 
 — CHEGA! — gritou Beatriz.
 
-Ela tinha dado dois passos à frente, de punho fechado e anel brilhando, e quando abriu a mão saiu dela uma chama fina, branca de tão quente, que cortou a clareira como faca de padeiro. Passou entre as duas figuras, a um palmo do nariz de cada uma, e abriu no chão uma risca preta e fumegante do comprimento de um corredor. A neve em volta chiou. O pinheiro caído soltou um estalo e partiu ao meio, limpo, sem uma farpa.
+Beatriz avançou dois passos e abriu a mão. Mirou o chão entre os dois, longe das pernas deles. Uma chama fina e branca riscou a neve, cortando o espaço que os separava e levantando uma faixa de vapor. Ela fechou os dedos antes que o fogo alcançasse o pinheiro caído. O risco ficou preto e fumegante. Pela primeira vez desde que haviam chegado, os dois lutadores pararam de gritar.
 
-A briga parou.
+De punhos erguidos, viraram as cabeças ao mesmo tempo, primeiro para Beatriz, depois para Breno. A criatura de fogo estreitou os olhos de brasa. A de gelo ergueu o queixo, deixando as pontas de cristal tilintarem. Soltaram-se uma da outra sem desviar os olhos dos garotos. E começaram a andar.
 
-As duas ficaram imóveis no meio do gesto, de punho no ar. Viraram as cabeças ao mesmo tempo e olharam para Beatriz, depois para Breno, e a cara de cada uma era a pior que ele já tinha visto numa criatura sem rosto: a de fogo, apertada, de olhos de brasa, e a de gelo, dura, de olhos de lâmina. Soltaram-se uma da outra sem desviar os olhos dos garotos. E começaram a andar.
+Vinham devagar, lado a lado, e cada passo deixava uma marca. Onde pisava a figura de fogo, o chão ficava preto e soltava faíscas, que estalavam e subiam. Onde pisava a de gelo, nascia uma pegada branca, de cristal, que rangia e rachava a poça em volta. As duas trilhas se cruzavam no meio do caminho, o vapor subia entre elas, e o som era o de uma panela e um congelador discutindo. Breno colocou Beatriz atrás de si. A pele de seus braços começou a endurecer sem que ele tivesse decidido fazer isso. Os dois seres tinham pelo menos dois metros e meio de altura.
 
-Vinham devagar, lado a lado, e cada passo deixava uma marca. Onde pisava a figura de fogo, o chão ficava preto e soltava faíscas, que estalavam e subiam. Onde pisava a de gelo, nascia uma pegada branca, de cristal, que rangia e rachava a poça em volta. As duas trilhas se cruzavam no meio do caminho, o vapor subia entre elas, e o som era o de uma panela e um congelador discutindo. Breno puxou Beatriz para trás de si pelo ombro, sentiu o ferro subir na própria pele sem que tivesse mandado, e pensou, com muita clareza, que aquilo ia dar problema, e que o problema tinha pelo menos dois metros e meio de altura.
+— Bia, por que você fez isso? — murmurou.
 
-— Beatriz — murmurou. — Isso não era o plano.
+— Porque eles não escutavam! Eu mirei no chão, Breno. Não acertei nenhum dos dois — sussurrou ela, sem tirar os olhos deles.
 
-— Eu não tinha plano. Eu tinha raiva.
+Breno olhou para o risco de queimado. A chama estava apagada, e a irmã não precisara de sua ajuda para controlá-la. Mesmo assim, as figuras enormes vinham em direção a eles.
 
-As figuras pararam a um passo deles. A de fogo olhou para a risca no chão, depois para a menina. A de gelo olhou para a ponta do próprio nariz, onde ainda havia fumaça. Nenhum dos quatro respirou. E então, de uma vez só, como uma cortina que sobe, as duas sorriram.
+As figuras pararam a um passo deles. A de fogo olhou para a risca no chão, depois para a menina. A de gelo olhou para a ponta do próprio nariz, onde ainda havia fumaça. Nenhum dos quatro respirou. De repente, as duas sorriram, com a alegria escancarada de crianças. Breno ficou ainda mais desconfiado. As marcas que deixavam no chão pararam de fumegar. A de fogo ajeitou o que seria a gola, a de gelo sacudiu a neve do ombro, e as duas se curvaram na direção dos garotos.
 
-Foi uma coisa assustadora e muito bonita. Sorriram de verdade, largas, de olhos apertados, com uma doçura de avós, e as marcas no chão pararam de fumegar. A de fogo ajeitou o que seria a gola, a de gelo sacudiu a neve do ombro, e as duas se curvaram na direção dos garotos.
+— Ora, visitas! — exclamou a figura de fogo, com a voz surpreendentemente gentil. — Faz tanto tempo que ninguém aparece! Desculpem a bagunça. Estávamos discutindo uma coisinha.
 
-— Mas é claro, é claro! — disse a figura de fogo, e a voz saiu macia, como brasa de lareira. — Visitas! Faz tanto tempo que ninguém aparece! O senhor me desculpe o estado da clareira, a gente andou meio... Digamos que a gente estava discutindo.
-
-— Estavam se matando — corrigiu a figura de gelo, com um sorriso igual. — Mas é assim que a gente conversa. Eu me chamo Blizardo, e esse aqui, que não toma banho há uns trezentos anos, é o Ardêncio.
+— Uma coisinha? Você arrancou meu braço duas vezes! — protestou a criatura de gelo, ainda sorrindo. — Eu sou Blizardo. Esse aí é Ardêncio. Não toma banho faz trezentos anos.
 
 — Blizardo? — Ardêncio riu, e uma labareda pequena saiu da boca. — Ele se chama Pingo. Pingo de Gelo. O nome verdadeiro era Pingo, e ele mudou porque achava que não impunha respeito.
 
@@ -212,51 +266,51 @@ Foi uma coisa assustadora e muito bonita. Sorriram de verdade, largas, de olhos 
 
 — Ele estava... — Blizardo se interrompeu, olhou para os garotos, e o sorriso voltou, intacto. — Estamos desculpando as nossas maneiras. Pois não, rapazinho. Em que podemos ajudar?
 
-Breno engoliu em seco. Ao lado dele, Beatriz estava de boca aberta, e a mão dela, que apertava a dele havia uns quinze minutos, afrouxou de repente, de pura curiosidade.
+Breno engoliu em seco. Ao lado dele, Beatriz estava de boca aberta. A mão que voltara a segurar a dele afrouxou, de pura curiosidade.
 
-— Nós estamos perdidos — disse ele. — Acordamos num campo, e o campo mudou, e o bosque mudou, e depois nevou. Um urso nos disse para seguir o barulho. Nós queremos saber onde estamos e como sair daqui.
+— A gente está perdido — disse ele. — Acordamos num campo, tudo muda quando a música toca, e encontramos uma parede que ninguém consegue atravessar. Um urso mandou seguir o barulho. Queremos saber como sair daqui.
 
 Os dois trocaram um olhar, e o sorriso de ambos tremeu um instante, como a chama de uma vela com o vento.
 
-— Onde estão — repetiu Ardêncio, devagar. — Que pergunta, que pergunta bonita. Blizardo, o que você acha de contarmos?
+— Onde vocês estão? — Ardêncio olhou para Blizardo. — Ah, é melhor você explicar.
 
-— Eu acho que eles vão chorar. — Blizardo coçou uma lasca no queixo. — Mas a pergunta foi feita com educação, e isso aqui é coisa rara. Meus jovens, os senhores estão dentro da Máscara do Contracanto.
+— Acho que eles não vão gostar da resposta — disse Blizardo, coçando uma lasca de gelo no queixo. — Vocês estão dentro da Máscara do Contracanto.
 
-Silêncio. Beatriz soltou um som pequeno, entre um soluço e um riso, e olhou para Breno, e Breno olhou para a neve. Nunca tinha ouvido aquele nome, e mesmo assim ele coube no lugar, como o assobio tinha cabido na sala. Era a resposta que ele já sabia desde que acordou na neve, e saber não ajudou nem um pouco.
+Beatriz olhou para Breno, que ficou encarando as duas criaturas. Lembrava-se perfeitamente da máscara sobre a mesa, da irmã vestindo-a e da fenda de luz que a levara. Mesmo assim, custou a acreditar no que ouvira.
 
-— Dentro — disse, afinal. — Não "dentro da casa" ou "dentro da cidade". Dentro da máscara de verdade, a mesma que estava na mesa.
+— Dentro daquela máscara que estava na Casa de Pesquisa? — Breno perguntou, embora já soubesse a resposta.
 
-— A própria — confirmou Ardêncio, com um sorriso triste. — Ela não é só uma máscara, meu jovem, é um mundo fechado, que fica do lado de dentro dela mesma. E aqui, vou lhe dizer, ninguém sai. Não é que seja difícil. É que não existe porta.
+— Isso mesmo — respondeu Ardêncio. — A máscara guarda um mundo inteiro. E, até onde sabemos, ninguém consegue sair daqui.
 
-— Mas tem que ter! — Beatriz deu um passo à frente. — A gente entrou, então tem que ter um jeito de sair. É que nem a casa do Lioro, que se você entra pela frente também sai pela frente!
+— Mas a gente entrou! — Beatriz deu um passo à frente. — Se entrou, tem que conseguir sair! Quando alguém fecha uma porta, ela continua tendo maçaneta do outro lado!
 
-— É uma ótima ideia, senhorita. — Blizardo se agachou na frente dela, com um estalo de joelhos de gelo, e a olhou nos olhos com uma ternura que lhe fez nascer um musgo azul nas sobrancelhas. — Só que a máscara não é casa. Ela chama, e quem chama não costuma deixar sair. Nós estamos aqui há mais tempo do que dá para contar, e a gente já tentou de todo jeito. Já tentou pelo alto, pelo fundo, pelos lados.
+— Quem dera fosse assim, menina. — Blizardo se agachou, fazendo os joelhos de gelo estalarem. — Já tentamos sair por cima, por baixo, até pelas bordas. Nada. A máscara chama quem quer, mas nunca mostrou uma saída.
 
 — A gente tentou até pelo avesso — acrescentou Ardêncio.
 
-— Tentou, e deu certo, foi lá que a gente conheceu o urso. Mas o avesso não leva a lugar nenhum, só a outro lado do mesmo lugar. — Blizardo se levantou. — Ardêncio, você acha que a gente deve dizer a eles sobre a...?
+— Foi assim que conhecemos aquele urso! — Blizardo se levantou. — Mas acabamos voltando ao mesmo lugar. Ardêncio, e se a gente contar a eles sobre...
 
-— Não! — Ardêncio olhou para os lados, de repente aflito, como se a clareira tivesse ouvidos. — Você sabe muito bem que não.
+— Nem pensar! — Ardêncio olhou para os lados. — Você sabe que não podemos.
 
 — Eu só pensei.
 
 — Pensou errado. Vem cá, vem cá aqui um minuto.
 
-Os dois se afastaram uns passos, sem parar de sorrir para os garotos, e cochicharam. Breno distinguiu pedaços. Ardêncio dizia "coitadinhos" e "a menina" e "ela vai ficar sabendo de qualquer jeito", e Blizardo respondia "a gente não pode prometer" e "você sempre foi o mole", e a conversa foi esquentando, no sentido literal, porque a neve em volta dos dois começou a ferver. Beatriz se encostou na perna do irmão.
+Os dois se afastaram para discutir em voz baixa. Breno conseguiu ouvir pedaços: "a menina", "ela vai descobrir" e "não podemos prometer". A neve ao redor dos dois começou a derreter, e uma nuvem de vapor se ergueu entre as árvores. Beatriz se encostou na perna do irmão.
 
 — Eles estão com pena da gente — sussurrou.
 
 — Estão.
 
-— Eu não gosto de quando as pessoas têm pena e não falam por quê.
+— Então por que não contam o que sabem? — perguntou Beatriz.
 
-— Eu também não.
+— Eu também não entendo.
 
 Os dois voltaram. Os sorrisos estavam intactos, e as chamas e os cristais, um pouco mais baixos.
 
-— Meus jovens — disse Ardêncio. — Nós conversamos, e achamos que o melhor que podemos dizer é que é impossível sair daqui. Mas aqui tem gente, e a máscara não é só maldade, e quem sabe... Ora, é um mundo grande. Eu agradeço muito a visita e a educação. Faz muito tempo que ninguém nos pergunta nada, quanto mais com licença.
+— Conversamos — disse Ardêncio, voltando para perto deles. — Não sabemos como sair. Mas vocês vão encontrar outras pessoas por aqui. Só tomem cuidado com o que escutarem.
 
-— Foi um prazer — completou Blizardo, com uma mesura. — Podem seguir por onde vieram, ou por qualquer outro lado, e boa sorte.
+— Boa sorte, crianças — completou Blizardo, fazendo uma reverência. — E desculpem a briga.
 
 Beatriz abriu a boca para perguntar alguma coisa. Antes que saísse uma palavra, Ardêncio girou para o outro e disse, com a voz de quem continua uma frase antiga:
 
@@ -264,111 +318,139 @@ Beatriz abriu a boca para perguntar alguma coisa. Antes que saísse uma palavra,
 
 — Então você é cego de nascença, e a culpa é dessa sua cabeça de pavio!
 
-Voltaram um para o outro com um grito, e a neve em volta virou vapor. Os dois rolaram para a poça, os socos subiram de novo, a chama batendo no gelo e o gelo apagando a chama, e a clareira se encheu de um barulho de forja. Breno ficou olhando mais um segundo, e então tomou a mão de Beatriz e a levou para fora do círculo, de costas, andando devagar, para não chamar a atenção. A neve que caía voltou a cair com força assim que saíram do calor.
+Voltaram um para o outro com um grito, e a neve em volta virou vapor. Os dois rolaram para a poça, os socos subiram de novo, a chama batendo no gelo e o gelo apagando a chama, e a clareira se encheu de um barulho de forja. Breno pegou Beatriz pela mão e se afastou da clareira enquanto as duas criaturas voltavam a se atracar. A neve que caía voltou a cair com força assim que saíram do calor.
 
 — Eles ficaram felizes quando a gente falou com eles — disse Beatriz, depois de um tempo.
 
-— Ficaram, e foi a primeira vez que eu vi alguém ficar feliz de verdade desde que a gente chegou aqui.
+— Ficaram — respondeu Breno. — Só não entendo por que começaram a brigar de novo.
 
-— E depois voltaram a brigar, na mesma hora, sem nem esperar a gente sair do lugar.
+— Nem esperaram a gente sair — comentou Beatriz, olhando para trás.
 
 — É.
 
-— Não é triste? Eles gostam de gente, e ficam sozinhos brigando um com o outro, e é só isso que eles têm.
+— Será que eles não têm mais ninguém pra conversar?
 
-Breno pensou em responder. Tinha pelo menos duas respostas, as duas razoáveis, e achou que a menina merecia uma que fosse verdadeira.
+Breno olhou para as árvores. Não fazia ideia de quanto tempo aquelas criaturas estavam presas naquele lugar.
 
-— Eu não sei — disse. — Pode ser que eles gostem de brigar. Pode ser que não saibam fazer outra coisa. Eu não sei, Beatriz, e não vou inventar uma explicação só para a gente se sentir melhor.
+— Não sei, Bia. Talvez brigar seja a única coisa que eles fazem juntos. Ou talvez gostem disso. — Breno deu de ombros. — Eu nunca conheci dois sujeitos daqueles.
 
-— Tá bom. — Ela olhou para trás uma vez, onde um clarão laranja se acendia e se apagava. — Eu gosto mais quando você diz que não sabe.
+— Eu gostei deles mesmo assim — disse Beatriz, observando o clarão laranja entre as árvores.
 
-Ele quase tropeçou.
+Breno apertou a mão dela e continuaram andando.
 
 A neve engrossou durante a caminhada. Beatriz começou a tropeçar, mas não reclamou. Breno procurava um abrigo entre as árvores quando a irmã parou e apontou para a escuridão à direita.
 
-— Breno. — Ela puxou a manga dele de leve. — Não olha de uma vez, olha devagar, para o lado direito, entre as duas árvores sem folha.
+— Breno. — Beatriz apertou a manga dele. — Tem uma mulher ali. Perto daquelas árvores, tá vendo?
 
 — O que foi?
 
 — Tem uma velha olhando pra gente.
 
-Ele olhou, e a princípio viu só a neve. Depois, a uns trinta passos, um vulto parado entre dois troncos, baixinho, de xale escuro e cajado, imóvel. A luz que vinha de trás dela era amarela, de janela, de lareira, e desenhava uma auréola nos poucos fios brancos da cabeça. Ela olhava na direção deles, e não era um olhar de quem enxerga, mas de quem sente, com os olhos leitosos meio abertos, e sorria.
+A princípio Breno enxergou apenas a neve. Depois distinguiu uma senhora baixa, de xale escuro e cajado, parada entre dois troncos. Atrás dela havia uma luz amarela de janela. Os poucos cabelos brancos brilhavam na claridade. Os olhos da mulher eram leitosos, quase sem pupilas, e, mesmo assim, ela parecia olhar diretamente para eles.
 
 — Vocês demoraram. — A voz chegou muito clara, sem esforço, apesar do vento. — O chá esfria, e eu odeio chá frio.
 
-— Breno — sussurrou Beatriz. — Ela sorriu pra mim. Para mim, não para você.
+— Ela tá sorrindo pra gente, Breno — sussurrou Beatriz.
 
 — Eu vi.
 
 — A gente vai?
 
-— Não. — Ele pôs o corpo na frente dela. — Nós não sabemos quem é. Pode ser uma miragem, pode ser uma armadilha, pode ser qualquer coisa. Eu quero ver primeiro.
+— Calma, Bia. Não sabemos quem é ela. — Breno deu um passo à frente. — Senhora, a senhora mora aqui?
 
-— Eu lhes digo o que podem ver. — A velha ergueu uma das mãos, magra, de dedos compridos, e apontou para trás de si. — Uma casa, de pedra, com chaminé. Um bule de ferro no fogão, e é ferro de verdade, meu jovem, que eu sei que o senhor sabe diferenciar. Duas cadeiras e uma terceira que eu trago. E eu sei como se sai daqui, porque eu moro aqui desde antes de a máscara ter nome.
+— Moro naquela casa. — A velha apontou para a luz atrás de si. — É de pedra, tem um bule de ferro no fogão e chá para três. E sei que vocês estão procurando uma saída. Moro aqui desde antes de a máscara ter nome, garoto. Venham, antes que a neve fique mais forte.
 
-Breno ficou parado. Havia um jeito de saber se a casa existia, e ele nunca tinha usado esse jeito num mundo inteiro que mentia. Fechou os olhos. Estendeu a atenção para a frente, na direção da luz amarela, e pediu ao ferro que respondesse, e dessa vez, pela primeira vez desde que acordara naquele campo, uma coisa respondeu e ficou. Um bule pesado, assentado sobre uma chapa quente. Uma tranca de porta. Quatro pregos num batente. Nada tremia, nada mudava de forma. Era a primeira coisa naquele lugar que não estava com pressa de virar outra.
+Breno hesitou. A luz da janela permanecera no mesmo lugar desde que avistara a velha. Quando a música mudou ao longe, as árvores se curvaram noutra direção, mas a casa continuou exatamente onde estava. Ele se aproximou o bastante para tocar a pedra da parede. Estava firme e fria sob seus dedos. Ainda não era prova de que podiam confiar naquela mulher.
 
-— É verdadeira — disse, com a voz mais fraca do que queria. — A casa. Eu consigo sentir o ferro, e ele não muda.
+— A casa não mudou com a música — murmurou Breno. — Mas vamos ficar atentos.
 
 — Então venham.
 
-A casa era pequena, de pedra escura, com um telhado baixo coberto de neve e uma porta de madeira com a tinta descascada. Por dentro, tinha o cheiro de uma cozinha antiga, de lenha e de ervas secas e de pão, e as paredes estavam cobertas de prateleiras com potes de vidro, cada um com uma etiqueta que a velha, cega, decerto não precisava ler. O fogão estava aceso, o bule apitava baixinho, e uma mesa redonda de madeira clara esperava com três xícaras de louça lascada. Era quente, e o quente entrou nos ossos de Breno com uma força que o fez querer sentar no chão e dormir.
+A casa era pequena, de pedra escura, com o telhado baixo coberto de neve e a tinta descascada na porta. Por dentro, cheirava a lenha, ervas secas e pão. Prateleiras cobriam as paredes; cada pote tinha uma etiqueta que a velha, cega, decerto não precisava ler. O fogão estava aceso, o bule apitava e três xícaras de louça lascada esperavam numa mesa redonda. Na xícara mais próxima da cadeira pequena, uma flor pintada em tinta escura tinha três pétalas triangulares, quase pontas de seta, e um único espinho saindo do caule. O calor atingiu Breno assim que entrou. Só então percebeu o quanto estava cansado: teve vontade de sentar no chão.
 
-Beatriz tirou a capa molhada sem que ninguém mandasse, sentou numa das cadeiras e ficou balançando os pés, a bochecha ainda marcada de saliva de dinossauro, olhando a velha encher as xícaras com a segurança de quem conhece cada centímetro da mesa. O chá era escuro e tinha cheiro de casca de laranja.
+Beatriz tirou a capa molhada e sentou-se numa das cadeiras, balançando os pés. A bochecha ainda estava pegajosa da lambida do dinossauro. Passou a unha pelo desenho da flor na xícara, antes de observar a velha servir o chá sem esbarrar em nada. O chá era escuro e tinha cheiro de casca de laranja.
 
-— Pode beber, meu jovem. — A velha puxou a terceira cadeira com um rangido e sentou com os joelhos para o lado. — Se eu quisesse lhes fazer mal, não esperava vocês chegarem à minha porta com a neve até a cintura.
+— Pode beber, garoto — disse a Velha, puxando a terceira cadeira. — Se eu quisesse fazer mal a vocês, não precisava esperar entrarem na minha casa.
 
 — A senhora sabia que a gente vinha — disse Breno, sem encostar na xícara.
 
-— Eu ouço o que a máscara ouve, e ela ouviu vocês no dia em que chegaram. Não se espante. Esta casa é a única coisa daqui que escuta junto com ela, e por isso eu sei de certas coisas antes de acontecerem. Mas não sei de todas. Se soubesse, não estaria aqui.
+— Ouço algumas coisas que a máscara ouve — respondeu a mulher. — Soube que havia chegado gente nova e deixei o chá pronto. Mas não consigo ouvir o mundo inteiro daqui.
 
 — Qual é o seu nome? — perguntou Beatriz.
 
-— Faz tanto tempo que ninguém me chama que esqueci o som, minha flor. — A velha esticou a mão por cima da mesa e encontrou a de Beatriz, sem errar, e a segurou entre as duas, e passou o polegar devagar pelo anel. O sorriso dela ficou mais fundo. — Chamem-me de Velha, que serve. Tomem o chá, e depois conversamos. Eu aprendi que ninguém ouve nada de barriga vazia.
+— Faz tanto tempo que ninguém me chama pelo nome que acabei esquecendo como soa — respondeu a mulher. Estendeu a mão, encontrou a de Beatriz e passou o polegar sobre o anel. — Podem me chamar de Velha. Agora bebam o chá. Depois conversamos.
 
 Beatriz bebeu, e fez uma careta, e bebeu mais. Breno experimentou, e era quente e bom, e ele descobriu que estava com as mãos tremendo só quando a xícara tilintou no pires.
 
-A conversa veio devagar, entre goles, e sempre pelo lado de fora, como a velha gostava. Perguntou se eles tinham comido alguma coisa no campo, e se tinham falado com o urso, e quanto tinham pagado, e riu até tossir ao saber do botão. Perguntou como eram as casas de onde vinham. Ouviu a descrição que Beatriz fez da casa de Lioro, com a cadela velha e o quintal e a árvore do pátio, e perguntou duas vezes sobre a gaita. Beatriz a tirou do bolso e a deixou na mesa, e a velha a tocou com a ponta dos dedos, só uma vez, e a empurrou de volta com cuidado, como se queimasse.
+A conversa começou aos poucos, enquanto a Velha servia mais chá. Perguntou se eles tinham comido alguma coisa no campo, e se tinham falado com o urso, e quanto tinham pagado, e riu até tossir ao saber do botão. Perguntou sobre a casa de Lioro, e Beatriz contou da cadela velha, da árvore no quintal e de como os irmãos dividiam os quartos. A Velha ficou especialmente interessada na gaita. Beatriz pôs a gaita sobre a mesa. A mulher a examinou com os dedos e devolveu o instrumento sem tentar tocá-lo.
 
-— A máscara os trouxe — disse a velha, por fim, quando o bule já tinha ido e voltado duas vezes. — Eu sei que vocês querem saber por quê. Eu lhes digo o que sei, e o que não sei eu digo que não sei. A máscara tem vontade. Não é uma vontade de gente, é mais velha e mais simples. Ela quer ser ouvida, e quer não ficar sozinha. Chama os que cantam, e quem canta responde, e quem responde entra.
+— Era da minha mãe — contou Beatriz.
 
-— Eu não cantei — disse Beatriz, baixinho. — Eu só toquei na rachadura.
+— Então guarde bem — respondeu a Velha. — Coisas assim não se encontram duas vezes.
 
-— Cantou, sim, minha flor. Cantou as três notas, durante dias. — A velha sorriu. — E o seu irmão a segurou, e a máscara entendeu que duas mãos valiam mais do que uma. Não pense que foi castigo, nem erro de ninguém. Foi só o jeito dela de falar.
+— A máscara trouxe vocês — disse a Velha, depois de encher as xícaras mais uma vez. — Ela gosta de música. Quando alguém se aproxima, às vezes responde. Pode até puxar a pessoa pra dentro.
+
+— Eu não cantei — disse Beatriz, baixinho. — Eu coloquei a máscara no rosto porque escutei alguém pedindo ajuda. Foi uma voz de mulher. A senhora também ouviu?
+
+A Velha pousou a xícara.
+
+— Fui eu que chamei por ajuda, minha flor. Há tanto tempo não vejo um céu que não mude de lugar... Às vezes, quando alguém passa perto da máscara, consigo mandar um pedacinho da minha voz. Não sabia se alguém ia escutar.
+
+— Então era a senhora! — Beatriz apertou a gaita contra o peito. — Achei que estivesse sozinha. Não dava para deixar.
+
+— E seu irmão veio atrás de você — disse a Velha, voltando o rosto para Breno. — Não sei por que a máscara escolheu trazer vocês dois. Mas fico contente por não estarem feridos.
 
 — E o jeito de sair? — perguntou Breno. A voz saiu mais seca do que ele queria. — Os dois da clareira disseram que não existe porta.
 
-— E não existe, daqui de dentro. — A velha pousou a xícara. — Existe do lado de fora. Alguém, do lado de lá, precisa vestir a máscara. Quando ela está num rosto, a pele do mundo fica fina, e quem está aqui dentro pode atravessar. Mas só vale se quem está aqui estiver segurando a Partitura.
+— A parede que vocês encontraram não tem passagem — respondeu a Velha, pousando a xícara. — Mas já ouvi outra música, muito diferente da cantiga que faz este mundo mudar. Uma vez, por poucos minutos, surgiu uma escada que alcançava a borda do mundo. Não consegui chegar a tempo. A Partitura talvez nos ajude a encontrar aquele lugar de novo.
 
 — A quê? — perguntaram os dois, quase juntos.
 
-— Um objeto. Está num lugar desta terra que eu conheço e que vou mostrar a vocês quando for hora. Chama-se Partitura, e é uma coisa velha, mais velha que a máscara. Quem a tiver na mão escuta o timbre de qualquer dimensal vivo, e pode chamá-lo de onde estiver, e ele responde. — Ela se interrompeu, e a mão que segurava a de Beatriz apertou mais. — É isso que o mago negro quer. Não só para passar de uma terra para outra, que ele já faz sozinho. Quer para ter um exército que lhe responda, de cada canto de cada mundo, sem precisar procurar um por um.
+— É um objeto muito antigo. Está guardado neste mundo, numa caverna que conheço de longe. Faz sons que chegam muito além destas paredes. — A Velha aproximou a mão de Beatriz da própria xícara, para que ela sentisse o calor. — Alguns que passaram por aqui tentaram encontrá-lo. Nenhum voltou para contar se conseguiu. Eu já não vou tão longe sozinha.
 
 Breno sentiu uma coisa fria no estômago, e não era do chá.
 
 — Como é que a senhora sabe disso?
 
-— Aqui o vento carrega tudo, meu jovem. Até o que não deve. — Ela virou o rosto cego na direção dele, e o sorriso não diminuiu. — Mas já falei demais para quem acabou de chegar. Descansem. Amanhã eu levo vocês aonde for preciso, e conto o resto à medida que for hora.
+— Ouvi o canto dela uma vez, muito longe — respondeu a Velha. — Não sei tudo a seu respeito. Mas conheço o caminho até onde a caverna costuma aparecer. Descansem. Amanhã, se ainda quiserem ir, mostro por onde começar.
 
 — Preciso saber agora — insistiu Breno. — Os meus irmãos, a senhora tem notícia deles? Eles vão tentar vir aqui? E o que acontece se alguém vestir a máscara do lado de fora, o que acontece com essa pessoa?
 
-— Acontece o que a máscara quiser. — A velha ficou séria pela primeira vez. — E por isso eu rezo, em silêncio, para que não seja ninguém que vocês amem.
+— Não sei exatamente o que acontece — respondeu a Velha, agora séria. — Eu só sei que aquela música apareceu quando alguém tentou usar a máscara do lado de fora. Depois tudo voltou ao normal. Não gostaria que fosse um dos irmãos de vocês a correr esse risco.
 
 — E se alguém vestir a máscara lá fora — disse Breno, devagar, escolhendo cada palavra — como a gente vai saber o caminho, se o lugar muda toda hora?
 
-— Pelo canto. — A velha sorriu de novo. — Cada vez que a máscara canta o cenário troca, vocês já viram. Mas existe um contracanto que só vem quando ela aceita alguém, o do arco-íris. Ele traz uma escada de sete cores, que sobe até a parede onde a matéria não sabe se é água ou ar, e é por ali que se sai. Dura poucos minutos. Quem não estiver na parede quando o canto acabar espera o próximo, e o próximo pode levar muitas luas.
+— Prestem atenção numa música diferente — explicou a Velha. — Vocês já perceberam que este mundo muda quando a cantiga comum toca. Mas houve outra, com sete notas que pareciam responder umas às outras. Enquanto soava, apareceu uma escada colorida. Não sei quanto tempo ficou aberta. O mundo mudou antes que eu alcançasse o primeiro degrau.
 
-— Então a gente precisa ficar perto da parede — disse Beatriz.
+— Então temos que descobrir onde a escada aparece — disse Beatriz.
 
-— Precisa estar correndo, minha flor.
+— E encontrar a Partitura antes que isso aconteça — respondeu a Velha. — Pode ser nossa única chance de alcançar a passagem.
 
-Beatriz bocejou, uma coisa enorme, de queixo caído, e o bocejo foi tão sincero que a velha riu de verdade, uma risada seca, e a tensão da mesa se desfez. Havia duas camas no fundo da casa, feitas de colchão de palha e coberta de lã grossa, e a velha as arrumou sem pressa, tateando a quina do colchão. Ao passar por Beatriz, tocou de novo a mão dela, e por baixo do toque Breno viu a menina ficar parada, com um olhar de quem tinha ouvido uma coisa e tentava lembrar o quê.
+Beatriz soltou um bocejo enorme. A Velha riu e se levantou para preparar as camas. Havia duas camas no fundo da casa, feitas de colchão de palha e coberta de lã grossa. A mulher deu à menina o cobertor mais pesado e acendeu outra acha no fogão, para que o quarto aquecesse. Quando Breno perguntou se não ia sentir frio sozinha, ela mostrou a pilha de lenha que guardava ao lado da porta e respondeu que se arranjaria. Só então voltou a alisar uma dobra da cama que não conseguia deixar reta.
+
+— Se encontrarem uma maneira de sair, vocês se importariam se eu tentasse ir junto? — perguntou, ainda de costas. — Faz tanto tempo que não vejo uma manhã que não mude de cor de repente.
+
+— A senhora mora aqui sozinha há muito tempo? — perguntou Beatriz.
+
+— Há tempo demais para ficar contando. Mas não quero atrapalhar os dois. Primeiro encontrem o caminho.
+
+— Se der, a gente leva a senhora também — respondeu Beatriz.
+
+Breno olhou para a irmã. Não podia prometer uma saída que nem conhecia.
+
+— Vamos tentar — disse ele. — Se tiver como passar todo mundo.
+
+A Velha puxou o cobertor outra vez, deixando a dobra lisa.
+
+— Já é mais do que eu esperava ouvir hoje.
+
+Depois continuou a arrumar as camas, tateando a quina do colchão. Ao passar por Beatriz, a Velha tocou sua mão outra vez. A menina parou no meio do movimento e olhou ao redor, intrigada.
 
 — O que foi? — perguntou Breno, baixinho, quando a velha voltou para o fogão.
 
-— Nada. — Beatriz deitou, puxou a coberta até o queixo e fechou os olhos. — Eu achei que alguém falou pra eu dormir. Mas foi só o meu pensamento.
+— Pensei que alguém tivesse falado comigo — respondeu Beatriz, deitando-se. — Mandou eu dormir. Mas acho que imaginei.
 
-Ficou quieta. Breno ficou sentado na beira da cama dela por um tempo, ouvindo o fogo, a chaleira, e a respiração da menina, que foi ficando funda, e depois se deitou na cama ao lado com as botas, sem tirar. Olhou o teto de vigas escuras por muito tempo. Um uivo de vento passou por cima do telhado, e dentro dele a música voltou, um tom acima, fora do lugar. A mesma de antes. Ele teve a impressão de que ela esperava uma resposta, e se virou de lado, para a parede, para não precisar dar nenhuma.
+Beatriz calou-se. Breno esperou até a respiração dela ficar funda, depois se deitou na cama ao lado sem tirar as botas. Ficou olhando as vigas do teto. Um uivo de vento passou por cima do telhado, e dentro dele a música voltou, um tom acima, fora do lugar. A mesma de antes. Ele teve a impressão de que ela esperava uma resposta, e se virou de lado, para a parede, para não precisar dar nenhuma.
 
 Acordou no meio da noite com uma mão no braço. Era Beatriz, sentada na cama dele, de camisola emprestada, com o cabelo em pé de um lado, os olhos abertos e os pés enrolados na coberta.
 
@@ -388,58 +470,68 @@ Ele abriu espaço sem responder. Ela se deitou de lado, de frente para ele, e fi
 
 — O Banjo, muito. Ele deve ter perdido o sono, e deve estar falando com o Farol como se fosse pessoa. — Breno fez uma pausa. — O Bruno vai estar preocupado e vai fingir que não, e a cada meia hora vai inventar uma piada ruim para se convencer de que está tudo bem.
 
+Beatriz puxou a coberta até o queixo.
+
+— Quando a gente era pequeno, a mamãe entrava no quarto pra saber se todo mundo tinha dormido, lembra?
+
+— Lembro. O papai ia atrás dela e fazia barulho com o sapato. Aí ela brigava porque acordava quem já estava dormindo.
+
+— Eu queria que eles viessem procurar a gente — murmurou Beatriz.
+
+Breno ficou olhando a porta entreaberta. Queria a mesma coisa, mas não sabia onde os pais estavam. Passou o braço por cima da coberta da irmã.
+
 Beatriz riu, num sopro, e depois ficou séria.
 
 — Eu fiz isso, não fiz?
 
 — Fez o quê?
 
-— A máscara. Fui eu que toquei. Fui eu que cantei as três notas, a Velha falou, e eu nem sabia. — A voz dela ficou fina. — Você me disse "não dá um passo" e eu dei, e você falou de novo, e eu dei outro. Eu ouvi você, Breno. Eu ouvi, e fui assim mesmo, porque ela estava chamando e parecia tão sozinha. Eu não sei como eu soube. Parecia que era comigo.
+— A máscara. Eu coloquei no rosto porque ouvi alguém pedindo ajuda. Cantei as três notas sem perceber. — A voz dela ficou fina. — Você me disse "não dá um passo" e eu dei, e você falou de novo, e eu dei outro. Eu ouvi você, Breno. Eu ouvi, e fui assim mesmo, porque ela estava chamando e parecia tão sozinha. Eu não sei como eu soube. Parecia que era comigo.
 
-Ele ficou olhando o teto. Tinha uma resposta pronta, a que um irmão mais velho dá, que diz que não, que a culpa não é dela. Só que a resposta pronta era uma mentira, e ele tinha prometido a si mesmo, na clareira, não inventar mais explicações.
+Breno ficou olhando o teto. Podia dizer que ela não tinha feito nada de errado, mas lembrava-se de ter pedido que não se aproximasse da máscara. Lembrava-se também do jeito como ela parecia não conseguir ouvir outra coisa.
 
-— Você deu o passo — disse. — E eu devia ter segurado você mais forte, ou ter deixado você falar com ela primeiro, em vez de gritar. Fomos nós dois. A culpa é nossa, e a gente divide, e eu não vou deixar você carregar sozinha, porque eu sei como é pesado.
+— Você vestiu a máscara, Bia. Eu pedi pra não chegar perto e você foi mesmo assim. — Ele respirou fundo. — Mas parecia que a máscara estava te puxando. Não sei se você conseguiria parar. Eu também não sabia como te ajudar.
 
-— Você carregou a da gaiola, e ficou calado quase uma semana.
+— Você ficou bravo comigo por causa do fogo lá no pátio? — perguntou Beatriz. — Porque depois a gente quase nem conversou.
 
-— Carreguei.
+— Fiquei bravo comigo — respondeu Breno.
 
-— E ainda está carregando, ou já largou em algum lugar?
+— Ainda tá?
 
 Ele demorou. Do lado de fora, o vento passou comprido pelo telhado.
 
-— Estou. Eu fechei a gaiola em volta do seu fogo porque tive medo, e você me disse "você me trancou", e eu fiquei dias repetindo isso na cabeça. Eu achei que você tinha razão. — Respirou. — Eu quero muito que você esteja segura, Beatriz. Eu fico tão concentrado nisso que às vezes esqueço de perguntar se você quer o que eu estou fazendo. Hoje de manhã, no campo, eu só consegui pensar em colocar você atrás de mim.
+— Às vezes — admitiu Breno. — Eu vi seu fogo crescendo e só pensei em impedir que chegasse à casa. Ouvi quando você pediu pra eu soltar seus braços, mas não soltei. — Olhou para a irmã. — Hoje eu também fiquei te puxando pra trás de mim o tempo todo. Desculpa.
 
-— Você me colocou atrás de você no urso, e na clareira também. — Ela se virou de barriga para cima. — Eu não me importei, sabia? A gaiola foi diferente. A gaiola era pra eu não ser eu. Hoje foi só pra eu não ser comida.
+— Hoje eu não liguei! — Beatriz se virou de barriga para cima. — Tinha um urso enorme, depois aqueles dois brigando. Eu também fiquei com medo. Mas lá no pátio eu estava tentando apagar o fogo. Precisava que você me ajudasse, não que me prendesse.
 
-Breno virou o rosto e olhou para ela, que olhava para o teto com a testa franzida, como se tivesse acabado de resolver um problema difícil, e sentiu uma coisa se soltar no peito que ele nem sabia estar presa.
+Breno olhou para a irmã. Ela continuava encarando o teto, ainda com o cabelo espetado de um lado. Ele ajeitou uma mecha e demorou um pouco para responder.
 
-— Eu não sei se a gente sai daqui — disse. — Eu não posso prometer. A Velha falou de um objeto e de alguém do lado de fora, e eu não sei se o Bruno e o Banjo vão conseguir, ou se vão ficar sabendo. Eu não sei quanto tempo passou lá. Pode ser um dia, pode ser um mês. O que eu posso prometer é que eu estou do seu lado, e que, se der para você ir na frente, eu deixo.
+— Eu não sei como a gente vai sair daqui — disse Breno. — Nem sei se o Bruno e o Banjo já descobriram o que aconteceu. Mas amanhã vamos procurar essa Partitura. E não vou te deixar sozinha.
 
 — Mesmo se for perigoso?
 
-— Mesmo se for perigoso, a gente decide junto. Eu avisando, e você me ouvindo, e depois você escolhe, e eu vou atrás.
+— Se for perigoso, a gente pensa junto antes de fazer alguma coisa. Pelo menos tenta, tá?
 
-— Isso é muito estranho, vindo de você.
+— Você vai mesmo me deixar decidir alguma coisa?
 
-— Eu sei.
+— Vou tentar — respondeu Breno. — Mas não prometo que vou gostar de todas as suas ideias.
 
-— Mas eu gosto. — Ela ficou um instante em silêncio. — Breno, eu tenho uma pergunta, e você não pode ficar bravo.
+— Então tá bom. — Ela pensou um pouco. — Breno, posso perguntar uma coisa? Sem você ficar bravo?
 
-— Não vou ficar.
+— Não vou — prometeu Breno.
 
-— A máscara estava sozinha. Eu senti, eu falei, eu tinha certeza. E agora a gente está aqui dentro, e tem o urso, e o Blizardo e o Ardêncio, e a Velha, e os dinossauros, e a gente nem sabe quem inventou quem. E se ela não for maldade, Breno? E se ela só quiser alguém para conversar?
+— A máscara estava sozinha, Breno. Eu senti isso quando ela me chamou. — Beatriz olhou para a janela. — Aqui tem um urso que fala, dinossauros, Blizardo e Ardêncio... E se ela não quiser machucar ninguém? E se só quiser conversar com alguém?
 
-Ele pensou na música que subia um tom errado. Pensou na tranca de ferro sob os dedos, no gosto de ferro frio na boca, nas duas batidas lentas de uma pessoa deitada do outro lado de uma porta.
+Ele pensou na música que subia um tom errado. Pensou na placa fria de ferro sob os dedos, no gosto de ferro que surgira sem explicação e nas duas batidas lentas de alguém do outro lado de uma porta.
 
-— Pode ser — disse. — E, se for, a gente descobre. Mas a gente descobre vivo e do lado de fora, e depois conversa com ela de novo, se ainda quiser.
+— Pode ser — respondeu Breno. — Mas a gente precisa sair daqui primeiro. Depois, se ela quiser conversar, você conversa. Comigo do lado.
 
-— Combinado. — Beatriz encostou a cabeça no ombro dele, que era o jeito de assinar.
+— Combinado. — Beatriz encostou a cabeça no ombro dele.
 
-Beatriz foi dormindo devagar, e em algum ponto da respiração dela, quando já estava quase lá, murmurou alguma coisa que ele não entendeu, e depois, mais claro:
+Beatriz foi adormecendo. Quando a respiração já estava pesada, murmurou algo que Breno não entendeu. Depois, mais claro:
 
 — Está bom, eu já vou dormir. Chata.
 
-Breno olhou para ela, e a menina estava de olhos fechados e boca aberta, em sono profundo. Pensou em acordá-la para perguntar com quem falava. Pensou em muitas coisas, e deixou todas de lado.
+Breno olhou para a irmã. Ela dormia profundamente. Quis perguntar com quem estava falando, mas não teve coragem de acordá-la.
 
-Do fogão, no outro cômodo, a Velha estava sentada na cadeira, de costas, quieta, de cabeça inclinada, ouvindo o que a casa ouvia. Ele não soube dizer se ela sorria. Fechou os olhos, e o vento passou outra vez por cima do telhado, e a música dentro dele subiu um tom, devagar, de propósito, e ficou esperando.
+No outro cômodo, a Velha continuava sentada diante do fogão, de costas para os dois. Breno não conseguia ver seu rosto. Fechou os olhos. O vento passou por cima do telhado e trouxe a mesma melodia de antes. A última nota subiu um tom além do esperado e permaneceu vibrando no escuro.

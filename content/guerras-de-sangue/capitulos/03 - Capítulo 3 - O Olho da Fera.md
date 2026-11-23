@@ -2,13 +2,13 @@ Rendar olhou para os lados e decidiu, pela terceira vez desde que entrara na Boc
 
 A passagem era estreita, úmida e torta. Dois homens não caminhavam lado a lado ali sem encostar ombro em rocha. Cipós secos pendiam dos paredões como cabelos mortos, raízes de sede agarravam-se às fendas, e pedras falsas, encaixadas de propósito, escondiam aberturas por onde olhos podiam vigiar sem serem vistos. Rendar sabia disso porque também era homem de esconderijo. Só que os Fendelar escondiam-se para que o mundo perdesse o rastro.
 
-Os Tondrar escondiam-se para que, quando alguém os encontrasse, já estivesse dentro deles. Três homens o escoltavam, todos carecas e pintados, a tinta preta com cheiro de resina e cinza. Entre os Tondrar, aquelas marcas podiam indicar luto, função ou dívida, por isso Rendar evitava encará-las. Um trazia pontos nas têmporas e no pescoço, outro uma faixa escura sobre a boca, e o mais jovem tinha círculos pretos em volta dos olhos.
+Os Tondrar, ao contrário, deixavam o visitante entrar até que fosse tarde para escolher outra saída. Três homens o escoltavam, todos carecas e pintados, a tinta preta com cheiro de resina e cinza. Entre os Tondrar, aquelas marcas podiam indicar luto, função ou dívida, por isso Rendar evitava encará-las. Um trazia pontos nas têmporas e no pescoço, outro uma faixa escura sobre a boca, e o mais jovem tinha círculos pretos em volta dos olhos.
 
-Nenhum deles sorria. Rendar também não. Sem mover a mão, fez o gesto que Avara lhe ensinara quando ainda era criança: dois dedos curvados diante do rosto, depois um corte vertical no ar, pequeno demais para estrangeiro entender. O Olho da Fera. A frase soou menos como bravata e mais como lembrete. Quem olha mal, morre primeiro.
+Nenhum deles sorria. Rendar também não. Sem mover a mão, fez o gesto que Avara lhe ensinara quando ainda era criança: dois dedos curvados diante do rosto, depois um corte vertical no ar, pequeno demais para estrangeiro entender. O Olho da Fera. Quem olha mal, morre primeiro.
 
 Carregava a carga presa às costas por correias de tendão e fibra, embrulhada em couro seco e folhas de vedação. Por baixo, folha-de-chuva esmagada, truque velho de Mirval para atrasar cheiro de sangue. Mesmo assim o cheiro da carne fresca atravessava as folhas. O homem à frente bateu duas vezes numa pedra baixa.
 
-Não parecia nada. Nem porta, nem sinal, nem mecanismo. Então a pedra respondeu. Um som surdo veio de dentro da montanha. Depois outro. Depois o arrastar de alguma coisa grande. A parede à frente se abriu por uma fresta que não existia segundos antes, e Rendar viu o vale. A fortaleza Tondrar surgiu atrás da montanha como um pensamento ruim.
+Não parecia nada. Nem porta, nem sinal, nem mecanismo. Então a pedra respondeu. Um som surdo veio de dentro da montanha. Depois outro. Depois o arrastar de alguma coisa grande. A parede à frente se abriu por uma fresta que não existia segundos antes. Do outro lado, Rendar viu o vale e a fortaleza Tondrar.
 
 Era baixa, agressiva, amarrada ao chão como animal que morde a própria coleira. Muralhas de bambu-duro, barro endurecido e troncos queimados cercavam o lugar em camadas irregulares. Espinhos longos apontavam para fora, alguns tão escuros que pareciam passados em sangue velho. Entre as estacas, crânios pendiam por fios pretos: animais grandes, bestas de chifre lateral, predadores de mandíbula larga, homens. Alguns eram velhos demais para intimidar pela carne que faltava, e intimidavam pelo tempo que continuavam ali. Os crânios batiam uns nos outros quando o vento passava, Tec Tec Tec. Como dentes conversando.
 
@@ -16,7 +16,7 @@ Rendar passou pelo primeiro portão.
 
 O segundo apareceu alguns passos depois, escondido por fumaça e sombra. Entre os dois havia um corredor estreito, seco demais para um lugar tão úmido. Boca Seca, chamavam. Ali ninguém oferecia água, nem palavra que não fosse necessária. O Caldo da Boca Seca só aparecia depois de uma negociação, quando o estrangeiro já não era amigo, mas também deixara de ser tratado como presa.
 
-A sede fazia parte da negociação. Estrangeiros esperavam sem água até que os Tondrar decidissem se eram convidados, clientes ou presas. Um guarda encostou dois dedos no embrulho às costas de Rendar.
+A sede também fazia parte da negociação: ali, o estrangeiro esperava pela água até que os Tondrar decidissem o que fazer com ele. Um guarda encostou dois dedos no embrulho às costas de Rendar.
 
 — Carne.
 
@@ -36,15 +36,13 @@ Mais adiante, tiras de carne de fumaça baixa pendiam sobre estruturas quase enc
 
 Rendar caminhou sem virar muito a cabeça. Olhar demais, entre os Tondrar, era quase pergunta. E perguntas exigiam respostas.
 
-Os três escoltas levaram-no até um pátio de barro batido, cercado por casas baixas. Algumas tinham entradas visíveis. Outras pareciam apenas telhados encostados na terra, com escadas descendo. Dali vinha uma luz amarelada, fraca, como se o chão tivesse olhos doentes. Um tambor soou ao longe. Tum. Uma pausa. Tum-tum.
+Os três escoltas levaram-no até um pátio de barro batido, cercado por casas baixas. Algumas tinham entradas visíveis. Outras pareciam apenas telhados encostados na terra, com escadas descendo. Luz amarelada escapava de pequenas aberturas junto ao chão. Um tambor soou ao longe. Tum. Uma pausa. Tum-tum.
 
 Dois homens levantaram a cabeça. Uma criança correu para uma entrada subterrânea. Ninguém explicou nada a Rendar. Ele não precisava entender para saber que todos ali tinham entendido.
 
-No centro do pátio, sentado numa cadeira baixa reforçada com ossos e tiras de couro ressecado, havia um homem estreito demais para parecer confortável dentro do próprio corpo.
+No centro do pátio, sentado numa cadeira baixa reforçada com ossos e couro ressecado, havia um Tondrar comprido e ossudo, de ombros estreitos. Os tendões saltavam sob a pele do pescoço marcado. Mastigava com a boca fechada, estudando Rendar.
 
-Entre os Tondrar, quase todos eram secos, nervosos, feitos de tendão, fome e desconfiança. Aquele homem era mais do que isso. Comprido. Ossudo. Os ombros subiam como galhos mal curados, e o pescoço, fino e cheio de marcas, parecia sustentar a cabeça por teimosia. A pele colava nos ossos do rosto com tanta precisão que a face parecia entalhada, não nascida.
-
-Mas eram os olhos que incomodavam. Um era escuro, quase negro. O outro tinha uma mancha clara que tomava metade da íris, dando a impressão de que olhava para dois lugares ao mesmo tempo: Rendar e alguma coisa atrás dele.
+Um dos olhos era quase negro. Uma mancha clara ocupava metade da íris do outro. Rendar tentou manter a atenção no homem inteiro, não apenas naquele olhar.
 
 A pintura negra no rosto era complexa, mas não era a Marca da Voz. Faixas de bordas duras desciam da testa raspada até o queixo, cruzadas por pequenos pontos negros nas maçãs do rosto. Uma faixa escura atravessava a boca. Do pescoço ao peito nu, cortes retos imitavam rachaduras.
 
@@ -64,9 +62,9 @@ A carne era de varren-de-casca, abatido dois dias antes numa ravina a meio camin
 
 Um dos Tondrar afastou as moscas com a lâmina, aproximou-se da carne e a lambeu. Não mastigou. Só lambeu, como quem procurava sal, podridão ou mentira. Depois ficou olhando para Rendar.
 
-Tinha os olhos arregalados demais, brancos demais, como se nunca fechasse as pálpebras por completo. A pintura preta em volta deles deixava o olhar maior, mais úmido, quase infantil. Mas os dentes, quando sorriu, eram podres. Alguns faltavam. Outros pareciam pedras amarelas fincadas em gengiva escura.
+Tinha os olhos muito abertos, cercados por pintura preta que aumentava ainda mais o olhar. Quando sorriu, mostrou dentes faltando e outros amarelados.
 
-O homem da cadeira inclinou-se para a frente. Os ossos do peito moveram-se sob a pele como se alguma coisa pequena quisesse sair dali.
+O homem da cadeira se inclinou, apoiando os cotovelos nos joelhos.
 
 — Fresca?
 
@@ -104,7 +102,7 @@ Vários Tondrar começaram a correr pelo pátio. Vieram de portas, de sombras, d
 
 Havia ordem na fome. Os mais velhos pegaram primeiro, depois duas mulheres grávidas, um jovem com o braço enfaixado e só então os outros. Ninguém agradeceu.
 
-Um menino pequeno, com a cabeça recém-raspada e uma linha preta na testa, recebeu um pedaço mínimo. Segurou a carne com as duas mãos e mordeu como se mastigasse um presente raro. Ainda não tinha idade para carregar lâmina, mas já tinha idade para aprender que comida não chega duas vezes quando chamada.
+Um menino de cabeça recém-raspada e uma linha preta na testa recebeu um pedaço pequeno. Segurou a carne com as duas mãos e mordeu depressa. Quando terminou, procurou mais com os olhos, mas os adultos já recolhiam o resto.
 
 Rendar olhou para isso e sentiu raiva de não conseguir sentir apenas nojo. Um Fendelar entendia fome. Só odiava quando outro povo a transformava em teatro.
 
@@ -116,9 +114,9 @@ Sua montaria o esperava presa a uma estaca de raiz seca, inquieta com o cheiro d
 
 O animal bufou, incomodado. Rendar montou, puxou a capa para proteger o rosto da umidade e seguiu para a floresta. A viagem durou quase um dia.
 
-O caminho de volta nunca parecia o mesmo que o de ida. Garraventos faziam isso com trilhas: um se mostrava adiante enquanto o outro aguardava atrás, e viajante distraído acabava perseguindo o perigo errado. Na ida, a carga pesava mais. Na volta, era o pensamento. Rendar atravessou ravinas com musgo escorregadio, árvores de tronco torcido que pareciam dedos apontando erro, atento aos arranhões horizontais das grivarras nos troncos baixos e ao leito onde os dorvek revolviam lama e um keldravo imóvel podia ser confundido com tronco. Parou apenas uma vez para deixar o tsavor beber água.
+O caminho de volta nunca parecia o mesmo que o de ida. Garraventos faziam isso com trilhas: um se mostrava adiante enquanto o outro aguardava atrás, e viajante distraído acabava perseguindo o perigo errado. Na ida, a carga pesava mais. Na volta, era o pensamento. Rendar atravessou ravinas com musgo escorregadio e árvores de tronco torcido, atento aos arranhões das grivarras nos troncos baixos, à lama revolvida pelos dorvek e aos keldravos imóveis que podiam ser confundidos com madeira caída. Parou apenas uma vez para deixar o tsavor beber água.
 
-Comeu pouco. Não por falta de fome. Por raiva. Quando o sol começou a morrer atrás das copas, a floresta fechou-se de vez. Ali, a luz entrava em pedaços. Rendar deixou o tsavor seguir mais devagar e procurou os sinais que ninguém de fora reconheceria.
+Comeu pouco. Não por falta de fome. Por raiva. Ao cair da tarde, a luz mal atravessava as copas. Rendar deixou o tsavor seguir mais devagar e procurou os sinais que ninguém de fora reconheceria.
 
 Um corte minúsculo numa raiz alta. Uma folha virada ao contrário. Três pedras pequenas dispostas junto a um tronco oco.
 
@@ -252,7 +250,7 @@ Rendar sorriu.
 
 Na parede, uma lança curta pendia ao lado de facas de caça. Três delas eram de Vita. Ela era melhor com armadilhas do que ele, e dizia isso sempre que podia. Tinham crescido próximos, como quase todos em Velarim: primos distantes por alguma linha torta, órfãos de perdas parecidas, treinados pelas mesmas trilhas. Durante muitos ciclos, Vita achou Rendar calado demais. Rendar achou Vita impossível demais. Depois, numa caçada em que ambos ficaram presos numa árvore por meio dia enquanto um dorvek cheirava o chão embaixo, descobriram que podiam ficar em silêncio juntos sem desejar que o outro desaparecesse.
 
-Entre os Fendelar, isso era quase declaração de amor. Um som pequeno veio do canto. Rendar virou-se.
+Vita percebeu que ele olhava para ela e sorriu de canto. Um som pequeno veio do berço suspenso. Rendar virou-se.
 
 Ilo estava acordado no berço suspenso, envolto em tecido macio. O bebê mexia as mãos como se tentasse agarrar a própria luz, a boca aberta num sorriso sem dentes, um fio de baba brilhando no queixo. Rendar abaixou-se imediatamente.
 

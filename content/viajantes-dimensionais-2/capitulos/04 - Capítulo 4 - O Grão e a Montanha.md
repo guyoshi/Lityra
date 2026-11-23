@@ -1,20 +1,20 @@
-Kali começou a acordar a casa às cinco e meia. Na terceira semana, Bruno já tinha desistido de discutir o horário.
+Nas semanas seguintes, Kali passou a acordar a casa às cinco e meia. Bruno reclamou durante os primeiros dias, mas logo descobriu que discutir com ela só fazia o aviso se repetir.
 
 — Bom dia, Bruno. Doze graus lá fora, nuvens cor-de-rosa até o meio-dia. Quem chegar atrasado carrega as tigelas.
 
-— Estou morto, Kali.
+— Tô morto, Kali.
 
-— Pelo seu batimento, não.
+— Seu pulso indica o contrário.
 
 Bruno enfiou a cara no travesseiro. Banjo dormia de boca aberta, com um seixo girando a um palmo da mão caída para fora da cama. Breno já calçava as botas.
 
 — Levanta — ordenou.
 
-— Estou levantando deitado. Técnica nova.
+— Tô levantando, pô. Só não saí da cama ainda.
 
-Na cozinha, o achocolatado de Bruno fumegava mais do que o necessário, como ele preferia desde que perdera o hábito de controlar o frio sem esforço. Beatriz desceu de cabelo amassado e contou que sonhara com uma vela gigantesca que ninguém deixava acender. Bruno empurrou-lhe uma torrada.
+Na cozinha, Bruno preparou um achocolatado tão quente que precisou soprar antes de beber. Não queria descobrir se os dedos ainda o congelariam sem querer. Beatriz desceu de cabelo amassado. Contou que havia sonhado com uma vela enorme e que, por mais que tentasse, não conseguia acendê-la. Bruno empurrou-lhe uma torrada.
 
-— Foi a primeira vez que você obedeceu num sonho. Parabéns.
+— Até dormindo você arranja problema com fogo, Bia?
 
 Velho-Sábio passou com uma torrada numa mão e o cajado na outra. Bruno se ergueu, animado.
 
@@ -24,23 +24,27 @@ O mago estendeu a mão. Átila enfiou a cabeça entre os dois e acertou a palma 
 
 — Esse não conta! — protestou o garoto.
 
-— Um acerto é um acerto — disse Velho-Sábio. — E vocês têm treino.
+— O Átila aprendeu mais depressa — comentou Velho-Sábio, seguindo para a porta. — Vamos, temos treino.
 
 No Arcano, uma mesa comprida os esperava com quatro tigelas de cobre, cada uma cheia de água até a metade.
 
 — Uma gota — disse Velho-Sábio. — É só o que eu quero.
 
-Bruno congelou a tigela inteira. A água saiu sólida, com o formato de um pudim, e o cobre rachou.
+— Só uma? — Bruno estalou os dedos.
 
-— Eu fiz a gota. Fiz todas.
+— Principalmente só uma.
 
-Velho-Sábio empurrou outra tigela. Bruno congelou a mesa junto na tentativa seguinte. Na segunda semana, conseguiu finalmente uma gota redonda, flutuando em água líquida, e desfilou com a tigela até Breno pedir que a guardasse.
+Bruno congelou a tigela inteira. A água saiu com forma de pudim, e o cobre rachou.
+
+— O senhor não falou que não podia fazer todas de uma vez.
+
+Na segunda tentativa, congelou a mesa. Levou duas semanas para conseguir uma gota e mais alguns dias para não congelar outras três por distração.
 
 Breno atravessava madeira sem esforço até o mentor lhe dar um tronco de carvalho. O braço entrou, ficou sólido no lugar errado e não voltou.
 
-— Estou preso — anunciou, examinando o próprio cotovelo.
+— Velho-Sábio? Acho que fiz besteira — disse Breno, puxando o braço sem conseguir movê-lo.
 
-— Estou vendo — disse Velho-Sábio, tomando chá.
+— Estou vendo — respondeu Velho-Sábio, pousando a xícara.
 
 — Pode me ajudar?
 
@@ -48,23 +52,23 @@ Breno atravessava madeira sem esforço até o mentor lhe dar um tronco de carval
 
 Bruno arrastou uma cadeira até ele.
 
-— Quer uma almofada, véi? Tem uma de lavanda que combina com tronco.
+— Quer que eu traga um travesseiro, véi? Parece que vai demorar.
 
-Breno demorou vinte minutos para sair. Examinou o braço inteiro e voltou à tábua fina, recusando-se a reconhecer que o irmão tinha razão sobre começar por um dedo.
+Breno levou vinte minutos para libertar o braço. No exercício seguinte, começou pela ponta de um dedo e só avançou quando teve certeza de que conseguiria voltar.
 
 Banjo devia conduzir dois seixos por um corredor entre vasos. Com um só, acertou. Com dois, um caiu no vaso, outro bateu no teto e um terceiro, que estava escondido na terra, atingiu a orelha de Bruno.
 
-— Eu peguei só dois! — jurou Banjo, horrorizado. — Acho que o outro se animou quando viu os dois voando!
+— Eu só estava mexendo em dois! — Banjo correu para ajudar Bruno. — O terceiro saiu de onde?
 
 Do outro lado, Beatriz tinha de acender apenas a vela central de uma fileira de três. Conseguiu uma chama minúscula. Banjo se aproximou para elogiar; as três velas acenderam de uma vez, e uma fagulha chamuscou metade de sua sobrancelha. Beatriz apertou o anel e apagou tudo, assustada.
 
 — Eu cheguei perto — disse Banjo, passando o dedo na parte queimada. — Não foi culpa sua.
 
-Velho-Sábio trouxe água e um pano. Encerrou o exercício para Beatriz naquele dia. A sobrancelha de Banjo demorou três dias para crescer, e ele passou os três com a expressão de quem duvidava do mundo.
+Velho-Sábio trouxe água e um pano. Encerrou o exercício para Beatriz naquele dia. A sobrancelha de Banjo demorou três dias para crescer. Enquanto isso, ele tentou esconder a falha com a franja, sem muito sucesso.
 
-Na semana seguinte, o mentor misturou as duplas. Bruno trabalharia com Beatriz; Breno, com Banjo. Precisavam levar um ovo de cristal até um pano azul, atravessando vinte passos de obstáculos sem lhe tocar. O ovo apitaria se batesse em alguma coisa.
+Na semana seguinte, Velho-Sábio misturou as duplas: Bruno com Beatriz, Breno com Banjo. Cada par precisava conduzir um ovo de cristal por vinte passos de obstáculos, sem tocá-lo, até um pano azul. Qualquer batida faria o ovo apitar.
 
-Bruno construiu um trilho de gelo com curvas tão elegantes que se esqueceu de pensar na velocidade.
+Bruno fez um trilho de gelo com três curvas e uma descida. Gostou tanto do resultado que soltou o ovo antes de Beatriz terminar de falar.
 
 — Se eu esquentar um pouco a curva, ele freia — sugeriu Beatriz.
 
@@ -74,7 +78,15 @@ O ovo disparou, passou pelo pano e apitou contra a parede. Ao mesmo tempo, o ovo
 
 — De novo — disse Velho-Sábio.
 
-Dessa vez, Bruno aguardou Beatriz aquecer uma curva do trilho. O ovo deslizou até o pano e parou, intacto. O de Breno e Banjo apitou outra vez.
+Dessa vez, Bruno aguardou Beatriz aquecer uma curva do trilho. O ovo deslizou até o pano e parou, intacto.
+
+Banjo apontou uma passagem entre os vasos, mais larga que a escolhida por Breno.
+
+— Por ali não bate — sugeriu.
+
+— É mais comprido. Segue o caminho que eu marquei — respondeu Breno.
+
+Banjo tentou abaixar o ovo, mas uma cadeira entrou no caminho. Ergueu-o para escapar, e o cristal apitou contra o teto outra vez.
 
 — A dupla de Bruno e Beatriz venceu. A outra leva as tigelas.
 
@@ -82,29 +94,33 @@ Dessa vez, Bruno aguardou Beatriz aquecer uma curva do trilho. O ovo deslizou at
 
 — Não ia — respondeu Beatriz.
 
-Breno começou a explicar que Banjo desobedecera ao trajeto, mas o mais novo se adiantou:
+Breno apontou para a marca no teto, irritado com o caminho que Banjo escolhera, mas o mais novo se adiantou:
 
-— Eu achei que por cima era melhor. Pode deixar que eu levo as tigelas.
+— Eu falei que tinha outro caminho — murmurou Banjo, olhando para as tigelas.
+
+— E eu falei pra manter o ovo baixo — respondeu Breno.
+
+— Então a gente leva junto — disse Banjo, pegando a primeira tigela antes que a discussão continuasse.
 
 Na terceira semana, Velho-Sábio pôs os quatro em quadrados de giz. Um minuto de magia, dois de descanso. Breno em metal; Banjo, com cinco seixos no ar; Beatriz, com uma chama minúscula no polegar; Bruno, sustentando uma parede de gelo.
 
 — Quando o sino tocar, vocês param. Mesmo que consigam continuar.
 
-A parede de Bruno resistiu às primeiras rodadas. Na quarta, ganhou um veio escuro no meio. O sino tocou, mas ele manteve as mãos erguidas.
+— E se eu estiver quase conseguindo? — perguntou Bruno.
 
-Uma pressão atingiu o centro do peito, exatamente onde a lâmina de sombra de Saliens o atravessara no ano anterior. A parede rachou e caiu em placas. Bruno sentou no chão com a palma espalmada sobre o osso e o ar preso entre os dentes. Quando a dor passou, deixou um peso morno.
+— Sobretudo se estiver quase conseguindo — respondeu Velho-Sábio.
+
+A parede de Bruno resistiu às primeiras rodadas. Na quarta, apareceu um veio escuro. O sino tocou, mas ele manteve as mãos erguidas.
+
+Uma pressão atingiu o centro do peito, no lugar da antiga ferida de Saliens. A parede rachou e caiu em placas. Bruno caiu sentado, apertando a camisa contra o peito. Ficou alguns segundos sem conseguir respirar direito. Tinha ouvido o sino. Podia ter largado a parede naquele instante, mas quis mantê-la em pé só mais um pouco. Quando a pontada passou, ainda sentia um calor estranho por dentro.
 
 Breno correu até ele.
 
-— O que aconteceu?
+— Está pálido, Bruno. O que aconteceu?
 
-— Gelo caiu, Breno. Gravidade, aquela coisa que você devia conhecer, já que vive atravessando parede.
+— A parede caiu, pô. Você viu. É a luz daqui.
 
-— Está pálido.
-
-— Meu charme natural.
-
-Velho-Sábio os chamou para beber água. Bruno passou o resto da aula levantando uma barreira baixa, da altura de um armário. Ninguém reclamou.
+Velho-Sábio os chamou para beber água. Bruno passou o resto da aula levantando uma barreira baixa, da altura de um armário. Quando o sino tocou de novo, desfez o gelo imediatamente. Olhou de relance para Velho-Sábio. O mago não comentou, e Bruno agradeceu por isso.
 
 Na túbula de volta, Breno ficou um tempo olhando para a janela antes de falar.
 
@@ -116,9 +132,9 @@ Na túbula de volta, Breno ficou um tempo olhando para a janela antes de falar.
 
 — De verdade. Eu até ensaio a cara.
 
-Breno não perguntou mais. Bruno mentiu com a melhor cara que tinha, e achou, pelo menos, que mentira bem.
+Breno não perguntou mais. Bruno virou o rosto para a janela. A dor já tinha passado, e ele preferiu deixar o assunto morrer ali.
 
-A quarta prova não tinha magia nenhuma. Era numa sala do porão do Arcano, sem janelas, com uma lamparina no teto e uma porta fechada.
+Em outra aula, Velho-Sábio os levou a uma sala do porão do Arcano. Não havia janelas, apenas uma lamparina no teto e uma porta fechada. Dessa vez, ninguém poderia usar magia.
 
 — Vocês têm dez minutos para sair daqui — disse Velho-Sábio, junto à porta. — Sem magia. Regras: observem antes de agir. Não toquem o que não conhecem. Podem pedir ajuda se acharem que precisam.
 
@@ -134,7 +150,7 @@ A quarta prova não tinha magia nenhuma. Era numa sala do porão do Arcano, sem 
 
 — Então a resposta é que não toquem. — Velho-Sábio fechou a porta atrás de si, e o trinco girou com um estalo seco.
 
-A sala tinha uma mesa de pedra, duas cadeiras sem encosto, um tapete circular e, na parede dos fundos, uma alavanca de latão com um cabo em forma de pássaro. Breno foi direto para o tapete. Beatriz começou a olhar o teto, os cantos e as frestas, devagar, falando baixinho com ela mesma. Banjo se sentou no chão.
+A sala tinha uma mesa de pedra, duas cadeiras, um tapete circular e uma alavanca com cabo em forma de pássaro. Breno examinou o tapete; Beatriz, as frestas. Banjo se sentou no chão.
 
 — O tapete está torto — disse Beatriz.
 
@@ -144,7 +160,7 @@ A sala tinha uma mesa de pedra, duas cadeiras sem encosto, um tapete circular e,
 
 — Ou arrastou alguma coisa.
 
-Bruno ficou olhando a alavanca por quase um minuto. Era uma alavanca muito simpática. Tinha o pássaro, o latão brilhante, e uma marca de dedos gastos no cabo, de gente que já tinha puxado muitas vezes.
+Bruno se aproximou da alavanca. O cabo de latão tinha a forma de um pássaro e estava gasto nas bordas. Alguém já a puxara muitas vezes.
 
 — Eu acho que é só uma alavanca — disse ele.
 
@@ -152,7 +168,7 @@ Bruno ficou olhando a alavanca por quase um minuto. Era uma alavanca muito simp�
 
 — Uma alavanca. Todo mundo sabe o que é uma alavanca.
 
-Puxou. O pássaro estalou, a parede inteira se encheu de uma música de feira, com sinos, tambores e uma voz de apito que cantava sem palavras, e uma série de bandeirinhas de papel desceu do teto, balançando. A porta continuou fechada. Banjo, no chão, tapou os ouvidos e olhou para Bruno com um carinho infinito.
+Puxou. O pássaro estalou, a parede inteira se encheu de uma música de feira, com sinos, tambores e uma voz de apito que cantava sem palavras, e uma série de bandeirinhas de papel desceu do teto, balançando. A porta continuou fechada. Banjo tapou os ouvidos e lançou a Bruno um olhar indignado.
 
 — Eu só queria ter certeza — disse Bruno.
 
@@ -162,7 +178,7 @@ A porta abriu uma fresta. Velho-Sábio olhou para dentro, e a música continuava
 
 — Pode — respondeu Velho-Sábio, sem tirar os olhos da música.
 
-— Então me diz o que o senhor faria no meu lugar. Com essa porta, esse barulho todo e esse pássaro de latão.
+— A gente não achou a saída. Pode dar uma dica, por favor?
 
 — Olharia o chão. Eu sempre olho o chão primeiro nesta sala, antes de brigar com a parede.
 
@@ -172,33 +188,39 @@ Banjo olhou o chão, o tapete, a poeira nas bordas, e achou riscos de arrasto se
 
 — Mas era uma boa ideia — disse Bruno, ainda com as bandeirinhas no cabelo. — Eu estava pensando na alavanca desde que vi o pássaro, e todo mundo faz alavanca em sala de truque. Só errei de porta.
 
-— Era uma ótima ideia. Só que ideia não é pergunta, Bruno, e você passou nove minutos sem fazer nenhuma.
+— Se tivessem pedido a dica antes, não precisavam ouvir essa música toda — respondeu o mentor, tirando uma bandeirinha do cabelo de Bruno.
 
-O jardim de Brisália estava quieto quando Bruno desceu, depois da meia-noite, para beber água. Nem a lamparina do corredor mudava de cor, e Átila dormia no tapete da sala com uma pata sobre o focinho. A porta dos fundos estava encostada, e pela fresta ele viu duas luzes baixas no fim do jardim, perto do muro de flores fechadas. Parou com o copo na mão.
+Bruno sacudiu o resto das bandeirinhas.
+
+— Mas quem ia querer perder um show desses?
+
+— Meus ouvidos — respondeu Banjo.
+
+Depois da meia-noite, Bruno desceu para beber água. O jardim de Brisália estava quieto, a lamparina do corredor já não mudava de cor e Átila dormia com uma pata sobre o focinho. A porta dos fundos estava encostada, e pela fresta ele viu duas luzes baixas no fim do jardim, perto do muro de flores fechadas. Parou com o copo na mão.
 
 Velho-Sábio estava sentado num banquinho, com o suporte de lanternas ao lado. Beatriz, de pijama, descalça, segurava a primeira lanterna com as duas mãos.
 
-— Eu só queria acender as lanternas, sabe? — dizia ela, baixinho, mexendo os dedos do pé na grama. — Elas ficaram apagadas a semana toda, e o senhor sempre acende sozinho, com a perna ruim, e fica uma hora no banquinho. Eu pensei, eu ajudo, de noite, de pijama, ninguém vai ver, é só uma brasinha.
+— Eu ia acender as lanternas pro senhor — dizia Beatriz, mexendo os dedos dos pés na grama. — Vi que estavam apagadas, e achei que podia ajudar. Mas fiquei aqui um tempão e não fiz nada.
 
 — E aí? — perguntou Velho-Sábio, sem pressa.
 
 — E aí eu cheguei perto e fiquei com medo. Medo mesmo, de a lanterna virar uma bola de fogo e queimar o jardim inteiro, igual aconteceu com o Banjo. Então eu não acendi.
 
-— Eu vi pela janela, faz uma hora que você anda por aqui. — Velho-Sábio ajeitou uma lanterna que já estava reta. — Ficar com medo foi uma boa razão para parar. Se você tivesse acendido com a mão tremendo, a conversa agora seria outra, e provavelmente com o jardim pegando fogo.
+— Vi você daqui de dentro. — Velho-Sábio ajeitou uma lanterna no suporte. — Se estava com medo, fez bem em não insistir sozinha.
 
 — O Banjo ficou sem sobrancelha, o senhor viu? Ele disse que não doeu, mas ele não sabe mentir, eu vi a cara dele na hora. E passou o dia de franja, pra esconder.
 
-— Ficou com a sobrancelha pela metade, e já está voltando. A do lado direito, que é a que ele mais usa para ficar surpreso, voltou primeiro.
+— Ainda bem que ele tem duas. Passou o dia inteiro olhando no espelho e penteando a franja pra frente.
 
 Ela riu pelo nariz, de um jeito pequeno, e o riso passou. Bruno ficou parado atrás da porta, com o copo. Sabia que devia subir. Não subiu.
 
 — Eu não queria dar fogo nele, de verdade — disse Beatriz. — Eu estava só olhando a vela, só olhando, e de repente estavam as três acesas, e a do meio tinha ficado enorme, e ele tinha chegado perto pra ver, e eu nem...
 
-— Eu sei que não queria — disse Velho-Sábio. — Você tinha o anel na mão e não deu tempo de apertar. O Banjo também sabe, tanto que na manhã seguinte só queria saber se podia brincar de novo.
+— Eu sei, Beatriz. O Banjo também sabe. Ontem ele veio me perguntar quando vocês iam treinar juntos outra vez.
 
 — Eu aperto o anel e ele para. Mas eu não sei se é o anel que me segura ou se sou eu. Se eu tirar, será que o fogo fica do mesmo tamanho? Ou fica maior? Eu penso nisso toda noite, deitada, e aí eu não durmo, e aí eu sonho com a vela.
 
-— Eu não vou pedir que você tire — respondeu Velho-Sábio, sem pressa. — Nem agora, nem antes de você querer. O anel é seu, e ficou bem em você desde o primeiro dia. Quando quiser descobrir o que acontece sem ele, a gente descobre junto, de dia, com água por perto e o Banjo longe.
+— Você não precisa tirar o anel hoje. Se quiser experimentar sem ele, fazemos isso durante o treino, comigo por perto e com água à mão. E sem o Banjo enfiando o rosto nas velas.
 
 Beatriz olhou para a mão.
 
@@ -208,21 +230,19 @@ Beatriz olhou para a mão.
 
 — Pode, eu estou sem sono mesmo.
 
-— Lembra do pilar do Ferris?
+— Lembra do pilar do Ferris, no último desafio?
 
-Beatriz demorou.
+— Lembro. Eu achei que ia cair com aquele vento.
 
-— Do último desafio? Eu lembro que o vento estava forte e que eu achei que ia cair.
-
-— Ele estava no alto, longe de todos, com o vento a favor e o Garras de Ferro ganhando. Você estava num pilar baixo, muito cansada, com medo de que o fogo escapasse, e eu disse que aceitasse que ele era seu. Lembra o que você fez depois?
+— Você estava cansada e com medo de deixar a chama escapar. Mesmo assim conseguiu alcançar o pilar dele. Como fez?
 
 — Eu lembro. Eu... — Ela parou, e a voz mudou, ficou mais devagar. — Eu fiz um bracelete, de fogo. Dei uma volta inteira no pilar dele, que era alto e estreito, e a chama voltou pra mim sem queimar o Ferris. Nem eu sabia que dava pra fazer aquilo.
 
-— Uma volta inteira — repetiu Velho-Sábio. — Em redor de um garoto, com um estádio assistindo e uma ventania tentando apagar, e a chama voltou inteira até a sua mão. Eu estava na arquibancada, Beatriz, e achei que o meu coração fosse sair pela boca.
+— E ela voltou sem atingir ninguém — lembrou Velho-Sábio. — Eu vi da arquibancada.
 
 — Voltou — disse ela, baixinho. — Mas foi no meio do jogo, tinha o Garras de Ferro e a pressa, e agora é de noite e tem só eu e a lanterna.
 
-— Foi o mesmo fogo que apareceu na vela, Beatriz. Só que no pilar você estava cansada demais para ter medo dele.
+— Era o seu fogo, Beatriz. O mesmo que você está tentando controlar agora.
 
 Beatriz ficou calada. Bruno viu os ombros dela descerem um pouco, devagar.
 
@@ -232,7 +252,7 @@ Beatriz ficou calada. Bruno viu os ombros dela descerem um pouco, devagar.
 
 Ela ergueu a lanterna na altura do rosto, com cuidado, e a mão direita se abriu sobre o vidro. Ficou assim por um tempo comprido. Bruno ouviu um estalo, miúdo, e a primeira lanterna acendeu, uma brasa dourada, firme, sem sair do vidro. A luz iluminou o rosto de Beatriz por baixo, e ela abriu a boca sem falar nada.
 
-— Obrigado — disse Velho-Sábio. — A perna dói menos quando alguém acende no meu lugar.
+— Obrigado, pequena. Vou deixar essa lanterna por sua conta, então.
 
 — Eu consegui! — sussurrou Beatriz, com a voz fina de tanta alegria. — O senhor viu? Eu não apertei o anel, nem nada. Ela acendeu e ficou assim, quietinha.
 
@@ -242,7 +262,7 @@ Bruno deixou o copo na pia sem beber e subiu a escada devagar, pisando nas borda
 
 No domingo, Velho-Sábio proibiu o Arcano até as nove da manhã de segunda.
 
-— Descanso também é treino — disse, quando Breno abriu a boca. — Quem aparecer lá antes do horário carrega as tigelas por uma semana.
+— Nem pense em me pedir outra aula, Breno — avisou Velho-Sábio. — Quem aparecer no Arcano antes de segunda leva as tigelas por uma semana.
 
 — Mas ainda tem a sala do ovo, e eu queria ver se dá pra fazer a porta sozinho, sem o Banjo — começou Breno, e a voz foi baixando.
 
@@ -252,7 +272,7 @@ No domingo, Velho-Sábio proibiu o Arcano até as nove da manhã de segunda.
 
 — Registrado — disse Velho-Sábio. — Em letra bem pequena.
 
-Amadou tinha combinado tudo três dias antes, num bilhete mandado pelo canal de recados do Arcano, uma tela de vidro onde as letras apareciam tortas. O bilhete dizia domingo, Tayo Sul, gímiga de rua, e pedia que trouxessem Banjo para ser Zerak. Beatriz decidiu ficar. Tinha prometido a Kali que ajudaria a trocar as lâmpadas do corredor, e a lanterna do jardim agora era dela, numa promessa que ainda não tinha feito em voz alta. Foi à porta com Farol no ombro, enrolado no pescoço dela, e acenou.
+Amadou tinha combinado tudo três dias antes, num bilhete mandado pelo canal de recados do Arcano, uma tela de vidro onde as letras apareciam tortas. O bilhete dizia domingo, Tayo Sul, gímiga de rua, e pedia que trouxessem Banjo para ser Zerak. Beatriz decidiu ficar. Havia prometido ajudar a verificar as novas lâmpadas do corredor enquanto Kali testava o sistema de luzes. Também queria cuidar da lanterna do jardim, que Velho-Sábio lhe confiara. Foi à porta com Farol no ombro, enrolado no pescoço dela, e acenou.
 
 — Bruno, não congela ninguém — pediu ela, da porta. — Nem o Amadou, nem o Denis, nem quem passar na rua com sorvete, que você tem fama.
 
@@ -264,15 +284,15 @@ Foram de túbula, os três, numa cabine que cheirava a metal quente. Tayo Sul, d
 
 Atrás do estádio, num terreno entre o muro de um bar e uma fileira de barris de água, havia um campo de gímiga de treino. Era pequeno, de grama gasta, com dois círculos de giz nas pontas e uma arquibancada de três degraus. Amadou e Denis já esperavam, sentados na grade, com uma Marqe de borracha rodando na mão de Denis.
 
-— Atrasados! — Amadou pulou da grade e abriu os braços, como quem recebe uma multidão. — Eu já ia começar sem vocês. Marquei meia hora de tolerância e vocês gastaram quarenta minutos, e olha que eu fui generoso, porque o Denis acha que quem chega atrasado devia pagar o suco.
+— Finalmente! — Amadou pulou da grade. — Eu já estava aqui há quarenta minutos. O Denis queria ir embora. E se não começarmos logo, ele vai querer que vocês paguem o suco.
 
-— Começar com quem? — perguntou Breno, olhando em volta. Só havia Denis, sentado de sandália na ponta da grade. — Com ele?
+— Ué, só vieram vocês dois? — perguntou Bruno, olhando para Denis, sentado de sandália na grade.
 
-— Com ele. Eu estava me preparando, ensaiando as jogadas, que na gímiga de rua é assim que a gente vence, na ideia.
+— O resto não apareceu, mas a gente treinou uns passes. — Amadou ajeitou a Marqe no círculo de giz.
 
-— Isso é jogar sozinho — disse Bruno. — Com uma testemunha.
+— Com o Denis? Isso não é treino, é aquecimento.
 
-— É jogar acompanhado de uma testemunha, que é diferente. — Amadou ajeitou a Marqe no círculo de giz. — Primeira regra. Se a bola bater na grade, vale ponto.
+— Reclama depois de perder. Primeira regra: bola na grade vale ponto.
 
 — Desde quando? — perguntou Breno. — No estádio, bater na grade é falta.
 
@@ -282,51 +302,59 @@ Atrás do estádio, num terreno entre o muro de um bar e uma fileira de barris d
 
 — Isso é injusto! — gritou Amadou. — Você nem sabe quanto custa o suco aqui!
 
-— É gímiga, Amadou — disse Denis, do alto da grade, que não tinha falado até então e falou como quem dá o veredito.
+— A regra foi inventada faz cinco minutos — comentou Denis, ainda sentado na grade.
 
-Uma mulher que estendia roupa numa janela do outro lado da rua olhou para a pista de gelo que Bruno tinha começado a fazer, chamou o filho pequeno que espiava pela grade e fechou os dois lá dentro, com a janela e tudo. Ninguém no campo comentou. Banjo reparou, e reparou também que Amadou deu uma risadinha curta, de quem já conhecia aquele gesto e não queria falar sobre ele.
+Uma mulher que estendia roupa numa janela do outro lado da rua olhou para a pista de gelo que Bruno tinha começado a fazer, chamou o filho pequeno que espiava pela grade e fechou a janela com força.
 
-Dividiram em dois contra dois, e Banjo ficou de Zerak dos dois lados, o que era mais justo e muito mais cansativo. O jogo era feio. As regras de gímiga de rua tinham sido inventadas pelos próprios jogadores, e mudavam conforme alguém perdia. Bruno e Breno jogavam juntos, o que significava que Breno corria e Bruno dava ordens, e que Amadou e Denis aproveitavam a briga para roubar a Marqe. Bruno fez gelo no chão, uma pista curta e escorregadia, e Denis atravessou a pista de joelhos, com a cara de quem aceita um destino.
+— Ela faz isso toda vez? — perguntou Banjo.
+
+Amadou fingiu procurar a Marqe com os olhos.
+
+— Quando vê gelo por aqui, faz. Bora jogar.
+
+Banjo ainda olhou para a janela fechada antes de voltar ao campo.
+
+Dividiram em dois contra dois, e Banjo ficou de Zerak dos dois lados, o que era mais justo e muito mais cansativo. O jogo era feio. As regras de gímiga de rua tinham sido inventadas pelos próprios jogadores, e mudavam conforme alguém perdia. Bruno e Breno jogavam juntos. Breno tentava organizar a defesa, e Bruno abandonava a posição a cada oportunidade de atacar. Amadou e Denis se aproveitavam da discussão para roubar a Marqe. Bruno fez gelo no chão, uma pista curta e escorregadia, e Denis atravessou a pista de joelhos, com a cara de quem aceita um destino.
 
 Na outra metade do campo, perto dos barris, outro treino acontecia.
 
 Bruno só reparou depois de uns dez minutos, quando Denis parou ao lado dele, com as mãos nos joelhos, e apontou o queixo para lá.
 
-— O Ferris vem toda manhã. Desde que o pai dele sumiu, não perde um dia.
+— O Ferris vem toda manhã. Desde que o pai dele sumiu, não perde um dia. Diz que precisa conseguir atravessar qualquer lugar, mesmo que esteja cansado.
 
 — E ela?
 
 — A Brenda? Vem junto. Segura os barris para ele atravessar. — Denis cuspiu na grama. — Ninguém manda ele parar. Eu mandaria, mas tenho medo.
 
-Bruno olhou. Eram duas pessoas, e uma delas era Ferris, de capacete debaixo do braço, correndo sem parar de um lado a outro, sumindo num clarão e reaparecendo mais adiante, sem uma palavra. A outra, parada junto aos barris, desenhava no ar com um fio de água. Brenda estava de cabelo preso, camiseta cinza e uma expressão concentrada, e a corrente que saía dos dedos dela se dobrava em laços, em arcos, em redes, e Ferris atravessava cada uma com um passo luminoso, e ela fazia o próximo mais apertado.
+Bruno seguiu o olhar de Denis. Ferris, de capacete debaixo do braço, corria sem parar de um lado a outro, sumindo num clarão e reaparecendo mais adiante, sem uma palavra. A outra, parada junto aos barris, desenhava no ar com um fio de água. Brenda estava de cabelo preso, camiseta cinza e uma expressão concentrada, e a corrente que saía dos dedos dela se dobrava em laços, em arcos, em redes, e Ferris atravessava cada uma com um passo luminoso, e ela fazia o próximo mais apertado.
 
-Estavam ali há horas. Dava para ver pelo chão molhado e pelo jeito do corpo de Ferris, que corria como quem tem prazo. Bruno olhou para ele um instante a mais do que devia e depois olhou para ela, e perdeu a Marqe.
+O chão encharcado denunciava horas de treino. Ferris tropeçou ao atravessar mais um laço de água, mas voltou para tentar outra vez. Bruno demorou demais a olhar de Ferris para Brenda e perdeu a Marqe.
 
 — Bruno! — gritou Amadou. — A água está na outra metade do campo! A bola está aqui, ó, a bola!
 
-— Eu estava olhando o... pássaro. — Bruno apontou para o fundo do campo com a mão que sobrava. — Tinha um pássaro enorme ali, bem em cima daquele negócio.
+— Pô, eu me distraí um segundo! — Bruno apontou para o outro lado do campo. — Tinha uma coisa voando ali.
 
-— Que pássaro? Aquilo é um barril, Bruno. Um barril de água. E você nem viu a bola passar, e olha que ela passou duas vezes na sua cara.
+— Um pássaro? Bruno, aquilo é um barril! — Amadou apontou para a Marqe. — Enquanto você olha pros barris, a gente faz ponto.
 
 Breno, no meio do campo, reprimiu um sorriso e pegou a Marqe quase de olhos fechados. Saiu correndo, driblou Denis, e chutou, forte, num arco alto, que passou por cima de todos e foi para o outro lado do muro do bar. Houve um silêncio, e depois um barulho de vidro rolando.
 
-— Eu busco — disse Breno, enxugando a testa com o antebraço, como quem avisa que vai ao banheiro. — Não faz sentido dar a volta no quarteirão por causa de uma bola.
+— Eu busco. — Breno limpou a testa com o antebraço. — É mais rápido atravessar o muro.
 
 — A porta do bar é do outro lado do quarteirão, Breno — disse Denis. — E o dono do bar odeia a gente. Jurou que a próxima bola que entrasse lá dentro viraria peso de papel.
 
 — Eu sei que é do outro lado — respondeu Breno, e andou na direção do muro.
 
-Chegou ao muro, estendeu o braço e a mão sumiu na pedra. A pedra cedeu sem um ruído. O braço entrou até o cotovelo, e ele ficou em pé, com o ombro colado na parede e o rosto concentrado, tateando do outro lado. Do outro lado do muro alguém gritou.
+Chegou ao muro, estendeu o braço e a mão sumiu na pedra. A pedra cedeu sem um ruído. Ele enfiou o braço até o cotovelo e ficou tateando atrás da bola, com o ombro colado à parede. De repente, alguém gritou do outro lado.
 
 — Tem uma mão! Tem uma mão saindo da parede!
 
-— Desculpe! — gritou Breno, sem se virar. — Só vim buscar a bola!
+— Desculpa! — gritou Breno, já tateando atrás da bola. — Não sabia que tinha alguém aí!
 
 — Uma mão falando!
 
 Ouviu-se o barulho metálico de uma bandeja acertando alguma coisa, e Breno retirou o braço de uma vez, com a Marqe na mão e uma marca vermelha no pulso, no formato de uma bandeja. Bruno estava caído de rir. Banjo se apoiara no poste do gol. Amadou, de joelhos, batia no chão com a palma aberta.
 
-Na metade do campo, junto aos barris, Brenda também ria. Tinha largado o fio de água, que caiu em poça, e escondia a boca com o dorso da mão, com o ombro balançando. Bruno viu e riu um pouco mais alto, sem saber por quê. Ela levantou os olhos, achou os dele, e Bruno ergueu a Marqe na altura do rosto, como quem brinda. Brenda balançou a cabeça devagar, para um lado e para o outro, com o canto da boca fugindo para cima.
+Na metade do campo, junto aos barris, Brenda também ria. Tinha largado o fio de água, que caiu em poça, e escondia a boca com o dorso da mão, com o ombro balançando. Bruno riu também. Brenda encontrou seu olhar, e ele ergueu a Marqe num brinde. Ela balançou a cabeça, tentando segurar o sorriso.
 
 Foi nesse momento que o portão lateral do campo se abriu.
 
@@ -342,7 +370,7 @@ O garoto que entrou era alto, de cabelo ondulado e jaqueta azul-escura, e andava
 
 Dário dobrou o envelope ao meio, com uma só mão, e o guardou por dentro da jaqueta, e a mão voltou vazia. Brenda abriu a boca para perguntar mais alguma coisa, e ele se inclinou e a beijou. Ela pousou os dedos na lapela da jaqueta, e a poça de água aos pés dos dois tremeu de leve.
 
-Bruno ficou olhando. Sabia que devia olhar para outra coisa e não sabia como. O frio subiu pelo braço sem ser chamado, passou pelo punho, pegou a Marqe que ele segurava, e a borracha amarela cobriu-se de geada com um estalo. Do chão, uma placa de gelo cresceu em torno dos pés de Denis, e Denis escorregou em linha reta, com os braços abertos, até acertar o peito de Amadou. Os dois caíram juntos.
+Bruno parou com a Marqe na mão. Brenda estava beijando Dário, e ele não conseguia desviar os olhos. O frio subiu pelo braço sem ser chamado, passou pelo punho, pegou a Marqe que ele segurava, e a borracha amarela cobriu-se de geada com um estalo. Do chão, uma placa de gelo cresceu em torno dos pés de Denis, e Denis escorregou em linha reta, com os braços abertos, até acertar o peito de Amadou. Os dois caíram juntos.
 
 — Ei! — gritou Denis.
 
@@ -354,22 +382,26 @@ Bruno ficou olhando. Sabia que devia olhar para outra coisa e não sabia como. O
 
 — Com a Brenda — repetiu Bruno.
 
-Dário se afastou de Brenda um passo, olhou em volta, e seus olhos passaram pelo campo, pelos barris, pela Marqe congelada, e pararam em Bruno. Sorriu. Era um sorriso tranquilo, de dentes certos, o tipo de sorriso que não devia nada a ninguém, e não tinha nenhum calor.
+Dário se afastou de Brenda um passo e olhou para Denis, que ainda esfregava o joelho depois do escorregão.
+
+— Se machucou? — perguntou.
+
+— Só meu orgulho — respondeu Denis.
+
+Dário assentiu. Depois olhou para a Marqe congelada nas mãos de Bruno e sorriu de canto antes de voltar a atenção para Brenda.
 
 — Olha o sorriso — cochichou Amadou. — Eu falei.
 
-Bruno riu. Riu alto, de verdade, com a cabeça jogada para trás, e deu um tapa no ombro de Amadou como quem concorda com uma piada excelente.
+Bruno riu alto e deu um tapa no ombro de Amadou. Nem prestara atenção à pergunta de Dário a Denis; só vira aquele sorriso.
 
 — Você tinha razão — disse. — É um sorriso péssimo.
 
-— Péssimo!
+— Eu avisei — repetiu Amadou, satisfeito.
 
-— Horrível.
-
-Breno olhou para ele um segundo a mais do que o riso pedia, e Bruno desviou o rosto. Do outro lado do campo, Ferris tinha parado de correr e esperava de capacete na mão, olhando para os barris. Dário deu o braço a Brenda e foi com ela para as arquibancadas, com a jaqueta azul-escura brilhando ao sol, e o envelope, dentro dela, fazia um pequeno volume do lado do coração.
+Breno olhou para ele um segundo a mais do que o riso pedia. Bruno desviou o rosto e apertou a bola fria. Do outro lado do campo, Ferris tinha parado de correr e esperava de capacete na mão, olhando para os barris. Dário deu o braço a Brenda e foi com ela para as arquibancadas, com a jaqueta azul-escura brilhando ao sol, e o envelope, dentro dela, fazia um pequeno volume do lado do coração.
 
 Bruno limpou a mão na camiseta, ainda gelada, e pegou a Marqe do chão.
 
 — Vamos jogar — disse. — Eu começo.
 
-Decidiu naquele instante, com o frio ainda nos dedos e a risada ainda na garganta, que não ia gostar de Dário Vanterre. Motivos, Amadou tinha cinco.
+A bola ainda estava fria. Bruno apertou-a entre as mãos e olhou uma última vez para Dário. Cinco motivos, Amadou havia dito. Agora ele próprio já tinha encontrado um sexto.

@@ -288,7 +288,7 @@ Escrevi sobre a casa, sobre os Elos, sobre o medo de perder minha mãe. Escrevi 
 
 Na última página, escrevi o que aconteceu naquela noite. Não tirei meu nome de nenhuma parte. Depois fiquei olhando para a folha, esperando sentir que alguma coisa tinha terminado.
 
-Não senti.
+Não senti. Eu sabia o que Agouro tinha feito comigo, mas ainda não entendia por que me escolhera. Por que eu?
 
 Fechei o caderno. Passei os dedos pelas duas palavras que havia escrito na capa: *Diário Sobrenatural*.
 

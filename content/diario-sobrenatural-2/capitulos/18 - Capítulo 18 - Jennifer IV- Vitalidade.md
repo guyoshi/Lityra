@@ -62,6 +62,8 @@ A Sra. Olívia finalmente se virou. Baixou a voz até onde a gente é obrigada a
 
 — Que você tem que tomar cuidado com o que é. — Ela mancou até o fogão de lenha. — Venha. Vamos tomar um chá antes que o dia esfrie.
 
+Enquanto ela procurava as xícaras, reparei numa pasta aberta sobre uma prateleira, meio escondida entre os livros de receitas. Havia um folheto de quimioterapia e uma folha de consultas com datas marcadas a lápis. A Sra. Olívia guardou a pasta no armário sem dizer nada. Também não perguntei.
+
 Sentei no sofá do salão, onde os panos pretos ainda cobriam os espelhos e o pêndulo marcava um tique-taque que parecia ouvir a gente. Pedro desceu a escada, esfregando os olhos, e sentou ao meu lado.
 
 — Como foi sua noite? Algum pesadelo?

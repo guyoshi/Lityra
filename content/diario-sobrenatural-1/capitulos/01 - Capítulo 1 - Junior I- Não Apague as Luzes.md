@@ -16,7 +16,7 @@ Naquela manhã, acordei cedo, como sempre, e fui direto pro meu velho caderno de
 
 Enquanto rabiscava umas ideias pro que seria o meu próximo “Capítulo 1”, algo chamou minha atenção pela janela.
 
-A casa ao lado, vazia há meses, finalmente tinha novos moradores.
+A casa ao lado estava vazia havia meses. Dona Esther, a antiga moradora, caíra da escada, e os filhos acharam melhor que ela fosse viver perto da família em vez de continuar sozinha. Agora, finalmente, havia gente se mudando para lá.
 
 Um caminhão de mudança branco ocupava a calçada de Vila Velha, com o rádio ligado numa FM tocando KLB ou algo parecido. Um ajudante desceu com uma TV de tubo enorme no ombro, outro vinha atrás com um sofá marrom, e eu, curioso como sempre, larguei o caderno na cama e fui espiar de testa colada no vidro.
 

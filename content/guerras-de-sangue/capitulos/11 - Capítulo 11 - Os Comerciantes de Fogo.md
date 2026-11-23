@@ -1,12 +1,12 @@
 Khar-Tondr não dormia como Kaendar. À noite, as Veias de Barro continuavam vivas sob as casas baixas: crianças recolhidas, velhos junto aos fogos, mulheres raspando gordura, homens carregando carne seca, ossos, pedras de túnel, óleo, morkas torradas e couro. Naquela noite apenas a lua maior atravessava a fumaça.
 
-Lá em cima, junto às muralhas de bambu grosso, barro cozido e troncos enegrecidos de resina, os crânios pendurados batiam uns nos outros quando o vento passava. Tec. Tec. Tec. Dentes conversando no escuro.
+Lá em cima, junto às muralhas de bambu grosso, barro cozido e troncos enegrecidos de resina, os crânios pendurados batiam uns nos outros quando o vento passava. Tec. Tec. Tec.
 
 Os crânios eram aviso para os de fora e memória para os de dentro.
 
 No pátio central, homens e mulheres cercavam uma fogueira baixa usada para luz, tinta, gordura e pedras de cura.
 
-O jovem que atravessou o pátio quase tropeçou ao passar por uma poça de sangue antigo. Não de homem. De varren. Ou talvez de homem e varren juntos, porque em Khar-Tondr as coisas misturavam-se depressa quando chegavam ao chão.
+O jovem que atravessou o pátio desviou de uma poça escura deixada pelo abate de um varren.
 
 Ele tinha a cabeça raspada há pouco tempo. A pele ainda mostrava pequenas irritações onde a lâmina havia passado. Duas linhas negras desciam das sobrancelhas até a mandíbula. Marcas simples. Marcas de alguém que ainda não havia feito o bastante para carregar desenho maior. Mesmo assim, ele caminhou com pressa. Pressa demais. Dois guardas o viram e bateram os cabos das lanças no chão.
 
@@ -28,11 +28,11 @@ O segundo guarda cuspiu no chão.
 
 — Então escolhe melhor como respira.
 
-A porta baixa abriu-se antes que chamassem. Kharvok surgiu curvando o corpo para passar pelo batente, e mesmo assim pareceu grande demais para aquela entrada. Não por altura. Por presença. Ele não tinha nariz.
+A porta baixa abriu-se antes que chamassem. Kharvok surgiu curvando o corpo para passar pelo batente. Era alto, de ombros estreitos, e não tinha nariz.
 
 No lugar do nariz havia uma falha antiga e mal cicatrizada. A Marca da Voz não a escondia: pigmento preto fosco cobria quase todo o rosto em planos de bordas rígidas, interrompidos pela mutilação e pelas aberturas dos olhos. Três cortes mais densos desciam da testa raspada até o pescoço, e a respiração saía áspera pela ferida.
 
-A antiga Voz morrera sob a Lei do Portão. Depois, três candidatos entraram no Círculo da Cabeça Nua e só Kharvok saiu vivo. O segundo adversário arrancara-lhe o nariz. Histórias diziam que Kharvok o matara mordendo-lhe o olho antes da faca. Ninguém sabia se era verdade, mas desde então ele era Voz.
+Dravun, a Voz anterior, morrera sob a Lei do Portão. Depois, três candidatos entraram no Círculo da Cabeça Nua e só Kharvok saiu vivo. O segundo adversário arrancara-lhe o nariz. Histórias diziam que Kharvok o matara mordendo-lhe o olho antes da faca. Ninguém sabia se era verdade, mas desde então ele era Voz.
 
 Quando ele respirava, o som vinha quebrado, úmido, como ar passando por pedra rachada. O garoto baixou a cabeça.
 
@@ -76,7 +76,7 @@ Kharvok caminhou até ele. A cada passo, a roda parecia abrir-se sem que ningué
 
 — Sim, Voz.
 
-O garoto manteve a cabeça baixa, como se ainda esperasse uma lâmina por ter trazido notícia ruim. Mas quem falou em seguida não foi ele. Foi o homem de olhos fundos.
+O garoto manteve a cabeça baixa. Quem falou em seguida foi um homem de olhos fundos, sentado junto à fogueira.
 
 Torgun estava sentado perto da fogueira, magro, com pintura negra em volta dos olhos. Entre os Tondrar, diziam que corria como fome em dia de porta aberta.
 
@@ -310,7 +310,7 @@ Seyra ergueu uma sobrancelha.
 
 A entrada principal de Varkhama não era exatamente um portão. Duas cabras-negras dormiam junto às pedras quentes, tão acostumadas ao ruído do metal que nem ergueram a cabeça para os visitantes. Era uma abertura entre duas pedras altas, reforçada por correntes, placas metálicas e uma fileira de estacas onde pendiam pedaços de armas quebradas. Nas lâminas partidas ainda se viam os sinais de forja de diferentes clãs.
 
-Rendar esperava ali. Dessa vez, não estava na Boca Seca dos Tondrar, cercado por sede e lâminas imóveis. Estava diante de um povo que olhava para ele como se tentasse calcular seu peso, seu preço de revenda, a lâmina escondida e a probabilidade de explodir se fosse maltratado. Tavra foi a primeira a falar.
+Rendar esperava diante das oficinas Vendrar. Os homens observavam o arco, as roupas gastas e a faca à cintura. Tavra foi a primeira a falar.
 
 — Deixe-me adivinhar… Fendelar?
 
@@ -344,7 +344,7 @@ O rosto de Rendar não mudou.
 
 — Cortada.
 
-O ar ficou um pouco menos leve. Mesmo entre Vendrar, certas palavras tinham cinza demais para virarem piada. Seyra olhou melhor para ele.
+Tavra parou de girar a faca. Seyra observou a roupa rasgada de Rendar com mais atenção.
 
 — Cortada?
 
@@ -380,11 +380,11 @@ Houve um breve silêncio, em que alguns ainda riam. Então Vorlan ergueu a mão.
 
 — Deixe-me ver se entendi. Diz que está com os Buldar, mas não é um deles. Veio propor que nos aliemos a vocês para derrotar os Polar? — Esperou que Rendar concordasse com a cabeça. — Antes de transformar tragédia em contrato, deixe-me poupar tempo. Os Polar compram. Bastante. Metal, ferramentas, óleo, mecanismos, fogo quando têm coragem de admitir que precisam dele. Kaendar paga melhor que qualquer outro clã. Por que eu deveria querer derrubar um comprador?
 
-— Porque comprador que cresce demais deixa de comprar.
+— Porque, se Kaendar controlar todas as rotas, também vai controlar quanto paga.
 
 Vorlan sorriu mais.
 
-— Deixa de comprar? Acha que os Polar são capazes de fazer o que fazemos?
+— Acha que os Polar são capazes de fabricar o que fabricamos?
 
 — Não, disso eles não são capazes. Vão agir de outro jeito. Primeiro exigem preço menor. Depois, exclusividade. Mandam guardas proteger as rotas de vocês e dizem que a proteção custa lealdade. Então uma soberana decide que fogo nas mãos erradas é risco para Kaendar.
 
@@ -392,9 +392,9 @@ Seyra ficou imóvel. Tavra parou de girar a faca. Vorlan já ia rir, mas o riso 
 
 Poucas semanas antes, Kaendar pedira mais ferramentas, óleo incendiário, tubos de fogo e peças de cerco, mas exigira preço menor por volume e falara em “proteção de rotas”. Os Vendrar haviam ouvido na proposta a possibilidade de virarem oficina subordinada.
 
-Rendar olhou para as oficinas e continuou.
+Rendar apontou para as oficinas.
 
-— Quando isso acontecer, vocês não serão vendedores de fogo. Serão a oficina externa dos Polar. Uma extensão da soberania deles. Forja com dono. Fogo com correntes.
+— Então trabalharão para Kaendar mesmo quando recusarem uma encomenda. Quem controlar as passagens poderá impedir que vendam a qualquer outro.
 
 Vorlan deu uma gargalhada. Alguns Vendrar próximos riram com ele, mais por reflexo do que por convicção.
 
@@ -423,7 +423,7 @@ Rendar já vira aquele costume antes. Quando um Glydar deixava sua margem por ma
 
 Alguns usavam conchas pequenas ou dentes de peixe como enfeite, mas eram aquelas cordas que Rendar notava primeiro. Longe da água, os Glydar pareciam deslocados, e isso os tornava ainda mais estranhos ali.
 
-À frente deles caminhava Lorde Ossar, da Margem Funda. Era largo de ombros, com cabelo preso por cordas escuras e barba curta salpicada de cinza de viagem. Tinha olhos calmos demais para um homem cercado de fogo. O tipo de calma de quem sabe que o rio nunca precisa gritar para afogar alguém.
+À frente deles caminhava Lorde Ossar, da Margem Funda. Era largo de ombros, com cabelo preso por cordas escuras e barba curta salpicada de cinza da viagem. Diante dos tubos de fogo Vendrar, calculava a distância até as pedras e o espaço livre para recuar.
 
 Os Vendrar calcularam distâncias e puxaram armas.
 
@@ -439,7 +439,7 @@ Rendar ergueu a voz antes que alguém disparasse.
 
 Os Tondrar pararam primeiro. Depois os Buldar. Por último, os Glydar. Não como um exército único. Ainda não. Havia distância entre eles, desconfiança, ódio velho e contas abertas. As lanças Tondrar apontavam um pouco para todos. Os Buldar mantinham formação suficiente para proteger Nynestra de qualquer lado. Os Glydar observavam cada pedra como se procurassem água onde não havia.
 
-Mas estavam ali. Juntos. E isso era mais perigoso do que qualquer carga. Os Vendrar perceberam. Tavra baixou o tubo um dedo.
+Mas os quatro povos estavam ali. Tavra baixou o tubo um dedo quando viu que nenhum deles avançava.
 
 — Pelas cinzas…
 
@@ -467,7 +467,7 @@ Apontou para os Glydar.
 
 Então olhou para os Vendrar.
 
-— E vocês sabem que fogo comprado por soberanas assustadas um dia será usado contra quem ensinou o fogo a obedecer.
+— E vocês já receberam pedidos de desconto e proteção de rotas. O próximo pode vir acompanhado de uma ordem.
 
 Vorlan respirou pelo nariz, tenso, ainda sem conseguir falar. Então Nynestra falou pela primeira vez.
 
@@ -575,7 +575,7 @@ Rendar continuou:
 
 — Vamos cercá-los e esperar que sufoquem. Quando a fome, o medo e o desespero chegarem, eles sairão.
 
-Vorlan olhou ao redor. Tondrar. Buldar. Glydar. Rendar. Cinza. Fogo. Tavra foi a primeira dos três a baixar a arma.
+Vorlan olhou de um grupo a outro. Os Tondrar mantinham as lanças prontas. Buldar e Glydar esperavam a resposta. Tavra foi a primeira dos três a baixar a arma.
 
 — E se Kaendar cair? — perguntou ela.
 
