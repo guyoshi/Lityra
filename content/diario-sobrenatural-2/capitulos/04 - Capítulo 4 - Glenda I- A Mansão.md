@@ -58,11 +58,7 @@ O taxista me olhou pelo retrovisor como se eu tivesse acabado de confessar um cr
 
 Quando desci do táxi e vi a mansão de Diego pela primeira vez, algo em mim recuou. Veio com a clareza seca de um aviso. A ideia de voltar para o Rio veio clara e prática, como uma porta ainda destrancada: eu posso ir embora agora e ninguém vai me impedir.
 
-Só que então eu o vi vindo na minha direção.
-
-Jason.
-
-Óculos escuros, postura de quem tenta parecer mais velho do que é. Eu fiz o cumprimento padrão: um soco leve no braço.
+Só que então eu o vi vindo na minha direção. Jason. Óculos escuros, postura de quem tenta parecer mais velho do que é. Eu fiz o cumprimento padrão: um soco leve no braço.
 
 — Está mais fortinho, olha só. Até parece homem — eu disse.
 
@@ -156,9 +152,7 @@ Examinei o estrago sem pressa.
 
 — Por que eu teria ataque? — disse uma voz atrás de mim, casual como uma mão no ombro e gelada na coluna.
 
-Eu me virei.
-
-Diego estava ali, camisa regata, corpo marcado de treino recente, pele brilhando de suor. O sorriso dele tinha a confiança de quem nunca precisou pedir espaço para existir. Eu nunca confiei em quem nunca precisou pedir.
+Eu me virei. Diego estava ali, camisa regata, corpo marcado de treino recente, pele brilhando de suor. O sorriso dele tinha a confiança de quem nunca precisou pedir espaço para existir. Eu nunca confiei em quem nunca precisou pedir.
 
 — Só achei ruim não terem separado uma taça pra mim, Jason.
 
@@ -236,9 +230,7 @@ O espelho maior já estava debaixo de um lençol claro. Jason tinha cumprido o q
 
 À tarde, Jason fez batatas fritas e filé mignon para almoçarmos, um almoço de “bem-vinda”, desses que servem de fotografia mental. Eu mexi no prato mais do que comi. Jason não reparou. Ou escolheu não reparar.
 
-Às quatro eu tinha compromisso.
-
-Tomei banho, me vesti e avisei que voltaria até as seis. Caminhei dez minutos até a Paper.
+Às quatro eu tinha compromisso. Tomei banho, me vesti e avisei que voltaria até as seis. Caminhei dez minutos até a Paper.
 
 É engraçado andar na rua quando você parece uma celebridade involuntária. Eu tenho poliose congênita e heterocromia: uma mecha do cabelo completamente branca e um olho de cada cor. As pessoas olham duas vezes. Às vezes me confundem com a Cruella. Eu deixo. Estranheza abre espaço.
 
@@ -348,9 +340,7 @@ Eu assenti e deixei um sorriso leve. “Segurança” de novo. A mesma palavra c
 
 No fim, eu não comprei nada. Jason comprou um boné e um casaco. Quando saímos, ele quis almoçar e escolheu um restaurante. E foi ali que o dia resolveu me entregar coincidências demais.
 
-Priscila.
-
-Uma “amiga” de Jason. Trabalhava lá.
+Priscila. Uma “amiga” de Jason. Trabalhava lá.
 
 Eu não conhecia o rosto dela, mas reconheci na hora o tipo de tensão que aparece quando alguém tenta agir normal e falha. O jeito como ele ajustou a postura, como ela segurou o olhar meio segundo a mais do que o necessário, como o nome “Jason” saiu da boca dela com um cuidado que não era casual.
 

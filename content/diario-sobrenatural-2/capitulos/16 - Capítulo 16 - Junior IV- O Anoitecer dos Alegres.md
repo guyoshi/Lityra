@@ -92,9 +92,7 @@ Apaguei a lanterna de imediato. A escuridão ficou total, e achei que seria pior
 
 Ele pegou a lanterna da minha mão e, num movimento lento e calculado, a posicionou apontando para o vidro traseiro do carro. Acendeu. A luz fraca iluminou a área atrás de nós.
 
-E as criaturas reagiram.
-
-Eles se moveram como uma maré atraída por magnetismo, contornos grotescos se deslocando em direção à luz. Ouvi ruídos no teto, no bagageiro, batidas contra o veículo, sem coordenação, só impulso.
+E as criaturas reagiram. Eles se moveram como uma maré atraída por magnetismo, contornos grotescos se deslocando em direção à luz. Ouvi ruídos no teto, no bagageiro, batidas contra o veículo, sem coordenação, só impulso.
 
 — Vamos ter que fugir daqui — Pollux sussurrou. — Enquanto eles estão distraídos.
 
@@ -162,9 +160,7 @@ E então eles vieram.
 
 Não eram dois ou três. Eram dezenas, centenas, surgindo do escuro, correndo de um jeito errado, como se o corpo estivesse sempre um segundo atrás da intenção. A estrada virou um corredor de carne e sombra. O som era um amontoado de pés, ossos, ruídos molhados.
 
-Nós três corremos.
-
-Ouvi Pollux atrás de nós, a respiração pesada, a arma na mão, e tentei não olhar para trás, porque olhar para trás sempre foi o início do fim nas histórias que eu escrevia. Só que aquilo não era história.
+Nós três corremos. Ouvi Pollux atrás de nós, a respiração pesada, a arma na mão, e tentei não olhar para trás, porque olhar para trás sempre foi o início do fim nas histórias que eu escrevia. Só que aquilo não era história.
 
 Uma criatura saltou sobre mim e me derrubou no chão. O impacto tirou o ar dos meus pulmões. Eu ergui os braços instintivamente, e a boca cadavérica, fedida, tentou morder meu rosto. A baba viscosa escorreu e eu senti o estômago virar. Eu segurava os braços dela com força, desesperado, e naquele momento eu pensei numa coisa idiota: eu não vou morrer sendo mastigado.
 
@@ -180,9 +176,7 @@ Outras criaturas surgiam ao redor. O grito foi uma ordem.
 
 Hesitei. Ver Pollux no chão, lutando pela vida, me fez querer virar e ajudar, mas eu já sabia como esse tipo de escolha terminava. Eu já tinha pago o preço de tentar salvar alguém sem ter poder suficiente.
 
-Segurei o braço de Manu e corri.
-
-Corremos pela estrada, o asfalto prestes a virar parede. Criaturas apareciam dos lados, quase nos acertando, e meu corpo reagia com atraso, como se a mente não acompanhasse a velocidade da ameaça.
+Segurei o braço de Manu e a puxei pela estrada, o asfalto prestes a virar parede. Criaturas apareciam dos lados, quase nos acertando, e meu corpo reagia com atraso, como se a mente não acompanhasse a velocidade da ameaça.
 
 Avistei uma placa arqueada adiante, alta, atravessando a estrada. Ergui a lanterna e li.
 

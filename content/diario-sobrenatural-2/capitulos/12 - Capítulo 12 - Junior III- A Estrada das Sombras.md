@@ -8,9 +8,7 @@ De repente senti uma raiva enorme. Não foi crescendo aos poucos. Estava triste 
 
 — CHEGA! — gritei, antes mesmo de perceber que tinha aberto a boca.
 
-Atirei o toca-fitas contra a parede.
-
-O aparelho se partiu. Fiquei olhando os pedaços no chão, assustado com a força que tinha usado. Aquela explosão de raiva parecia vir de um lugar que eu não conhecia. Pensei no Agouro e senti ainda mais raiva por continuar pensando nele.
+Atirei o toca-fitas contra a parede. O aparelho se partiu. Fiquei olhando os pedaços no chão, assustado com a força que tinha usado. Aquela explosão de raiva parecia vir de um lugar que eu não conhecia. Pensei no Agouro e senti ainda mais raiva por continuar pensando nele.
 
 Me agachei para juntar as peças, mas desisti. Peguei a mochila e saí. Se ficasse mais um minuto ali, podia quebrar outra coisa.
 
@@ -38,9 +36,7 @@ Batidas.
 
 Nós não tínhamos costume de receber visitas. A minha mãe trabalhava demais, eu passava o tempo na escola ou escrevendo, e a nossa casa tinha o silêncio de duas pessoas que vivem juntas mas estão cada vez mais longe uma da outra. Batidas na porta não eram “visita”. Eram evento.
 
-Caminhei até a porta e abri.
-
-A menina que eu tinha visto no dia anterior, enquanto voltava do cemitério, estava ali, parada, como se tivesse sido deixada por alguém.
+Caminhei até a porta e abri. A menina que eu tinha visto no dia anterior, enquanto voltava do cemitério, estava ali, parada, como se tivesse sido deixada por alguém.
 
 — Manu — eu disse, e foi estranho reconhecer o nome com tanta facilidade.
 
@@ -52,9 +48,7 @@ Ela arregalou os olhos.
 
 — Eu… acho que estou me lembrando de algumas coisas — disse, levando a mão à cabeça.
 
-Apertou os olhos como se um prego lhe atravessasse a testa. Depois os abriu outra vez.
-
-Ela estava pálida. Suja de estrada. Desgastada.
+Apertou os olhos como se um prego lhe atravessasse a testa. Depois os abriu outra vez. Ela estava pálida. Suja de estrada. Desgastada.
 
 — Está com uma aparência horrível — eu disse, e tentei não soar como acusação. — Quer comer alguma coisa? Beber água?
 
@@ -84,9 +78,7 @@ Eu já sabia que ia fazer alguma coisa idiota.
 
 Levei-a para dentro. Só então reparei que ela estava descalça, e isso tornou tudo mais real e mais errado. Corri até a estante e achei o mapa de municípios e estradas da minha mãe. Abri no sofá e procurei Vila Velha, que de repente parecia pequena demais para conter o que a gente viveu.
 
-Ali estava: Vila Velha.
-
-Agora eu precisava encontrar Alvorada Alegre. Deslizei o dedo pelo papel, para o sul, até um ponto pequeno, quase tímido.
+Ali estava: Vila Velha. Agora eu precisava encontrar Alvorada Alegre. Deslizei o dedo pelo papel, para o sul, até um ponto pequeno, quase tímido.
 
 — Aqui está. Você precisa pegar a estrada sul e só sair dela quando chegar em Mairinque, na segunda saída.
 
@@ -156,13 +148,9 @@ Ela assentiu e calçou. Eu corri até a cozinha e peguei a chave do carro da min
 
 Antes de sair, subi ao quarto e peguei uma mochila pequena. Enfiei nela o diário que tinha começado depois da morte da Kelly. Fazia tempo que eu terminara de contar aqueles dias, mas ainda abria o caderno quando precisava lembrar exatamente do que tinha acontecido. Não sei por que decidi levá-lo para uma viagem que, em teoria, acabaria naquela mesma tarde. Talvez porque a Manu tivesse dito o nome dela.
 
-Saímos.
+Saímos. Parei na porta por um instante, com a chave da minha mãe na mão. Ela chegaria do trabalho, veria o carro desaparecido e encontraria a casa vazia. Ia telefonar para todo mundo. Depois do que acontecera com a Kelly, não suportava nem que eu demorasse a atender quando ligava.
 
-Parei na porta por um instante, com a chave da minha mãe na mão. Ela chegaria do trabalho, veria o carro desaparecido e encontraria a casa vazia. Ia telefonar para todo mundo. Depois do que acontecera com a Kelly, não suportava nem que eu demorasse a atender quando ligava.
-
-Quase voltei para deixar um bilhete. A Manu já estava descendo os degraus, descalça, e eu me convenci de que estaria de volta antes de anoitecer. Era uma desculpa idiota. Só percebi o tamanho da burrice muito depois.
-
-O carro estava ali, silencioso. Destranquei.
+Quase voltei para deixar um bilhete. A Manu já estava descendo os degraus, descalça, e eu me convenci de que estaria de volta antes de anoitecer. Era uma desculpa idiota. Só percebi o tamanho da burrice muito depois. O carro estava ali, silencioso. Destranquei.
 
 — Entra.
 
@@ -232,9 +220,7 @@ Ela parou. Eu entendi a frase não dita.
 
 Eu nunca tinha parado para pensar nele. A ideia sempre foi um ruído distante, e ruídos distantes eram fáceis de ignorar até virarem grito.
 
-Quando chegamos à saída que eu achava ser a correta, desacelerei. Havia uma cerca de frente para a estrada, como bloqueio. Parei no acostamento e desci. Era pequena, mas clara no significado: alguém não queria carros passando.
-
-A Manu desceu atrás de mim.
+Quando chegamos à saída que eu achava ser a correta, desacelerei. Havia uma cerca de frente para a estrada, como bloqueio. Parei no acostamento e desci. Era pequena, mas clara no significado: alguém não queria carros passando. A Manu desceu atrás de mim.
 
 — E agora, passamos? — ela perguntou.
 
@@ -254,9 +240,7 @@ Os campos verdes dominavam a paisagem, plantações de café e arroz. Aos poucos
 
 Seguimos por quase vinte minutos quando vi um homem surgir detrás das árvores e parar bem no meio da estrada, de frente para o carro.
 
-Eu travei.
-
-Pisei no freio com força, perdi a direção por um segundo e o carro deslizou na terra antes de parar. O motor morreu.
+Eu travei. Pisei no freio com força, perdi a direção por um segundo e o carro deslizou na terra antes de parar. O motor morreu.
 
 Era um homem velho. Chapéu de vaqueiro. Barba falha. Roupa simples. Um rosto que carregava tempo e cansaço. A Manu estava tão assustada quanto eu. Eu soltei o cinto com a perna trêmula, puxei a mochila para o ombro e saí do carro.
 
@@ -374,9 +358,7 @@ O velho balançou a cabeça, e havia luto no gesto.
 
 — Não, vocês não o fizeram. Essas sombras vieram de algum lugar, e se o que diz for verdade, o Varkhel é muito mais poderoso do que essas criaturas que rondam a cidade. Poucos teriam força para atraí-las até aqui.
 
-E o som veio.
-
-Um grito forte, distante, se aproximando. Ele cresceu rápido até chegar perto da porta e fazê-la tremer, como se algo estivesse tentando arrombá-la.
+E o som veio. Um grito forte, distante, se aproximando. Ele cresceu rápido até chegar perto da porta e fazê-la tremer, como se algo estivesse tentando arrombá-la.
 
 — O que foi isso? — a Manu perguntou.
 
@@ -486,9 +468,7 @@ Então ouvi estalos perto do meu ouvido. Estalos pequenos, como ossos finos part
 
 Eu virei os olhos para o pequeno espelho na mesa do computador. Eu não conseguia ver muito bem, mas havia algo acima de mim. Algo… pendurado no teto, talvez, ou parado no ar.
 
-Senti um respingar na bochecha. Um. Depois outro. O líquido escorreu pelo rosto e chegou aos lábios. Era viscoso, gelado, como se não tivesse temperatura humana.
-
-Tentei mexer. Nada.
+Senti um respingar na bochecha. Um. Depois outro. O líquido escorreu pelo rosto e chegou aos lábios. Era viscoso, gelado, como se não tivesse temperatura humana. Tentei mexer. Nada.
 
 Então senti mãos no meu rosto, na minha cabeça, apertando. Mãos grandes. Eu quis gritar, mas a boca não abria. O ar não entrava. O corpo não obedecia. E eu tive a certeza desesperadora de que aquele era o tipo de morte que ninguém encontra.
 

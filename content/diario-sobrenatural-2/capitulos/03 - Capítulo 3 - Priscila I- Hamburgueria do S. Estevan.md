@@ -56,9 +56,7 @@ Foi aí que eu vi os outros dois de verdade.
 
 O pai dele era alto, magro, cabelo comprido preso. Usava um terno muito bonito e caro e um relógio prateado. O tipo de homem que parece relaxado e consegue. Ele tinha aquele ar de quem nunca se apressa e nunca se desculpa. Eu conhecia Jason da escola e do baile, mas praticamente nada da vida dele fora dali. Nunca tinha conhecido o pai. Olhei outra vez para aquele relógio, depois para Jason, tentando entender como nunca tinha reparado que havia tanto sobre ele que eu não sabia. E a garota era mais baixa que Jason, com uma aparência bizarra: um olho verde, o outro castanho, uma mecha branca no cabelo como assinatura. O que me prendeu foi o olhar.
 
-Ela me observava como se eu fosse um osso de frango que deveria ser descartado.
-
-Eu conhecia o tipo. 
+Ela me observava como se eu fosse um osso de frango que deveria ser descartado. Eu conhecia o tipo. 
 
 — Diego Tavolieri — o homem disse, pegando minha mão e se inclinando como se eu fosse uma princesa num castelo, não uma garota com cheiro de cebola e gordura no cabelo.
 
@@ -96,13 +94,7 @@ Fui até a porta da cozinha e o senhor Estevan me recebeu com a cara clássica d
 
 Assenti e voltei, mas meus olhos traíram um segundo a mais em Jason. Ele olhou de volta, e tive a sensação idiota de que ele ainda me via do jeito que me viu no baile, no ano anterior. Como se eu fosse alguém além do meu mau humor. Ele desviou quando o chefe começou a falar com eles e conduzir a mesa.
 
-Que droga.
-
-Jason ali, e eu presa nesse avental, nessa chapa, nesse cheiro. Não. Eu não estava presa. Eu só precisava lembrar que eu não era mais adolescente e que existia um relógio.
-
-Olhei: 13:54.
-
-Meu almoço começava às 14:00.
+Que droga. Jason ali, e eu presa nesse avental, nessa chapa, nesse cheiro. Não. Eu não estava presa. Eu só precisava lembrar que eu não era mais adolescente e que existia um relógio. Olhei: 13:54. Meu almoço começava às 14:00.
 
 Eu fiz o básico: fingi que estava ocupada na louça enquanto o Charles me olhava de canto, e quando deu duas horas eu larguei tudo com a dignidade de quem está prestes a fazer algo fútil e necessário: passar perfume antes de falar com um rapaz.
 
@@ -272,9 +264,7 @@ Jason chegou perto do balcão, sorrindo daquele jeito que me lembrava coisas que
 
 Eu sorri para ele, bancando a idiota. Sabia exatamente o que aquela frase fazia comigo.
 
-Diego acenou. Eu acenei de volta.
-
-Glenda ficou a meio passo atrás de Jason, brincando com a alça da bolsa. Quando ele virou para acompanhar o pai, ela se aproximou de mim com a voz baixa e doce.
+Diego acenou. Eu acenei de volta. Glenda ficou a meio passo atrás de Jason, brincando com a alça da bolsa. Quando ele virou para acompanhar o pai, ela se aproximou de mim com a voz baixa e doce.
 
 — Só um toque — ela disse. — Jason é mais do que irmão pra mim. Eu vi como você olhou pra ele. A pergunta sobre “namorada”. Você é esperta, então vou ser bem clara: se você fizer ele de idiota, eu vou saber. 
 
@@ -336,9 +326,7 @@ Cheguei em casa por volta de seis e meia, tirei os sapatos na entrada e me jogue
 
 Foi quando meus olhos caíram no álbum de fotos.
 
-Eu tinha arrancado ele da casa dos meus pais antes de ir embora. Não por nostalgia. Por raiva, talvez. Por necessidade de provar para mim mesma que certas coisas tinham acontecido, que eu não estava inventando a própria história.
-
-Estiquei a mão e abri.
+Eu tinha arrancado ele da casa dos meus pais antes de ir embora. Não por nostalgia. Por raiva, talvez. Por necessidade de provar para mim mesma que certas coisas tinham acontecido, que eu não estava inventando a própria história. Estiquei a mão e abri.
 
 A primeira foto era Kelly com a cara suja de sorvete, boca aberta num susto combinado, riso de verdade. Nove anos. No Beto Carrero. Eu lembrava daquele dia com um ódio que parecia saudade, e eu odiava ainda mais isso, essa mistura ridícula que ninguém ensina a controlar.
 

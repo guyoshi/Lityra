@@ -110,9 +110,7 @@ Ela apareceu um minuto depois.
 
 “Obrigado meu principe, vc tbm.”
 
-Ela ficou offline.
-
-Eu desliguei o computador. A luz do gabinete demorou um segundo a apagar, e tive a sensação de que algo ainda estava ligado mesmo com tudo desligado, igual quando a TV fica chiando mesmo depois que a gente baixa o volume.
+Ela ficou offline. Eu desliguei o computador. A luz do gabinete demorou um segundo a apagar, e tive a sensação de que algo ainda estava ligado mesmo com tudo desligado, igual quando a TV fica chiando mesmo depois que a gente baixa o volume.
 
 Deitei. Encostei a cabeça no travesseiro. Eu estava gostando de conversar com ela. Ela fazia eu sentir que eu era… alguém. Que eu existia pra alguém. Mas aquela frase não largava o fundo do meu cérebro: morta.
 
@@ -207,9 +205,7 @@ Eu senti meu instinto de sobrevivência social assumir o volante.
 
 — Claro que não. É apenas uma boa história. Você realmente acreditou? Acha que eu conseguiria entrar pro clube de escritores? Só não me roube a ideia, senão te processo.
 
-Eu ri. Alto demais. Forçado demais.
-
-Filipo riu também, mas foi um riso esquisito, como se ele não soubesse onde colocar as mãos.
+Eu ri. Alto demais. Forçado demais. Filipo riu também, mas foi um riso esquisito, como se ele não soubesse onde colocar as mãos.
 
 — Pode ficar tranquilo. Se eu roubar, vou corrigir os erros de português antes de publicar — ele respondeu, com a cara mais séria do mundo.
 
@@ -337,11 +333,7 @@ Aquilo parecia romântico. Mas tinha uma sombra, porque lembrar dela era lembrar
 
 A conversa durou mais três horas. Quando ela disse que estava com sono e que ia dormir, veio uma tristeza boba, quase infantil, como se eu estivesse perdendo o único lugar onde eu cabia.
 
-Quando ela ficou offline, eu me deitei. Fiquei imaginando o rosto que eu não tinha visto. A menina de rosa ao fundo da foto. O jeito como ela falava comigo como se já soubesse tudo.
-
-Minha cabeça não me deixou dormir.
-
-E eu fiz aquilo que ela mandou, como se fosse um feitiço moderno.
+Quando ela ficou offline, eu me deitei. Fiquei imaginando o rosto que eu não tinha visto. A menina de rosa ao fundo da foto. O jeito como ela falava comigo como se já soubesse tudo. Minha cabeça não me deixou dormir. E eu fiz aquilo que ela mandou, como se fosse um feitiço moderno.
 
 Levantei, encostei a cama na mesa do computador, liguei o fone no gabinete, e coloquei Starman no modo repetição. A música começou de novo, e eu pensei que talvez fosse isso: talvez o “Starman” fosse só uma desculpa bonita para fugir do que a gente não consegue encarar.
 
@@ -387,9 +379,7 @@ Alguém riu do outro lado da porta. Uma risada curta, engasgada, que eu conhecia
 
 Corri pro quarto sem nem apagar as luzes. Esfreguei as mãos na toalha do guarda-roupa com violência, como se eu pudesse arrancar o nojo e o medo ao mesmo tempo, e liguei o monitor.
 
-A luz fraca do gabinete piscava, nervosa, e a TV no canto insistia num chiado baixo, constante. Abri o Google com a mão ainda úmida e a cabeça latejando. Digitei Cara-de-Larva e apertei Enter com força demais, como se o teclado fosse culpado.
-
-Cliquei no primeiro resultado.
+A luz fraca do gabinete piscava, nervosa, e a TV no canto insistia num chiado baixo, constante. Abri o Google com a mão ainda úmida e a cabeça latejando. Digitei Cara-de-Larva e apertei Enter com força demais, como se o teclado fosse culpado. Cliquei no primeiro resultado.
 
 A página carregou devagar. O texto era feio, comprido, daqueles sites que parecem existir só pra assustar adolescente. Mesmo assim, eu li, porque depois de Vila Velha eu tinha perdido o direito de tratar o sobrenatural como brincadeira.
 

@@ -24,9 +24,7 @@ Queria não ter aberto aquela porta.
 
 Caí de costas no chão como se alguém tivesse me empurrado, e o primeiro pensamento que eu tive foi ridículo: eu não vou conseguir gritar. Quis tanto que achei que ia estourar, mas o meu corpo falhou. O chão estava coberto de sangue e, no meio daquele vermelho impossível, estava o corpo da minha mãe. Os olhos abertos, a boca aberta, uma expressão de pavor tão absoluta que parecia ter sido congelada ali.
 
-Tentei puxar o ar. Não veio.
-
-E, antes de qualquer som existir, ela desapareceu.
+Tentei puxar o ar. Não veio. E, antes de qualquer som existir, ela desapareceu.
 
 A luz também não estava mais acesa. O banheiro estava normal. A porta continuava na mesma posição.
 
@@ -92,9 +90,7 @@ Eu não respondi. Minha cara fechou sozinha. Virei para ir embora.
 
 Voltei para casa e, ao chegar na calçada, não virei para o meu portão. Segui reto, puxado por um impulso que eu nem tentei explicar. Parei em frente ao antigo lar da Kelly.
 
-Do lado de dentro do portão vi um pug.
-
-Um pug familiar demais.
+Do lado de dentro do portão vi um pug familiar demais.
 
 — Petrão? — eu disse, me aproximando.
 

@@ -32,9 +32,9 @@ Minha mãe apareceu com aquela cara de “Pedro, pelo amor de Deus, é cedo”, 
 
 — Igual a semana passada, ou a anterior, ou aquela vez que a diretora me ligou dizendo que você estava tentando entrar pelos fundos porque já tinham fechado o portão.
 
-— Você tem que agradecer que eu queria entrar. A maioria quer fugir — falei, a boca cheia de pasta. 
+— Você tem que agradecer que eu queria entrar. A maioria quer fugir — falei, a boca cheia de pasta.
 
-Quando terminei, fui pro quarto, vesti o uniforme do colégio Joana Andrade, enfiei o caderno na mochila e desci. 
+Quando terminei, fui pro quarto, vesti o uniforme do colégio Joana Andrade, enfiei o caderno na mochila e desci.
 
 No caminho, eu passei pela esquina do orelhão e olhei pra ele como se fosse um velho amigo. Eu tinha mania de pensar “se der alguma merda, eu ligo daqui”: orelhão era botão de emergência. E às vezes eu parava e testava a ficha no bolso só pra sentir que eu tinha uma saída.
 
@@ -54,17 +54,13 @@ Ele fez uma pausa curta, medindo se a turma acompanhava.
 
 — Em outras tradições, você encontra variações da mesma ansiedade humana. Mas o que nos interessa aqui é quando o cristianismo europeu, especialmente em certos períodos, organiza isso num sistema que serve também para controlar comportamento.
 
-A turma prestava atenção. Ou pelo menos fingia prestar. 
+A turma prestava atenção. Ou pelo menos fingia prestar.
 
 — A noção de “alma inquieta”, “alma perdida”, “assombração”… tudo isso vai sendo moldado com o tempo. E, na Idade Média, muitas aparições eram interpretadas como demônios. Porque é uma explicação conveniente: qualquer coisa que te tire do caminho “certo” vira inimigo espiritual.
 
 Quando ele disse “alma perdida”, alguma coisa em mim gelou. Medo de filme é outra coisa: aquilo foi uma sensação física, humilhante, de garganta fechando e o corpo decidindo antes da cabeça.
 
-Eu quase nunca levantava a mão. Nas minhas aulas, o truque era não chamar a atenção do professor, especialmente quando ele parecia disposto a falar até o próximo século. Só que aquela palavra me incomodou de verdade.
-
-Levantei a mão.
-
-No mesmo segundo, arrependi. A sala tem um radar para detectar quando alguém vai falar sério, e adolescente adora esmagar seriedade como se fosse formiga.
+Eu quase nunca levantava a mão. Nas minhas aulas, o truque era não chamar a atenção do professor, especialmente quando ele parecia disposto a falar até o próximo século. Só que aquela palavra me incomodou de verdade. Levantei a mão. No mesmo segundo, arrependi. A sala tem um radar para detectar quando alguém vai falar sério, e adolescente adora esmagar seriedade como se fosse formiga.
 
 — Professor… — eu comecei, tentando dar um tom despreocupado, como se eu estivesse perguntando por curiosidade qualquer. — Tipo… existe como saber se um espírito… foi embora? Seguiu adiante. Hipoteticamente.
 
@@ -80,7 +76,7 @@ Alguns alunos riram baixinho, não porque era engraçado, mas porque o Prof. Rui
 
 — Então não tem como saber? — eu insisti, e a minha voz saiu mais tensa do que eu queria. — Tipo… se alguém… se um ente querido ainda está por aqui.
 
-Eu não olhei para ninguém. Eu não dei o gosto de alguém ver no meu rosto o motivo. 
+Eu não olhei para ninguém. Eu não dei o gosto de alguém ver no meu rosto o motivo.
 
 O professor fez um barulhinho com a língua, como quem decide ser paciente com uma criança.
 
@@ -96,13 +92,9 @@ Eu engoli seco.
 
 — Tá. Hipoteticamente, então… não tem como saber — eu disse, tentando recuar com dignidade.
 
-— Bom… Na verdade, se quiser tentar falar com espírito, começa com um copo virado numa mesa — ele soltou, como quem entrega um truque de mágica. — Ou um tabuleiro com letras. 
+— Bom… Na verdade, se quiser tentar falar com espírito, começa com um copo virado numa mesa — ele soltou, como quem entrega um truque de mágica. — Ou um tabuleiro com letras.
 
-A sala explodiu. Gargalhada alta. Adolescentes rindo porque são idiotas.
-
-Eu não ri.
-
-E eu odiei não rir, porque quando eu não fazia piada, eu virava o alvo perfeito. Senti o rosto quente, mas fiquei quieto. 
+A sala explodiu. Gargalhada alta. Adolescentes rindo porque são idiotas. Eu não ri. E eu odiei não rir, porque quando eu não fazia piada, eu virava o alvo perfeito. Senti o rosto quente, mas fiquei quieto.
 
 — Eu acho que o Pedro nem tá tão errado, professor.
 
@@ -118,9 +110,7 @@ O Prof. Rui cortou na hora, rápido demais para alguém que não liga.
 
 “Voltemos” saiu como ordem. Como uma porta fechando.
 
-Então o nome dele era Filipo.
-
-A aula continuou como se nada tivesse acontecido: datas, termos, o Prof. Rui falando da Idade Média com aquela raiva fria de quem acha que está libertando o mundo. Os alunos voltaram a rabiscar e a bocejar. Eu voltei a fingir normalidade.
+Então o nome dele era Filipo. A aula continuou como se nada tivesse acontecido: datas, termos, o Prof. Rui falando da Idade Média com aquela raiva fria de quem acha que está libertando o mundo. Os alunos voltaram a rabiscar e a bocejar. Eu voltei a fingir normalidade.
 
 Quando o sinal tocou, todo mundo levantou numa pressa automática. Eu vi o Filipo sair com a mochila nas costas, sem olhar para trás. Pensei em ir atrás. Perguntar. Fazer piada para disfarçar e, no meio da piada, arrancar a resposta que eu queria.
 
@@ -130,7 +120,7 @@ Mas eu dei dois passos no corredor e ouvi:
 
 Eu parei.
 
-Eu juro que tentei ignorar. Juro. Eu fiz o que eu sempre fazia: sarcasmo mental, cara de “tanto faz”. 
+Eu juro que tentei ignorar. Juro. Eu fiz o que eu sempre fazia: sarcasmo mental, cara de “tanto faz”.
 
 — Balofo! — o moleque repetiu, rindo com dois amigos.
 
@@ -138,7 +128,7 @@ Eu virei devagar.
 
 — Fala de novo — eu disse, tentando soar “frio”. Soei foi irritado.
 
-— Balofo — ele falou, e deu um passo, achando que estava arrasando. 
+— Balofo — ele falou, e deu um passo, achando que estava arrasando.
 
 Em situações normais, eu ironizaria e iria embora. Mas eu já estava exausto. Era sempre a mesma coisa. Trocava de escola, mas pareciam ser sempre os mesmos idiotas.
 
@@ -146,9 +136,7 @@ Em situações normais, eu ironizaria e iria embora. Mas eu já estava exausto. 
 
 — Talvez, mas nenhum deles é tão assustador quanto sua mãe — eu cuspi, e antes dele responder, eu dei um empurrão.
 
-Ele veio pra cima.
-
-Eu aguentei o primeiro soco meio de lado. O segundo pegou no nariz e ardeu tanto que eu senti o olho lacrimejar. E o que fez eu explodir foi isso: eu não queria chorar. Eu não queria dar esse gosto.
+Ele veio pra cima. Eu aguentei o primeiro soco meio de lado. O segundo pegou no nariz e ardeu tanto que eu senti o olho lacrimejar. E o que fez eu explodir foi isso: eu não queria chorar. Eu não queria dar esse gosto.
 
 Eu acertei um murro. Depois outro. Eu ouvi a galera gritar “porrada!” como se fosse entretenimento de intervalo. Eu derrubei ele, ele me puxou pela camisa, eu chutei o estômago dele e ele ficou enrolado, tentando respirar.
 
@@ -173,7 +161,7 @@ Filipo sentou como se fosse a coisa mais normal do mundo.
 A minha cabeça respondeu: isso é armadilha.
 O meu corpo respondeu: aceita, pelo amor de Deus, antes que você pareça mais estranho ainda.
 
-— Pode ser. 
+— Pode ser.
 
 — Valeu — ele disse, como se eu tivesse feito um favor pessoal.
 
@@ -183,9 +171,7 @@ A questão era uma daquelas que parecem escrita por alguém que odeia adolescent
 
 “Supondo que um elemento esteja localizado na coluna 15 e no 3º período…”
 
-Eu nem tive tempo de reclamar. Filipo já estava escrevendo a resposta com uma facilidade irritante, como se tivesse um mapa dentro da cabeça. Ele não hesitou, não apagou, não pediu.
-
-Quando terminou, ele me passou a folha.
+Eu nem tive tempo de reclamar. Filipo já estava escrevendo a resposta com uma facilidade irritante, como se tivesse um mapa dentro da cabeça. Ele não hesitou, não apagou, não pediu. Quando terminou, ele me passou a folha.
 
 — Você tem certeza? — eu perguntei, desconfiado.
 
@@ -211,7 +197,7 @@ Eu dei de ombros, fingindo que era normal.
 
 — Se ele voltar, eu faço ele comer inseto.
 
-Filipo abriu um sorriso. 
+Filipo abriu um sorriso.
 
 — Pedro — ele falou, baixo. — Eu li seu blog.
 
@@ -249,11 +235,11 @@ Só que eu não podia. E nem queria.
 
 — Você tá exagerando — eu falei, com ironia. — Cê me conhece faz duas horas.
 
-— Eu conheço o seu texto — ele respondeu. — E eu sei que o que posta no blog tem muita inspiração. 
+— Eu conheço o seu texto — ele respondeu. — E eu sei que o que posta no blog tem muita inspiração.
 
 Os olhos dele não brilharam. Eles ficaram sérios. E isso me deu mais medo do que se ele tivesse empolgado.
 
-— Eu vou te contar uma história… — Filipo disse. — A história do Cara-de-Larva. 
+— Eu vou te contar uma história… — Filipo disse. — A história do Cara-de-Larva.
 
 Eu soltei uma risadinha nervosa.
 
@@ -275,9 +261,9 @@ Eu senti o estômago subir.
 
 — Costuraram. Jogaram num caixão. E deixaram ele lá… vivo. Agonizando. Com as larvas comendo por dentro e saindo por todos os orifícios. Quando acharam, ninguém sabia mais onde era olho, onde era boca. Só… havia larva.
 
-Eu engoli seco. 
+Eu engoli seco.
 
-— Dizem… que o Cara-de-Larva não morreu. Que seu espírito amaldiçoado continua por aí… e que antes de aparecer… ele deixa um rastro… de larvas. 
+— Dizem… que o Cara-de-Larva não morreu. Que seu espírito amaldiçoado continua por aí… e que antes de aparecer… ele deixa um rastro… de larvas.
 
 Na minha cabeça, por alguma razão, apareceu a imagem do lixo e as larvas do lado de fora. Respirei devagar, com a mão em cima do bolso da mochila onde a bombinha ficava. Não precisei dela. E tentei fazer piada, porque piada era o meu extintor.
 
@@ -289,7 +275,7 @@ Ele não riu.
 
 Filipo me olhou por um segundo longo demais.
 
-— Nada — ele disse, rápido. — É só… história. Lenda. Coisa que o pessoal conta pra assustar criança. Como a sua história. 
+— Nada — ele disse, rápido. — É só… história. Lenda. Coisa que o pessoal conta pra assustar criança. Como a sua história.
 
 Eu forcei um sorriso.
 
@@ -297,15 +283,15 @@ Eu forcei um sorriso.
 
 — Agora estou. Mas como disse que não estava aqui para te zoar, vou ser sincero — ele disse.
 
-— Algumas lendas só são lendas, porque ninguém sobrevive para provar que são reais. Se a sua história for real… você é um sobrevivente. 
+— Algumas lendas só são lendas, porque ninguém sobrevive para provar que são reais. Se a sua história for real… você é um sobrevivente.
 
-Respirei fundo. 
+Respirei fundo.
 
 — Tá. Digamos que… uma parte seja real. E daí?
 
 — Tem uma personagem do seu blog — ele disse, como se fosse casual — a tal Nebula… ela é baseada em alguém?
 
-— Bem… tem uma menina — eu admiti, rápido. — Uma amiga. Ela… ela vê espíritos mesmo. 
+— Bem… tem uma menina — eu admiti, rápido. — Uma amiga. Ela… ela vê espíritos mesmo.
 
 Filipo não pareceu chocado. Parece que ele esperava por isso.
 
@@ -329,11 +315,11 @@ O sinal tocou e cortou a conversa no meio. A sala levantou, barulho, cadeira, ca
 
 Filipo pegou a mochila e ainda falou, como se fosse nada:
 
-— Depois me diz se você quer conversar sobre o que aconteceu de verdade, sem codinome. Como te disse, também passei por algumas coisas no passado. 
+— Depois me diz se você quer conversar sobre o que aconteceu de verdade, sem codinome. Como te disse, também passei por algumas coisas no passado.
 
 Eu assenti, desconfiado e aliviado ao mesmo tempo, o que é uma combinação horrível.
 
-Eu fui pra casa a pé com a cabeça cheia. Passei pelo orelhão de novo e vi que tinham pichado um nome esquisito nele. 
+Eu fui pra casa a pé com a cabeça cheia. Passei pelo orelhão de novo e vi que tinham pichado um nome esquisito nele.
 
 Em casa, eu cheguei e fui direto pra cozinha, porque em casa pelo menos o mundo tinha cheiro de comida e som de gente.
 
@@ -353,13 +339,13 @@ Minha mãe virou com a colher na mão.
 
 Meu pai levantou a sobrancelha, tentando não rir.
 
-— Escola não é lugar de brigar, filho. É lugar de aprendizagem. 
+— Escola não é lugar de brigar, filho. É lugar de aprendizagem.
 
 — Ah, mas ele aprendeu. Ele me chamou de “balofo”, e eu ensinei educação física pra ele.
 
-Minha mãe apontou a colher pra mim. 
+Minha mãe apontou a colher pra mim.
 
-— Você não é de briga. 
+— Você não é de briga.
 
 — Eu também não era de ver uma amiga morrer, mãe. Olha como a vida surpreende.
 
@@ -381,11 +367,11 @@ Meu pai usou o sarcasmo como escudo.
 
 — Tá. Então vamos falar de coisas leves — ele disse. — Como foi a merenda? Te deram alimento ou só isopor temperado?
 
-— Hoje a sopa teve personalidade — eu respondi. — Um caldo ora salgado, ora doce, ora azedo. 
+— Hoje a sopa teve personalidade — eu respondi. — Um caldo ora salgado, ora doce, ora azedo.
 
 Minha mãe soltou um riso curto, quase involuntário.
 
-— Tá querendo agradecer a sopa por não te chamar de balofo — ela provocou. 
+— Tá querendo agradecer a sopa por não te chamar de balofo — ela provocou.
 
 — Ainda — eu falei. — Amanhã ela me chama de “bolota” e eu viro vegetariano por vingança.
 
@@ -393,15 +379,15 @@ Meu pai apoiou o jornal na mesa e me olhou com aquela cara de “eu te conheço 
 
 — Você sente falta do Junior?
 
-Eu ri na hora. 
+Eu ri na hora.
 
 — Sinto. Nossa. Todo dia eu choro no banho — eu disse.
 
 Minha mãe apontou a colher de novo, mas dessa vez como quem avisa “não exagera”.
 
-— Pedro… para com isso. Sei que não tá fácil pra você. Mas tivemos de deixar a doceria pra trás… e arrumar trabalhos novos pra pagar o aluguel. Se tem algo que não está bem, nos fale. Somos uns pelos outros. 
+— Pedro… para com isso. Sei que não tá fácil pra você. Mas tivemos de deixar a doceria pra trás… e arrumar trabalhos novos pra pagar o aluguel. Se tem algo que não está bem, nos fale. Somos uns pelos outros.
 
-— Mas não tem nada que não está bem. Eu gosto da vida que tenho — menti na cara de pau. 
+— Mas não tem nada que não está bem. Eu gosto da vida que tenho — menti na cara de pau.
 
 Meu pai cruzou os braços, fingindo paciência. Ele era bom nisso.
 
@@ -411,11 +397,11 @@ Meu pai cruzou os braços, fingindo paciência. Ele era bom nisso.
 
 Eu puxei um sorriso torto, porque era o máximo que eu conseguia oferecer sem desmontar.
 
-— Eu vou pro quarto — eu cortei, antes que a minha voz denunciasse mais do que eu queria. — Vou… estudar. 
+— Eu vou pro quarto — eu cortei, antes que a minha voz denunciasse mais do que eu queria. — Vou… estudar.
 
 — Vai estudar, sim — minha mãe respondeu, automática. — Até altas horas da madrugada.
 
-Eu subi com um copo de água na mão, fechei a porta do quarto e encostei a testa nela um segundo. 
+Eu subi com um copo de água na mão, fechei a porta do quarto e encostei a testa nela um segundo.
 
 O meu quarto tinha cheiro de poeira e cabo novo. A TV velha ligada sem som, só pra fazer companhia, a imagem tremelicando com aqueles riscos fantasmagóricos como se até o canal aberto estivesse assombrado.
 
@@ -457,9 +443,7 @@ Eu senti um calor estranho na cara, como se eu tivesse levado um elogio e uma bo
 
 A conversa foi ficando leve do jeito que conversa de MSN ficava. Um monte de “kkk”, umas perguntas idiotas, umas piadas que você faz só pra manter a outra pessoa ali.
 
-Ela disse que escrevia poemas.
-
-Eu pedi um, brincando.
+Ela disse que escrevia poemas. Eu pedi um, brincando.
 
 Ela demorou. Aquele “Mel Jones está digitando…” aparecia e sumia, aparecia e sumia, como se ela estivesse escolhendo cada palavra com uma seriedade que não combinava com a internet.
 

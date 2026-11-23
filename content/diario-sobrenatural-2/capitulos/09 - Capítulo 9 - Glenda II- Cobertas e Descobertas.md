@@ -106,11 +106,7 @@ E o escuro… se mexia.
 
 Minha mente tentou catalogar: sombra, artefato da imagem, compressão do arquivo. Mas, aos poucos, o contorno ficou impossível de negar. Parecia um corpo nu de um homem, sujo, com sangue em várias partes. E o rosto vinha se desenhando como uma piada de mau gosto.
 
-Ele sorria. Um sorriso grande demais, aberto demais. Dentro da boca, nada: nem dentes, nem língua. Os olhos apertados, quase em arco, como se ele estivesse rindo sem som.
-
-Eu entendi.
-
-A minha respiração acelerou, mas eu não me levantei de imediato. O corpo queria fugir, a cabeça queria prova. Eu virei lentamente.
+Ele sorria. Um sorriso grande demais, aberto demais. Dentro da boca, nada: nem dentes, nem língua. Os olhos apertados, quase em arco, como se ele estivesse rindo sem som. Eu entendi. A minha respiração acelerou, mas eu não me levantei de imediato. O corpo queria fugir, a cabeça queria prova. Eu virei lentamente.
 
 — Glenda? — disse uma voz na porta.
 
@@ -174,9 +170,7 @@ Caminhei até ele e, antes de pegar, ouvi o barulho da porta sendo empurrada nov
 
 Fiquei imóvel por meio segundo, o suficiente para registrar que aquilo já não era uma simples distração. Caminhei de costas até a escada, os olhos fixos na porta. Medo é útil quando te faz agir. Quando te faz fantasiar, ele só te atrapalha.
 
-Desci rápido para o meu quarto. Fechei a porta ao entrar, coloquei o caderno na mesa de cabeceira e puxei os cobertores. Onde Jason estava até aquela hora? Não era da minha conta. Se ele tinha voltado e eu não vi, ele apareceria de manhã com cara de ressaca e um sorriso idiota.
-
-Fechei os olhos e adormeci.
+Desci rápido para o meu quarto. Fechei a porta ao entrar, coloquei o caderno na mesa de cabeceira e puxei os cobertores. Onde Jason estava até aquela hora? Não era da minha conta. Se ele tinha voltado e eu não vi, ele apareceria de manhã com cara de ressaca e um sorriso idiota. Fechei os olhos e adormeci.
 
 Meus sonhos sempre foram estranhos. Dessa vez, sonhei que estava com meus pais no shopping, subindo uma escada rolante. Lá em cima, Diego estava de costas, esperando. Ele se virou e sorriu para mim. Eu recuei, mas a escada rolante continuava, inevitável, me levando cada vez mais perto dele. Senti algo agarrar minhas pernas. Olhei para baixo e vi uma mão completamente preta me segurando com força.
 

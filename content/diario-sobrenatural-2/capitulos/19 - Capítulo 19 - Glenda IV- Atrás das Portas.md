@@ -110,9 +110,7 @@ Ele arregalou os olhos.
 
 — O que eu quero, Jason… é impacto. Eu quero algo que provasse quem eu realmente sou. Eu queria… — eu parei, porque a verdade era feia e eu não tinha vontade de embelezar — …ser vista.
 
-Jason ficou quieto, respeitando o espaço da frase.
-
-Eu continuei, a voz mais baixa, como se eu estivesse falando comigo e ele tivesse o azar de estar ali.
+Jason ficou quieto, respeitando o espaço da frase. Eu continuei, a voz mais baixa, como se eu estivesse falando comigo e ele tivesse o azar de estar ali.
 
 — Só que cada vez mais eu não sei o que eu quero de verdade. E eu odeio isso. Eu odeio não ter um plano. Eu odeio me sentir… — procurei uma palavra que não fosse fraca — …desalinhada. Eu preciso me encontrar antes que eu comece a inventar uma versão de mim só pra caber num lugar.
 
@@ -318,9 +316,7 @@ Frascos de perfume feminino, alguns antigos, com vidro pesado, batons usados, pr
 
 E junto, um caderno pequeno, capa preta, fechado com um elástico. Eu abri com cuidado e vi uma lista de letras, uma por linha, todas riscadas com força, como se quem riscou quisesse apagar mais do que uma simples letra. A última linha era a única que tinha uma letra intacta: O.
 
-Então ouvi a porta do corredor bater.
-
-Meu corpo entrou em pânico. Eu enfiei o caderno de volta no lugar, empurrei os objetos, baixei as roupas como estavam, fechei o guarda-roupa com a mesma precisão de antes e me agachei.
+Então ouvi a porta do corredor bater. Meu corpo entrou em pânico. Eu enfiei o caderno de volta no lugar, empurrei os objetos, baixei as roupas como estavam, fechei o guarda-roupa com a mesma precisão de antes e me agachei.
 
 O espaço sob a cama era limpo demais também. Não havia poeira. Nem ali. Eu deslizei pra dentro, o coração batendo num ritmo acelerado, e fiquei deitada de lado, segurando a respiração num ponto em que eu ainda conseguia ouvir tudo sem fazer barulho.
 
@@ -360,9 +356,7 @@ Outra pausa. Ele escutava ela respirar, concordar, se render. Sabia quanto silê
 
 — Isso — ele murmurou. — Confia em mim, você vai adorar. Se cuide!
 
-Ele desligou.
-
-E o quarto voltou a ficar quieto, mas agora era um quieto pesado, cheio de promessa.
+Ele desligou. E o quarto voltou a ficar quieto, mas agora era um quieto pesado, cheio de promessa.
 
 Diego deu dois passos, e eu vi novamente a sombra dele baixar, como se tivesse visto algo.
 

@@ -168,9 +168,7 @@ Ela deu um passo na margem. Tremia de frio, mesmo fora da água.
 
 O rosto da minha mãe surgiu na minha cabeça com uma nitidez cruel: ela me procurando pela casa, chamando o meu nome, abrindo a porta, correndo pela rua, gritando, envelhecendo num tempo acelerado de dor.
 
-Aquela imagem me abriu por dentro.
-
-Eu comecei a chorar ali, sem me mexer. As lágrimas caíam e se misturavam com a água do lago, como se o lago tivesse ganho mais um motivo para estar escuro.
+Aquela imagem me abriu por dentro. Eu comecei a chorar ali, sem me mexer. As lágrimas caíam e se misturavam com a água do lago, como se o lago tivesse ganho mais um motivo para estar escuro.
 
 — Você não precisa voltar sozinho — Jennifer disse, com a voz mais suave. — Eu vou até aí te buscar.
 
@@ -244,9 +242,7 @@ O caminho até a minha casa pareceu mais curto do que o caminho até o lago. Ela
 
 Eu entrei, tranquei a porta e fui direto até a cozinha. O copo de água ainda estava no balcão, no mesmo lugar. Ao lado dele, havia o facão que a minha mãe usava para cortar carne.
 
-Eu parei, e observei.
-
-Era um detalhe absurdo demais para ser ignorado, mas pequeno demais para justificar pânico imediato. Eu devia ter guardado e esquecido o assunto. Só que eu me lembrava claramente de ter guardado tudo no lugar: depois do que aconteceu, qualquer objeto cortante ganhou um peso novo dentro de mim.
+Eu parei, e observei. Era um detalhe absurdo demais para ser ignorado, mas pequeno demais para justificar pânico imediato. Eu devia ter guardado e esquecido o assunto. Só que eu me lembrava claramente de ter guardado tudo no lugar: depois do que aconteceu, qualquer objeto cortante ganhou um peso novo dentro de mim.
 
 Eu peguei o facão e guardei na gaveta, junto dos outros utensílios.
 
@@ -256,15 +252,11 @@ Eu empurrei a porta devagar e caminhei até a cama. Ela dormia profundamente, vi
 
 Eu sorri, e então olhei para a janela ao fundo.
 
-Por um segundo, eu não vi a rua.
-
-Eu vi uma forma escura, recortada contra o vidro, com olhos vermelhos fixos em mim. Sombra de árvore e reflexo eu teria reconhecido. Aquilo tinha presença.
+Por um segundo, eu não vi a rua. Eu vi uma forma escura, recortada contra o vidro, com olhos vermelhos fixos em mim. Sombra de árvore e reflexo eu teria reconhecido. Aquilo tinha presença.
 
 O ar saiu de mim como se alguém tivesse apertado o meu peito por dentro. Eu pisquei. Pisquei de novo. A coisa continuava ali, imóvel, olhando, esperando que eu reconhecesse.
 
-E eu reconheci.
-
-A mesma sensação de quando o Agouro nos cercava. A mesma certeza fria.
+E eu reconheci. A mesma sensação de quando o Agouro nos cercava. A mesma certeza fria.
 
 Então a voz da minha mãe quebrou o silêncio, sonolenta, confusa.
 

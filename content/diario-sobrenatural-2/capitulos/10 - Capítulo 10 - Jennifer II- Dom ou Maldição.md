@@ -14,9 +14,7 @@ O meu quarto estava como sempre: o meu antigo berço no canto, cheio de tralhas,
 
 O silêncio ficou ali, pesado, por minutos longos demais para uma criança. Até que ouvi um som perto do berço. Um ruído pequeno, não de gato. Um ruído de presença.
 
-Eu me aproximei de fininho, e o vi.
-
-Encostado à parede, agachado no chão, havia um garoto com mais ou menos a minha idade. Era um menino, não o Ernesto, e estivera ali o tempo todo.
+Eu me aproximei de fininho, e o vi. Encostado à parede, agachado no chão, havia um garoto com mais ou menos a minha idade. Era um menino, não o Ernesto, e estivera ali o tempo todo.
 
 — Quem é você? — perguntei, e a minha voz saiu menor do que eu queria.
 

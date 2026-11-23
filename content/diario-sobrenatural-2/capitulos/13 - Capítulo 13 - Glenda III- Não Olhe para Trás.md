@@ -6,9 +6,7 @@ Chamei um táxi. A Paper ficava num prédio alto demais para a cidade fingir que
 
 Na sala de espera, abri o notebook e tentei recolher mais alguma coisa que me desse vantagem. A internet parecia empenhada em me sabotar, lenta, com aquela cara de 2003 em que um carregamento podia durar uma vida inteira. A conexão caiu duas vezes. Na terceira, tive vontade de bater no notebook. Fechei a tampa antes de fazer uma cena na sala de espera.
 
-Quando chamaram meu nome, quase derrubei a pasta no chão. Juntei as folhas e entrei, fingindo que nada tinha acontecido.
-
-O entrevistador estava lá de novo.
+Quando chamaram meu nome, quase derrubei a pasta no chão. Juntei as folhas e entrei, fingindo que nada tinha acontecido. O entrevistador estava lá de novo.
 
 Ele pegou as páginas, as alinhou sobre a mesa com um cuidado quase teatral, como se quisesse que eu notasse que o texto, para ele, era apenas papel. Antes de ler, anunciou que ia ao WC e saiu. Três minutos é muito tempo para um homem que está no “controle”. Fiquei esperando, olhando para o relógio. Três minutos. Ainda dava para ir embora antes que ele voltasse. Não fui.
 
@@ -219,9 +217,7 @@ A respiração veio de algum lugar. Pesada. De um homem grande. Imaginação nã
 
 Eu abri os olhos e caminhei a passos curtos até ela. A respiração parecia mais próxima, mais grossa, como se o ar fosse puxado por um peito enorme.
 
-Eu puxei a porta com tudo e saí.
-
-O corredor estava escuro. Cortinas fechadas. A mansão de Diego, com cortinas abertas, parecia uma vitrine de luxo, e com cortinas fechadas virava uma caverna. Apenas um filete de luz atravessava uma fresta e desenhava faixas no chão.
+Eu puxei a porta com tudo e saí. O corredor estava escuro. Cortinas fechadas. A mansão de Diego, com cortinas abertas, parecia uma vitrine de luxo, e com cortinas fechadas virava uma caverna. Apenas um filete de luz atravessava uma fresta e desenhava faixas no chão.
 
 Eu virei para fechar a porta. Vi a minha filmadora na pia, lá dentro. Eu não podia deixá-la. Não por valor. Por prova.
 
@@ -263,9 +259,7 @@ Diego segurou meu braço.
 
 Eu virei para trás, pronta para ver o facão descendo, pronta para ver o sangue aparecendo, pronta para ver o caos… e não havia nada.
 
-A casa estava intacta. Nenhum móvel virado. Nenhuma marca no corredor. Só eu, ofegante, com sangue no rosto e a respiração falhando.
-
-Diego levou a mão à boca.
+A casa estava intacta. Nenhum móvel virado. Nenhuma marca no corredor. Só eu, ofegante, com sangue no rosto e a respiração falhando. Diego levou a mão à boca.
 
 — Mas que porra foi essa? — ele perguntou. — Você me bateu.
 
@@ -323,9 +317,7 @@ Depois recuou, abriu a porta e saiu, sem desviar o olhar um único segundo. Eu p
 
 Quando o corredor ficou vazio, eu fui para o banheiro do mesmo piso e tranquei a porta. Ali não havia espelho nenhum, e, mesmo assim, eu já não sentia pavor do sobrenatural.
 
-O pavor tinha mudado de lugar.
-
-Sentei no vaso e, aos poucos, uma tranquilidade estranha me acometeu. Eu comecei a rir. Não uma risada bonita, nem baixa, nem controlada. Eu ri como se fosse outra pessoa, assistindo à minha própria vida e finalmente entendendo a piada.
+O pavor tinha mudado de lugar. Sentei no vaso e, aos poucos, uma tranquilidade estranha me acometeu. Eu comecei a rir. Não uma risada bonita, nem baixa, nem controlada. Eu ri como se fosse outra pessoa, assistindo à minha própria vida e finalmente entendendo a piada.
 
 Lembrei do facão erguido atrás de mim e depois da mão de Diego segurando a minha. O corredor continuava quieto. Naquela casa, o silêncio não significava que eu estivesse sozinha.
 

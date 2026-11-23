@@ -12,9 +12,7 @@ Coloquei na mala um livro, O Vermelho e o Negro. Nem sei por que peguei. Não so
 
 Guardei as notas que peguei na gaveta da minha mãe, e fechei a mala com força. Se a minha mãe ouvisse, ótimo.
 
-Fui pra cozinha.
-
-E antes mesmo de eu encostar na maçaneta, a luz acendeu sozinha.
+Fui pra cozinha. E antes mesmo de eu encostar na maçaneta, a luz acendeu sozinha.
 
 — Você realmente vai embora? — a voz da minha mãe veio do corredor.
 
@@ -40,9 +38,7 @@ Ela tomou aquele jeito de quem vai puxar uma arma antiga que adora usar porque j
 
 — Quando você era pequena…
 
-Ah, não.
-
-Eu juro que quase revirei os olhos com tanta força que senti o crânio reclamar.
+Ah, não. Eu juro que quase revirei os olhos com tanta força que senti o crânio reclamar.
 
 Minha mãe apoiou a mão no batente como quem prepara o palco. A voz ficou mais lenta, mais “maternal”, daquele jeito ensaiado que ela usa quando quer que eu me sinta culpada por existir.
 
@@ -122,9 +118,7 @@ Eu vi os olhos dela encherem de lágrimas, o rosto ficar vermelho, o peito subir
 
 — Não — eu falei, fria. — Você não escolheu perder ela.
 
-Ela me encarou, ofegante, achando que eu tinha recuado.
-
-Eu não tinha.
+Ela me encarou, ofegante, achando que eu tinha recuado. Eu não tinha.
 
 — Mas escolheu perder a outra.
 
@@ -132,9 +126,7 @@ Foi como cortar uma linha.
 
 Ela não falou nada. Ficou de boca aberta. Eu nunca tinha visto minha mãe perder a resposta tão depressa.
 
-Eu não esperei resposta.
-
-Virei as costas, peguei a mala, destranquei a porta e deixei a chave na entrada, como quem fecha um capítulo sem cerimônia.
+Eu não esperei resposta. Virei as costas, peguei a mala, destranquei a porta e deixei a chave na entrada, como quem fecha um capítulo sem cerimônia.
 
 Eu tinha uns cem reais, tirados de um cofre ridículo. Fui até o ponto, esperei dar cinco da manhã e peguei o ônibus pro centro de São Paulo, onde ia “arrumar emprego”.
 
@@ -142,9 +134,7 @@ Sim, cem reais. Genial.
 
 A maioria dos jovens que fogem de casa volta porque quebra a cara. Todo mundo acha que a vida é mais fácil sem pai e mãe, e até é, quando alguém paga a conta e põe comida na mesa. A vida adulta tem um degrau alto demais pra subir num salto. E eu subi de cabeça, achando que ia cair em pé.
 
-Eu passei três dias na rua. Três.
-
-Em algum momento cogitei voltar. Não porque sentia falta, pelo amor de Deus, mas porque tinha quinze reais sobrando e uma cidade inteira me lembrando, a cada esquina, que ninguém te deve nada.
+Eu passei três dias na rua. Três. Em algum momento cogitei voltar. Não porque sentia falta, pelo amor de Deus, mas porque tinha quinze reais sobrando e uma cidade inteira me lembrando, a cada esquina, que ninguém te deve nada.
 
 Comi o que dava. Andei de ônibus e metrô pela cidade, labirinto com saída escondida. Dormi mal, acordei pior. E eu ainda andava de cabeça erguida, mesmo tremendo de frio.
 
@@ -152,13 +142,7 @@ Foi aí que eu conheci um cara. Até hoje eu não sei o nome. Eu pedi emprego nu
 
 Eu agradeci, claro. Porque eu sou muito educada quando alguém me joga migalha.
 
-Gastei mais R$ 1,40 e fui.
-
-O lugar se chamava Hamburgueria do S. Estevan.
-
-Quando eu cheguei, tinha fechado.
-
-E começou a chover, óbvio.
+Gastei mais R$ 1,40 e fui. O lugar se chamava Hamburgueria do S. Estevan. Quando eu cheguei, tinha fechado. E começou a chover, óbvio.
 
 Me enfiei debaixo de um telhado qualquer e apaguei ali mesmo. Acordei umas três vezes com carro passando. Um deles jogou água em mim e eu xinguei o motorista até ele sumir. Não me aqueceu, mas pelo menos me fez sentir melhor.
 
@@ -166,9 +150,7 @@ De manhã eu esperei na porta até o dono chegar.
 
 Seu Estevan era um velhinho autoritário, daqueles que já chegam te avaliando como se você fosse mercadoria. Ele foi direto: não contratava qualquer uma, precisava de experiência. Eu quase mandei ele se ferrar, mas não mandei porque eu precisava comer.
 
-Quando ele entendeu minha situação, me deu a vaga.
-
-E, pra piorar minha dignidade, ainda me deixou dormir no armazém do restaurante por um mês, enquanto eu procurava lugar. Botou uma cama e um armário pequeno. Coisa simples, mas enorme demais pra aceitar sem engasgar.
+Quando ele entendeu minha situação, me deu a vaga. E, pra piorar minha dignidade, ainda me deixou dormir no armazém do restaurante por um mês, enquanto eu procurava lugar. Botou uma cama e um armário pequeno. Coisa simples, mas enorme demais pra aceitar sem engasgar.
 
 Eu agradeci do meu jeito: curto, seco, porque agradecer demais era humilhante.
 
@@ -256,11 +238,7 @@ Quando saí do trabalho, fui cobrar o pagamento do Seu Estevan. Ele pediu pra eu
 
 No caminho de casa, um carro escuro acendeu o farol e me deu um susto. Eu ignorei e continuei. Virei numa esquina, andei mais duzentos metros e ouvi de novo o som de motor.
 
-Quando me virei, vi o mesmo carro escuro atrás de mim, devagar.
-
-Eu apertei o passo.
-
-Virei outra esquina. Em poucos segundos, o carro virou também.
+Quando me virei, vi o mesmo carro escuro atrás de mim, devagar. Eu apertei o passo. Virei outra esquina. Em poucos segundos, o carro virou também.
 
 Aí eu corri.
 
@@ -375,17 +353,9 @@ Eu olhei pra ele como se ele tivesse acabado de cometer um crime.
 
 — Então vai esquentar um pouco.
 
-Ele sorriu. Aquele sorriso que parece que já conhece a sua fraqueza e só espera você admitir.
+Ele sorriu. Aquele sorriso que parece que já conhece a sua fraqueza e só espera você admitir. A gente ficou. Bebeu. Dançou. E eu, que passei um ano inteiro controlando cada coisa que eu dizia e fazia, comecei a me soltar. Comecei a rir de verdade. Comecei a cantar junto quando tocou Don’t Stop Me Now. Comecei a rodar no meio da multidão como se eu fosse uma pessoa normal.
 
-A gente ficou. Bebeu. Dançou.
-
-E eu, que passei um ano inteiro controlando cada coisa que eu dizia e fazia, comecei a me soltar. Comecei a rir de verdade. Comecei a cantar junto quando tocou Don’t Stop Me Now. Comecei a rodar no meio da multidão como se eu fosse uma pessoa normal.
-
-Isso deveria ser bom.
-
-E era.
-
-E eu odiei por isso.
+Isso deveria ser bom. E era. E eu odiei por isso.
 
 Porque eu sabia exatamente de onde vinha aquela necessidade. Vinha de um vazio que eu fingia que não existia. Vinha de noites em que eu sentava na minha casa silenciosa e ficava olhando pra parede, esperando o sono me salvar, e o sono não salvava.
 
@@ -405,9 +375,7 @@ A madeira cedeu com um estalo. Ele puxou. A porta abriu.
 
 — Você ficou maluco?
 
-Ele entrou primeiro.
-
-Lá dentro era escuro, sujo, com aquele cheiro de coisa parada que gruda no corpo. As janelas eram sujas demais pra deixar luz entrar direito.
+Ele entrou primeiro. Lá dentro era escuro, sujo, com aquele cheiro de coisa parada que gruda no corpo. As janelas eram sujas demais pra deixar luz entrar direito.
 
 — Jason… vamos embora.
 
@@ -443,9 +411,7 @@ Quando eu olhava pra baixo, meu estômago embrulhava, o enjoo subindo quente. E 
 
 Eu quase ri de nervoso, mas não ri. Eu só continuei.
 
-Chegamos no último lance. Ele abriu a porta e, de repente, eu vi de novo o céu.
-
-Estávamos no terraço.
+Chegamos no último lance. Ele abriu a porta e, de repente, eu vi de novo o céu. Estávamos no terraço.
 
 O vento bateu no meu rosto e me deu aquela sensação estranha de “agora vai dar errado” que eu costumo ignorar e depois pago caro.
 
@@ -463,11 +429,7 @@ Ele subiu de costas na mureta e abriu os braços. E gritou. Um grito de alegria 
 
 — E vai ser mais curta ainda se você cair. Desce daí.
 
-Eu fui até ele pra puxar.
-
-Puxei forte demais.
-
-Ele veio parar na minha frente.
+Eu fui até ele pra puxar. Puxei forte demais. Ele veio parar na minha frente.
 
 Perto demais.
 
@@ -517,9 +479,7 @@ Forcei uma risada curta, amarga, do tipo que eu uso quando preciso fingir que te
 
 — Eu quero… — eu comecei e parei. Porque eu não queria dizer “eu quero que você fique”. Eu não queria dizer “eu quero colo”. Eu não queria dizer nada que provasse que eu estava carente igual qualquer outra pessoa.
 
-Sentei mais perto da porta por onde tínhamos entrado. Ele sentou ao meu lado, sem invadir, e passou o braço por cima de mim devagar, como quem pede permissão com o movimento. Eu deixei. Faltava energia pra lutar contra tudo ao mesmo tempo.
-
-Ficamos ali, olhando pro céu.
+Sentei mais perto da porta por onde tínhamos entrado. Ele sentou ao meu lado, sem invadir, e passou o braço por cima de mim devagar, como quem pede permissão com o movimento. Eu deixei. Faltava energia pra lutar contra tudo ao mesmo tempo. Ficamos ali, olhando pro céu.
 
 — O céu daqui nem se compara ao de Vila Velha, né? — ele disse.
 
@@ -547,8 +507,6 @@ Eu deitei a cabeça no peito dele por alguns segundos, só pra descansar do meu 
 
 — Deixa de ser idiota. Eu não tô com sono.
 
-Eu fiquei quieta, respirando.
-
-Olhei para o vidro da janela. Só vi os dois encostados, sem nenhuma coisa estranha atrás de nós. Jason continuava com o braço em volta de mim.
+Eu fiquei quieta, respirando. Olhei para o vidro da janela. Só vi os dois encostados, sem nenhuma coisa estranha atrás de nós. Jason continuava com o braço em volta de mim.
 
 Eu podia ir embora quando quisesse. Pensei nisso, só para me lembrar. Mas fiquei. Depois de um ano jantando sozinha numa mesa pequena demais, cinco minutos ali não me pareciam grande crime.

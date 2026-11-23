@@ -130,9 +130,7 @@ E aí veio aquele estalo pequenininho, quase bobo, que a gente só percebe depoi
 
 Foi só um clique normal de carro. Mas eu ouvi como decisão.
 
-Fiquei quieto. Não queria ser o cara que vê um gesto e monta um filme.
-
-Mike puxou assunto.
+Fiquei quieto. Não queria ser o cara que vê um gesto e monta um filme. Mike puxou assunto.
 
 — Você mora aqui há quanto tempo?
 
@@ -174,9 +172,7 @@ Filipo cutucou meu braço de leve, como quem diz “calma”.
 
 Eu não tinha medo ainda. Eu tinha um desconforto. E desconforto é traiçoeiro porque parece frescura até virar pânico.
 
-Mais cinco minutos, e eu vi a placa da rodovia.
-
-A minha boca secou.
+Mais cinco minutos, e eu vi a placa da rodovia. A minha boca secou.
 
 — A gente tá saindo da cidade — falei, tentando deixar a voz normal.
 
@@ -200,9 +196,7 @@ Ele sorriu, mas o sorriso dele não tinha dente.
 
 “Pessoa certa”.
 
-O meu estômago fez aquele movimento de elevador.
-
-Tentei fazer uma coisa que eu não sei fazer: bancar o durão.
+O meu estômago fez aquele movimento de elevador. Tentei fazer uma coisa que eu não sei fazer: bancar o durão.
 
 — Tá. Mas eu vou te falar uma coisa: se isso for algum tipo de brincadeira, eu juro que eu…
 
@@ -214,9 +208,7 @@ Mike falou sem virar.
 
 A voz dele, nessa hora, tinha um detalhe que eu não tinha ouvido antes: pressa, e não de quem quer fazer mal: de quem quer chegar antes que alguma coisa aconteça.
 
-Fiquei quieto, a cabeça montando hipóteses idiotas: sequestro, jornal, polícia, minha mãe chorando, eu sumindo. Parecia exagero, mas quando você já viveu horror, o exagero vira prevenção.
-
-A estrada seguiu.
+Fiquei quieto, a cabeça montando hipóteses idiotas: sequestro, jornal, polícia, minha mãe chorando, eu sumindo. Parecia exagero, mas quando você já viveu horror, o exagero vira prevenção. A estrada seguiu.
 
 E então, depois de mais um tempo, eu reconheci uma curva. Um canavial. Um poste específico.
 
@@ -266,9 +258,7 @@ A palavra “viva” saiu como faca.
 
 Eu fiquei mudo. Porque a minha raiva brigou com uma coisa pior: pena.
 
-A gente entrou na rua da Jennifer. Reconheci cada casa. A vontade de dar meia-volta era enorme.
-
-Mike parou do outro lado da rua.
+A gente entrou na rua da Jennifer. Reconheci cada casa. A vontade de dar meia-volta era enorme. Mike parou do outro lado da rua.
 
 — É aqui? — ele perguntou.
 
@@ -354,9 +344,7 @@ Mike olhou para mim, depois para ela. E, quando ele falou, deu pra ver: ele não
 
 — A minha filha ficou presa — ele disse. A voz dele tremeu um milímetro. Só um. — Em Alvorada Alegre.
 
-O nome da cidade fez o ar ficar mais pesado.
-
-Jennifer não disse nada.
+O nome da cidade fez o ar ficar mais pesado. Jennifer não disse nada.
 
 — E o que isso tem a ver comigo? — ela perguntou, controlada.
 

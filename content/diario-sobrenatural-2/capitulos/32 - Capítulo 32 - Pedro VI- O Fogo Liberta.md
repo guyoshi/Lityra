@@ -14,9 +14,9 @@ No bolso estavam o celular da Jennifer e a minha bombinha. Sacudi a bombinha e o
 
 — Se você quiser ficar no carro — o Filipo falou.
 
-— Eu vim pelo Junior.
+— E deixar tu entrar lá sozinho? Nem pensar. — Enfiei a bombinha de volta no bolso. — Eu falei que ia ajudar.
 
-— Eu sei. Eu vim pela Manu. — Ele olhou o arco. — Até a porta da igreja dá no mesmo.
+— Então vamos. — Ele olhou o arco. — Até a porta da igreja dá no mesmo.
 
 Não tinha o que responder a isso, então desci. O ar de fora tinha gosto de moeda. A porta do carro fez um barulho que eu senti na nuca, e eu fiquei parado na estrada, tentando decidir se eu estava com medo ou só com fome, porque nas duas situações a minha barriga fazia o mesmo som. Era medo. Eu sei porque a fome tem humor, e aquilo não tinha nenhum. Foi aí que o celular vibrou.
 
@@ -204,7 +204,7 @@ Foi aí que eu parei de respirar. Eu conhecia aquela calma. Do outro ano. Das no
 
 A Kelly.
 
-Eu passei o ano inteiro com raiva do Junior por aquele dedo. Eu tinha chorado por ela de manhã e de noite, e a tinha repartido em pedaços para caber no luto. E ali, ajoelhado no chão de uma igreja cheia de velas, ele gritava dentro da própria cabeça contra a voz que o tinha feito apertar, e eu entendi, sem querer entender, que ele nunca tinha apertado sozinho. Que aquela calma estava sentada ao lado dele, do outro lado do gatilho.
+Eu tinha passado o ano inteiro com raiva do Junior. Primeiro por ele ter dançado com a Kelly e escondido de mim. Depois pelo lago. Pelo tiro. Às vezes as duas coisas vinham juntas, e eu odiava ainda mais por isso. A Jennifer já tinha me contado o que Agouro fizera com os dois. Eu tinha ouvido. Não era burro. Só que entender aquilo não trazia a Kelly de volta, nem apagava o jeito como o Junior tinha me feito de idiota. Agora ele gritava no chão contra aquela voz, e eu reconheci a mesma calma que tinha vindo junto com o gatilho.
 
 Era um pensamento que eu não tinha permissão de ter. Ele chegou assim mesmo, e o corpo reagiu sozinho: a mão foi ao bolso, a bombinha veio junto, o peito fechou, e eu puxei uma dose, e a lata respondeu mais leve ainda, com o Junior se contorcendo no chão e o Filipo me olhando de um lado a outro, entre a irmã e nós.
 
@@ -353,7 +353,7 @@ Silêncio. Alguma coisa mudou na sala de aula que só ele via, porque os ombros 
 
 Ouvi uma coisa que nunca tinha ouvido na vida: o barulho de um prédio inteiro, muito longe, parando de gemer. Devia ser a minha cabeça. As velas apagadas continuaram apagadas. Mas por um instante o ar da igreja ficou mais leve, como o ar de uma sala depois que alguém sai.
 
-Eu esperava ouvir aquilo do Junior havia quase um ano. Tinha ensaiado em voz alta, no banho, o que eu ia responder. Ele dizia agora para o ar, e não para mim, e eu fiquei com raiva de ter precisado que ele dissesse. Ao mesmo tempo, a raiva escorria, sem eu pedir. Eu puxei o braço dele de volta. Ele veio.
+Eu tinha tantas coisas guardadas para jogar na cara do Junior. Na hora, não consegui dizer nenhuma. Ele continuava de pé por teimosia, olhando para uma menina que eu não via. Apertei o braço dele e puxei de volta. Ele veio.
 
 — Pronto — ele disse.
 
@@ -415,13 +415,15 @@ Fui. Eu ouvia a igreja ir e vir como se ouve chuva do outro lado de uma janela f
 
 A voz da Jennifer chegou de longe, de uma estrada de terra, com as mãos dela nos meus braços. *Você não depende do amor de ninguém para ser alguém.* Eu tinha achado que era gentileza. Com a mão da Mel quente na minha, achei que podia ser fato.
 
-— Eu sempre quis que alguém me escolhesse. — A piada nem chegou a começar; ficou do lado de fora, esperando. — Tu é a coisa que eu mais quis na vida. — Engoli. — Só que o que eu mais quis nunca foi quem eu mais amo.
+— Eu queria ficar — eu disse. Minha voz saiu sem a piada que eu costumava colocar no fim. — Queria mesmo.
 
-Atrás de mim, no pé do banco, o Junior respirava com dois ritmos.
+A mão dela estava quente. O ar passava sem arranhar meu peito. Ali, eu nem pensava em procurar a bombinha.
 
-— Quem eu amo não me pede pra largar ninguém. — A voz saiu pequena e inteira. — Eu sei bem como é ser largado.
+Atrás de mim, o Junior escorregou pelo banco. A mão dele bateu na madeira uma vez, tentando se apoiar. Mel apertou meus dedos.
 
-Soltei a mão dela. Foi a coisa mais difícil que eu já fiz com uma mão só.
+— Fica, Pedro. Só dessa vez, escolhe você.
+
+Olhei para ela. Depois para o Junior, que tentava se levantar e não conseguia. Soltei a mão da Mel, dedo por dedo.
 
 A imagem estalou como a cozinha, e do outro lado do estalo só havia um morto de camisa de domingo, olhando para o altar. A minha boca ainda estava quente. Voltei até o Junior, que me olhava do chão e não perguntou nada, e levantei ele pelo braço bom. O celular vibrou na minha perna. Eu não olhei.
 
@@ -529,9 +531,9 @@ O velho olhava o céu clarear com a cara de quem confere uma conta. Ninguém lhe
 
 O Junior não respondeu. Tinha se deitado de lado na terra, abraçado nos joelhos, e olhava a fumaça que subia atrás do arco. Eu me deitei do lado dele. Encostei a testa no ombro dele, e ele deixou. Fiquei assim, respirando, até a respiração voltar a ter um só ritmo.
 
-— Eu vim — eu disse.
+O Junior demorou a levantar o rosto.
 
-— Eu sei. — A voz saiu garota. — Ele agradeceu, Pedro. Você viu?
+— Ele agradeceu, Pedro. Você viu?
 
 — Vi.
 

@@ -388,9 +388,21 @@ Ninguém falou por alguns segundos. Pedro apertou o celular de Jennifer na mão.
 
 Acabei sorrindo. Só um pouco. O idiota percebeu e sorriu também.
 
-— Além disso — Jennifer continuou —, Filipo não pode ir sozinho. Mesmo que ache que pode.
+— O Filipo vai entrar naquela cidade com ou sem você — Jennifer continuou. — Não preciso de visão nenhuma pra saber disso.
 
-Filipo olhou pelo retrovisor, mas não disse nada. Pedro ficou quieto. Depois olhou para Jennifer de um jeito que me lembrou o menino que vivia aparecendo na nossa casa no ano anterior.
+— Isso é problema dele — Pedro respondeu, mas nem ele pareceu acreditar.
+
+— Só que ele não tem ninguém pra ir junto. Eu vou estar com a Priscila. — Jennifer fez uma pausa. — Não tô pedindo pra você esquecer o que aconteceu com a Kelly.
+
+Pedro ficou olhando para o Filipo. Ele mantinha os olhos na estrada, como se nem estivesse ouvindo. Depois Pedro passou a mão pelo rosto.
+
+— Tá. Eu vou ajudar o Filipo, antes que esse maluco invente de se matar sozinho naquela cidade.
+
+— Eu estou ouvindo — Filipo avisou.
+
+— Era pra ouvir mesmo.
+
+Jennifer não insistiu. Pedro ficou quieto por algum tempo. Depois olhou para ela de um jeito que me lembrou o menino que vivia aparecendo na nossa casa no ano anterior.
 
 — Eu te amo, Jen.
 

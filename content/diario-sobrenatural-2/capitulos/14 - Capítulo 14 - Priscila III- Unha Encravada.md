@@ -48,9 +48,7 @@ Para distrair a mente, liguei o rádio. Estava tocando “Beat It”. A música 
 
 Fui ao banheiro e, no meio do caminho, a lembrança voltou, como se alguém tivesse me cutucado a nuca: minha avó está doente. Aquilo me deu uma necessidade física de falar com ela. Eu não sou sentimental, mas eu sou prática. E, naquele momento, o prático era ligar.
 
-Voltei para o quarto e vasculhei as agendas antigas até achar o número, numa agenda surrada que eu teria jogado fora há dias, se não fosse por um desenho que a Kelly tinha feito nela quando pequena. Um desenho torto, de criança, e mesmo assim mais honesto do que muita gente adulta.
-
-Liguei.
+Voltei para o quarto e vasculhei as agendas antigas até achar o número, numa agenda surrada que eu teria jogado fora há dias, se não fosse por um desenho que a Kelly tinha feito nela quando pequena. Um desenho torto, de criança, e mesmo assim mais honesto do que muita gente adulta. Liguei.
 
 — Vó? — falei, quando ouvi a voz.
 
