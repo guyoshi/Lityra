@@ -34,17 +34,26 @@ if (-not (Test-Path -LiteralPath $editor -PathType Container)) {
   Write-Host "[ERRO] Pasta Editor de Livros nao encontrada: $editor" -ForegroundColor Red
   exit 2
 }
-$arguments = @($scriptPath, "--root", $root, "--app", $app, "--editor", $editor, "--mode", "books", "--apply")
-if (Get-Command "py" -ErrorAction SilentlyContinue) {
-  & py -3 @arguments
-} elseif (Get-Command "python" -ErrorAction SilentlyContinue) {
-  & python @arguments
-} else {
-  Write-Host "[ERRO] Python nao encontrado. Instala o Python 3 para sincronizar." -ForegroundColor Red
-  exit 2
+$commonArguments = @($scriptPath, "--root", $root, "--app", $app, "--editor", $editor, "--apply")
+
+function Invoke-LityraSync([string]$mode) {
+  $modeArguments = @($commonArguments + @("--mode", $mode))
+  if (Get-Command "py" -ErrorAction SilentlyContinue) {
+    & py -3 @modeArguments
+  } elseif (Get-Command "python" -ErrorAction SilentlyContinue) {
+    & python @modeArguments
+  } else {
+    Write-Host "[ERRO] Python nao encontrado. Instala o Python 3 para sincronizar." -ForegroundColor Red
+    exit 2
+  }
+  if ($LASTEXITCODE -ne 0) {
+    Write-Host "[ERRO] A sincronizacao de $mode terminou com problemas (codigo $LASTEXITCODE)." -ForegroundColor Red
+    exit $LASTEXITCODE
+  }
 }
-if ($LASTEXITCODE -ne 0) {
-  Write-Host "[ERRO] A sincronizacao terminou com problemas (codigo $LASTEXITCODE)." -ForegroundColor Red
-  exit $LASTEXITCODE
-}
-Write-Host "[OK] Catalogo e capitulos reais sincronizados. Para publicar no GitHub, confirme o commit e push do Lityra." -ForegroundColor Green
+
+# Primeiro publica manuscritos e manifestos; em seguida publica os MP3
+# já exportados pelo Fish Audio e liga cada capítulo ao seu áudio no Lityra.
+Invoke-LityraSync "books"
+Invoke-LityraSync "audio"
+Write-Host "[OK] Catalogo, capitulos e audios sincronizados. Para publicar no GitHub, confirme o commit e push do Lityra." -ForegroundColor Green
