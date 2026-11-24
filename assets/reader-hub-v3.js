@@ -65,7 +65,7 @@
                 </div>
                 <small id="readerProfileNameStatus" class="reader-profile-name-status" aria-live="polite"></small>
               </label>
-              <label class="field reader-profile-name-field">
+              <label class="field reader-profile-name-field email-login-only">
                 <span>Seu e-mail (usado para entrar)</span>
                 <div class="reader-profile-name-row">
                   <input id="readerProfileEmail" type="email" inputmode="email" maxlength="120" autocomplete="email" placeholder="seu@email.com">
@@ -75,9 +75,10 @@
               </label>
               <div class="reader-access-card">
                 <div class="reader-access-copy">
-                  <span>Código de acesso (sua senha)</span>
+                  <span>Código de acesso<span class="email-login-only"> (sua senha)</span></span>
                   <strong id="readerAccessCode">Gerando…</strong>
-                  <small>Use o e-mail e este código para entrar no seu perfil em outro aparelho. Não compartilhe com ninguém. Se perder, use “Esqueci o código” na tela de entrada.</small>
+                  <small class="email-login-only">Use o e-mail e este código para entrar no seu perfil em outro aparelho. Não compartilhe com ninguém. Se perder, use “Esqueci o código” na tela de entrada.</small>
+                  <small class="email-login-off-only">Use este código para entrar no seu perfil em outro aparelho. Não compartilhe publicamente.</small>
                 </div>
                 <div class="reader-access-actions">
                   <button id="readerAccessCopy" type="button">Copiar código</button>

@@ -2,6 +2,11 @@
 const Comments = (() => {
   const NAME_KEY="jesed:username", USER_KEY="jesed:readerId", ACCESS_KEY="jesed:readerAccessCode";
   const CODEHASH_KEY="jesed:readerCodeHash";
+  // CHAVE GERAL do login por e-mail. false = entra só com o código (como antes).
+  // Quando o Cloud Function + extensão de e-mail estiverem no ar, troque para true
+  // (e publique o site): cadastro pede e-mail, login = e-mail + código, "Esqueci o código".
+  const EMAIL_LOGIN=false;
+  try{document.documentElement.setAttribute("data-email-login",EMAIL_LOGIN?"on":"off");}catch(_){}
   const EMAIL_KEY="jesed:readerEmail";
   const CODE_RENEWED_KEY="jesed:codeRenewedNotice";
   const EMAIL_RE=/^[^\s@]+@[^\s@]+\.[^\s@]{2,}$/;
@@ -451,7 +456,7 @@ const Comments = (() => {
           profileHash:codeHash,
           readerId:String(readerId),
           accessCode:formatAccessCode(code),
-          ...(readerEmail()?{email:readerEmail()}:{}),
+          ...(EMAIL_LOGIN&&readerEmail()?{email:readerEmail()}:{}),
           updatedAt:Date.now()
         },{merge:true});
         try{localStorage.setItem(CODE_SYNCED_KEY,codeHash);}catch(_){}
@@ -513,14 +518,14 @@ const Comments = (() => {
     const existingEmail=normEmail(profileDoc?.data()?.email||"");
     if(existingEmail){
       try{localStorage.setItem(EMAIL_KEY,existingEmail);}catch(_){}
-    }else if(validEmail(readerEmail())){
+    }else if(EMAIL_LOGIN&&validEmail(readerEmail())){
       // Perfil novo, ou antigo que acabou de informar o e-mail.
       payload.email=readerEmail();
     }
     if(!exists){
       const firstBook=String(initialBookId||"").trim();
       if(!firstBook)throw new Error("Escolha o primeiro livro antes de criar o perfil.");
-      if(!payload.email)throw new Error("Informe um e-mail válido para criar o perfil.");
+      if(EMAIL_LOGIN&&!payload.email)throw new Error("Informe um e-mail válido para criar o perfil.");
       payload.createdAt=Date.now();
       payload.initialBookId=firstBook;
       payload.allowedBooks=[firstBook];
@@ -545,7 +550,7 @@ const Comments = (() => {
     if(readerProfileState)dispatchReaderAccessState();
     startReaderAccessWatch();
     // Perfis antigos (criados sem e-mail) precisam informá-lo uma vez.
-    if(exists&&!existingEmail&&!payload.email)setTimeout(()=>promptLegacyEmail(),400);
+    if(EMAIL_LOGIN&&exists&&!existingEmail&&!payload.email)setTimeout(()=>promptLegacyEmail(),400);
     return code;
   }
 
@@ -568,7 +573,7 @@ const Comments = (() => {
   function getReaderEmail(){return readerEmail();}
 
   function promptLegacyEmail(){
-    if(admin()||!name()||readerEmail())return;
+    if(!EMAIL_LOGIN||admin()||!name()||readerEmail())return;
     let el=document.getElementById("legacyEmailSheet");
     if(el){el.hidden=false;return;}
     el=document.createElement("div");
@@ -869,20 +874,25 @@ const Comments = (() => {
     if(clean.length<4) throw new Error("Confira o código digitado.");
     const codeHash=await sha256(clean);
     const doc=await db.collection(PROFILE_COLLECTION).doc(codeHash).get();
-    const BAD="E-mail ou código incorretos.";
+    const BAD=EMAIL_LOGIN?"E-mail ou código incorretos.":"Código não encontrado.";
     if(!doc.exists) throw new Error(BAD);
     const profile=doc.data()||{};
-    if(profile.deleted) throw new Error(profile.replacedBy?"Este código foi substituído por um novo. Use o código mais recente enviado ao seu e-mail.":"Este código foi removido pelo autor. Crie um novo perfil para continuar.");
+    if(profile.deleted) throw new Error(profile.replacedBy?(EMAIL_LOGIN?"Este código foi substituído por um novo. Use o código mais recente enviado ao seu e-mail.":"Este código foi substituído por um novo. Peça o código atual ao autor."):"Este código foi removido pelo autor. Crie um novo perfil para continuar.");
     if(!profile.readerId||!profile.name) throw new Error("Este perfil está incompleto.");
     // Perfis com e-mail: entram com e-mail + código. Perfis antigos (sem
     // e-mail) continuam entrando só com o código até informarem o e-mail.
     const typed=normEmail(rawEmail);
-    if(profile.email){
-      if(!typed) throw new Error("Informe o e-mail do seu perfil junto com o código.");
-      if(typed!==normEmail(profile.email)) throw new Error(BAD);
-      localStorage.setItem(EMAIL_KEY,normEmail(profile.email));
-    }else{
-      localStorage.removeItem(EMAIL_KEY);
+    if(EMAIL_LOGIN){
+      if(profile.email){
+        if(!typed) throw new Error("Informe o e-mail do seu perfil junto com o código.");
+        if(typed!==normEmail(profile.email)) throw new Error(BAD);
+        localStorage.setItem(EMAIL_KEY,normEmail(profile.email));
+      }else{
+        localStorage.removeItem(EMAIL_KEY);
+      }
+    }else if(profile.email){
+      // Modo "só código": o e-mail já cadastrado fica guardado, sem ser exigido.
+      try{localStorage.setItem(EMAIL_KEY,normEmail(profile.email));}catch(_){}
     }
     localStorage.setItem(USER_KEY,String(profile.readerId));
     localStorage.setItem(NAME_KEY,String(profile.name));
@@ -1019,7 +1029,7 @@ const Comments = (() => {
       if(!v)return input.focus();
       const emailEl=document.getElementById("nameEmailInput");
       const emailV=normEmail(emailEl?.value||"");
-      if(!validEmail(emailV)){
+      if(EMAIL_LOGIN&&!validEmail(emailV)){
         bookPicker?.querySelector(".initial-book-status.error")?.remove();
         bookPicker?.insertAdjacentHTML("beforeend",'<p class="initial-book-status error">Digite um e-mail válido para criar o perfil.</p>');
         return emailEl?.focus();
@@ -1031,7 +1041,7 @@ const Comments = (() => {
       }
       save.disabled=true;
       localStorage.setItem(NAME_KEY,v);
-      localStorage.setItem(EMAIL_KEY,emailV);
+      if(EMAIL_LOGIN)localStorage.setItem(EMAIL_KEY,emailV);
       if(!localStorage.getItem(SEEN_ANNOUNCE_KEY))localStorage.setItem(SEEN_ANNOUNCE_KEY,String(Date.now()));
       try{
         const code=await ensureAccessProfile(initialBook);
@@ -1122,7 +1132,7 @@ const Comments = (() => {
     if(localStorage.getItem(CODE_RENEWED_KEY)&&!name()){
       localStorage.removeItem(CODE_RENEWED_KEY);
       showCode();
-      if(codeStatus)codeStatus.textContent="Seu código foi renovado. Entre com seu e-mail e o novo código enviado por e-mail.";
+      if(codeStatus)codeStatus.textContent=EMAIL_LOGIN?"Seu código foi renovado. Entre com seu e-mail e o novo código enviado por e-mail.":"Seu código foi renovado. Peça o código atual ao autor.";
     }
   }
 
@@ -1275,7 +1285,7 @@ const Comments = (() => {
       +'<button id="readerSwitchLogout" class="profile-action-btn danger-soft" type="button"><strong>Sair deste perfil</strong><span id="readerSwitchLogoutHint">O perfil e o progresso continuam guardados pelo código</span></button>'
       +'</div>'
       +'<div id="readerSwitchCodeBox" class="reader-code-login profile-inline-login" hidden>'
-      +'<label class="field"><span>E-mail</span><input id="readerSwitchEmail" type="email" inputmode="email" autocomplete="email" placeholder="seu@email.com (perfis antigos: deixe vazio)" maxlength="120"></label>'
+      +'<label class="field email-login-only"><span>E-mail</span><input id="readerSwitchEmail" type="email" inputmode="email" autocomplete="email" placeholder="seu@email.com (perfis antigos: deixe vazio)" maxlength="120"></label>'
       +'<label class="field"><span>Código de acesso</span><input id="readerSwitchCode" type="text" inputmode="text" autocomplete="off" autocapitalize="characters" spellcheck="false" placeholder="ex.: DE2E40" maxlength="24"></label>'
       +'<p id="readerSwitchStatus" class="reader-code-status" aria-live="polite"></p>'
       +'<div class="sheet-actions"><button id="readerSwitchSubmit" class="btn-primary" type="button">Entrar</button><button id="readerSwitchCodeBack" class="btn-ghost" type="button">Voltar</button></div>'
@@ -1925,7 +1935,7 @@ const Comments = (() => {
 
   return {
     init,attachChapter,isEnabled:()=>enabled,isAdmin:admin,getAdminId:()=>adminUser?.uid||"",getUserName:name,getUserId:uid,getAccessCode:accessCode,
-    loginWithCode,ensureAccessProfile,updateReaderName,hashText,forceResync,saveReaderEmail,getReaderEmail,requestCodeReset,promptLegacyEmail,
+    loginWithCode,ensureAccessProfile,updateReaderName,hashText,forceResync,saveReaderEmail,getReaderEmail,requestCodeReset,promptLegacyEmail,EMAIL_LOGIN,
     getDb:()=>db,getCachedComments:book=>(cCache[book]||[]),reply,edit,saveText,del,resolve,seen,unseen,markAllSeen,
     sendAnnouncement,getAllowedBooks,getReaderAccessState,listReaderProfiles,setAllowedBooks,approveReaderProfile,setReaderAccess,rotateReaderAccessCode,deleteReaderProfile
   };

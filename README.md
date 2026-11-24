@@ -137,3 +137,5 @@ O login tem recuperação de senha por e-mail. Uma conta autenticada que não po
 - "Esqueci o código": a Cloud Function `requestAccessCodeReset` (pasta `functions/`) gera um código novo, migra os dados ligados ao hash do código (o `readerId` interno nunca muda) e grava um e-mail na coleção `mail`.
 
 Publicação (nesta ordem): 1) publicar `firestore.rules`; 2) instalar a extensão **Trigger Email from Firestore** (coleção `mail`) com um SMTP; 3) `firebase deploy --only functions` (plano Blaze); 4) publicar o site.
+
+> **Estado atual: DESLIGADO.** A chave `EMAIL_LOGIN` (no topo de `assets/feedback-core-v8.js`) está `false`: o app entra só com o código, como antes, sem campo de e-mail, sem "Esqueci o código" e sem pedir e-mail aos perfis antigos. Todo o código do login por e-mail continua no projeto. Para ligar: publique `firestore.rules`, instale a extensão "Trigger Email from Firestore" (coleção `mail`), faça o deploy de `functions/`, troque para `const EMAIL_LOGIN=true;`, aumente `SHELL_CACHE` em `service-worker.js` e publique o site.
