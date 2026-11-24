@@ -1,388 +1,411 @@
-A imagem do Sr. Peron me assombrou até nos sonhos. Ver a morte de perto não era novidade. Minhas mãos conheciam o ato de tirar vidas. Mas o Sr. Peron ficou na memória. Foi mentor e guia desde que saí da Ala 66, e lado a lado enfrentamos inúmeras missões.
+Passei boa parte do descanso sonhando com o Sr. Peron. Já tinha visto muita gente morrer e mandado uma quantidade considerável delas pro vazio. Normalmente conseguia dormir depois. Mas aquele velho tinha me ensinado a viver fora da Ala 66. Tínhamos ido juntos pra um monte de missões e, toda vez que eu fechava os olhos, lá estava ele de novo, na cadeira, olhando pra mim.
 
-Quando as luzes cortaram a escuridão do dormitório, levantei com aquele adeus ainda na cabeça. No refeitório, encontrei Vek e sua namorada, Saezi, numa conversa tranquila até eu chegar.
+Quando as luzes acenderam no dormitório, desisti de tentar dormir mais um pouco e fui pro refeitório. Encontrei Vek e Saezi, a namorada dele, conversando à mesa.
 
-— Boa viagem! — cumprimentei, unindo-me a eles na mesa.
+— Boa viagem!
 
-— Eita. Está com a cara horrível, cara — Vek percebeu.
+— Caralho, Jasmey. Que cara é essa?
 
-— Parece que fui atropelado por uma ressaca... Minha cabeça está uma bagunça.
+— A mesma de sempre, Vek, só que com menos descanso. Tô parecendo um sujeito de ressaca e nem tive o prazer de beber.
 
-— Ei... tenta comer alguma coisa. Vai te fazer bem — disse Saezi.
+— Come alguma coisa, Jasmey — disse Saezi. — Vai te fazer bem.
 
-Vek passou a mão pelos cabelos escuros, cortados curtos, antes de deslizar um de seus pães recheados em minha direção. Franzia o nariz um pouco grande, como fazia quando estava preocupado, e a pequena pinta ao lado dele se destacava sob a luz do refeitório.
+Vek passou a mão pelos cabelos escuros e curtos e empurrou um dos pães recheados na minha direção. Tava com aquele nariz meio grande franzido, a pintinha do lado dele bem visível. Conhecia aquela cara. Tava preocupado comigo.
 
-— Toma, nunca gostei destes pães de qualquer forma.
+— Toma. Nem gosto muito desses pães.
 
 — Obrigado, irmão.
 
-Encarando o pão, um silêncio se formou antes de eu mencionar:
+Fiquei olhando pro pão. Sabia que Vek gostava daqueles pães.
 
-— Estive no retiro do Sr. Peron ontem.
+— Fui ao retiro do Sr. Peron ontem.
 
-— O Sr. Peron? Aquele que contava as histórias de suas missões no sistema vermelho? Ele foi... retirado? — Vek se espantou.
+— O Sr. Peron? O das histórias das missões no sistema vermelho? Já retiraram ele?
 
-— Também me pegou de surpresa. Eu imaginei que ele teria mais tempo — admiti.
+— Pois é. Eu achava que ainda tinha um tempo.
 
-— Eu não gosto de ver este tipo de coisa me faz temer ainda mais a morte — disse Saezi.
+— Detesto essas coisas — disse Saezi. — Fico pensando em como vai ser quando chegar a minha vez.
 
-— Tem medo de morrer, amor? — Vek perguntou.
+— Você tem medo de morrer, amor?
 
-— Não tenho medo da morte, tenho medo de morrer. De ser doloroso.
+— De estar morta, não. De sentir dor enquanto morro.
 
-— Os retiros geralmente são indolores, eles anestesiam as pessoas completamente — Vek tentou assegurar.
+— Mas eles dão anestesia nos retiros. Você não sente nada.
 
-— É o que afirmam — concordei, pensativo — mas sei lá… No momento em que vi o Sr. Peron lá fora… seus olhos vermelhos… a cara dele… o velho parecia estar sofrendo. E isso me corroía. Não era para sentir nada. Não era para me importar. Mas a imagem dele, sozinho no vácuo, não saía da minha cabeça.
+— É o que dizem. Mas vocês tinham que ver a cara dele, Vek. Os olhos vermelhos... Eu tava ali, falando pro velho que ia ficar tudo bem, e tive que assistir àquela merda sem poder fazer nada.
 
-— É claro que ele estava sofrendo Jasmey. Não é fácil abandonar tudo. Mas ao menos ele teve tempo de se despedir da vida. Pior é praqueles que morrem sem poder dar um adeus, sem estar realmente preparado — Vek ponderou.
+— Ele pelo menos conseguiu se despedir, Jasmey. Tem gente que sai daqui pra trabalhar e nem sabe que não vai voltar.
 
-Concordei com um aceno, distraindo-me com o pão oferecido. Enquanto mastigava, notei Saezi ocupada com seu bracelete.
+Dei a primeira mordida no pão e fiquei mastigando. Saezi tinha voltado a mexer no bracelete.
 
-— Não me diga que está viciada naquela porra de unidale? — brinquei, ainda com a boca cheia.
+— Você também tá metida naquela merda da Unidale? Por favor, não tira foto da minha cara hoje.
 
-Saezi levou um momento para responder, terminando sua tarefa no dispositivo antes de se voltar para nós.
+Ela terminou de mexer no bracelete antes de olhar pra mim.
 
-— Tenho uma missão mais tarde — revelou.
+— Tenho uma missão mais tarde.
 
-— Excelente notícia, amor. E qual será? — perguntou Vek.
+— Opa! Qual, amor?
 
-Havia uma garrafa de rum necroriano ao lado de Vek. Enquanto esperava a resposta, apanhei-a e bebi direto do gargalo, ignorando o olhar indignado dele.
+Enquanto esperava a resposta, apanhei a garrafa de rum necroriano do Vek e bebi direto do gargalo. Ele olhou pra minha mão. Eu olhei pra Saezi. Se não fizesse contato visual com o dono da garrafa, talvez pudesse beber mais um pouco.
 
-— Missão de rotina. Vamos extrair água de um asteroide nas proximidades — ela explicou.
+— É de rotina. Vamos extrair água de um asteroide aqui perto.
 
-Após um gole profundo, repousei a garrafa sobre a mesa, a realidade da volta que se iniciava se impondo novamente.
+Dei mais um gole antes de devolver a garrafa.
 
-— E quem mais estará nessa missão com você?
+— Quem vai contigo?
 
-— Ainda não sei. O capitão manteve os detalhes sob sigilo, só marcamos para as 3:25 — respondeu Saezi.
+— Não sei ainda. O capitão não deu detalhes. Só marcou pras 3:25.
 
-— Cuidado lá fora. Os campos de meteoros podem ser imprevisíveis, especialmente os detritos menores — aconselhei, preocupado.
+— Cuidado com os campos de meteoros. Os detritos pequenos são os mais chatos de enxergar.
 
-Saezi sorriu, desafiadora.
+Saezi sorriu de lado.
 
-— Está tentando ensinar o dragão a voar, Badrock?
+— Tá querendo ensinar o dragão a voar, Badrock?
 
-— Na verdade, prefiro que seja o Vek a enfrentar o dragão — brinquei, tentando novamente pegar a garrafa de rum necroriano de Vek. Desta vez, porém, ele segurou meu pulso com firmeza surpreendente.
+— Prefiro que o Vek enfrente o dragão. Eu fico com o rum.
 
-— Pegue o seu — disse ele.
+Estendi a mão pra pegar a garrafa outra vez, mas Vek me segurou pelo pulso.
 
-Soltei meu braço, lançando-lhe um olhar desafiador antes de me levantar. Era só protocolo entre nós. Rum necroriano é a bebida mais deliciosa e valiosa que há no universo, e eu é que fui atrevido mesmo.
+— Vai pegar o teu, porra.
 
-Distraído pela busca do meu próprio rum, fui interrompido pelo vibrar do bracelete. Uma mensagem de missão? Logo após uma volta desgastante? Meus planos de relaxar e aproveitar a volta dissiparam-se ao ler a tarefa designada: coleta de água de asteroide, exatamente como a missão de Saezi.
+Soltei o braço. Rum necroriano é a melhor bebida que existe, e também uma das mais caras. Se eu bebesse o dele, o meu durava mais. Era matemática básica.
 
-Retornei à mesa, esquecendo momentaneamente a disputa pelo rum.
+Me levantei pra pegar a minha garrafa e o bracelete vibrou. Outra missão? Abri a mensagem achando que ia poder voltar a dormir depois de beber. Extração de água de asteroide. Puta merda, era a mesma missão da Saezi.
 
-— Parece que estaremos juntos na missão de extração de água — revelei, interrompendo a conversa de Vek e Saezi sobre trivialidades.
+Voltei pra mesa sem o rum.
 
-Os dois viraram-se para mim, surpresos, enquanto mostrava o aviso em meu bracelete. Vek alternava o olhar entre o dispositivo e mim, confuso.
+— Adivinha quem vai junto na extração de água.
 
-— Mas você não estava em missão ontem? — questionou Vek.
+Mostrei o aviso no bracelete. Vek olhou pra Saezi e depois pra mim.
 
-— Isso mesmo. E hoje era para ser minha volta de descanso — lamentei.
+— Mas você não voltou de uma missão ontem?
 
-— Só não me atrapalhe — Saezi lançou, meio brincando, meio séria.
+— Pois é. Eu tinha planos pra hoje, sabia? Nenhum deles envolvia água.
 
-— Digo o mesmo a você, querida — devolvi a provocação. Mordiscando o pão, percebi a ausência de uma garrafa ao meu lado. — Mas que droga! Esqueci de pegar a merda do rum!
+— Só não me atrapalha — disse Saezi.
 
-— Então vá buscar — Vek sugeriu, protegendo a sua garrafa como um tesouro — espere, vou lá com você. Proteja isso com sua vida, amor — Vek entregou-lhe sua garrafa.
+— Pode deixar, querida. Digo o mesmo pra você.
 
-Circulando o olhar pelo refeitório, logo notei Genrir isolado próximo à nossa mesa. Com ar malicioso, chamei-o com um gesto casual. Era o payback. Ele me odiava, eu sabia, e isso só tornava o momento mais delicioso. Aquele tapa-olho era a prova viva da minha superioridade, e agora ele teria que me servir.
+Ela puxou o visor da missão pro meio da mesa e começou a conferir as informações. Enquanto eu conversava com o Vek, Saezi já tinha anotado a posição do asteroide e o equipamento que pretendia levar. Era assim que trabalhava. Nunca precisei esperar por ela numa doca.
 
-— E aí, Genrir, como vai esse olho? — provoquei, mal conseguindo conter o riso.
+Mordi o pão e estendi a mão pro lado da minha cadeira. Nada. Puta merda, tinha voltado sem a garrafa.
 
-— Vai se foder, Badrock — respondeu ele, entre dentes.
+— Vai lá buscar — disse Vek. — Quer saber? Vou contigo.
 
-Ao lado, Vek tentava, sem sucesso, manter uma expressão séria frente à minha irreverência.
+Ele entregou a garrafa pra Saezi, que teve que afastar o pão pra abrir espaço na mesa.
 
-— Escuta, Genrir, só queria um favorzinho — continuei, ignorando sua irritação. — Esqueci de pegar meu rum, e eu precisava molhar a garganta. Sabe, vou ter uma missão hoje, e preciso estar devidamente hidratado. Aquela garrafa arredondada, por favor, ela é mais concentrada.
+— Amor, se ele chegar perto disso, quebra a mão dele.
 
-Genrir me olhou com um desdém de gelar o sangue, o maxilar tremendo, e eu segui, imperturbável.
+Foi quando vi Genrir sozinho, perto da nossa mesa. Tive uma ideia excelente. Excelente pra mim, claro. Fiz sinal pro sujeito se aproximar. O tapa-olho ainda era novidade.
 
-— Sabe, se eu virar o braço direito do Jelles, como dizem os boatos... talvez eu consiga te tirar das máquinas. Não é o que desejo, mas parece que estou destinado a isso.
+— E aí, Genrir, como vai esse olho?
 
-Genrir já se afastava quando gritei às costas dele:
+— Vai se foder, Badrock.
 
-— E não demore. Tenho que me preparar para a missão.
+Vek virou a cara. Vi os ombros dele começarem a tremer.
 
-Vek esperou Genrir se afastar para me advertir.
+— Calma, calma. Preciso de um favorzinho. Esqueci de pegar meu rum e tenho uma missão hoje. Você vai querer que eu esteja bem hidratado, não vai? Pega a garrafa redonda, por favor. A mais concentrada.
 
-— Está abusando da sorte, Jasmey.
+Genrir apertou tanto o maxilar que achei que ia quebrar um dente. Seria uma pena. Já tinha feito estrago suficiente na cara dele.
 
-— Por quê? — indaguei, despreocupado.
+— Tão dizendo por aí que eu posso virar o braço direito do Jelles. Quem sabe eu até consiga te tirar das máquinas um dia? Não tô muito interessado no cargo, mas parece que o capitão tá.
 
-— Um dia desses, o Genrir enfia um cabo de vassoura radioativo no teu cu enquanto você dorme, e ainda vai dizer que foi acidente — Vek especulou com seriedade.
+Ele já tava se afastando quando lembrei de um detalhe.
 
-— Colocar veneno no rum do “preferidinho” do Jelles? E com testemunhas? Ele não quer ser retirado tão jovem. A ele resta mais me servir, porque ele sabe, não só ele, como a maioria, que eu sou o que tenho mais chances pra ser o braço direito do Jelles. — refutei, confiante.
+— A redonda, Genrir! E vê se não demora!
 
-Logo, Genrir retornou, batendo a garrafa na mesa antes de sair rapidamente.
+Vek esperou que ele saísse de perto.
 
-— Veja só, acertou em cheio, Genrir — disse, servindo-me um generoso gole.
+— Você tá abusando da sorte, Jasmey.
 
-Amanda aproximou-se, incrédula com a cena.
+— Por quê? Pedi com educação.
 
-— Eu vi bem? Genrir trouxe o rum pra você?
+— Um dia desses o Genrir enfia um cabo de vassoura radioativo no teu cu enquanto você dorme e ainda diz que foi acidente.
 
-— Com certeza deve estar envenenado — disse Vek.
+— Se ele me envenenar na frente de vocês, vai acabar retirado da Lebargan antes de mim. O Genrir sabe disso. E sabe que eu tenho mais chance que ele de virar o braço direito do capitão. Se fosse esperto, até trazia duas garrafas.
 
-— Que isso! O Genrir perde o olho, mas é você quem vê mal? Ele só veio desejar sorte para a minha mais nova missão — dissimulei.
+Genrir voltou com uma só. Bateu a garrafa na mesa com tanta força que tive que segurá-la antes que tombasse. Saiu sem esperar que eu conferisse se era a que tinha pedido.
 
-— Missão? — Amanda se surpreendeu — outra?
+— A redonda!
 
-— É, querida. Quem mais, senão o melhor da Lebargan? — ironizei, saboreando o momento.
+Me servi de um gole e ergui a garrafa na direção dele.
 
-— É um desgraçado de um filho da puta — Amanda riu. — Fez o Genrir te trazer uma garrafa de rum. Nunca imaginei estar viva para isso.
+— Sabia que você ia acertar, Genrir.
 
-— Nem eu — Vek concordou, acabando com o seu rum
+Amanda chegou a tempo de ver o sujeito se afastando.
 
-Antes da missão, tirei um momento de relaxamento na sauna. Recuperado, fui à cabine de ação, onde encontrei Saezi, Nemes e mais quatro tripulantes.
+— Pera aí. O Genrir foi buscar rum pra você?
 
-— Precisamos de um esquadrão inteiro pra extrair água? — Nemes questionou.
+— Tá envenenado — disse Vek.
 
-— Realmente, dispensar Nemes pouparia alguns recursos — brinquei, arrancando um sorriso dele, e acenei aos outros membros da equipe.
+— Quem perdeu o olho foi o Genrir, Vek. Você tá vendo problema onde não tem. Ele veio desejar sorte na minha missão.
 
-Pouco depois, o Cap. Jelles entrou e se posicionou diante da equipe.
+— Outra missão?
 
-— Senhores, nosso reservatório está no vermelho. Nossos vigias detectaram um meteoro com núcleo rico em água. A operação exige o megatanque 2 e mangueiras de aço para a extração. Hella e Nemes ficam com a mangueira, da instalação até a bomba. Denio e Chesi cuidam da perfuração. Jasmey e Saezi garantem nossa segurança contra qualquer ameaça.
+— É, querida. Dá nisso ser o melhor Dale da Lebargan.
 
-Saezi, sempre atenta aos detalhes, questionou:
+— Você é um filho da puta mesmo. — Amanda caiu na risada. — Fez o Genrir te buscar rum. Nunca achei que ia ver isso.
 
-— E quanto ao comando da nave, capitão? Quem nos guiará na missão?
+— Nem eu. — Vek pegou a própria garrafa de volta, das mãos de Saezi, e bebeu até a última gota. Tinha certeza de que, se deixasse alguma coisa ali, eu ia dar um jeito de beber também.
 
-— Eu próprio assumirei o comando. Estarei à frente desta missão — declarou Jelles, surpreendendo a todos.
+Antes da missão ainda consegui aproveitar um pouco a sauna. Dessa vez saí de lá sem perder nenhum fio de cabelo. Fui pra cabine de ação, onde encontrei Saezi, Nemes e mais quatro Dales.
 
-Nemes, preocupado, perguntou:
+— Precisava desse povo todo pra buscar água? — perguntou Nemes.
 
-— Capitão, é seguro o senhor se ausentar da Lebargan, especialmente agora, com a capitã indisposta?
+— Tem razão. Já podiam mandar você embora, Nemes.
 
-— Estou ciente dos riscos, Nemes. E asseguro que, se algo acontecer, há planos de contingência para manter a Lebargan operacional até um novo comandante assumir — Jelles afirmou, olhando para mim, com um esboço de sorriso.
+Ele riu e eu cumprimentei o resto da equipe.
 
-— Bem, vamos nos preparar. Ativem o modo missão nos braceletes e sigam para a doca. Hella e Nemes, conectem a mangueira à Afrélia, onde o megatanque 2 já está preparado.
+Jelles chegou pouco depois e se posicionou diante de nós.
 
-Hella e Nemes se retiraram, seguidos por Denio e Chesi, encarregados de checar a tribritadeira.
+— Senhores, o reservatório está no vermelho. Os vigias localizaram um meteoro com núcleo rico em água. Vamos usar o megatanque 2 e mangueiras de aço para a extração. Hella e Nemes ficam responsáveis pela mangueira, da instalação à bomba. Denio e Chesi, pela perfuração. Jasmey e Saezi, pela segurança.
 
-— Jasmey, Saezi, assegurem-se de estar armados e prontos para qualquer eventualidade — finalizou Jelles.
+— Quem vai comandar a missão, capitão? — perguntou Saezi.
+
+— Eu.
+
+Olhei pro Nemes. Ele também pareceu surpreso.
+
+— O senhor acha seguro sair da Lebargan, capitão? Com a capitã ainda indisposta...
+
+— Conheço os riscos, Nemes. Caso me aconteça alguma coisa, temos como manter a Lebargan operacional até que um novo comandante assuma.
+
+Ele olhou pra mim e esboçou um sorriso.
+
+— Ativem o modo missão nos braceletes e sigam para a doca. Hella, Nemes, conectem a mangueira à Afrélia. O megatanque 2 já está preparado.
+
+Hella e Nemes saíram. Denio e Chesi foram verificar a tribritadeira. Nemes vinha contando alguma história e Hella interrompeu o sujeito só pra perguntar se ele tinha conferido as conexões do tanque. Ouvi o desgraçado garantir que sim enquanto os dois se afastavam.
+
+— Jasmey, Saezi, quero os dois armados e prontos para qualquer eventualidade.
 
 — Entendido, capitão — Saezi respondeu.
 
-Concordei com um aceno e segui Saezi até a doca, pensando nas armas mais eficazes para a missão.
+Assenti e fui com Saezi pra doca. Já tinha uma boa ideia do que levar.
 
-— Leve um canhão espaço-quântico. Ele é eficaz contra objetos em alta velocidade. E não esqueça da teleguiada átomo-explosiva. Vai ser crucial.
+— Pega um canhão espaço-quântico. É bom contra objetos em alta velocidade. E não esquece a teleguiada átomo-explosiva.
 
-Saezi parou bruscamente e se voltou para mim.
+Saezi parou e se virou pra mim.
 
-— Jasmey, você cuida da sua parte da missão e eu cuido da minha — disse.
+— Jasmey, cuida da tua parte que eu cuido da minha.
 
-— Claro, claro — respondi, sorrindo, antes de ela disparar corredor abaixo. Mulher teimosa. Vek com a personalidade de porta que tem sofreria nas mãos dessa aí.
+— Tá bom, tá bom.
 
-No arsenal, enquanto liberava as armas com meu bracelete, observei Saezi ao longe, escolhendo seu arsenal. Notei sua omissão da teleguiada átomo-explosiva, mas resolvi não intervir. Cada um tem seu método, afinal.
+Ela saiu pelo corredor. Vek, com aquela personalidade de porta, devia penar nas discussões com a namorada.
 
-Na doca, a movimentação já era intensa, com os Dales das máquinas fazendo os últimos ajustes.
+No arsenal, liberei minhas armas com o bracelete e vi Saezi escolhendo as dela. Não pegou a teleguiada átomo-explosiva. Cheguei a abrir a boca pra falar, mas lembrei da resposta que tinha acabado de receber. Ela sabia se virar.
 
-De todas as subnaves, a Prosépina era a que mais se destacava: enorme e gloriosa, de metal brilhante e pintura vermelho-fogo, a subnave pessoal de Jelles, a mais rápida e com o maior poder de fogo. Eu a vira decolar em poucas missões, porque pertencia ao capitão da Lebargan.
+Na doca, os Dales das máquinas terminavam os preparativos.
 
-A Afrélia aguardava com o megatanque 2 (MT2) anexado, imponente, de uns 10 metros de altura, o nome já desbotando na lateral do casco.
+A Prosépina era a nave que eu mais gostava de ver ali. Toda de metal brilhante, enorme, vermelho-fogo, a mais rápida e com o maior poder de fogo entre as subnaves. Pertencia ao Jelles, então raramente tinha o prazer de vê-la decolar.
 
-Saezi, ao meu lado, olhava intrigada para o tanque.
+A Afrélia nos esperava com o megatanque 2 acoplado. O MT2 tinha uns dez metros de altura e o nome já tava desbotando na lateral.
 
-— Como pretendemos armazenar 100 mil litros de água nisso? — perguntou.
+Saezi chegou mais perto do tanque e ergueu a cabeça pra enxergar o topo. Olhou pro tamanho dele, depois pro engate que o prendia à Afrélia.
 
-— O tanque é expansível, atingirá 30 metros de altura uma vez cheio, e a água será congelada para maximizar a densidade e a quantidade transportada.
+— Como é que a gente vai colocar cem mil litros de água nisso?
 
-— Isso não fará a nave ficar demasiadamente pesada? — ela questionou.
+— Ele se expande até chegar a trinta metros. A água vai ser congelada lá dentro pra facilitar o transporte e não ficar balançando de um lado pro outro durante as manobras.
 
-— Exatamente para isso o capitão escolheu a Afrélia. Ela manipula o espaço-tempo, evitando o problema do peso extra na viagem de retorno.
+— E a nave aguenta esse peso todo?
 
-Ficamos um instante em silêncio, contemplando a nave.
+— Por isso a Afrélia. Ela manipula o espaço-tempo pra não ter problema com o peso na volta.
 
-— É a primeira vez que vai em uma missão de extração, não é? — indaguei, buscando quebrar o gelo.
+Ela olhou de novo pro megatanque.
 
-— É, mas já participei de diversas outras missões — disse Saezi.
+— Primeira missão de extração? — perguntei.
 
-— Não precisa se provar para mim, garota. Você já está aqui. Isso é o suficiente. Não sou um Dale que derruba os outros para subir.
+— De extração, sim. Já fiz um monte de outras.
 
-— Não preciso porque você é o queridinho do Jelles, o mais habilidoso em missões. Vek me contou que você adora se gabar de seus feitos.
+— Eu sei. Se você tá aqui, é porque sabe trabalhar. Não precisa provar nada pra mim, Saezi.
 
-— Não, ele não disse isso — ri — eu realmente me gabo, mas não desmereço nenhum irmão meu. Pelo contrário, sempre estendo a mão para ajudar… mesmo a quem não me estendeu a mão antes.
+— Fácil falar quando se é o queridinho do Jelles. O Vek diz que você não cala a boca depois de uma missão.
 
-Ela me lançou um olhar compreensivo, e logo Hella e Nemes se juntaram a nós, a mangueira devidamente preparada. Denio e Chesi chegaram logo após, garantindo que a tribritadeira estava pronta para a ação.
+— O Vek fala demais. — Dei uma risada. — Tá, eu me gabo mesmo. Mas já te vi trabalhar, Saezi. Se precisar de ajuda, chama. Não vou ficar contando vantagem em cima de ti.
 
-— Vamos embarcar, equipe — comandou o Cap. Jelles.
+Hella e Nemes chegaram com a mangueira preparada. Logo depois vieram Denio e Chesi, com a tribritadeira pronta.
 
-As portas da Afrélia se abriram e entramos. O corredor estreito levava à cabine de comando, onde Jelles já estava sentado. O espaço era limitado, mas funcional. Nos acomodamos nos assentos.
+— Embarquem — ordenou Jelles.
 
-— Jasmey, você pilota — ordenou o capitão. Assenti e segui até o painel.
+Entramos na Afrélia. O corredor era estreito e a cabine de comando não tinha muito espaço, mas havia assentos pra todos. Jelles já tava sentado.
 
-Atrás de mim, Saezi ajustou o cinto. Trocamos um olhar de cumplicidade. As portas da doca se retraíram, revelando o vazio estelar, e a nave avançou, cruzando rapidamente a barreira temporal quântica.
+— Jasmey, você pilota.
 
-Seguimos levemente a noroeste da anã vermelha do sistema. Fechei os olhos e busquei relaxar.
+Fui pro painel.
 
-Ectons depois, Jelles nos chamou e detalhou de novo a missão, enquanto a imagem de um asteroide era projetada no vidro frontal, com uma área específica em foco.
+Saezi apertou o cinto atrás de mim. Trocamos um olhar e as portas da doca se abriram. Saí com a Afrélia e atravessei a barreira temporal quântica.
 
-— A tribritadeira deverá furar aquele pedaço — Jelles indicou na projeção — a cerca de cem metros de onde desceremos. É onde a camada de rocha é mais fraca. Alcançaremos a água em cerca de 180 ectons. Depois esperamos o tanque se expandir e a água se condensar lá dentro. Ao terminarmos, a mangueira deve ser bem enrolada e a tribritadeira levada de volta e firmada na nave. Jasmey e Saezi, fiquem atentos a qualquer perigo. A tarefa de vocês talvez seja a mais importante.
+Seguimos um pouco a noroeste da anã vermelha do sistema. Tentei relaxar enquanto a nave seguia o curso.
 
-— Vamos com tudo — Nemes comentou. Ele já parecia sonhar com a água que estávamos prestes a coletar.
+Ectons depois, Jelles projetou a imagem do asteroide no vidro da cabine e destacou o ponto da perfuração.
 
-O deslocamento foi desacelerando, e o asteroide emergiu diante de nós, cinza e esburacado.
+— A tribritadeira vai perfurar aqui, a cem metros de onde vamos pousar. A camada de rocha é mais fina. Devemos chegar à água em aproximadamente 180 ectons. Esperaremos o tanque expandir e a água se condensar no interior. Depois quero a mangueira recolhida e a tribritadeira bem presa na nave. Jasmey e Saezi, fiquem atentos ao redor durante toda a operação. A segurança depende de vocês.
 
-— Estamos quase lá — Nemes cantarolou.
+— Vamos nessa! — disse Nemes.
 
-Executei o pouso com precisão, e a Afrélia tocou o solo do asteroide com um baque suave. Assim que os motores silenciaram, soltamos os cintos e pegamos os equipamentos.
+Reduzi a velocidade e o asteroide apareceu diante da Afrélia, cinza, cheio de buracos.
 
-— Atenção, equipe. O tempo é essencial. Em pouco mais de uma hora, a rotação do asteroide tira este lado da luz da anã vermelha. O bolsão só está líquido por causa desse calor, e depois disso congela. Portanto, sejam ágeis — Jelles nos alertou.
+— Tá chegando — cantarolou Nemes.
+
+Pousei a Afrélia. Quando desliguei os motores, soltamos os cintos e fomos pegar os equipamentos.
+
+— Atenção ao tempo — avisou Jelles. — Em pouco mais de uma hora, a rotação do asteroide vai tirar este lado da luz da anã vermelha. O calor mantém o bolsão líquido. Depois disso, congela. Quero todos trabalhando depressa.
 
 — Sim, capitão — disseram todos.
 
-Seguimos Jelles um a um até a câmara de saída. Sincronizamos os braceletes na frequência P-202. As condições lá fora? Hostis pra caralho, como de costume. Meu bracelete, meu melhor amigo tecnológico, brilhou com as informações:
+Seguimos pra câmara de saída e sincronizamos os braceletes na frequência P-202. Consultei as condições externas.
 
-— Gravidade 0,002, pressão atmosférica inexistente, retentor de calor corporal presente — sussurrei para mim mesmo.
+— Gravidade 0,002, pressão atmosférica inexistente, retentor de calor corporal presente.
 
-Assim que Nemes fechou a primeira comporta, Jelles se virou para nós:
+Nemes fechou a primeira comporta.
 
-— Verifiquem se estão com suas respirações artificiais ativadas, senhores — todos verificamos, aparentemente estava tudo ok — A segunda comporta irá se abrir em, 3, 2, 1.
+— Verifiquem a respiração artificial — disse Jelles.
 
-Quando a segunda comporta abriu, revelando a paisagem cinzenta e acidentada do asteroide, ativamos os filtros oculares contra a luminosidade intensa. O cenário era desolador e fascinante, cheio de penhascos e fossos.
+Conferi a minha enquanto os outros faziam o mesmo.
 
-— Isso me faz lembrar da história do velho Tarsélio — Nemes compartilhou.
+— Abrindo a segunda comporta em três, dois, um.
 
-— Ah, o lendário que resistiu sozinho em um asteroide por quase dois meados de momentos? — Hella interrompeu com uma risada.
+A luz da estrela bateu na nossa cara quando a comporta abriu. Ativamos os filtros oculares e saímos. Havia penhascos e fossos por toda parte. Melhor prestar atenção onde a gente botava o pé.
 
-— Eu sempre ri muito com essa história — admitiu Nemes. — O cara tirava água e comida do próprio asteroide e ainda montou uma nave com o que achou por aqui. Só na hora de embarcar notou que tinha feito a escotilha pequena demais. Passou cento e tantas voltas de dieta para caber na própria fuga. Mas olhando ao redor, sobreviver neste lugar por algumas horas já seria um feito, que dirá mais de um meado de momento.
+— Isso aqui me lembra a história do velho Tarsélio — disse Nemes.
 
-O Capitão Jelles interveio.
+— Aquele que ficou sozinho num asteroide por quase dois meados de momento? — Hella riu.
 
-— Vamos, preparem as mangueiras e coloquem a tribritadeira na posição. Jasmey, você fica com a defesa da Afrélia, e Saezi com a da tribritadeira.
+— Esse mesmo! O desgraçado tirava comida e água do asteroide, montou uma nave com o que encontrou e, na hora de embarcar, descobriu que a escotilha era pequena demais. Passou cento e tantas voltas de dieta pra caber na própria nave. — Nemes olhou em volta. — Eu não aguentaria nem umas horas num lugar desses.
 
-— Comando recebido — afirmei, checando meu equipamento.
+— Vamos trabalhar — interrompeu Jelles. — Preparem a mangueira e coloquem a tribritadeira na posição. Jasmey, defenda a Afrélia. Saezi, a tribritadeira.
 
-— Entendido, capitão — ecoou Saezi.
+— Entendido, capitão.
 
-A equipe se movimentou com eficiência. Hella e Nemes conectaram a mangueira à tribritadeira, enquanto Denio e Chesi manobravam o pesado equipamento, que andava sobre esteiras, pelo terreno acidentado.
+— Entendido — disse Saezi.
 
-Perguntei ao capitão, imóvel ao meu lado, qual era o papel dele na missão.
+Hella e Nemes conectaram a mangueira à tribritadeira enquanto Denio e Chesi conduziam o equipamento sobre as esteiras pelo terreno irregular.
 
-— Vou explorar a área — respondeu ele e se afastou paralelamente à mangueira.
+O capitão continuava parado ao meu lado. Perguntei o que ele ia fazer.
 
-— Alguém viu para onde o capitão foi? — indaguei.
+— Vou explorar a área.
 
-— Não, ele sumiu — Hella respondeu.
+Ele se afastou na direção da mangueira.
 
-Foi então que Nemes colocou o pau para fora e decidiu aliviar-se ali mesmo, no asteroide.
+Passado um tempo, procurei Jelles com os olhos.
 
-— O babaca, está mijando no asteroide em que estamos extraindo água? — comecei, incrédulo com a cena.
+— Alguém viu pra onde o capitão foi?
 
-— Ah, relaxa, Jasmey. Todos na Lebargan bebem água reciclada das nossas próprias urinas. É tudo purificado — justificou ele, descontraído.
+— Não vi — respondeu Hella.
 
-Mesmo diante da explicação de Nemes, preferi manter o foco na minha responsabilidade, vigiando o perímetro. A missão prosseguiu sem incidentes, até que a voz preocupada de Hella interrompeu o silêncio.
+Foi então que Nemes anunciou pelo rádio que tava mijando no coletor do traje e perguntou se devia despejar o conteúdo na mangueira. Olhei pra ele, pra mangueira, pro asteroide. Não era possível.
 
-— Pessoal, temos um problema aqui.
+— Ô, babaca! A gente veio buscar água nesse lugar e você tá MIJANDO NELE?
 
-— Probleminha? Qual problema? — Saezi questionou com urgência na voz.
+— Relaxa, Jasmey. Todo mundo na Lebargan bebe água reciclada do nosso mijo. É tudo purificado.
 
-— Preciso de ajuda aqui — Hella clamou do outro lado da operação.
+Voltei a vigiar o perímetro. Tinha feito tanto esforço pra conseguir rum naquela volta e agora me via obrigado a admitir que o desgraçado tinha razão sobre a água que a gente bebia. Preferia não pensar mais nisso. A missão seguiu até Hella chamar pelo comunicador.
 
-Antes que alguém mais pudesse reagir, prontamente me ofereci:
+— Pessoal, deu problema aqui — chamou Hella.
 
-— Estou indo — afirmei, cortando a hesitação de Saezi e acelerando em direção a Hella.
+— O que foi? — perguntou Saezi.
 
-Ao chegar ao seu lado, ela apontou para a mangueira. Meus olhos seguiram sua indicação até o ponto onde havia um pequeno rasgo.
+— Alguém vem ver a mangueira.
 
-— É, isso pode ser um problemão — constatei, preocupado. — pessoal, a mangueira está comprometida, precisamos abortar a missão.
+— Tô indo.
 
-A voz do Capitão Jelles irrompeu com autoridade:
+Cheguei perto de Hella e ela me mostrou um rasgo pequeno na mangueira. Me abaixei pra examinar.
+
+— Puta merda. Pessoal, a mangueira tá danificada. Precisamos abortar.
 
 — Ninguém vai abortar a missão. Continuem. Melhor voltar com alguma água do que sem nada.
 
-Respirei fundo, tentando manter a calma, até que a voz de Denio chegou:
+Eu ainda tava examinando o rasgo quando Denio gritou no comunicador:
 
 — ALCANÇAMOS A ÁGUA!
 
 — Hella, precisamos ativar a sucção agora! — Nemes chamou.
 
-— Cuida disso, vou verificar o dano — disse a ela, que já se afastava em direção à tribritadeira.
+— Vai lá, Hella. Eu fico com o vazamento.
 
-Assim que me vi sozinho com a mangueira, um jato me atingiu no rosto, me fazendo tropeçar e cair com a gravidade quase inexistente. Fora da mangueira pressurizada, o líquido congelava no vácuo em pequenas esferas que flutuavam ao redor da minha cabeça, um espetáculo curioso, mas preocupante.
+Assim que ela saiu, a mangueira me acertou com um jato no rosto. Perdi o equilíbrio e, naquela gravidade ridícula, demorei a cair. O líquido que escapava congelava em pequenas esferas no vácuo, e fiquei com várias delas flutuando ao redor da cabeça.
 
-— Droga! — praguejei, limpando o rosto.
+— Droga!
 
-Parte do produto entrou em contato com meu bracelete, que imediatamente identificou o material e exibiu os caracteres C 6 H 6. Espere! Aquilo não estava certo.
+Um pouco do líquido atingiu o bracelete. Ele identificou a substância e mostrou C6H6. Li de novo. Aquilo não era água.
 
-Ergui o olhar a tempo de ver Hella, Nemes e Saezi se aproximando, preocupados com o vazamento.
+Ergui a cabeça. Hella, Nemes e Saezi vinham na minha direção.
 
-— Vamos ajustar a mangueira, dar mais folga aqui — Denio propunha.
+— Vamos dar mais folga pra mangueira — sugeriu Denio.
 
-Sem hesitar, projetei minha voz com toda a força:
+— PAREM TUDO! PAREM DE CAVAR!
 
-— PAREM TUDO, PAREM DE CAVAR IMEDIATAMENTE!
+Denio e Chesi viraram na minha direção e um clarão me obrigou a fechar os olhos. Quando consegui abrir, só vi detritos e rocha pulverizada onde os dois estavam. Senti o chão vibrar sob as botas.
 
-No momento em que Denio e Chesi viraram-se em minha direção, um clarão deslumbrante rasgou o espaço diante de mim, forçando-me a cerrar os olhos. Quando os reabri, o lugar que antes ocupavam era agora apenas uma pilha de detritos e rocha pulverizada do asteroide. O solo vibrou sob meus pés.
+— PRA AFRÉLIA! AGORA!
 
-— Voltem para a Afrélia, agora! — ordenei.
+— Minha perna... — ouvi Nemes dizer.
 
-— Minha perna... está ferida — Nemes conseguiu dizer.
+Saezi foi até ele e, com a ajuda de Hella, começou a levá-lo pra nave. Vi os três tentando avançar sem perder o equilíbrio naquela gravidade.
 
-— Eu o ajudo — disse Saezi, recobrando-se e correndo até ele, apoiada também por Hella. Juntos, começaram a difícil caminhada de volta à nave, desafiando a gravidade fraca.
+— Capitão! Tá me ouvindo? A missão deu errado!
 
-— Capitão, pode me ouvir? — gritei, procurando desesperadamente por sinais dele. — A missão deu errado.
+— A caminho da nave.
 
-— A caminho da nave — respondeu Jelles, sua voz vinda da minha esquerda.
+A voz vinha da esquerda.
 
-Virei-me para encontrá-lo, mas um novo perigo se apresentou: uma massiva rocha se desprendeu, dirigindo-se ameaçadoramente em direção a meus colegas. Sem pensar duas vezes, saquei minha teleguiada átomo-explosiva.
+Virei procurando pelo capitão e vi uma rocha enorme se desprender na direção dos meus companheiros. Saquei a teleguiada átomo-explosiva.
 
-— MERDA! — gritou Saezi correndo com Hella e Nemes — atire na rocha, agora Jasmey.
+— MERDA! ATIRA NA ROCHA, JASMEY! — gritou Saezi.
 
-Mas então um grito de Jelles capturou minha atenção: outra rocha gigantesca estava prestes a esmagá-lo.
+Antes que eu disparasse, ouvi Jelles gritar. Outra rocha vinha pra cima dele.
 
 — JASMEY, ME AJUDE! — gritou o capitão.
 
-Minha mão hesitou. Uma teleguiada só, Saezi, Hella e Nemes de um lado, Jelles do outro. Eu sabia o que tinha que fazer, e odiei isso. Corri, apontei e disparei a teleguiada átomo-explosiva contra a ameaça iminente sobre Jelles. A rocha explodiu em um estouro de luz, salvando-o por pouco. Jelles se jogou ao chão e caiu, deitado, para evitar que qualquer efeito da explosão o atingisse.
+Olhei pro capitão, depois pros três. Eu só tinha uma teleguiada. Saezi e Hella ainda tentavam carregar Nemes, e a rocha tava quase em cima deles. Saezi gritou meu nome. Por um instante fiquei ali, com a arma na mão, sem saber pra que lado virar. Se disparasse na direção dos três, Jelles ia morrer. Eu conhecia a segunda regra do Código dos Dales desde moleque. Corri na direção do capitão, apontei pra rocha e disparei. Ela explodiu e Jelles se jogou no chão pra escapar do impacto.
 
-A outra rocha tinha se estilhaçado contra meus colegas, e uma chuva de detritos vinha para cima de nós. Corri até Jelles e estendi o braço para apanhá-lo, mas ele se afastou, levantando-se sozinho.
+Quando virei, a outra rocha já tinha atingido o lugar onde estavam Saezi, Hella e Nemes. Tentei enxergar alguma coisa por entre os detritos. Vinham na nossa direção, cada vez mais perto. Corri até Jelles e estendi a mão. Ele se afastou e levantou sozinho.
 
-— Precisamos ir agora! — instei, o acompanhando em direção à nave.
+— Precisamos sair daqui!
 
-Apertamos o passo em direção à Afrélia.
+Corremos pra Afrélia.
 
-— Jasmey, na hora que entrar, feche imediatamente a comporta — gritou-me o capitão.
+— Jasmey, feche a comporta assim que entrar!
 
-Corremos, desviando de detritos que caíam ao nosso redor. Jelles adentrou a Afrélia momentos antes de mim. Assim que cheguei, acionei as alavancas, selando a comporta atrás de nós.
+Os detritos passavam por nós. Jelles entrou primeiro e, assim que atravessei a abertura, acionei as alavancas e fechei a comporta.
 
-Dentro da nave, os impactos dos detritos ressoavam no casco. Sem hesitar, eu desacoplei o megatanque, um movimento que nos garantiria uma fuga mais ágil.
+O casco da Afrélia tremia com os impactos. Desacoplei o megatanque e fui pro painel de comando.
 
-Após a decolagem tensa, a Afrélia se afastou do asteroide Um alarme estridente alertou sobre danos críticos causados pelos detritos, mas tive de me manter inabalável e seguir o curso de retorno. A salvo, mas a um custo terrível. Eu tinha salvado Jelles e deixado meus companheiros no vazio.
+Decolei. Um alarme começou a apitar, indicando danos críticos no casco, e tive que me concentrar pra tirar a nave dali. Quando consegui seguir o curso de volta à Lebargan, olhei pros assentos atrás de mim. Só o capitão tinha voltado comigo.
 
-— Você fez a escolha certa, Jasmey — disse o capitão — prezou pelo bem de todos os Dales.
+— Fez a escolha certa, Jasmey. Preservou a Lebargan.
 
-Não o respondi, apenas pensei no que havia acabado de acontecer, tentando entender onde erramos.
+Continuei pilotando. O alarme ainda apitava. Baixei o volume e fiquei tentando reconstruir o que tinha acontecido, desde a perfuração até aquele jato que me atingira no rosto.
 
-— O conteúdo do asteroide era benzeno, não água. A perfuração provocou a explosão — expliquei, o olhar fixo no vazio, enquanto conduzia a nave.
+— Era benzeno, capitão. Não era água. A perfuração abriu um bolsão pressurizado. A leitura errada fez a gente usar um equipamento que não tava preparado pra aquilo. A rocha cedeu.
 
-Ele não respondeu. Como poderia uma análise tão crucial falhar sob o comando de Jelles?
+Esperei alguma resposta. Jelles não disse nada. Como é que uma análise daquelas podia ter dado errado?
 
-Ao retornarmos à Lebargan, o tanque vazio acoplado à Afrélia antecipava as perguntas que viriam. Vek veio ao meu encontro, a preocupação marcada no rosto.
+Quando chegamos à Lebargan, a Afrélia voltou sem o megatanque. Vek tava na doca, esperando por nós.
 
-— Jasmey...? — a voz do Vek vacilou ao me ver sair da Afrélia. — Cadê a Saezi?
+— Jasmey...? Cadê a Saezi?
 
-Não consegui responder. Só olhei pra ele. Os olhos dele buscaram os meus por um segundo. E então... ele entendeu. Vek recuou, engolindo em seco.
+Abri a boca e não consegui dizer nada. Vek olhou por cima do meu ombro, pra entrada da Afrélia, e depois pra mim. Deu um passo pra trás.
 
-— O que aconteceu, capitão? Onde está o tanque? — Os Dales ao redor começaram a questionar, seguindo Jelles que, apressado, atravessava a doca.
+— O que aconteceu, capitão? Cadê o tanque?
+
+Os Dales foram atrás de Jelles enquanto ele atravessava a doca.
 
 — Reúnam todos no salão central, imediatamente — ordenou ele.
 
-Um Dale seguiu para a cabine do mensageiro, de onde foi transmitida a ordem para todos se reunirem no salão central.
+A ordem foi transmitida da cabine do mensageiro.
 
-O salão central era o maior da nave, uma área plana com um palco no centro, onde Jelles discursava. Antes, era ali que os inimigos eram deixados para morrer, amarrados até a fome ou a sede os vencer. Agora recebíamos ali as notícias mais impactantes, geralmente ruins, da Lebargan. Três mil Dales encheram o salão, ansiosos. Ao ser chamado ao palco por Jelles, senti o peso de cada olhar.
+O salão central era a maior área plana da nave. Antigamente deixavam os inimigos amarrados ali até morrerem de fome ou sede. Agora era onde o capitão dava as notícias pra tripulação. Uns três mil Dales encheram o salão. Jelles me chamou pro palco. Tentei localizar o Vek no meio daquele povo.
 
-Por fim, o capitão iniciou seu discurso diante da imensa tripulação da Lebargan:
+Jelles começou a falar.
 
-— A nossa Lebargan não é apenas uma nave. É uma cidadela inquebrável, um arsenal de poder incalculável. O que somos se deve à dedicação incansável de cada um de vocês. Cada sacrifício é o que mantém o coração desta fortaleza pulsando.
+— Dales, a Lebargan é a maior fortaleza desta galáxia. E devemos sua existência a cada um de vocês. Ao trabalho de cada um, à lealdade e aos sacrifícios que fazemos para mantê-la.
 
-Fez uma pausa, permitindo que suas palavras se assentassem entre os ouvintes, antes de continuar:
+Ele esperou o salão se aquietar.
 
-— Recentemente, embarquei com alguns de nossos valentes Dales numa jornada em busca de recursos vitais. A necessidade de água nos levou a um asteroide. Tivemos um problema, e ele culminou na perda trágica de cinco dos nossos. Cada missão carrega seu fardo de incertezas, mas tenho convicção de que aqueles que partiram acreditavam contribuir para a continuidade da nossa existência.
+— Nosso reservatório precisava de água e eu próprio acompanhei uma equipe até um asteroide. Houve um incidente. Perdemos cinco Dales durante a operação. Eles partiram para garantir a sobrevivência desta nave, e é assim que devem ser lembrados.
 
-Então olhou diretamente para mim, antes de revelar:
+Então ele se virou pra mim.
 
-— Mas há um fato mais que necessito compartilhar convosco. Durante o incidente, um de nós foi colocado à prova. Jasmey Badrock. Confiei a ele a proteção da missão, o encargo de nos salvaguardar de qualquer ameaça vinda do vácuo. E quando confrontado com a escolha mais árdua - entre seus companheiros e seu capitão - Jasmey agiu sem hesitar. Sua coragem e decisão asseguraram minha sobrevivência... e, por extensão, a da nossa Lebargan. Portanto, ergamos um brado de honra a Jasmey! Sua ação não apenas me salvou, como fortaleceu os pilares de nosso lar. Que sua bravura seja um farol para todos nós!
+— Confiei a Jasmey Badrock a segurança dessa missão. Durante o incidente, ele teve de escolher entre salvar seus companheiros ou seu capitão. Jasmey escolheu seu capitão, sem hesitar. Graças a ele, estou aqui e a Lebargan continua sob meu comando. Quero que todos os Dales presentes honrem a coragem de Jasmey!
 
-Um rugido uníssono tomou o salão. Procurei o olhar de Vek e encontrei apenas um vazio.
-
+O salão inteiro começou a gritar meu nome. Procurei o Vek no meio da multidão. Quando finalmente o encontrei, ele tava olhando pra mim. A expressão dele tava vazia.
