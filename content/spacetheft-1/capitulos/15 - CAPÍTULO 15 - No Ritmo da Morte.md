@@ -1,446 +1,475 @@
-O deserto, que antes parecia uma monotonia cinzenta, revelava sua complexidade sob a luz das duas luas. Montanhas de gelo cintilavam a oeste, as cristas afiadas como dentes de um predador cósmico, enquanto vulcões pedregosos cuspiam fumaça a leste. A faixa habitável era uma fina linha onde a vida teimava em florescer. A diferença abrupta de temperatura criava tempestades elétricas que podiam liquefazer um corpo ao menor contato. Eu já enfrentara uma em Geores, mas a caminho de Moldar pegamos uma dez vezes pior. Tivemos de nos agachar sob a concha de aço que os vigias fechavam sobre o cardiçal, quase um abraço de ferro. Um dos homens faleceu no caminho, provavelmente por choque térmico, passando de uma onda de calor para uma geada em algumas dezenas de ectons. O cardiçal respirava fundo sob nós, como o bater de um coração gigantesco, e o cheiro quente e terroso de seu pelo lembrava que viajávamos numa besta orgânica.
+À nossa esquerda, as duas luas iluminavam montanhas de gelo. Do outro lado, lá onde o sol nunca se punha, dava pra ver fumaça saindo dos vulcões. A gente viajava pela faixa estreita de terra entre os dois extremos. Quando as correntes de ar se encontravam, a eletricidade acumulada nas nuvens era capaz de fritar um sujeito inteiro. Já tinha enfrentado uma tempestade dessas em Geores, mas nenhuma tão forte quanto a que pegamos no caminho pra Moldar. Os vigias fecharam a concha de aço sobre a plataforma e mandaram todo mundo se abaixar. Ficamos no escuro, com as descargas batendo no metal acima de nossas cabeças. Buni segurou o banco com as duas mãos. O’reilly rezava baixinho, e Kord tentou ajudar um passageiro que tinha escorregado do assento. Hardman pediu a um dos vigias que verificasse a vedação da cobertura. O sujeito mandou que ele calasse a boca. Uma descarga tão forte sacudiu a plataforma que nem eu tive vontade de responder. Mesmo assim, perdemos um passageiro, provavelmente por causa da mudança brusca de temperatura. Quando abriram a cobertura de novo, o cheiro de pelo molhado do cardiçal se misturou ao de ozônio. O bicho continuava andando.
 
-Percorremos o deserto por um bom tempo. O velho médico, calmo e misterioso, contava suas histórias, uma após a outra, sem que soubéssemos seu nome: um médico aposentado que dedicava seus últimos dias a vagar por mundos, colecionando histórias e males. O fedor de ozônio pós-tempestade ainda pairava no ar seco.
+O velho de Olimpido era médico aposentado, pelo que descobrimos durante a viagem. Passava o tempo visitando mundos e contava uma história atrás da outra. O’reilly fazia perguntas suficientes pra manter o sujeito ocupado. Nem cheguei a saber o nome dele.
 
-Adormeci com a vibração do cardiçal e acordei sob um céu em mosaico de cinzas e púrpura pálido, onde duas luas distantes espreitavam, a luz fraca mal rompendo o véu de poeira. Insetos estridulavam como engrenagens enferrujadas no ar gelado, e o cardiçal seguia com seus longos passos, as patas maciças levantando pequenas nuvens de poeira iridescente. Virei-me e vi Vivian encolhida no canto, os olhos grandes e abertos, os fios ruivos e finos espalhados pelo rosto. Era magrinha e tinha feições de uma garota de uns quatorze momentos. Difícil acreditar que já passara dos vinte.
+Adormeci com o movimento do cardiçal e acordei quando a gente atravessava uma região de poeira fina. As duas luas mal apareciam no céu cinzento. O bicho levantava uma nuvem de poeira a cada passada, e uns insetos faziam um barulho do caralho lá embaixo. Vivian tava encolhida no canto, com os cabelos ruivos espalhados pelo rosto. Tinha os olhos bem abertos. Apesar de já ter passado dos vinte momentos, as feições dela eram bem mais jovens.
+
+Tirei o saquinho do bolso e fiquei girando o orbe entre os dedos enquanto o cardiçal andava. Vivian acompanhou as partículas coloridas por um instante. Mostrei o vidro a ela.
+
+— Presente de um velho amigo.
+
+Guardei quando a plataforma balançou.
 
 — Não consegue dormir? — perguntei a ela.
 
 Vivian se virou para mim e sacudiu a cabeça.
 
-— Experimente fechar os olhos. Ajuda — respondi, talvez um pouco mais direto do que o necessário. Mas quem se importava?
+— Fecha os olhos. Costuma ajudar.
 
-Vivian fez uma careta e respondeu com as mãos, como sempre. Não entendi o gesto.
+Vivian fez uma careta e respondeu com as mãos. Tentei acompanhar os movimentos. Ela chegou a repetir mais devagar, mas continuei sem entender.
 
-— Ela disse que você é um homem grosseiro — disse a voz do médico, perto de nós. Ele também estava acordado.
+— Ela disse que você é um homem grosseiro — explicou o médico, que também tava acordado.
 
 Olhei para Vivian e vi que ela me olhava com a cara feia.
 
-— Não sou grosseiro. Sou simples e direto, querida. Sem rodeios — falei.
+— Não sou grosseiro, querida. Sou direto.
 
-— Ela continua te olhando feio — disse o médico.
+— Não parece ter sido convencida.
 
-Me virei para Vivian e a vi me encarando ainda.
+Olhei pra Vivian. Ela continuava me encarando.
 
 — O que foi? — perguntei.
 
-Vivian apontou seu dedo para o céu e fez um sinal de algo voando com as mãos.
+Ela apontou pro céu e fez um movimento com as mãos, imitando alguma coisa voando.
 
 — O quê? Você viu algo voando?
 
 Vivian negou e fez uma imitação que não entendi.
 
-— Ela disse que quer voar — disse o médico.
+— Ela quer voar — disse o médico.
 
-— É formado em língua de sinais, doutor? — perguntei, rispidamente.
+— O senhor entende de língua de sinais, doutor?
 
-— Não, mas já tratei homens que não falavam. Inclusive alguns que tiveram suas cordas vocais arrancadas pelos selvagens do deserto. Eles odeiam barulho, sabe, e nós costumamos ser bem barulhentos.
+— Aprendi atendendo pacientes que não podiam falar. Alguns tiveram as cordas vocais arrancadas pelos povos deste deserto. Eles não toleram barulho, e nós temos a infelicidade de fazer bastante.
 
-Não o respondi. Apenas observei Vivian encostar novamente a cabeça no banco, entediada.
+Vivian voltou a encostar a cabeça no banco. Olhei pro céu com ela.
 
-— Você é que nem eu. Tenho tempo limite para estar em terra. Nosso lugar é lá em cima. Nas estrelas — falei.
+— Também tô de saco cheio de terra firme. Nosso lugar é lá em cima, né?
 
-Ouvi um som de galho quebrando e me virei. Não dava para ver o que havia abaixo de nós, as cercas impediam. Mas um homem se levantara e vomitava com a cabeça para fora do cardiçal. O vigia se virou para ele e gritou.
+Ela assentiu. Estendeu a mão na direção de uma das luas, acompanhando o contorno com o dedo. Fiquei olhando com ela. Tinha passado tanto tempo querendo voltar ao espaço que já nem me lembrava de quando começara a gostar daquelas coisas.
 
-— Ei! — disse, mas foi tarde. Antes que o guarda o alcançasse, uma lança atravessou a cabeça do homem, espirrando sangue em todos nós. Ele caiu para trás, morto, e muitos acordaram assustados e começaram a gritar.
+Ouvi um galho quebrar lá embaixo. O parapeito impedia que eu enxergasse o chão. Um passageiro tinha soltado o cinto e se levantado pra vomitar por cima da cerca. O vigia correu na direção dele.
 
-— SHHHH, SILÊNCIO — gritou a mulher que apanhara nosso bilhete em Geores, correndo para perto do cercado — Não falem alto e não olhem para os selvagens.
+— Ei! ABAIXE-SE!
 
-Um dos líderes arrastou o corpo até o cercado, ergueu-o e o atirou para fora. Ouvimos o som dele se chocando com o chão.
+Uma lança atravessou a cabeça do homem antes que o guarda o alcançasse. O sujeito caiu na plataforma. Os passageiros acordaram aos gritos.
 
-Vi que Hardman, ao meu lado, estava agora de olhos bem abertos, apavorado, o rosto coberto por respingos de sangue.
+— SILÊNCIO! — ordenou a mulher que tinha recolhido nossos bilhetes. — Não olhem para fora!
 
-— A viagem continua. Vocês já sabem as regras — falou um dos líderes.
+Um dos vigias arrastou o corpo até o parapeito e o jogou pra fora. Ouvi o impacto lá embaixo.
 
-Eu tinha a leve impressão de que milhares de selvagens nos vigiavam, esperando apenas algum contato para atacar.
+Hardman tava sentado ao meu lado, imóvel. Tinha sangue no rosto. Vivian estendeu a mão pro braço dele e o puxou de leve pra que se abaixasse. O médico passou um pano ao engenheiro, que ficou apertando o tecido contra a bochecha mesmo depois de limpar o sangue. Ninguém fez piada com o sujeito. O homem que morrera tinha conversado com alguns passageiros pouco antes de se levantar.
 
-Mas felizmente, o descanso correu bem, e não tivemos mais problemas. Exceto pelo fato de acordarmos com um grande pássaro colorido esquisito de duas cabeças que tentava abocanhar o chapéu de um dos colegas. O sol, parado no horizonte como sempre, inundava os céus de roxo. Ah sim, era tudo muito lindo. Só não era perfeito porque uma vaca me roubou a nave na noite anterior.
+— A viagem continua. Já conhecem as regras — disse o vigia, num tom mais baixo.
 
-No turno fundo da terceira volta, finalmente vi luzes ao fundo. Moldar não parecia tão massiva quanto Geores, mas parecia muito mais luxuosa. Havia grandiosas torres cilíndricas com grandes LEDs iluminando os arredores. Algumas pessoas voavam em aves pré-históricas, outras em veículos motorizados. Ao nos aproximarmos, vimos uma estrada que levava direto ao núcleo da cidade. O cardiçal nos deixou logo à entrada e desceu as costas para que desembarcássemos.
+Fiquei ouvindo os passos do cardiçal. Não sabia quantas pessoas estavam escondidas naquele deserto. Pela primeira vez, agradeci ao sujeito que tinha inventado aqueles cintos.
+
+O resto da viagem foi tranquilo, tirando um pássaro colorido de duas cabeças que resolveu tentar roubar o chapéu de um passageiro. O homem segurou a aba enquanto os dois bicos puxavam o tecido. O sol continuava no horizonte, tingindo de roxo as nuvens. Se a Luna não tivesse roubado nossa nave, até teria gostado daquele passeio.
+
+No turno fundo da terceira volta, vi luzes ao longe. Moldar era menor que Geores, mas as torres cilíndricas iluminadas por LEDs davam uma boa ideia do dinheiro que circulava ali. Tinha gente voando em aves enormes e veículos motorizados passando por uma estrada que levava ao centro. O cardiçal parou perto da entrada e abaixou o corpo pra gente desembarcar.
 
 — Sejam bem-vindos a Moldar — disse a familiar voz que tinha vindo do cardiçal na apresentação de nossa viagem — um dos maiores centros comerciais de eletrônicos de toda galáxia. Não deixem de conhecer a Rub-P-Lad, pioneira na tecnologia de resfriamento por pressão, ou a garagem de B-Se-Lei, onde podem testar equipamentos que os fazem enxergar além de seu espectro de cores habitual.
 
 Os vigias abriram as escadas para que descêssemos, e então seguimos para a cidade iluminada.
 
-Ao redor da cidade, havia diversas naves estacionadas, das mais diversas. Pequeninhas, grandes, até megaestruturas, claro que nenhuma se comparava com a Lebargan, nem mesmo com a Fera Sideral.
+Em volta da cidade, havia naves de todos os tamanhos. Algumas eram enormes, embora nenhuma chegasse perto da Fera Sideral, muito menos da Lebargan.
 
-Uma delas, pequena, de casco branco e liso demais, eu conhecia de cor: patrulha dale. Virei o rosto como quem acabou de ver a ex. Hardman notou e não disse nada, o que foi pior.
+Reconheci uma nave pequena de casco branco e liso demais. Patrulha Dale. Virei o rosto e continuei andando. Hardman acompanhou meu olhar, mas não disse nada. Aproveitei o reflexo de um painel pra olhar de novo sem virar a cabeça. Não reconheci nenhum dos homens perto da nave. Depois de tantos momentos fora da Lebargan, nem sabia se ainda tinha meu rosto nos registros dos Dales. Continuei andando.
 
-— Podíamos simplesmente levar uma delas. Roubar, assim como nos roubaram — disse Kord.
+— Podíamos levar uma dessas — disse Kord. — Roubaram a nossa, não roubaram?
 
-— Acho que não é tão fácil assim — falou Hardman, notando algo curioso na atmosfera — está sentindo essa energia?
+— Antes de tocar em qualquer uma, preste atenção ao campo ao redor — respondeu Hardman.
 
-Enquanto nos aproximávamos da cidade, tinha sentido meus cabelos arrepiarem, assim como meus pelos. Havia muita energia rondando por ali, e eu sabia bem o que era aquilo.
+Os pelos dos meus braços tinham começado a arrepiar. Conhecia bem aquela sensação.
 
-— Campo eletrostático de alta tensão em todo o perímetro. Descarga da Justiça, ou como alguns conhecem, Justa-Elétrica — disse Hardman. — Cada objeto leva uma etiqueta de identidade. Se sai do perímetro sem ela, o circuito se fecha pelo corpo de quem o carrega. O ladrão vira o condutor, e o ser é eletrocutado até a morte.
+— Campo eletrostático de alta tensão. Descarga da Justiça, ou Justa-Elétrica. Cada objeto possui uma etiqueta de identidade vinculada ao proprietário. Se tentar retirá-lo do perímetro sem autorização, o campo fecha o circuito através do seu corpo.
 
-No mesmo instante, um grito agudo cortou o ar. Vimos um cínzedo, magro e desgrenhado, cair no chão a poucos metros, convulsionando. Seu corpo brilhou em um tom azulado por um segundo, e o cheiro de algo queimado invadiu minhas narinas. Quando o brilho cessou, o corpo estava imóvel, uma fina fumaça subindo de suas extremidades. Piratas ao redor se afastaram, silenciosos, um lembrete cruel da regra.
+Um grito cortou a rua. Um cínzedo caiu a poucos metros da gente, convulsionando. O corpo brilhou em azul e, quando a luz apagou, o sujeito não se mexia mais. Senti cheiro de queimado. Os outros piratas se afastaram, deixando a passagem livre.
 
-— Uou — disse Kord — isso é de fato, perturbador.
+— Tá. Esquece a nave — disse Kord.
 
-— Podia dizer que isso não é algo que se vê todo dia, mas em Geores… isso é bem comum — respondi de lado, convencido.
+— Bem-vindo à parte civilizada de Sumatram.
 
-Aquela cidade não se parecia nada com a maravilhosa Geores, mas havia ali um quê de Sumatram. Os rostos eram mal-encarados, porém bem mais diversos: enquanto lá havia muito mais humanos, aqui havia andróides, neptorianos, arquerianos e até cínzedos (Jelles disse para eu nunca mexer com esses aí).
+Moldar tinha muito mais espécies que Geores. Androides, neptorianos, arquerianos e vários cínzedos. Jelles tinha me aconselhado a nunca comprar briga com esses últimos. O coitado no chão parecia ter comprado uma com a cidade inteira.
 
-— E então, para onde vamos? — perguntou O’reilly.
+— E aí, pra onde vamos? — perguntou O’reilly.
 
-— Estamos atrás de um homem importante, um que tem sob poder frotas de naves. Não deve ser difícil de encontrá-lo — Hardman estava pensando demais, como sempre.
+— Vamos procurar aquele mercador que está recrutando tripulantes. Alguém deve conhecê-lo — disse Hardman.
 
-— Talvez pudéssemos só perguntar pra alguém — sugeri, apontando para uma morenaça de pele escura e cabelos vermelhos que parecia ter a chave de todos os segredos do universo. — Tipo aquela gostosura ali.
+— Então vamos perguntar. Aquela mulher ali, por exemplo.
 
-Antes que ele pudesse me frear com um sermão sobre bom senso, já estava a caminho, peito estufado e confiança de sobra. Cheguei a poucos metros dela, pronto para soltar meu charme Dale. Ela se virou, e eu... por Trimonius, quase engoli a porra da minha língua!
+Vi os cabelos vermelhos e a pele escura da mulher e fui na direção dela, ajeitando a postura. Quando se virou, descobri que tinha uma segunda cabeça do outro lado do cabelo.
 
-Não era uma “gostosura”. Eram DUAS. Ou melhor, duas cabeças no mesmo corpo! Ambas me olhavam com olhos idênticos, exceto por um que era opaco, cego. Puta merda, Jasmey, seus padrões de “gostosura” acabaram de levar um tiro no escuro. Minha masculinidade chorou em silêncio.
+Parei um pouco mais longe do que pretendia. As duas me olhavam. Os olhos eram quase idênticos, embora um deles fosse opaco. Não sabia pra qual rosto devia falar.
 
-— Ai, misericórdia! — soltou Hardman quando viu a segunda cabeça.
+Hardman chegou do meu lado e, vendo a segunda cabeça, ergueu as sobrancelhas.
 
 — Posso ajudar? — perguntou a cabeça da direita.
 
-— Ahm, olha... — comecei, sem saber bem com que cabeça falar — Estamos procurando alguém que está recrutando pessoas para uma viagem ao espaço.
+— A gente tá procurando um sujeito que tá recrutando tripulação pra uma viagem ao espaço.
 
 — Recrutando pessoas? — riu a cabeça direita — ele deve estar falando do mestre estelar.
 
 — Deve ser — respondeu a cabeça da esquerda — O Mestre Estelar está recrutando até hoje. Tem passado nos teleprojetores.
 
-— O MESTRE ESTELAR? — Hardman agarrou meu braço de carne com tanta força que doeu. — O da Carta Estelar? O homem que desenhou o mapa que todo navegador usa?
+— O Mestre Estelar? — Hardman segurou meu braço bom. — O autor da Carta Estelar? A carta usada pelos navegadores?
 
-— Eu usava a Carta desde pirralho e nunca perguntei quem a fez — falei.
+— Uso aquela porra desde que aprendi a pilotar. Nunca perguntei quem fez.
 
-— Nunca perguntou?! — Hardman me olhou como se eu tivesse cuspido num altar.
+Hardman me soltou e olhou de novo pras duas mulheres.
 
-— Ele parece ter fãs — comentou a cabeça da direita.
+— Parece que ele tem um admirador — comentou a cabeça da direita.
 
 — É o homem mais rico do planeta — disse a cabeça da direita.
 
-— Mas não tenho certeza se ele iria querer algo com vocês. Ele é muito seletivo com sua tripulação. Não que alguém não quisesse algo com você — disse a cabeça da esquerda, me olhando sensualmente. Hardman pigarreou e vi Kord soltar um risinho.
+— Mas ele é muito seletivo com quem leva a bordo — disse a cabeça esquerda. — Embora eu não tivesse problema nenhum em levar você.
 
-— Onde podemos encontrar o Mestre Estelar? — perguntou Hardman, ainda sem cor.
+Kord riu pelo nariz. Hardman pigarreou.
+
+— Onde poderíamos encontrá-lo?
 
 — Boa pergunta. Caly, onde o jovem pode encontrar o Mestre Estelar?
 
-— Ele anda bem escondido ultimamente. Talvez... ele costumava frequentar o Ritmo da Morte às terceiras voltas. E olha só, hoje é a terceira volta. Aliás, hoje é a terceira final do momento das competições das máquinas. Certamente vocês o encontrarão por lá. É só procurar por um homem de grandes cabelos vermelhos.
+— Anda meio escondido. Costumava frequentar o Ritmo da Morte às terceiras voltas. Hoje tem a terceira final das competições de máquinas deste momento. Procurem um homem de cabelos vermelhos, bem compridos.
 
 — Ritmo da morte? — perguntou Kord.
 
-— Um dojô construído para lutas de máquinas — explicou a cabeça de nome Caly.
+— Um dojô onde lutam máquinas — explicou Caly.
 
-— Ritmo da Morte — repeti — já ouvi falar disso em uma de minhas visitas em Geores. Mas não sabia que era aqui. Quanto tempo temos para o início do evento?
+— Já ouvi falar disso em Geores. Não sabia que era aqui. Falta muito pro show?
 
 — Creio que seis horas planetárias. O show começa pelo meio do turno alto — disse a segunda cabeça.
 
-— Ok, cabeças. Obrigado pela informação — falei. As duas esboçaram olhares ofendidos, mas ignorei e me virei.
+— Valeu, cabeças.
 
-— Precisa moderar mais suas palavras — disse-me Hardman quando andávamos pelas ruas.
+As duas fecharam a cara. Me virei e fui embora.
 
-— Moderar minhas palavras? — perguntei erguendo uma sobrancelha.
+— Elas acabaram de ajudá-lo, Jasmey.
 
-— Lembrar que cada ser é uma vida. E que todos possuem sentimentos. Não todo mundo é uma pedra como você — disse Hardman.
+— E eu acabei de agradecer.
 
-— Vou me lembrar disso — respondi, sem dar a mínima.
+— Chamou as duas de cabeças. Elas têm nome.
 
-— Hardman, ta perdendo seu tempo — disse Kord.
+— Tá bom, Hardman.
 
-Seguindo as ruas indicadas pela cabeça da esquerda, passamos por uma cúpula gigantesca de vidro que se estendia para o céu, reluzindo sob as luzes da cidade: o “Espaço Estacionador Real”, onde naves de todos os tipos e tamanhos, das menores e mais ágeis a colossais estruturas que rivalizavam com pequenas estações espaciais, reluziam como joias tecnológicas. Um verdadeiro paraíso para qualquer pirata.
+— Tu ainda vai morrer tentando ensinar esse cara a conversar — disse Kord.
 
-— Ei Hardman, olhe para aquilo! — exclamou Kord, os olhos brilhando ao avistar uma nave prateada e elegante — Por que estamos perdendo tempo procurando esse tal Mestre Estelar? Podemos pegar uma dessas. Quem sentiria falta?
+Seguimos as indicações até passar diante de uma cúpula de vidro gigantesca, com o nome Espaço Estacionador Real na entrada. Lá dentro tinha naves de todos os tipos, de pequenas subnaves a estruturas quase do tamanho de estações. Parei junto ao vidro pra examinar uma das mais rápidas. Tava louco pra voltar a pilotar.
 
-O’reilly assentiu, já com um plano visível em seu rosto. Buni, com sua inocência, parecia dividido entre a tentação e o medo.
+— Olha essa prateada, Hardman. Por que diabos estamos procurando o Mestre se tem tanta nave dando sopa?
 
-— Claro, Kord! — retrucou Hardman, puxando-o pela camisa e apontando para os avisos holográficos que pairavam sobre cada nave, luminosos e claros. — Se você quer ser o próximo churrasquinho cósmico.
+O’reilly apontou pras saídas da cúpula. Buni olhou pra nave e depois pro chão.
+
+— Kord. Lembra-se do homem que acabamos de ver cair morto? — Hardman apontou os avisos holográficos acima de cada nave. — O mesmo sistema protege estas embarcações.
 
 Kord encolheu os ombros, desviando o olhar da nave, e deu um suspiro.
 
-— Já tinha me esquecido dessa merda de justa-elétrica. Que desperdício de naves tão bonitas.
+— Porra, é mesmo. Que desperdício.
 
-— Bom, eu to morrendo de fome. O que será que tem para comer por aqui? — perguntei.
+— Bom, enquanto a gente não resolve isso, tem alguma coisa pra comer por aqui?
 
-— Eu também estou com fome — disse Buni.
+— Eu também tô com fome — disse Buni.
 
-— Olha, não vou negar que também estou faminto — disse O’reilly.
+— Se tiver alguma coisa quente, melhor ainda — acrescentou O’reilly.
 
-— Ta, mas não temos dinheiro e não podemos roubar. Como vamos conseguir comida? — perguntou Kord.
+— E sem dinheiro, como a gente paga? — perguntou Kord.
 
-Me virei para responder e notei a ausência de um dos membros do grupo.
+Me virei pra responder e percebi que Vivian não tava mais com a gente.
 
-— Onde é que foi parar a garota? — perguntei, todos também notando o sumiço de Vivian.
+— Cadê a Vivian?
 
-— Ah pronto, agora perdemos a Vivian. Que maravilha!
+Hardman procurou entre as pessoas que passavam.
 
-— Não a perdemos — disse Kord — lá está ela.
+— Ali, ó — disse Kord.
 
-Kord apontava para um comércio logo a frente o qual podíamos ver pelas portas de vidro. Vivian estava dentro, gesticulando pacientemente com o comerciante, suas mãos descrevendo a situação do grupo com clareza. Um momento depois, ela saiu, sorrindo, e carregando um saquinho de pães. Ela caminhou até nós e abriu o saco, oferecendo o de comer.
+Ela tava dentro de um comércio, conversando por sinais com o atendente. Quando saiu, tinha um saco de pães nas mãos. Abriu o saco e ofereceu um pra cada um.
 
-— O que... como conseguiu isso, garota? — perguntou Hardman, surpreso.
+— Como conseguiu? — perguntou Hardman.
 
-Vivian fez um gesto que Hardman traduziu, com um olhar sugestivo para mim:
+Vivian fez alguns gestos. Hardman acompanhou e sorriu.
 
-— Ela disse que, “enquanto alguns pensam apenas em brigas e roubo, a simpatia e a honestidade também abrem portas”. Ela sorriu para o atendente, gesticulou explicando que era muda e estava com fome. O homem gostou do sorriso dela e lhes ofereceu alguns pães de jambota.
+— Explicou que estávamos com fome. O homem ofereceu pães de jambota. Pediu apenas que agradecêssemos e voltássemos quando tivéssemos dinheiro.
 
-— Gostou do sorriso dela é? Ele com certeza gostou de outra coisa — falei, apanhando um dos pães e o devorando.
+— Gostou de você, hein?
 
-— Gostou do quê? — resmungou Kord como se eu tivesse direcionado a fala a ele.
+Vivian estreitou os olhos e puxou o saco quando estendi a mão pra pegar outro pão.
 
-— Hm, já experimentou este pão? É delicioso — falei, de boca cheia. Era crocante, e bem saboroso. Mas sentia falta de algo líquido para acompanhar. Um necroriano, quem sabe.
+— Come o teu primeiro, desgraçado — disse Kord.
 
-Enquanto devorávamos os pães, acompanhamos um estranho acontecimento. Uma mão tocou no ombro de Buni e o virou. Era uma senhora bem idosa, com poucos cabelos na cabeça e uma aparência esquelética, com olhos extremamente fundos. Ela se virou para nós e então falou:
+O pão tava quente, crocante por fora. Comi até as migalhas que caíram na minha mão. Vivian acabou me dando outro quando viu que ainda tava com fome. Fiz o sinal que tinha aprendido. Dessa vez, saiu direito.
+
+Enquanto comíamos, uma senhora tocou o ombro de Buni. Era velha, magra a ponto de dar pra ver o contorno dos ossos sob a pele, com poucos cabelos e olhos fundos. Olhou de um rosto pro outro.
 
 — Eu vejo aqueles que trarão as trevas e a morte para todos nós. A escuridão irá nos consumir como uma noite eterna, e nenhuma luz sobreviverá. Nem mesmo quem estiver em terra firme, estará seguro. A morte virá para todos na maldição que liberarão.
 
 — Maldição? — perguntou Buni, assustado — que maldição?
 
-Seus olhos se desfocaram e sua cabeça caiu em direção ao chão. Então vi algo assustador acontecer. Seus dentes começaram a cair um a um no chão soltando de sua mandíbula enquanto a velha tornava a correr para o meio da multidão e desaparecia.
+Os olhos dela perderam o foco. A cabeça pendeu e um dente caiu no chão, seguido de outros. Buni deu um passo pra trás. Antes que alguém conseguisse dizer alguma coisa, a velha se afastou, atravessou a multidão e sumiu.
 
-— Mas o que foi isso? — perguntou O’reilly.
+— Vocês viram isso? — perguntou O’reilly.
 
-— Gente, que velha doida — disse Hardman.
+Hardman ficou olhando na direção em que ela tinha desaparecido.
 
-Abaixei e apanhei um dos dentes ao chão, os analisando com calma.
+— Que mulher estranha.
 
-— Ela disse que nós traríamos trevas e morte para todos? — perguntei.
+Me abaixei e apanhei um dos dentes. Era de verdade. Larguei no chão.
+
+— Falou que a gente vai trazer trevas e morte?
 
 — É o que parece — disse Kord.
 
-— Se Jelles for um dos que morrem, estarei feliz — ri, embora meus companheiros não tenham achado graça.
+— Se o Jelles estiver no meio dos mortos, já fico satisfeito.
 
-— É melhor procurarmos logo o tal Ritmo da Morte — aconselhou O’reilly.
+Ninguém riu. Buni continuava olhando pro lugar onde a velha tinha sumido.
 
-A cidade de Moldar era extremamente viva e não parava um segundo. Caminhando atrás do Ritmo da Morte, passamos por gogenitos, hominídios gigantes, e fitelberdianos, uma raça actonesa que eu não via desde minhas primeiras missões, cujas células se alimentam de fótons de luz, de modo que vemos a luz distorcida ao redor de seus corpos.
+— Vamos procurar o Ritmo da Morte — disse O’reilly.
 
-Um led alto numa das avenidas, junto a uma fila imensa, denunciava a entrada do Ritmo da Morte. Vendedores passavam na fila oferecendo miniaturas de robôs, mini projetores holográficos e comidas das mais diversas, entre elas grandes larvas vivas e pegajosas, parecidas com as de Jampor, o planeta mais selvagem que já visitei. Os que as compravam as chupavam como macarrão, engolindo-as vivas. Senti um embrulho no estômago. Eu definitivamente não curtia larvas.
+Moldar não parava. Passamos por gogenitos, hominídios gigantes e até fitelberdianos, uma raça actonesa que eu não via desde as primeiras missões. As células deles se alimentavam de fótons, e dava pra enxergar a luz se deformando ao redor de seus corpos.
 
-A fila cresceu atrás de nós e esperamos um bom tempo as portas se abrirem. O’reilly cantou, Kord contou uma história de seu planeta natal, Sajir, e Buni, como sempre, quase não interagiu, apenas ria das piadas. Claro que não deixei de contar minhas histórias da Lebargan: a vez em que Vek foi mordido por uma jaspa, uma vespa cuja mordida deixa a pessoa extremamente alucinada. Vek não parava de lamber o próprio braço, dizendo que precisava arrancar o óleo da pele para não pegar fogo, e não só o dele: precisava eliminar o óleo do braço de todo dale que via. Foi irado passar a tarde o vendo assim. Quando o efeito passou, Vek bebeu líquidos a tarde toda para recuperar a saliva perdida. Insano.
+Um LED alto anunciava o Ritmo da Morte. A fila já ocupava boa parte da avenida. Vendedores ofereciam miniaturas de robôs, projetores holográficos e uns bichos compridos e vivos pra comer. Pareciam as larvas de Jampor, o planeta mais selvagem que conhecia. Um sujeito na nossa frente engoliu uma delas de uma vez. Pensei nos pães de jambota e agradeci mentalmente à Vivian.
 
-Quando as portas finalmente se abriram, a fila andou e logo entramos. O local era imenso, uma catedral alta com iluminação arroxeada caindo sobre nós. No centro havia uma arena quadrada de terra, e as pessoas se sentavam em bancos ao redor.
+A entrada nas arquibancadas comuns era livre. Só cobravam pelos lugares reservados e pelas apostas, pelo que nos explicou um sujeito na fila. Ainda bem, porque a última coisa que tínhamos de valor era o que vestíamos. A fila demorou a andar. O’reilly cantou um refrão, Kord contou uma história de Sajir e Buni riu quando ele chegou à parte em que um sujeito caiu no mar. Contei a vez em que uma jaspa mordeu o Vek. O veneno daquelas vespas dá umas alucinações do caralho. Vek achava que tinha óleo inflamável na pele e passou a tarde lambendo o próprio braço. Depois decidiu que precisava salvar os braços de todos os Dales que encontrava. Quando o efeito passou, bebeu água até quase estourar. Comecei a rir lembrando da cara da Amanda. Quando terminei a história, fiquei um tempo olhando pra fila. Era estranho contar uma coisa daquelas sem o Vek do meu lado pra reclamar da minha versão.
+
+Quando as portas abriram, entramos num salão alto, quase uma catedral, iluminado por luzes arroxeadas. No centro havia uma arena quadrada de terra, cercada de arquibancadas.
 
 O mais chocante eram os restos de máquinas espalhados no centro da arena, com muito óleo e líquidos viscosos coloridos de androides destruídos. Sentamos em bancos altos, de onde víamos bem a cena. As pessoas gritavam extasiadas enquanto duas feras robóticas se enfrentavam, arrancando partes uma da outra. Para animar o público, alguns homens soprando aparelhos lançavam fogo para cima.
 
-— ... e parece que o Homem-Azul está na vantagem. A precisão do Máquina Fenomenal está diminuindo, assim como a quantidade de detritos que ele deixa ao chão — dizia a voz ampliada de um narrador vindo das caixas de som espalhadas pela catedral — Acho que o Máquina Fenomenal precisa de uma troca de fluidos com urgência, mas o duelo aqui é até a destruição meus amigos, e o vencedor aqui pegará o Inigualável. E como já passamos da primeira fase, não há mais tempo para consertos.
+— ...e o Homem-Azul está em vantagem! A precisão da Máquina Fenomenal diminui a cada golpe, assim como a quantidade de fluido que ainda resta dentro dela! Precisaria de reparos urgentes, mas aqui a luta é até a destruição, meus amigos! O vencedor enfrenta o Inigualável. Passamos da primeira fase, não há mais tempo para consertos!
 
-As máquinas lutavam ferozmente, e o tal Homem-Azul, humanoide de olhos vermelhos e cobertura de metal azul, estava na vantagem. O Máquina Fenomenal, um quadrúpede, tinha metade de uma perna e várias perfurações. A luta não durou: o Homem-Azul arrancou um membro do Máquina Fenomenal e o enfiou em sua cabeça, e ele parou de se mexer. O Homem-Azul se levantou, o crânio amassado mas o resto intacto, e a plateia vibrou e celebrou.
+As máquinas lutavam ferozmente, e o tal Homem-Azul, humanoide de olhos vermelhos e cobertura de metal azul, estava na vantagem. O Máquina Fenomenal, um quadrúpede, tinha metade de uma perna e várias perfurações. A luta não durou: o Homem-Azul arrancou um membro do Máquina Fenomenal e o enfiou em sua cabeça, e ele parou de se mexer. O Homem-Azul se levantou, com o crânio amassado e o resto intacto. A plateia começou a bater os pés nas arquibancadas. Um dos vendedores passou recolhendo fichas de aposta, e um homem atrás de nós arrancou um pedaço de papel do bolso e o rasgou no meio. Tinha apostado no quadrúpede. O’reilly acompanhou o movimento do vencedor, que apoiou o pé no corpo da máquina derrotada. Hardman não tirava os olhos dela.
 
-Olhei divertido para Hardman, ele parecia incrédulo, e vi muito desconforto.
+Olhei pro Hardman. Ele não aplaudia. Tava acompanhando os restos do quadrúpede com os olhos.
 
-— Isso é incrível, não é? — falei, emocionado.
+— E aí? Gostou?
 
-— Consegue imaginar você sendo uma daquelas máquinas? Sendo obrigado a lutar até a morte? — disse Hardman.
+— Imagine ser obrigado a entrar ali e lutar até deixar de funcionar.
 
-— Hardman, são máquinas.
+— São máquinas, Hardman.
 
-— E o que você sabe sobre as máquinas? O que você sabe sobre a inteligência deles? Te garanto que este é um assunto mais complexo do que sua cabeça oca pode compreender.
+— E você sabe o que elas são capazes de sentir? Porque eu não sei. E garanto que não é possível descobrir isso arrancando-lhes as pernas.
 
-Voltei minha atenção para o show. Nos distraímos tanto com o espetáculo que quase nos esquecemos para que estávamos ali. E teria continuado assim se Vivian não tivesse cutucado Kord e apontado para a extremidade da arena.
+Voltei a olhar pra arena. Só lembrei do motivo de estarmos ali quando Vivian cutucou Kord e apontou pro outro lado.
 
 — Será que ele é o tal Mestre — disse Kord.
 
-Me virei para onde Vivian apontava e pude ver um homem forte, com um cabelo cheio e rubro, caindo sobre as costas. Seu rosto estava coberto de pinturas e suas vestes eram bem coloridas e chamativas, e ele usava óculos com lentes vermelhas. Ao seu redor havia cinco guardas armados com grandes lanças, usando capacetes reforçados.
+Vi um homem alto, de cabelos rubros e volumosos até as costas, rosto pintado, roupa colorida e óculos de lentes vermelhas. Cinco guardas de capacete e lança faziam questão de manter os espectadores afastados dele. Um homem de capacete prateado, mais perto da passagem, virou a cabeça na minha direção. Achei que fosse outro segurança.
 
-— Com certeza é ele, os cabelos vermelhos. Como vamos abordá-lo? — perguntei.
+— É ele. Como a gente chega até lá?
 
-— Esperamos até a luta acabar para depois conversar com ele? — perguntou O’reilly.
+— Podemos esperar acabar a luta — sugeriu O’reilly.
 
-— Final de show sempre é um caos. Ele vai facilmente desaparecer na multidão — disse Kord.
+— Quando acabar, vai ter gente saindo por todo lado — disse Kord. — Vamos perder o homem.
 
-— Muito bom, excelente! — disse a voz do homem que narrava a luta enquanto alguns alienígenas de oito pernas tiravam os restos do Homem-Azul da arena — agora é a hora que todos esperávamos. Vamos ver a Máquina Fenomenal enfrentar o nosso tetracampeão, O Inigualável em um mais um duelo.
+— E agora, meus amigos! — anunciou o narrador, enquanto retiravam os restos da Máquina Fenomenal. — O Homem-Azul enfrenta o tetracampeão! O INIGUALÁVEL!
 
 Olhei mais uma vez para o tal Mestre e notei que parecia extremamente concentrado na batalha.
 
-— Ele não me parece disposto a conversar com qualquer um. E os guardas não nos deixariam nos aproximar dele. Talvez pudéssemos causar um pouco de caos e se livrar dos guardas — falei, malandro — conseguem dar conta de dois deles, não?
+— Se três guardas vierem atrás de mim, sobram dois. Vocês dão conta deles?
 
-— Jasmey, por favor, não faça merda, lembre-se da Justa-Elétrica — pediu-me Hardman, mas era tarde. Antes que ele terminasse, eu saí e caminhei em direção aos guardas. Eu não iria roubar nada, então não tinha com o que me preocupar. Hardman ainda gritou por meu nome, mas o ignorei. Segui pelo meio dos espectadores fanáticos, gritando enquanto os finalistas se enfrentavam violentamente.
+— Jasmey, não faça nada que nos traga problemas com a Justa-Elétrica...
 
-Quando estava a apenas alguns metros dos guardas, parei e comecei a encará-los até que chamasse a atenção de um deles.
+Já tava no meio dos espectadores. Passei por uma fileira de bancos até ficar a poucos metros dos guardas. Um deles me viu.
 
-— Acho que eles devem conhecer o símbolo universal dos humanos — falei enquanto levantava lentamente meu dedo do meio para ele. O guarda chamou outro e em pouco tempo, três deles estavam indo em minha direção.
+Ergui o dedo do meio. O sujeito chamou o companheiro. Um terceiro veio atrás.
 
-Virei-me para Hardman e os outros e assenti. Os guardas começaram a me seguir enquanto eu recuava para a direção oposta à dos aliados. Então correram, e eu, obviamente, fugi, saltando por cima das pessoas, esbarrando em alguns e fazendo-os derrubar seus lanchinhos. Esbarrei numa senhora, e o acompanhante dela achou que fora outro homem, socou-o, e uma briga se iniciou e se estendeu por boa parte do público. Em pouco tempo mais de vinte pessoas estavam em guerra nas arquibancadas, e os guardas ganharam preocupação maior do que perseguir um homem que os ofendera. Olhei ao redor para ver se meus companheiros tinham dado conta dos outros dois guardas, mas as coisas não saíram como eu pensava. O’reilly e Kord estavam presos pelos guardas, e Hardman, encolhido, dialogava diante do Mestre, que de pé revelava seus mais de dois metros de altura.
+Fiz sinal pros outros e recuei. Os guardas correram. Pulei sobre os bancos, derrubei um lanche e esbarrei numa senhora. O acompanhante dela socou o homem errado, e logo tinha uma briga em duas fileiras da arquibancada. Os guardas tiveram que parar pra separar o pessoal. Olhei pro lado do Mestre. Merda. O’reilly e Kord já estavam presos pelos dois guardas restantes. Hardman tentava explicar alguma coisa ao Mestre, que de pé tinha mais de dois metros de altura.
 
-Foi naquele momento em que senti uma pontada em minha nuca que escureceu toda a minha visão.
+Senti uma pancada na nuca. As arquibancadas desapareceram.
 
-Quando acordei, me vi amarrado por correntes de aço em um assento gelado. Estava em um tipo de galpão com janelas alaranjadas na qual a luz do sol entrava e me iluminava de forma precária. Olhei para o lado e vi que meus companheiros também estavam todos amarrados.
+Acordei preso a um assento gelado por correntes de aço. A luz entrava pelas janelas alaranjadas de um galpão. Todos os outros estavam ali, amarrados.
 
-— Por que sempre é você que faz tudo errado? — perguntou Hardman.
+— Jasmey, gostaria de entender por que você continua fazendo essas coisas.
 
-— Porque ele é teimoso pra caralho — disse Kord — deveríamos tê-lo deixado no deserto, pelado.
+— Porque é teimoso pra caralho. Devíamos ter deixado ele pelado no deserto — disse Kord.
 
-— Calem a boca — falei — o planinho diplomático de vocês nunca iria funcionar.
+— Calem a boca. A ideia de vocês também não ia funcionar.
 
-— E o seu funcionou? — resmungou Kord.
+— E a tua funcionou bonito, né?
 
-As portas se abriram e o homem que procurávamos entrou, acompanhado de seus guardas. Dessa vez estava sem a roupa de cima, revelando braços musculosos. Uma pintura escura em volta dos olhos contrastava com a pele bronzeada, tão preta que absorvia a pouca luz do ambiente, parecendo recém-pintada. Havia outras pinturas pelo rosto e pelo corpo, além da tatuagem vermelho-sangue de uma criatura de dentes afiados no peito. Empunhava duas espadas e caminhava em minha direção.
+As portas abriram. O Mestre Estelar entrou acompanhado dos guardas. Tava sem a roupa de cima, com pinturas escuras em volta dos olhos e pelo corpo. A tatuagem de uma criatura de dentes afiados, em vermelho, ocupava parte do peito. Trazia uma espada em cada mão.
 
 — Quem de vocês é o líder? — perguntou ele.
 
-Antes que eu pudesse dizer algo, cada um dos meus “parceiros” me entregou, apontando com a cabeça. Desgraçados covardes. O Mestre caminhou até mim e abaixou-se em minha frente me olhando nos olhos.
+Abri a boca. Os cinco olharam na minha direção antes que eu pudesse dizer qualquer coisa. Até a Vivian. O Mestre veio até mim e se abaixou.
 
 — É melhor se afastar — ameacei-o.
 
-O homem ergueu o canto da boca. Os dentes eram tão brancos que o ambiente pareceu se iluminar por um instante. Vivian fez uma careta e Kord ergueu as sobrancelhas.
+Ele sorriu. Vivian fez uma careta quando me viu puxar as correntes.
 
-— Seu amigo disse que vocês querem uma nave para sair daqui? Essa confusão que causaram foi apenas para conseguirem chegar em mim? — perguntou-me ele.
+— Seu amigo tentou me explicar que precisam de uma nave. Foi por isso que interromperam meu espetáculo?
 
-— Queremos fazer parte de sua frota — falei — mas tínhamos certeza que não nos daria ouvidos se simplesmente chegássemos em você.
+— Queremos fazer parte da tua frota. Não achei que os guardas fossem deixar a gente chegar perto.
 
-— É claro que não lhes daria ouvidos. Vocês não têm cara de quem quer apenas tripular uma nave. Têm cara de quem quer saqueá-la. Pelo sangue quente e pela forma como se impõe, você deve ser um Dale. O mais baixo parece ter mãos bem grossas, um mecânico de naves, talvez? O grandão mais velho, pelas tatuagens, parece ser de Sajir, aquele planeta superpopuloso. O da direita nem queria estar aqui. O outro só aparenta ser grande e forte, mas tem olhos de criança. A garota não para de me estudar: é muda ou surda? E pelo aspecto e pelo cheiro, parecem ter vindo da prisão. Se conheceram lá, foi?
+— Não deixariam. — O Mestre olhou de um pro outro. — A maneira como se impõe lembra um Dale. O seu amigo mais baixo tem mãos de quem trabalha com máquinas. A tatuagem daquele ali é de Sajir. O grandalhão parece preferir estar longe daqui, e a moça nos acompanha com os olhos, mas ainda não disse uma palavra. Muda ou surda? Pelo estado das roupas, diria que saíram de uma prisão há pouco tempo. Foi lá que se conheceram?
 
-Eu não fazia ideia de como ele tinha conseguido aquelas informações sobre nós, mas não estava gostando nada disso.
+Olhei pro meu uniforme. Tinha passado a viagem inteira usando as mesmas roupas. Mesmo assim, não gostei de ver aquele sujeito acertar tanta coisa sobre a gente.
 
-— Sou um excepcional mercador, é minha obrigação analisar as pessoas que querem negociar comigo. Mercadores incompetentes morrem o tempo todo na galáxia. E sim, eu estou recrutando, mas vocês não fazem o perfil. Preciso de homens leais, subordinados, e não saqueadores.
+— É meu trabalho conhecer as pessoas com quem negocio. Mercadores que não fazem isso morrem cedo. Estou recrutando, sim. Preciso de pessoas em quem possa confiar, não de saqueadores.
 
-— Não somos saqueadores — disse O’reilly — só precisamos de uma nave.
+— Não viemos saquear nada, senhor. Precisamos de uma nave — disse O’reilly.
 
-— Ok, me expliquem por que pessoas de cantos tão diferentes se juntaram atrás de uma nave. E como vieram parar em Sumatram sem nave? Eu não nasci ontem, garotos.
+— Então me expliquem como seis pessoas de lugares tão diferentes vieram parar em Sumatram sem uma embarcação.
 
-— Nós fugimos há pouco da Fera Sideral e acabamos caindo aqui. Tivemos nossa nave roubada por uma ladra — explicou O’reilly — só queremos sair. Diga-me seu preço, que nós pagamos.
+— Fugimos da Fera Sideral e, em Geores, roubaram nossa nave. Só queremos sair daqui. Diga quanto custa e tentamos negociar.
 
-— Vocês pagam? — riu o mercador, assim como seus homens — vocês têm cara de que não tem nem mesmo onde cair vivos. Não vejo uma ficha de lastro em nenhum bolso. E meu preço costuma ser alto. Tenho as melhores naves do quadrante. Não creio que tenham o suficiente para me pagar.
+— Negociar com quê? — O Mestre riu. — Nem uma ficha de lastro nos bolsos. Tenho as melhores naves deste quadrante. Não costumam sair de graça.
 
-Foda-se, eu estava de saco cheio, iria jogar as cartas na mesa.
+Já tava de saco cheio. Resolvi jogar as cartas na mesa.
 
-— Estamos atrás de um lugar chamado Aurora — falei.
+— Estamos atrás da Aurora.
 
-O homem riu, mas pude ver um leve brilho em seus olhos. Seus guardas, em contrapartida, gargalhavam descontroladamente.
+Os guardas gargalharam. O Mestre também sorriu, mas continuou olhando pra mim.
 
 — Como se chama? — perguntou-me o Mestre.
 
 — Jasmey Badrock — respondi.
 
-— Eu conheço este mito, Badrock. É uma puta de uma desculpa infantil e tola. Até parece que não querem sair vivos daqui, o que é uma pena, pois pareciam formar uma equipe fascinante.
+— Conheço a lenda, Badrock. É uma desculpa bastante ruim para quem precisa de uma nave. Tente outra.
 
-— A aurora não é um mito — respondi — Também pensávamos isso. Mas os Dales têm um mapa até ela. Além disso meu amigo também sabe como chegar lá. Precisamos de uma nave para chegar antes da Lebargan.
+— Não é mito. Os Dales têm um mapa pra chegar lá. Meu amigo também conhece o caminho. Precisamos de uma nave pra chegar antes da Lebargan.
 
-— Você está me dizendo que os Dales estão atrás da Aurora e que você não é mais leal a eles, mas também quer ir atrás da Aurora? Estranho! Sempre ouvi falar dos Dales como seres extremamente leais à sua ordem — o Mestre me observou. — Seus amigos acreditam mesmo que você não é mais leal aos Dales? E que não quer o tesouro e a Lebargan para si?
+— Um Dale que quer chegar antes dos Dales? E seus amigos acreditam que você não pretende ficar com o tesouro e a Lebargan?
 
-— Eu não quero aquele tesouro — falei — só quero matar o homem que tentou me assassinar. O capitão da Lebargan. E nada mais.
+— Quero matar o capitão da Lebargan. O sujeito tentou me matar. O tesouro não me interessa.
 
 O Mestre olhou em meus olhos por algum instante.
 
-— Uma história de vingança. Agora isso está mais interessante. Vingança é mais crível do que a busca por um tesouro fantasioso. Quer uma nave para se vingar de seu mestre que por sinal, está atrás de um tesouro. E acha que conseguirá encontrá-lo na Aurora?
+— Vingança. Isso já me parece mais crível. Acredita que vai encontrá-lo na Aurora?
 
-— Exatamente — respondi — se nos ajudar... não haverá capitão na Lebargan para conquistar o tesouro da Aurora. Nós dividimos todo o tesouro com você.
+— Acredito. Se nos ajudar, dividimos o tesouro contigo.
 
-Notei pelo canto dos olhos preocupação nos olhos de Hardman, mas o ignorei. Naquele momento, tinha conseguido a atenção nos olhos do Mestre.
+Hardman virou a cabeça na minha direção. Não dei tempo pra ele falar.
 
-— 50% do tesouro. É o meu preço. Se aceitar, estão livres e eu lhes forneço a Princesa do Inverno, uma das melhores naves que tenho à disposição.
+— Cinquenta por cento. Em troca, terão a Princesa do Inverno, uma de minhas melhores embarcações.
 
-— 50%? — indagou Kord — isso é um abuso.
+— Metade? Tá de sacanagem — disse Kord.
 
-— Acho que não estão de acordo, não é? Então vou reservar a nave para outra tripulação.
+— Posso reservar a nave para outra tripulação.
 
-— De acordo — respondi o cortando.
+— Fechado.
 
-O Mestre assentiu, sorrindo e se levantou erguendo as mãos para seus homens. Eles se dirigiram até nossa traseira e logo senti as correntes afrouxarem. Nos levantamos e o Mestre se dirigiu a mim.
+O Mestre sorriu, se levantou e fez sinal pros homens soltarem as correntes. Um dos guardas hesitou, olhando pras espadas do patrão. O mercador fez um segundo gesto e o sujeito obedeceu. Esfreguei os pulsos. O’reilly esperou que soltassem Buni antes de se afastar da cadeira. Hardman veio até mim, mas o Mestre ainda tava ali e ele preferiu não falar nada.
 
-— Há um hotel a dois quarteirões daqui chamado F’Oxel, vocês têm quartos reservados lá. Descansem o turno fundo e na próxima volta assinamos nosso acordo.
+— Há quartos reservados para vocês no F’Oxel, a dois quarteirões. Descansem. Na próxima volta formalizamos o acordo.
 
 O Mestre então se virou de costas e se retirou do galpão com seus guardas. Olhei para meus companheiros e assenti.
 
-— Então... vamos para o hotel — falei.
+— Bom. Pelo menos a gente tem onde dormir.
 
-Saímos do galpão e chegamos em um terreno desértico a quase um quilômetro da cidade.
+Saímos do galpão. Tava num terreno desértico, a quase um quilômetro da cidade.
 
-— Não foi nada bom você prometer aquilo para ele — disse Hardman — e se não conseguirmos o tesouro? E se o seu ex-capitão o apanhar antes?
+— Prometeu a metade de um tesouro que ainda não temos — disse Hardman. — E se não o encontrarmos? E se Jelles chegar primeiro?
 
-— To pouco me fodendo pro tesouro. Eu já disse que eu quero Jelles. Eu sei que ele vai para lá. E é lá que vou encontrá-lo.
+— Tô pouco me fodendo pro tesouro. Quero o Jelles. É lá que vou encontrar ele.
 
-Ignorei os olhares dos outros e segui pelo deserto em direção à cidade. Pude ver um veículo distante, onde o Mestre estava com seus guardas, se dirigindo de volta para a cidade. Ao retornarmos para Moldar, procuramos pelo hotel ao redor até que encontrássemos as iniciais em Led F’Oxel.
+Segui em direção às luzes da cidade. O veículo do Mestre e seus guardas já tava bem adiante. Encontramos o letreiro do F’Oxel depois de andar mais alguns quarteirões.
 
-O interior do hotel era incrível. As paredes curvavam-se suavemente em direções inesperadas, criando uma sensação de fluidez e movimento. Materiais iridescentes mudavam de cor suavemente à medida que a luz dançava sobre eles. Uma música retro-eletrônica tocava baixo nos autofalantes.
+O interior do hotel parecia caro. As paredes curvas mudavam de cor conforme a gente passava, e tinha uma música baixa nos alto-falantes. Depois das tábuas da Fera, até o chão me parecia confortável.
 
-— Bom turno! Temos quartos reservados — disse Hardman para um feniciniano, uma criatura que possui um cogumelo estranho no lugar da cabeça, ligada por um pequeno tubo musculoso e fino ao resto do corpo. A criatura usou seus apêndices para digitar algo na máquina em sua frente, e então as portas ao fundo se abriram.
+— Bom turno. Temos quartos reservados — disse Hardman ao atendente feniciniano. A cabeça do sujeito parecia um cogumelo ligado ao corpo por um tubo muscular. Ele digitou alguma coisa no painel e as portas abriram.
 
-— Sejam bem vindos ao F’Oxel — disse uma voz robótica vindo dos autofalantes acima da porta — aproveite nossas piscinas superaquecidas, ou desestresse nas câmaras de gravidade zero com uma massagem quântica. E não se esqueçam, a primeira refeição da volta é por nossa conta. Basta solicitar na recepção. Tenham uma boa estadia no F’Oxel.
+— Sejam bem-vindos ao F’Oxel. Aproveitem as piscinas superaquecidas ou as câmaras de gravidade zero com massagem quântica. A primeira refeição da volta é por nossa conta. Solicitem na recepção. Boa estadia.
 
-Seguimos pela porta e o corredor à frente começou a se moldar, indicando nosso caminho. A iluminação era baixa, mas víamos uns aos outros. Seguimos até quatro portas. Os quartos eram idênticos, com camas arredondadas e bioiluminação de abajures cheios de criaturazinhas que se alimentavam de energia: o interruptor cessava a corrente e os seres “adormeciam” com a falta de alimento, “apagando as luzes”.
+As paredes do corredor se ajustaram pra indicar o caminho até quatro quartos. As camas eram redondas, e os abajures tinham umas criaturinhas luminosas dentro. Quando se desligava a corrente que as alimentava, elas adormeciam e a luz apagava. Hardman ficou examinando uma delas.
 
-— Como vamos dividir os quartos? — perguntou Hardman — somos seis, e são quatro quartos.
+— Somos seis e temos quatro quartos. Como preferem dividir?
 
-— Acho que Vivian deve ter o quarto dela individual — disse Kord — afinal ela é uma garota.
+— Deixa a Vivian com um só pra ela — disse Kord.
 
-— Eu não me importo em dividir — disse O’reilly.
+— Eu divido com o Buni — ofereceu O’reilly.
 
-— Eu também não — disse Buni.
+Buni assentiu.
 
-— Eu não durmo com ninguém — falei — se virem. Vou para minha cama. Bom descanso!
+— Eu fico com esse aqui. Boa noite, meus amigos.
 
-Entrei numa das portas enquanto eles se decidiam. Sobre a cama havia uma bandeja de insetos assados. Pareciam apetitosos e eu estava faminto: crocantes por fora, macios por dentro, desmanchavam na boca, deliciosos e apimentados. Já vira aqueles insetos à venda em Geores, mas nunca provara. Pelo sabor, talvez eu devesse ter perguntado o que eram antes de comer. Deitei, respirei fundo e apaguei a luz no interruptor. Fiquei horas ali, pensando, até minha bexiga mandar eu sair. Será que havia banheiro naquele hotel?
+Kord olhou pro Hardman, que soltou um suspiro. Entrei antes que resolvessem discutir. Pela porta aberta, ouvi Kord perguntar ao Hardman de que lado da cama queria ficar. Hardman respondeu que preferia ficar do lado que não tivesse os pés dele. Foi a última coisa que ouvi antes de fechar a porta.
 
-Levantei e abri a porta. Luzes apagadas em dois dos quartos, mas a do primeiro ainda acesa. Quem ainda não dormira? Talvez Hardman? Talvez eu tivesse sido bruto com eles, saindo daquela forma. Aproximei-me da porta e ouvi murmúrios. Encostei o ouvido nela.
+Tinha uma bandeja de insetos assados sobre a cama. Crocantes, apimentados, com uma carne macia por dentro. Já tinha visto aqueles bichos em Geores e nunca provado. Depois de comer, me deitei e apertei o interruptor. As criaturinhas do abajur foram perdendo a luz até escurecer o quarto. Passei horas ali, pensando, até precisar mijar. Onde diabos ficava o banheiro?
 
-— … Jasmey prometeu para um mercador algo que não conseguiremos. Eu não acredito nisso... estamos mortos — disse a voz de Hardman.
+Saí pro corredor. Duas portas estavam escuras, mas ainda tinha luz saindo debaixo da primeira. Ouvi vozes. Cheguei mais perto.
 
-— É difícil pensar nisso — disse Kord — talvez devêssemos partir e deixá-lo em algum lugar.
+— Jasmey prometeu ao Mestre uma coisa que não podemos entregar — dizia Hardman. — Não sei como vamos sair dessa situação.
+
+— A gente devia pegar uma nave e deixar o cara em algum lugar — disse Kord.
 
 O quê? Que merda estava acontecendo ali?
 
-— Eu não sei se faria isso com ele — disse Hardman — se não fosse por ele não estaríamos aqui.
+— Não sei se faria isso. Sem ele, talvez ainda estivéssemos na Fera.
 
-— Sim, se não fosse por ele, não estaríamos correndo o risco de sermos mortos por assassinos de aluguel contratados por um mercador maluco — disse Kord — E que eu saiba, não foi ele que construiu o Temparalizador.
+— E sem ele também não tava devendo a um mercador! Foi você quem construiu o Temparalizador, Hardman.
 
-— Pega leve Kord — disse O’reilly — Todos nós erramos em nossas escolhas. Mas é inegável, que o cara foi meio que uma esperança para que conseguíssemos sair da Fera.
+— Pega leve, Kord — disse O’reilly. — A gente teve chance de fugir outras vezes. O Jasmey foi quem fez a gente tentar de verdade.
 
-— Esperança não salva vidas. Atitudes o fazem. E as atitudes dele só têm nos ferrado. Aliás, quando vai contar a ele? — perguntou Kord — porque quando ele souber, vai ficar violento. E se ele tocar em você, eu o mato.
+— E agora tá levando todo mundo pra guerra. Quando vai contar pra ele? — Kord baixou a voz. — Se tocar em você quando souber, eu acabo com ele.
 
-— Eu não sei. Talvez quando estivermos na nave. Podemos pedir duas naves ao Mestre, ele segue o rumo dele, e nós o nosso.
+— Talvez quando estivermos a bordo. Podemos pedir duas naves ao Mestre. Ele segue o caminho dele, nós seguimos o nosso.
 
-Aquela conversa estava muito estranha. Minha mente tentava me convencer de que eu não estava interpretando mal, então empurrei a porta de Hardman e entrei abruptamente. Hardman estava sentado na cama, de pijama, com Kord e Buni ao lado, e O’reilly na janela, as mãos na cintura.
+Empurrei a porta. Hardman tava sentado na cama, de pijama. Kord e Buni estavam ao lado dele, O’reilly junto à janela.
 
-— Que porra está acontecendo aqui? O que você quis dizer com ainda não ter me contado? — perguntei.
+— Que porra vocês tão escondendo de mim?
 
-Hardman estava sem palavras. Seus olhos assustados entregaram toda a cena.
+Hardman ficou quieto. Olhou pro Kord antes de voltar a me encarar.
 
-— Você mentiu pra mim, não é? Não sabe como chegar à Aurora?
+— Você nunca foi à Aurora, foi? Não sabe como chegar lá.
 
-— Eu... Eu não confiava em você, Jasmey, precisava de uma garantia de que não me mataria quando fugimos, pra isso precisei contar uma mentirinha. Se não fosse essa mentirinha, poderia ter me matado assim que saímos da Fera.
+— Não. Eu precisava de uma garantia, Jasmey. Você podia nos abandonar ou me matar assim que saíssemos da Fera. Achei que, se acreditasse que dependia de mim para encontrar a Aurora, não faria isso.
 
-Ah, meu sangue... fervia como a lava de um vulcão.
+Aquele sujeito tinha me olhado nos olhos na sala das máquinas e contado a história inteira. Tinha descrito a Aurora, tinha dito que o pai o levara até lá. Eu tinha acreditado em cada palavra. Lembrei das horas que passei carregando titânio e consertando os tubos enquanto ele construía o Temparalizador. Tinha aceitado fazer tudo aquilo porque sabia que, quando saísse, teria um caminho pra encontrar o Jelles.
 
-— Porra, agora que eu quero mesmo te matar. Merda! Vocês só me fizeram perder tempo.
+— Pois agora tô com vontade de te matar mesmo. Tão me fazendo perder tempo desde que saímos daquela nave!
 
-— Perder tempo? Foi você que nos indicou este planeta — disse O’reilly.
+— Foi você quem escolheu Sumatram — disse O’reilly.
 
-— Porque o idiota ali queria foder.
+— Porque o idiota ali queria foder!
 
-— Chame-o de idiota mais uma vez e vai ser a última coisa que você vai fazer na vida — ameaçou-me Kord.
+Kord se levantou.
 
-— Acha mesmo que iríamos ser convencidos facilmente por seu egoísmo a entrar numa guerra contra a Lebargan? Uma das maiores forças da galáxia? — perguntou Kord — nossa parceria só durou até conseguirmos fugir. Dali em diante, deveríamos ter seguido nossos caminhos.
+— Chama o Buni de idiota de novo pra ver.
 
-— Infelizmente Kord está certo — disse O’reilly — Você queria nos envolver em uma guerra. Nunca toparíamos isso. Mas discordo que apenas Jasmey tenha sido egoísta. Todos nós fomos egoístas. Só queremos saber de nossos interesses. E não acho que devemos seguir caminhos diferentes. Alguma coisa nos trouxe até aqui.
+— A gente combinou de fugir da Fera. Não de entrar numa guerra contra a Lebargan. É a tua guerra, Badrock.
 
-— Sim, algo nos trouxe até aqui, as decisões estúpidas de Jasmey que nos fez perder a nave e agora estamos devendo para um dos maiores mercadores da galáxia — resmungou Kord — E se não o pagarmos, estaremos mortos em pouco tempo. Sabe-se lá quem ele financiaria para nos matar.
+— Ele tem razão nisso, irmão — disse O’reilly. — Mas todos nós fizemos escolhas pensando no que queríamos. Não acho que separar a gente seja a solução. Sobrevivemos juntos até aqui.
 
-— Eu gosto do Jasmey — disse finalmente Buni — Gosto de todos vocês. Não quero que nos separemos.
+— Sobrevivemos e perdemos uma nave. Agora devemos dinheiro a um mercador que pode pagar um exército pra nos caçar. Não tô disposto a ver mais gente morrer.
 
-— Buni, não adianta ser sentimental — resmungou Kord — essa merda está durando tempo demais. Eu voto por apanharmos uma nave com módulos, para que possamos nos separar no caminho e cada um seguir sua jornada.
+— Eu gosto do Jasmey — disse Buni. — Gosto de vocês todos. Não quero ficar sozinho de novo.
 
-Minha cabeça estava fervendo. O ódio era tanto que soquei a parede, deixando uma marca nela.
+Kord olhou pro Buni e baixou um pouco o tom. Buni tinha a mão sobre o próprio joelho e continuava olhando pra mim. Eu podia ter respondido a ele, mas tava com tanta raiva do Hardman que nem abri a boca.
 
-— Quer saber, vão todos se foder — resmunguei, me retirando do quarto de Hardman.
+— Eu voto por uma nave com módulos. A gente se separa quando estiver em segurança.
 
-Segui pelos corredores, o sangue fervendo, até meu quarto. Assim que entrei, atirei o abajur da parede ao chão e me sentei na cama, os cotovelos nos joelhos, sem acreditar que tinham me feito de trouxa.
+Soquei a parede com a mão de metal. Ficou uma marca.
 
-Passei algumas dezenas de ectons refletindo e olhei pela janela, o cérebro quente se segurando para não ir quebrar a cara de Hardman, quando avistei um estranho vulto subindo pela parede em direção à janela do quarto dele, perpendicular à minha.
+— Quer saber? Vão todos se foder.
 
-— Mas quem... — falei, imediatamente saindo de meu quarto. Me encontrei com Vivian na porta e fiz com o dedo para que ela não fizesse ruído. Segui junto a ela de volta em direção ao quarto de Hardman.
+Voltei pro meu quarto. Arranquei o abajur da parede e joguei no chão. A luz das criaturinhas se apagou quando o aparelho se partiu. Sentei na cama, com os cotovelos sobre os joelhos. Tinha perdido a nave, a promessa de encontrar a Aurora e, pelo jeito, até a tripulação.
 
-A porta estava encostada, e as luzes do quarto apagadas. Contei até três e abri. Quando acendi as luzes, demorei para entender, mas minha reação foi rápida: no momento em que atiraram uma lamparina em minha direção, desviei e saquei a arma. O homem que a atirara entrou atrás de Buni e apontou a arma para ele. Usava um capacete prateado. Eu o reconheci como aquele que me vigiava mais cedo perto do Mestre Estelar.
+Passei algumas dezenas de ectons tentando decidir se voltava lá pra quebrar a cara do Hardman. Fui até a janela e vi um vulto subindo pela parede em direção à janela do quarto dele, perpendicular à minha.
+
+Saí imediatamente. Vivian tava no corredor, perto da porta do quarto dela. Fiz sinal pra ficar em silêncio e apontei pro quarto de Hardman. Ela veio comigo.
+
+A porta tava encostada, as luzes apagadas. Empurrei e acendi. Uma luminária voou na minha direção. Desviei. O homem que tinha arremessado aquilo se colocou atrás de Buni, com uma arma junto ao pescoço dele. Usava o capacete prateado que eu tinha visto perto do Mestre. Saquei a pistola.
 
 — Mas que porra…
 
-Olhei ao redor, Kord e O’reilly estavam ao chão, desacordados e Hardman estava ainda com seu roupão em um canto da parede, encostado, em choque.
+Kord e O’reilly estavam caídos. Hardman tava encostado na parede, ainda de roupão, com as mãos erguidas.
 
-— Solte ele — falei.
+— Solta ele.
 
-— Solto, mas entregue todas as armas que têm consigo — disse a voz robótica do ser de capacete.
+— Solto. Ponha suas armas no chão — respondeu a voz distorcida pelo capacete.
 
-— Não vou entregar porra nenhuma — falei, retirando a pistola do bolso e apontando para ele.
+— Não vou entregar porra nenhuma.
 
-— Se atirar, seu amigo morre — ameaçou ele.
+— Se atirar, seu amigo morre.
 
-Vivian então entrou em minha frente e fez com a mão para que eu abaixasse a arma.
+Vivian entrou no meu campo de visão e fez sinal pra eu baixar a pistola.
 
-— Sai da frente, menina — resmunguei, mas ela se recusou — se eu entrego as armas, ele mata a todos nós.
+— Vivian, sai da frente. Se eu entregar a arma, esse sujeito pode matar todo mundo.
 
-— Não — disse o invasor. Então, com a mão que não segurava a arma, soltou o capacete e o retirou da cabeça revelando um rosto ligeiramente familiar que me fez abrir a boca surpreso:
+Ela continuou ali.
+
+— Não vou matar ninguém.
+
+O invasor soltou a trava do capacete com a mão livre e o retirou. Conhecia aquela cara.
 
 — Porra! Eric?
-
