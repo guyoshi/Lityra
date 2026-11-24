@@ -1,243 +1,263 @@
-A primeira coisa que vi quando meus olhos abriram foi Kord, seu rosto enorme praticamente grudado no meu, me encarando como se estivesse decidindo se eu ainda respirava ou não.
+Abri os olhos e dei de cara com Kord. O careca tava tão perto que consegui contar os pelos da barba dele.
 
-— Que merda... — murmurei, tentando afastá-lo, mas uma dor aguda disparou pelo meu abdome.
+— Que merda... Sai de cima de mim.
 
-Vivian imediatamente me segurou pelo ombro, seus olhos dizendo claramente: Nem tente se levantar, seu idiota.
+Tentei me levantar. Senti uma dor no abdome e Vivian me empurrou de volta pelo ombro.
 
-Pisquei algumas vezes, tentando processar tudo. Meu corpo parecia ter sido atropelado por uma frota inteira de naves, mas pelo menos eu ainda estava inteiro. Meu chapéu estava amassado sobre meu peito. Alguém tinha tido a decência de guardá-lo.
+Meu chapéu tava amassado sobre a mesa ao lado. Estiquei a mão pra pegar, mas não consegui chegar até ele.
 
-Hardman estava ao lado, os olhos marejados, parecendo uma mistura de alívio e exaustão. Quando percebeu que eu estava consciente, soltou um suspiro trêmulo.
+Hardman se inclinou pra verificar o painel junto à cama. Tinha os olhos vermelhos e o macacão manchado de graxa.
 
-— Você tá bem? — perguntou, a voz meio embargada.
+— Consegue me ouvir, Jasmey?
 
-Sorri de leve, sentindo a garganta seca.
+— Infelizmente.
 
-— Se eu disser que já estive pior, isso me dá um desconto pra ficar deitado mais sessenta ectons?
+Ele fechou os olhos por um instante e soltou o ar.
 
-O’reilly bufou uma risada.
+O’reilly riu baixinho.
 
-— É, ele está bem pessoal. Podemos jogá-lo de volta no espaço.
+— É, tá vivo. Não perdeu a língua.
 
-— Podem tentar o quanto quiserem. Eu sempre volto — retruquei, disfarçando o medo.
+— Cadê o Jelles?
 
-— Hah! Bom, dessa vez você só voltou por conta do grandalhão aqui — O’reilly apontou para Kord. — Foi ele quem te pescou no espaço antes que você virasse espaguete espacial.
+— Não vimos mais o sujeito — respondeu O’reilly. — Kord puxou você pra dentro com o cabo antes de perdermos a posição.
 
-Kord cruzou os braços, carrancudo como sempre.
+Kord cruzou os braços.
 
-— Não se acostume.
+— Não se acostuma.
 
-— Eu sabia que ter você por perto não era um desperdício — garanti, tentando me sentar, mas novamente a dor me lembrou que isso não era uma boa ideia.
+— Valeu, careca.
 
-Foi aí que percebi algo estranho. Minha mão deslizou para meu abdome, esperando encontrar uma ferida aberta, um curativo improvisado, qualquer coisa. Em vez disso, senti apenas pele levemente enrugada, cicatrizada. Franzi a testa e olhei para os outros.
+Ele ficou me olhando por uns instantes. Acho que esperava uma piada.
 
-— O que diabos aconteceu comigo?
+Passei a mão pelo abdome. Esperava encontrar um curativo, mas só havia uma linha avermelhada sobre a pele. Tentei pressionar o local e me arrependi.
 
-Vivian levantou as mãos, e quando olhei para elas, estavam sujas de sangue. Meu sangue.
+— Que fizeram comigo?
 
-Foi Buni quem falou, sua voz baixa, quase hesitante.
+Vivian ergueu as mãos. Ainda tinha sangue seco entre os dedos.
 
-— Ela… te curou.
+Buni apontou pro meu abdome.
 
-Pisquei para ele.
+— Ela te curou.
 
-— O quê?
+Olhei de novo pra ferida.
 
-— Ela te tocou, fechou os olhos e… sua pele se fechou.
+— Isso tudo?
 
-Olhei para Vivian, que apenas deu de ombros, a coisa mais normal do mundo.
+— Hardman te deu oxigênio e estancou o sangue quando te trouxeram. Aí ela pôs as mãos sobre o corte. Fechou devagar, Jasmey. Eu vi.
 
-Mas ela apoiou a mão na parede um segundo a mais do que o necessário, e eu fingi não ver.
+Vivian assentiu. Lembrei do animal no laboratório da Engenheira.
 
-— Certo. — Suspirei. — Eu salvei sua vida, e você a minha. Parece que estamos quites.
+Ela tentou levantar da cadeira e teve de se apoiar na parede. Hardman a segurou pelo braço e mandou que voltasse a sentar.
 
-Vivian ergueu as sobrancelhas esperando.
+— Vivian conseguiu fechar a ferida, mas você perdeu muito sangue, Jasmey. Não tente se levantar ainda. E Vivian precisa descansar.
 
-— Não, Vivian — disse Hardman — ele não vai dizer Obrigado. Essa palavra não existe no dicionário de Jasmey.
+Olhei pra ela. Tinha voltado pra buscá-la na Fera sem saber porra nenhuma sobre o que era capaz de fazer. Agora tava ali por causa dela.
 
-Então algo me veio à mente. Me virei para o vidro da nave e olhei lá para fora, preocupado com o que veria. Então, com dificuldades, me levantei, mesmo com todos tentando me segurar. O buraco negro estava distante. Lá no horizonte.
+Fiz o sinal de agradecimento que ela tinha me ensinado em Geores. Vivian sorriu e corrigiu um dos meus dedos.
 
-— Relaxa, nervosinho — disse Hardman, cruzando os braços. — A Prosépina e a Princesa do Inverno se acoplaram e conseguimos impulso suficiente pra sair do horizonte de eventos. Estamos fora de perigo.
+Hardman olhou pra nós dois e voltou ao painel.
 
-Ouvi passos e me virei: Amanda e Genrir chegavam pelo corredor. O caolho estava de pé, firme como um maldito touro, apesar do tiro que havia levado.
+— E o buraco negro? — perguntei.
 
-— Você também? — perguntei, arqueando uma sobrancelha.
+— Estamos nos afastando. Amanda conseguiu alinhar a Prosépina com a Princesa, e acoplamos as naves depois que Kord o recolheu. O motor da Princesa estava intacto. Acopladas, ela conseguiu auxiliar o motor avariado da Prosépina, que não tinha impulso suficiente para corrigir a rota sozinho. Aproveitamos a trajetória de saída e nos afastamos da região crítica. Por pouco. Não cruzamos o horizonte de eventos.
 
-Genrir deu de ombros.
+Ouvi a voz de Amanda no corredor. Genrir apareceu logo atrás dela, andando devagar. Tinha um curativo sob a roupa e apoiava a mão no lugar onde levara o tiro.
 
-— Parece que a moça aqui gosta de consertar trastes.
+— E tu, caolho?
 
-Vivian revirou os olhos, mas não negou.
+Ele apontou pra Vivian.
 
-Kord, que até então estava quieto, estalou os dedos.
+— A moça fechou o buraco que o Jelles fez. O olho continua faltando. Pelo menos agora tenho a quem reclamar.
 
-— Bom, já que todo mundo tá inteiro e chorando de emoção, vem comigo, Badrock.
+Vivian fechou a cara e fez um gesto com a mão. Genrir olhou pro Kord.
 
-Com esforço, caminhei, ignorando a dor que ainda pulsava em meu abdome. Seguimos até os fundos da nave, onde Kord parou em frente ao compartimento de carga, um brilho empolgado nos olhos. Então ele apertou o painel, e a porta se abriu com um chiado metálico.
+— Melhor não traduzir — disse o careca.
 
-E então, os pedaços de Gerbe começaram a cair para fora, brilhando sob a luz artificial. Aquele maldito minério denso, raro e valiosíssimo agora estava ali, aos nossos pés, aos montes.
+Kord apontou pro corredor.
 
-Fiquei parado por um momento, encarando aquilo. Então sorri.
+— Quando conseguir andar, vem ver uma coisa.
 
-— Uma vida inteira de luxo, meu amigo — disse Kord, cruzando os braços satisfeito.
+Esperei até Hardman permitir que me levantasse. Buni me ofereceu o braço e fomos devagar até o compartimento de carga. Kord abriu a porta.
 
-Antes que eu pudesse falar qualquer outra coisa, Genrir se jogou para dentro do compartimento, se deitando no Gerbe como se fosse um colchão de ouro.
+Tinha placas de gerbe presas aos suportes de carga. Uma delas tinha se soltado durante a fuga e tava encostada na parede. Perderíamos uma parte considerável do tesouro que havíamos posto na Fogo Pálido, mas a Princesa ainda carregava uma fortuna.
 
-— Eu vou me deitar nessa merda até meus ossos virarem poeira.
+Pensei no chão da Aurora. Naquela porra de planeta inteiro que tínhamos acabado de ver desaparecer.
 
-Deixei os outros com o tesouro e fui procurar Hardman.
+— Dá pra comprar uma vida inteira, Badrock — disse Kord.
 
-Ele não estava no compartimento. Achei-o no corredor, sentado no chão, de costas para a parede, a lupa que usava pendurada no peito girando entre os dedos, o macacão remendado manchado de graxa nova.
+Genrir entrou no compartimento e se sentou junto a uma das placas. Passou a mão sobre o metal.
 
-— Posso falar uma coisa? — perguntei.
+— Uma vida inteira de necroriano. Deixa essa parte aqui pra mim.
 
-— Pode — ele disse, sem levantar a cabeça.
+Deixei os outros com o tesouro. Precisava falar com Hardman.
 
-— Eu sabia o que era aquele gás.
+Encontrei o engenheiro no corredor, sentado junto à parede. Girava a lupa entre os dedos. Ajoelhar tava fora de questão, então sentei ao lado dele com bastante cuidado.
 
-A lupa parou.
+— Hardman.
 
-— No dia em que você contou de Kaséia — continuei. — A névoa verde. Eu sabia. A Lebargan carrega uma arma assim. Todo Dale dos nove sabe que ela existe. Eu nunca vi usarem. Nunca perguntei em quem.
+Ele não levantou a cabeça.
 
-— E me consolou — disse Hardman. Repetiu minha frase sem ironia, o que foi pior do que com ironia: — “Deixa ele no chão e ande sobre ele.”
+— Eu sabia do gás.
 
-— Foi um bom conselho — tentei.
+A lupa parou de girar.
 
-Ele me olhou. Só isso. A piada morreu ali no chão, e eu senti o cadáver.
+— Quando o Zekko me contou na Fera, eu sabia que a Lebargan tinha uma arma capaz de fazer aquilo. Quando você me falou de Kaséia, também sabia. Não tinha visto usarem, mas sabia de outros mundos.
 
-— Foi covarde — falei. — Eu estava com medo de que você me olhasse do jeito que está olhando agora.
+— E não me disse nada.
 
-— Quando Jelles falou do gás, eu corri — disse Hardman. — Passei a viagem toda pensando em quantos morreram enquanto você sabia.
+— Não.
 
-— Eu não sabia onde.
+Ele ficou olhando pro chão. Não parecia disposto a me ajudar a encontrar as palavras.
 
-— Eu sei. É isso que me deixa mais irritado. Você tinha uma pergunta de graça no bolso e nunca fez.
+— Fiquei com medo de que fizesse exatamente o que tá fazendo agora. Que não quisesse mais olhar pra minha cara.
 
-Não tinha nada a responder. Isso é raro, e foi pior do que eu lembrava.
+— Passei a viagem inteira me perguntando quantos mundos sofreram o mesmo que Kaséia. Jasmey, minha irmã podia estar lá.
 
-— Não vou dizer que te perdoo — ele continuou. — Não funciona assim. Mas eu quero ver aquela nave desligada, e você é o único que consegue entrar nela.
+— Eu sei.
 
-— Eu aceito.
+— Não. Não sabe. Você teve oportunidade de perguntar por que aqueles mundos deixavam de responder. Nunca perguntou.
 
-— Não me chame de amigo hoje.
+Lembrei de quantas vezes voltei de uma missão, bebi um necroriano e comemorei sem querer saber o que tinha acontecido depois. Não tinha resposta pra dar ao sujeito.
 
-— Combinado.
+— Ainda não consigo te perdoar, Jasmey.
 
-— E me deixa sozinho uns ectons.
+— Tá bom.
 
-Deixei.
+— Preciso ficar sozinho.
 
-Quando voltei ao comando, notei que passávamos ao lado de algo grandioso. Segui para a frente da nave e vi a Lebargan parada ali no mesmo lugar de antes.
+Assenti.
 
-— A Lebargan parece tão impotente, com tudo desativado — disse Amanda olhando para a imensa nave, através do vidro lateral — Essa é sua chance Jasmey.
+Apoiei a mão boa na parede e me levantei. Hardman não tentou me impedir.
 
-Olhei para ela e ergui uma sobrancelha.
+Deixei o sujeito ali.
 
-— Seja o capitão — disse Amanda.
+Quando cheguei ao comando, Amanda tava examinando uma imagem ampliada da Lebargan. A nave ainda aparecia no radar, afastando-se devagar da região mais perigosa. Seus principais campos permaneciam apagados.
 
-Olhei para ela em resposta e hesitei.
+— Os motores auxiliares ainda funcionam — disse Amanda. — Mas a proteção central tá desligada. Nem sei como vão conseguir reativar aquilo depois do que fez com Belzetar.
 
-— Honre a memória do Sr. Peron e de todos os outros que nos deixaram. Destrua as correntes que prendem os Dales.
+Olhei pra imagem da nave.
 
-Naquele momento, como um flash, a sequência de uns e zeros que recebi no bracelete e que eu havia decifrado como “DESACORRENTAR” ecoou em minha mente. Eu acho que sabia quem tinha me enviado aquela mensagem.
+— Jasmey. Toma a Lebargan.
 
-Minha mão, quase que por instinto, foi até meu bolso e retirei de lá o orbe de vidro que o Sr. Peron havia me dado. Aquele objeto, que eu guardara como uma mera “lembrança que trouxera de Lebargan”, reluzia em minha palma.
+Virei a cabeça.
 
-Com a palavra ressoando em meus pensamentos, apertava o orbe, concentrando minha intenção. Em um ato de pura intuição, murmurei baixinho, quase inaudível, “DESACORRENTAR”.
+— O Sr. Peron acreditava em você. Tem gente lá dentro que também acredita. Alguém precisa quebrar as correntes dos Dales.
 
-A criatura em seu interior, que antes dançava, imediatamente se dissolveu. O próprio orbe pareceu desvanecer, não se desfazendo em pó, mas se reconfigurando. E, em seu lugar, surgiu uma chave velha e corroída, marcada com as iniciais “PR”. Os dois arcos abertos, a ponta de arpão e aquele gancho torto no último dente. Meus olhos se arregalaram. Igual. Não parecida: igual, até a ferrugem. A chave que Jelles havia exibido na torre de Belzetar, a “chave do poder absoluto na Lebargan”. Jelles tinha uma. O Sr. Peron tinha a outra. E, pelo que eu sabia, mais ninguém sabia disso.
+Correntes. A palavra me trouxe de volta aquela mensagem em uns e zeros. DESACORRENTAR. Tinha recebido aquilo pouco depois de receber o presente do velho. Passei a mão pelo bolso.
 
-— O que é isso? — perguntou Hardman se aproximando. Notei que todos estavam ao meu redor, olhando para a pequena chave, curiosos.
+Retirei o pequeno orbe de vidro do saco. A criaturinha continuava se movendo lá dentro. Lembrei do Sr. Peron me pedindo que guardasse aquilo comigo.
 
-— É a chave... da Lebargan — sussurrei, a voz carregada de espanto e compreensão. Como o Sr. Peron a tinha conseguido... e por que ele tinha deixado aquilo comigo... e por que ela apareceu naquele momento? Eram muitas questões, mas uma certeza tomou conta de mim: o presente do Sr. Peron era muito mais que uma lembrança. Era a chave da nave.
+Apertei o orbe na palma da mão e murmurei a palavra que tinha decifrado.
 
-Então uma forte luz surgiu do lado de fora. Os campos da Lebargan estavam sendo ligados novamente.
+— DESACORRENTAR.
 
-— O quê? — perguntou Amanda — A Lebargan está sendo ativada. Mas como é possível… Jelles não estava morto?
+A criaturinha parou de se mover. O vidro perdeu a forma, e o objeto começou a se reorganizar entre meus dedos. Quando consegui abrir a mão, tinha uma chave sobre ela. Metal escuro e corroído. Dois arcos desiguais, a ponta em forma de arpão, três dentes e o último em gancho. PR.
 
-Me virei e caminhei lentamente para o vidro da nave. Apertei os olhos e então vi, claramente iluminada, no meio da escuridão, uma figura parada solitária em uma extremidade da nave. Usava vestes brancas e leves arrastando pelo chão. Uma queimadura atravessava o lado direito do rosto, destruindo parte da orelha e do cabelo, deixando alguns dentes expostos e o olho daquele lado cego. Os cabelos longos e encaracolados, mesclados de branco e preto, flutuavam na baixa gravidade. Havia rugas discretas no pescoço, mas nenhuma emoção no rosto. A mulher segurava alguém pelos cabelos com uma das mãos, enquanto com a outra segurava um facão prateado. Tudo foi tão rápido que mal consegui processar a imagem. A faca passou. Ouvi Amanda gritar o nome de Eric. Apertei os olhos e vi o corpo de Eric ser atirado pela capitã, violentamente para fora da Lebargan, seu sangue jorrando por seu pescoço recém cortado, formando bolhas vermelhas no espaço.
+Aproximei a chave do rosto. Reconheci até as marcas de ferrugem. Era idêntica à que Jelles tinha me mostrado em Belzetar. Idêntica. O velho tinha me entregado outra chave da Lebargan. A que Jelles guardara em Belzetar devia ter sido destruída com a torre. E eu tinha uma na mão.
 
-O olho esquerdo da Capitã Nastácia encontrou o meu, e ela acompanhou nossa nave com a cabeça enquanto nos afastávamos. Pela primeira vez desde que tudo começou, eu não era o mais perigoso daquela conversa sem palavras. Amanda, ao meu lado, gritava, desesperada, as mãos no vidro enquanto via seu irmão agonizar.
+— Onde conseguiu isso? — perguntou Amanda.
 
-Quando me dei conta, me virei para trás e vi que todos ali me olhavam enquanto minha amiga chorava ao chão.
+— Peron.
 
-— Eu vou matar ela — brandiu Amanda — Eu vou arrancar a cabeça dela. Maldita!
+Ela olhou pra chave, depois pra mim. Não sabia explicar. Nem fazia ideia de como aquele objeto tinha cabido no orbe.
 
-Por um momento me vi em Amanda. Vi o espírito da vingança que me perseguiu por longos meados de momentos, e então me abaixei ao lado dela pegando em suas mãos.
+Um aviso apareceu no painel. Os campos da Lebargan estavam voltando a funcionar.
 
-— Ei — falei — olhe para mim.
+— Como? — Amanda se inclinou sobre os controles. — Jelles tá morto!
 
-Amanda, aos soluços, abriu seus olhos vermelhos e olhou nos meus.
+Uma transmissão Dale abriu na frequência geral. Reconheci o convés exterior da Lebargan no visor. Uma mulher de roupas brancas segurava um homem pelos cabelos. Tinha uma queimadura que atravessava o lado direito do rosto, parte dos dentes expostos e o olho cego. Os cabelos encaracolados, negros e brancos, moviam-se devagar sob a baixa gravidade. Na outra mão, segurava um facão prateado. A câmera mostrou o rosto do prisioneiro.
 
-— Eu estava errado — falei. — Eu achei que o problema era o Jelles.
+— Eric! — Amanda gritou.
 
-Olhei para a Lebargan, para a figura que eu já nem via.
+A mulher cortou a garganta dele e o atirou pra fora do campo que mantinha o ar junto ao convés. Amanda tentou alcançar o controle da nave. Segurei seu braço.
 
-— Ele não inventou nada. Só continuou o que ela já fazia. Ele era a mão. Ela sempre foi a cabeça.
+A Capitã Nastácia virou o rosto para a câmera. Conhecia aquele olho esquerdo. Amanda continuava chamando pelo irmão, mesmo depois que a transmissão mostrou o corpo se afastando no vazio.
 
-Amanda passou a mão sobre os olhos e deitou-se em meu ombro aos prantos. Então continuei.
+Soltei o braço dela. Amanda caiu de joelhos. Fiquei ao lado dela, sem conseguir olhar pro visor.
 
-— Eles continuam morrendo por uma mentira. E a Lebargan não é impenetrável: eu acabei de sair dela. Não vou deixar que ganhem.
+— Eu vou matar aquela filha da puta!
 
-Amanda não me respondeu. Nem mesmo meus companheiros disseram nada naquele momento. Apenas olhei para a chave em minhas mãos. Eu não era do tipo que acreditava em destino, mas aquela merda estava ali por alguma razão.
+Tinha passado a viagem inteira dizendo a mesma coisa sobre Jelles. Tinha arrastado todo mundo até ali por causa disso. Me abaixei devagar e estendi a mão.
 
-Vivian apertou o Olho do Domongo contra o peito. Apagado, agora que não havia mais nada para apontar.
+— Amanda.
 
-— Mesmo que Nastácia morra, haverá outro para ocupar seu lugar — disse Genrir — Sempre foi assim em toda a história da Lebargan.
+Ela apertou meus dedos. Chorava tanto que não conseguia respirar direito.
 
-E foi naquele momento, olhando para a Lebargan se afastando, para a chave do Sr. Peron em minha mão, e para a dor de Amanda, que eu soube. Não haveria outro.
+— Eu achei que bastava matar o Jelles.
 
-— Então este alguém serei eu — falei — Vou tomar a Lebargan e mudar seu sistema. Mas não posso obrigá-los a vir comigo. Já arrisquei demais a vida de todos vocês... vocês têm o tesouro, podem seguir a vida de vocês.
+Olhei pro visor. A Lebargan já tava mudando de posição.
 
-Todos me olhavam e um silêncio percorreu por um tempo antes de Hardman finalmente quebrá-lo:
+— O desgraçado morreu. E ela continua fazendo a mesma merda. Sempre foi assim naquela nave.
 
-— Eu perdi meu povo por causa disso. Quero que acabe. Por isso estou contigo, amigo.
+Amanda encostou a testa no meu ombro.
 
-Não sei o que mais me surpreendeu, Hardman falar um palavrão ou ele decidir ficar ao meu lado mesmo depois do que lhe fiz. Olhei para meus companheiros e os vi assentir para mim.
+— Eu não vou voltar lá só pra matar a Nastácia. Se fizer isso, vai aparecer outro capitão e continuar o trabalho dela.
 
-— Eu quero muito reencontrar minha mãe… — falou O’reilly. — Mas acho que estou disposto a uma última aventura. Estou contigo, Jasmey.
+Olhei pra chave na minha mão. Não sabia por que Peron me dera aquilo. Mas sabia o que Jelles podia fazer com uma peça igual.
 
-— Não vou com sua cara — disse Kord, me olhando nos olhos — mas pelo menos você cumpriu com o que prometeu. Estou em débito contigo.
+Vivian veio até nós com o Olho do Domongo preso ao cinto. O feixe tinha desaparecido.
 
-Genrir então se virou para mim.
+— Desde que saí da Ala 66, é a mesma merda — disse Genrir. — Cai um capitão, entra outro. O resto obedece.
 
-— Eu sempre te odiei, Badrock. Você sempre foi um merda para mim. Mas quando soube que morreu… percebi que foi só mais uma vítima de Jelles. Foi a primeira vez que vi alguém enfrentá-lo de verdade e não quebrar. Metade da Lebargan acredita em você, seu babaca. Não me pergunte por quê. É disso que os Dales precisam.
+Pensei no Dock, no Vek, no moleque que eu tinha matado na Ala 66. Pensei no Eric, que nunca tinha conseguido pilotar as naves que queria. Apertei a chave.
 
-Ouvir Genrir falando aquilo me fez soltar um sorriso incontrolável. Por fim olhei para Buni e Vivian, e os dois sorriram para mim.
+— Então dessa vez eu assumo. Vou tomar a Lebargan e mudar aquela merda. — Olhei pros outros. — Não vou obrigar ninguém a vir comigo. Já fiz isso vezes demais. Temos gerbe suficiente pra pagar o Mestre e cada um seguir a vida que quiser.
 
-Buni olhou o vidro, onde a Lebargan sumia, e murmurou o nome da Madame. Ninguém riu. Nem eu, o que me preocupou.
+Hardman tava parado perto da entrada. Não tinha percebido quando chegara.
 
-— Somos amigos. E amigos não abandonam os outros — disse Buni.
+— Não quero que façam a outros mundos o que fizeram em Kaséia. Se pudermos impedir isso, eu vou ajudar.
 
-Vivian fez joia com a mão e eu assenti para ela.
+Ele não me chamou de amigo. Não precisava.
 
-Depois, quando ninguém olhava, fiz o único sinal que aprendera com ela: obrigado. Torto, rápido, com a mão errada. Ela fingiu que não viu, porque me conhece.
+— Ainda quero ver minha mãe — disse O’reilly. — Mas não vou virar as costas pra vocês agora, irmão.
 
-Então me virei para Amanda.
+Kord olhou pro compartimento de carga.
 
-— Está tudo bem?
+— Passei dez momentos obedecendo àquele filho da puta da Fera. Não saí de lá pra ganhar outro dono, Badrock. Se começar com essa merda, eu caio fora.
 
-Amanda não me respondeu de imediato. Ela se virou para o vidro, encarando a Lebargan que começava a se afastar na direção oposta da nossa usando a dobra espacial.
+Genrir se aproximou.
 
-— Ele era a minha única família — disse ela.
+— Ainda acho você um merda. Mas tem muito Dale que não acha. Eu vi o que aconteceu depois que te deram por morto. Talvez aquele pessoal finalmente consiga fazer alguma coisa.
 
-— Então lute por ele — falei — lute por sua família.
+Buni olhou pro chão. Vivian tocou o braço dele.
 
-Amanda finalmente olhou para a tripulação e se levantou respirando fundo.
+— E a Madame? — perguntei.
 
-— Para onde vamos agora? — perguntou ela.
+— Ainda vou encontrar ela. Mas não quero abandonar vocês.
 
-Por alguma razão todos viraram para mim, esperando. Ninguém olhava para o tesouro no compartimento de carga. Resolvi fingir que a pergunta era fácil.
+Vivian fez sinal de que ficaria. Olhou pra chave e depois pra mim.
 
-O comunicador estalou.
+Mostrei a ela o sinal de agradecimento. Dessa vez, consegui fazer direito.
 
-— Princesa do Inverno, aqui é o Dock. Não atirem.
+Amanda se apoiou no meu braço pra levantar.
 
-Olhei pelo vidro. Da Lebargan, que já começava a esticar o espaço para a dobra, três naves pequenas se soltaram da formação com as luzes de posição apagadas e vieram em nossa direção, rápidas, desajeitadas, uma delas girando mais do que devia. Aquela, claro, era a do Dock.
+Não perguntei se tava bem. Era uma pergunta idiota.
 
-*Nem todo mundo*, Eric tinha dito. Eram três. Era pouco. Era mais confiança alheia do que eu tinha conseguido juntar na vida inteira, e eu não tinha pedido por nenhuma.
+Ela olhou pro visor. A Lebargan começava a preparar a dobra.
 
-Mas antes que eu pudesse responder, algo aconteceu. O buraco negro ao fundo pareceu de alguma forma acordar. O disco de acreção se acendeu, dez vezes mais brilhante, e o anel de luz torcida em volta dele se alargou em questão de segundos, como uma boca se abrindo. Então vi detritos espaciais serem sugados, em espiral, para dentro do disco.
+— Ele era minha única família.
 
-Meus olhos passaram por todos até pararem em Hardman.
+— Eu sei.
+
+Fiquei ao lado dela até que a nave começasse a desaparecer.
+
+Amanda respirou fundo e se virou pros outros.
+
+— Pra onde vamos?
+
+Tava todo mundo olhando pra mim. Antes que conseguisse responder, ouvi o comunicador.
+
+— Princesa do Inverno, aqui é Dock. Não atirem!
+
+Aproximei a imagem no radar.
+
+Três subnaves tinham se separado da Lebargan antes da dobra. A mais próxima corrigia a trajetória com pequenos impulsos irregulares. Dock voltou a chamar no rádio.
+
+Olhei pras três naves. O Eric tinha me falado que nem todo mundo aceitava Jelles. O moleque tinha acabado de decidir por conta própria o que faria. Queria ouvir o que tinha pra dizer.
+
+Um novo alerta interrompeu a transmissão. No monitor, o disco em torno do buraco negro ganhou brilho. Os sensores registraram um aumento da região de captura, rápido demais para ser explicado pela matéria que víamos cair nele. Hardman se aproximou do painel e ampliou as leituras. Ninguém falou.
+
+Olhei pro engenheiro. Depois pra direção em que a Lebargan tinha desaparecido.
 
 — O que nós fizemos?
