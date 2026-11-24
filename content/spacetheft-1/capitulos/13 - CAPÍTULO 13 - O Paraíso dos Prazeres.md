@@ -1,162 +1,182 @@
-— Este sol parado na minha cara... Devia ter passado um protetor solar — disse O’reilly colocando as mãos na frente do rosto novamente.
+— Esse sol parado na minha cara... Devia ter passado alguma coisa na pele — disse O’reilly, protegendo os olhos.
 
-— Vai ganhar um belo bronze, O’reilly — disse Buni sorrindo. — De um lado só.
+— Vai ganhar um belo bronze, O’reilly — disse Buni, sorrindo. — De um lado só.
 
 Vivian se deitou no chão e fechou os olhos enquanto aproveitava a brisa fresca que descia do lado escuro do planeta.
 
-— Vamos para Geores — eu disse, finalmente, apontando para a cidade, recortada contra o sol baixo, a quase um quilômetro de onde estávamos.
+— Vamos pra Geores.
 
-— Eu e Kord vamos ficar por aqui aproveitando a vista — disse O’reilly, olhando para o amigo, que assentiu —, e de olho na nave. Vão lá, e se puderem, tragam algo para comer, estou faminto.
+Apontei pra cidade, recortada contra o sol baixo, a quase um quilômetro de onde a gente tinha pousado.
 
-— Ótima ideia, O’reilly — disse Hardman — Vem com a gente, Vivian?
+— Eu e Kord vamos ficar por aqui aproveitando a vista. E de olho na nave, claro — disse O’reilly. — Se encontrarem alguma coisa pra comer, lembrem da gente. Tô morrendo de fome.
+
+— Sensato. Vivian, vem conosco?
 
 A mulher se levantou, sacudiu a cabeça e voltou a se deitar.
 
-— Ok. Então os três ficam para vigiar a nave — concluiu Hardman.
+— Muito bem. Os três ficam com a nave.
 
-— A nave não precisa de ninguém a vigiando, qualé — falei — além disso, tenho certeza que todos vão adorar Geores.
+— Não precisa de tanta gente pra vigiar a nave. Vocês vão adorar Geores, porra.
 
-— Não, eles vão ficar — disse Hardman — É a nossa única saída daqui, portanto acho mais seguro eles cuidarem dela.
+— É nossa única saída deste planeta, Jasmey. Prefiro que a encontremos no mesmo lugar quando voltarmos.
 
-Olhei para os dois e assenti.
+Olhei pros três e assenti. Hardman estendeu a mão na minha direção.
 
-— Vamos Buni — chamou Hardman.
+— A chave, por favor.
 
-Nosso colega veio e saímos rumo à nossa aventura por Geores.
+— Por quê?
+
+— Preciso concluir um ajuste de segurança antes de sairmos.
+
+Entreguei. Enquanto ele voltava à cabine, aproveitei pra avisar ao O’reilly que não valia a pena beber toda a água de uma vez. Não que eu tivesse sido um grande exemplo disso na viagem.
+
+Quando Hardman saiu de novo, tinha um casaco dobrado sobre o braço. Guardou a chave no bolso e chamou o Buni.
+
+Deixamos os outros perto da nave e seguimos pra Geores. Buni parava de vez em quando pra passar as mãos nas plantas que cresciam junto ao caminho.
 
 No meio do caminho, Hardman se aproximou e disse baixo, só para mim:
 
-— Não sou idiota, Jasmey, sei que está planejando algo. De uma hora para outra, aceitou virmos para cá. Por isso eu fico com a chave. E configurei minhas digitais para que a nave só funcione comigo no comando.
+— Não sou idiota, Jasmey. Você aceitou vir para cá muito depressa. Se está planejando tomar a nave, poupe seu esforço. Configurei os controles para reconhecer somente minhas impressões digitais. E a chave fica comigo.
 
-— Digitais? Isso quer dizer que se eu cortasse seu polegar, conseguiria controlar a nave, não é? — perguntei sarcasticamente.
+— Então basta eu cortar teu polegar?
 
-Hardman olhou para mim, surpreso, mas logo dei de ombros, irônico.
+Hardman parou de andar e olhou pra própria mão.
 
-— Eu estou brincando com você, meu amigo.
+— Calma, cara. Tô brincando.
 
-Acho que ele não achou que era brincadeira: ficou o resto do caminho olhando para o próprio dedo, pelo mato, em direção a Geores. Eu imaginava que Hardman suspeitaria, mas realmente não tinha intenção de fugir com a nave. Queria ir atrás de Jelles, mas estava em Sumatram, meu amigo, e iria aproveitar um dia antes de seguir a missão.
+Ele guardou a mão no bolso. Pelo menos não precisava mais me preocupar com ele perdendo a chave. Eu imaginava que suspeitaria de mim, mas não pretendia roubar a nave. Queria ir atrás do Jelles, sim, mas tava em Sumatram. Ia aproveitar um turno antes de voltar a pensar naquele filho da puta.
 
 Seguimos de frente para o sol, o matagal baixo esticando nossas sombras às costas, até ouvirmos o som das pessoas, as facas batendo nas mesas cortando carnes, os gritos dos vendedores. Antes mesmo da entrada, dois homens nus passaram correndo um atrás do outro, rindo. Hardman os seguiu com os olhos, abismado, até se distanciarem.
 
-— Sejam bem-vindos à Sumatram — falei ao chegarmos à entrada. Como eu adorava aquele lugar! Espécies de todos os cantos, juntas por um único interesse: comércio ilegal. Sumatram era conhecido como um dos maiores centros comerciais ilegais desta ala da galáxia. Ah, meus amigos. Tudo o que imaginar rola em Sumatram.
+— Bem-vindos a Sumatram, meus amigos.
 
-A entrada da cidade era um grande arco com escritas em Kirovense: “Geores, viva o suficiente para não morrer aqui”. Logo abaixo, dois homens brigavam aos socos enquanto uma mulher gritava para que parassem. Um deles não largava a garrafa de rum. Um estranho cachorro de três olhos latia para eles, por vezes mordendo a perna do que estava sem a bebida.
+Adorava aquele lugar. Gente de todos os cantos da galáxia vinha pra cá pelo mesmo motivo: comprar e vender o que não podia em outros mundos. Sumatram era um dos maiores centros de comércio ilegal desta ala da galáxia. Se alguma coisa não estivesse à venda ali, provavelmente ainda não tinham conseguido roubá-la.
+
+A entrada da cidade era um grande arco com uma inscrição em kirovense: “Geores, viva o suficiente para não morrer aqui”. Logo abaixo, dois homens brigavam aos socos enquanto uma mulher gritava pra que parassem. Um deles não largava a garrafa de rum. Um cachorro de três olhos latia e mordia a perna do outro. Esperamos o sujeito com a garrafa passar e atravessamos o arco.
 
 Mal demos alguns passos e vi um cara desabar, nocauteado por um soco, sem sinal de que levantaria. Boas-vindas a Geores, o paraíso dos desajustados. À nossa frente, a multidão fervilhava: risadas, gritos, gente vendendo de tudo, de armas enferrujadas a partes bizarras de animais que eu nem queria saber onde nasceram.
 
-Havia bêbados brigando e mulheres fofocando. Ao fundo, sinos, deviam ser do cais. Uma porta se abriu logo à frente e um homem saiu com uma garrafa, rindo sozinho, tropeçou e caiu em cima de Hardman, que o segurou.
+Tinha bêbado brigando, gente fofocando nas portas e sinos tocando lá pras bandas do cais. Uma porta se abriu à nossa frente e um homem saiu com uma garrafa, rindo sozinho. Tropeçou e caiu em cima de Hardman, que fez um esforço danado pra segurá-lo.
 
-— Olha por onde anda — disse o homem, se ajeitando, a voz arrastada.
+— Olha por onde anda — reclamou o bêbado, antes de seguir em frente.
+
+Hardman ficou olhando pra própria camisa. O sujeito tinha deixado uma mancha de bebida bem no meio.
 
 Ouvimos tiros no ar e risadas altas vindas de algum lugar. Um pequeno animal redondo, de penas e gordinho, passou entre as minhas pernas, seguido de outros três e de dois homens tentando capturá-los.
 
-— Mas que droga de lugar é esse? — perguntou Hardman.
+— Mas que lugar é este, Jasmey?
 
 — Sente esse cheiro? Sexo, álcool e...
 
-— ... fezes — completou Hardman — é esse o cheiro que sinto.
+— Fezes. Sinto cheiro de fezes.
 
-Ah, sim. O cheiro da liberdade. E do pecado. Perfeito.
+Respirei fundo. Tava em casa.
 
-Buni encolheu-se, o corpo inteiro tenso. Ajeitou os cachos curtos e coçou o cavanhaque. Evitava olhar para a multidão, os olhos no chão ou nas paredes das casas. Seu andar ficou arrastado e ele apertava os punhos. Hardman posicionou-se entre Buni e os transeuntes mais agitados, uma pequena barreira.
+Buni começou a andar mais devagar. Ajeitou os cachos curtos, coçou o cavanhaque e as costeletas e passou a olhar pro chão. Toda vez que alguém esbarrava nele, apertava os punhos. Hardman diminuiu o passo e andou junto dele, entre Buni e os sujeitos mais agitados da rua.
 
-— Buni não gosta de lugares onde tem muita gente — disse ele, baixo. — Tem fobia.
+— Buni não gosta de multidões — disse Hardman, baixo. — Vamos devagar.
 
-— Relaxa, mermão, quando sair de Sumatram, vai sair uma outra pessoa. Seus traumas ficarão aqui junto com sua virgindade — sorri, batendo em suas costas.
+— Fica tranquilo, irmão. Quando sair de Sumatram, vai deixar os problemas por aqui. A virgindade também, se tudo der certo.
 
-Buni forçou um sorriso, mas vi que parecia inseguro.
+Buni tentou sorrir. Um vendedor berrou ao nosso lado e ele se assustou. Fiz sinal pros dois entrarem numa rua um pouco menos cheia. Conhecia caminhos melhores pra chegar aonde queria.
 
 As casas eram todas de madeira, com roupas penduradas secando ao sol baixo, e a sombra de cada passante se esticava rua afora, sempre apontando para o lado escuro do planeta. Em Geores ninguém se perdia: bastava dar as costas ao sol para saber onde ficava o frio. Algumas pessoas subiam em escadas para pendurar artefatos à venda.
 
-— Que horas são? — perguntou O’reilly, apertando os olhos contra o sol que não saía do lugar.
+— Que horas são? — perguntou Buni, apertando os olhos contra o sol que não saía do lugar.
 
-— Em Geores ninguém pergunta isso — respondi. — O sol não anda, então a cidade conta pelo sino da torre: turno claro, turno alto e turno fundo. No fundo as tavernas cobram o dobro, porque é quando todo mundo tem sede.
+— Aqui o sol não ajuda, cara. O pessoal usa o sino da torre pra marcar os turnos: claro, alto e fundo. No fundo, as tavernas cobram o dobro. É quando todo mundo já bebeu o suficiente pra não perceber.
 
-— Querem saber o futuro de vocês, meus caros? — perguntou um homem de cabeça extremamente maior que o normal, com pouquíssimos fios de cabelo e poucos dentes na boca.
+— Querem conhecer o futuro, meus caros? — perguntou um homem de cabeça enorme, com meia dúzia de fios de cabelo e ainda menos dentes.
 
 — Não, obrigado! — disse Buni.
 
-— Posso dizer até mesmo quando morrerão — disse o homem estranho.
+— Posso até dizer quando morrerão.
 
-— Aí, se afaste! — falei, erguendo a espada para ele. O homem recuou, as mãos erguidas.
+— E sabe quando vai morrer?
 
-— Não precisava ser tão rude. Ele só queria vender o trabalho dele — disse-me Hardman enquanto nos afastávamos dele.
+Mostrei a espada. O sujeito levantou as mãos e se afastou.
 
-— Ele tentou te roubar — falei. — Estava com a mão perto do seu traseiro. A adaga que você carrega, é melhor levá-la na frente.
+— Não precisava ameaçá-lo. Ele estava oferecendo um serviço.
 
-Hardman colocou a mão sobre a bunda e puxou a adaga. Então ele olhou para a sua esquerda, onde um alienígena forte de quatro braços e mal encarado, que limpava sua arma, parecia o encarar.
+— Tava oferecendo a tua adaga pra ele mesmo, Hardman. Guarda essa porra na frente. Vi a mão dele indo pro teu bolso.
 
-— Não encare um homem com essa arma em mãos. Eles entendem isso como um desafio — falei.
+Hardman levou a mão às costas, encontrou a adaga e a puxou. Um alienígena de quatro braços, que limpava uma arma perto de nós, começou a observá-lo.
 
-Hardman guardou a adaga nas vestes. Ouvi martelos e vi, ao meu lado, um senhor construindo um machado, amolando-o numa roda que girava sozinha.
+— E não fica encarando um homem armado enquanto segura uma faca. Aqui isso é convite pra briga.
+
+Hardman guardou a adaga. Quando um sujeito passou entre nós oferecendo mapas de tesouros, fiz sinal pro Buni não tirar nada do bolso. O sujeito insistiu que tinha um mapa original da Aurora. Hardman perguntou em que sistema o sujeito tinha encontrado o tesouro. O vendedor enrolou o mapa e foi oferecer pra outra pessoa. Passamos por um ferreiro que amolava um machado numa roda que girava sozinha. O engenheiro diminuiu o passo pra olhar o mecanismo, mas logo teve de se afastar quando um cliente chegou.
 
 Seguimos por algumas ruas até um corredor que se dividia em dois, com uma cerca no meio, pela qual víamos lá embaixo uma zona onde se vendiam tecidos. O caminho da direita descia até lá. O da esquerda seguia por uma ponte sobre as tendas, até o outro lado do vale. Fomos por ele, e paramos perto de uma tenda de pequenas esculturas, onde uma mulher nos acompanhava com os olhos, atrás de clientes.
 
-— Achei bonitinhas — disse Hardman, olhando para as pequenas esculturas.
+— Olhe só. São bem feitas — disse Hardman, examinando as pequenas esculturas.
 
-— São religiosas. Representam as mais diversas religiões dessa zona de Demeroso e além — falei — as pessoas tem mania de idolatrar seus deuses através desses pequenos bonequinhos.
+— São religiosas. Tem deus de toda parte desta zona de Demeroso e de lugares ainda mais distantes. O pessoal gosta de carregar essas coisas por aí.
 
-— Devia ter mais respeito para com a fé dos outros — falou Hardman.
+— E o que há de errado nisso?
 
-— Minha fé é a minha espada. O milagre é quando você vê o que sou capaz de fazer com ela — falei.
+— Nada, desde que não me peçam pra acreditar. Minha fé tá na espada. Quer ver milagre, me vê usando ela.
 
-— Ainda assim foi derrotado por Jelles — falou Hardman.
+— Pelo que me contou, não funcionou muito bem contra o seu ex-capitão.
 
-O nome dele. Aquilo era um gatilho. Ah, ele não devia ter falado isso. Me virei e parei em sua frente, os olhos fixos nos dele, prometendo dor.
+Parei na frente dele. O sujeito tinha acertado onde doía. O sorriso sumiu da minha cara.
 
-— Fale o nome dele novamente, e eu arranco sua mandíbula — ameacei-o.
+— Não fala desse filho da puta.
 
-— Quem? Jelles? Jelles? Jelles? Jelles? — gozou Hardman.
+— Jelles, não é? — Hardman ergueu uma sobrancelha. — Ah, então há coisas com que você também não gosta de brincar.
 
-— Para com isso! — me irritei.
+Dei um passo na direção dele. Hardman recuou, apertando os lábios. Buni se meteu no meio de nós e apontou pra uma casa mais adiante.
 
-Então ouvi altas risadas e me virei para ver duas mulheres nuas rindo saindo de dentro de uma casinha. Buni não desgrudava os olhos delas.
+Duas mulheres saíram da casa rindo, sem roupa. Buni esqueceu imediatamente o que pretendia dizer.
 
 — Bom, é isso, parece que temos um bordel aqui — falei.
 
 Na porta da casinha havia uma mulher de peles amarelas, com quase todo seu corpo exposto. Dois homens saíram de lá de dentro, fechando os botões da camisa, um deles guardava um acessório comprido e arqueado.
 
-— Aquilo é o que estou pensando? — perguntou Hardman.
+— Aquilo é o que estou pensando? — perguntou Hardman, olhando para o acessório.
 
-— Cada um sente prazer naquilo que gosta — respondi, e me virei para o amigo gordinho. — Bom, Buni, hora de exercitar o menino. Entra lá e se diverta, meu amigo — falei, sorrindo para a mulher de peles amarelas.
+— Cada um tem seu gosto, cara. Buni, achamos teu lugar. Entra e se diverte.
 
-— Nos espere aqui quando sair — disse Hardman. É sério que ele estava pedindo isso como se ele fosse uma criança?
+Sorri pra mulher de pele amarela na porta.
 
-Me virei para Buni e assenti, quando, de relance, vi um volume por debaixo de suas calças, o que me fez quase vomitar. Buni seguiu, desengonçado, para dentro do bordel com um sorriso no rosto e desapareceu na escuridão. Respirei fundo e hesitei antes de me virar para Hardman, que parecia preocupado.
+— Se preferir, podemos voltar mais tarde. Mas espere por nós aqui quando terminar, sim?
 
-— Ei. Buni não é uma criança — falei para ele.
+Buni assentiu, ajeitou a roupa e entrou no bordel com um sorriso que mal cabia na cara. Hardman continuou olhando pra porta. Tava preocupado mesmo.
 
-— Não é que ele seja criança. Mas Buni tem uma autoestima muito baixa. Ele só tem cara de mal, mas seu coração é muito bondoso.
+— Ei. O Buni é adulto.
 
-— Ele vai se sair bem — falei — enquanto isso... vamos andar por aí.
+— Eu sei. Mas você não conhece Buni como eu. Passou quatro momentos cercado por homens que faziam questão de humilhá-lo. Quero que as coisas deem certo para ele.
+
+— Vai se sair bem. Enquanto isso, vamos dar uma volta.
 
 — Andar por aí? — indagou Hardman.
 
-— É, ou pretende ficar aqui até seu amigo terminar o serviço. Vamos logo, homem.
+— Ou pretende ficar na porta escutando? Vem, homem.
 
 Dei meia-volta e me afastei do bordel, entrando na multidão, Hardman no meu encalço. Segui a rua em direção ao mar, a menos de um quilômetro. O vento salgado vinha frio do lado da noite, e onde o ar quente do dia encontrava o frio, uma névoa baixa cobria as docas até a cintura.
 
-— Eu não gosto desse lugar, Jasmey — falou Hardman.
+— Não gosto deste lugar, Jasmey.
 
-— Estamos perto do cais. Acho que podemos ir beber alguma coisa no Vegas — falei enquanto descíamos a avenida.
+— A gente tá perto do cais. Vamos beber no Vegas.
 
-— Vegas? — indagou Hardman.
+— Vegas?
 
-— Sim, o Vegas — respondi sem olhar para ele.
+— O melhor bar de Geores.
 
 Seguimos pela multidão até uma ruela que descia a um cais, onde alguns barcos estavam estacionados. Gaivotas sobrevoavam o local, junto com outras espécies de pássaros de diversos planetas por onde já passei. Um grandalhão com a boca cheia de peixes deu um susto em Hardman ao pousar ao lado dele, numa cerca aos pés de uma torre.
 
-— Mas que droga é essa? — resmungou ele, assustado.
+— Que criatura é essa?
 
-— Um metri... Met... Metra... Metradilho — falei, me lembrando o nome do animal — são uma praga aqui, vivem roubando peixes dos pescadores.
+— Um metri... metra... Metradilho! Uma praga. Vivem roubando peixe dos pescadores.
+
+O bicho sacudiu a cabeça, deixou um peixe cair no chão e voltou a pegá-lo. Hardman esperou que voasse antes de passar pela cerca.
 
 Seguimos pelas ruas até finalmente alcançar o meu bar favorito.
 
-— Que lugar é esse? — Perguntou Hardman, desconfiado. Hesitei antes de falar.
+— Que lugar é este? — perguntou Hardman, desconfiado.
 
-— Vegas é o paraíso.
+— O paraíso, Hardman.
 
-Ao abrir as portas, chegamos a um bar escuro, cheio de bêbados, alguns brigando, outros paquerando. Mulheres dançavam quase nuas e homens tiravam suas roupas enquanto as xavecavam. A canção estava apenas começando. Reconheci dois homens que passavam a tarde tocando no Vegas, um baixinho e gordo, o outro alto e magro, ambos de bigode cheio, bebendo e tocando o dia todo.
+Abri as portas. Lá dentro, a luz era fraca, tinha bêbado brigando, gente paquerando e dançarinas quase nuas em cima das mesas. A canção tava só começando. Reconheci os dois sujeitos de bigode que costumavam tocar ali, um baixinho e gordo, o outro alto e magro. A garrafa do mais alto tava presa entre os joelhos enquanto ele tocava.
 
 “Vivemos para roubar
 
@@ -166,9 +186,9 @@ Seja tesouro, seja sucata
 
 Yo-ho, yo-ho, essa é a vida de um pirata”
 
-Acompanhei a canção, enquanto Hardman se espantava com a putaria. Homens e mulheres se divertiam nus ali dentro. Alguns até mesmo transavam à vista de todos. Enquanto as mulheres dançavam nuas em cima da mesa, os homens balançavam suas rolas jogando suas bebidas para cima enquanto cantavam e riam.
+Entrei cantando junto. Hardman parou logo depois da porta, sem saber pra onde olhar. Tinha gente nua dançando, casais se agarrando e bebidas voando pelo salão. Um homem esbarrou nele e o engenheiro ajeitou a própria roupa com uma expressão de profundo arrependimento.
 
-“Necrória nos trás
+“Necrória nos traz
 
 A água que nos satisfaz
 
@@ -176,337 +196,407 @@ Pra lutarmos nossa batalha
 
 Yo-ho, yo-ho, essa é a vida de um pirata”
 
-Empurrei Hardman para cima de uma garota que o apanhou e começou a dançar com ele. Em pouco tempo, ele se afastou, enquanto eu pedia uma garrafa de necroriano no balcão e a virava quase pela metade, sentindo a bebida descer até o peito. Passei ao lado de uma gostosa de peitos de fora que sorriu para mim, agarrei-a e a beijei na boca. Quando a soltei, bebi mais e procurei onde sentar. Achei uma mesa a um canto. A última vez que vim ali foi depois de capturarmos um inimigo que se escondia na cidade: o amarramos num canto e fomos beber no Vegas. Éramos eu, Vek e Amanda. O inimigo passou a noite ali, amarrado, e quando fomos buscá-lo de manhã tinha comido mais que nós e feito amizade com o dono do bar. Vek jurou que foi a captura mais cara da história da Lebargan, porque ainda pagamos a conta dele. Sempre que tínhamos missão em Sumatram, não deixávamos de aproveitar o Vegas.
+Chamei Hardman pra entrar de vez, mas uma dançarina se aproximou e tentou puxá-lo pela mão. Ele pediu licença e escapou pro canto. Eu pedi uma garrafa de necroriano no balcão e bebi um bom gole. Porra, que saudade! Uma mulher sorriu pra mim, ergueu o copo e me ofereceu um beijo. Retribuí e fui procurar uma mesa. Encontrei uma num canto. Na última vez que tinha estado ali, eu, Vek e Amanda capturamos um sujeito que se escondia na cidade. Amarramos o desgraçado e fomos beber. Quando voltamos de manhã, ele tinha comido mais que nós e feito amizade com o dono do bar. Vek jurou que tinha sido a captura mais cara da Lebargan. Ainda pagamos a conta do preso. Fiquei olhando pro lugar onde os três costumávamos sentar.
 
-Enquanto pensava no passado, Hardman me trouxe pro presente, se sentando ao meu lado.
+Hardman se sentou do meu lado e me trouxe de volta pra Geores.
 
-— Que horror! — disse ele, ofegante — este lugar é horrível. Mulheres são objetos sexuais dos homens, e eles as agarram como se, como se...
+— Que horror. Um homem ali acabou de agarrar uma mulher sem nem perguntar. E os outros continuam cantando!
 
-— MANDA MAIS UMA AÍ — gritei estendendo a mão enquanto jogavam uma outra garrafa para mim. A abri e apanhei um copo na mesa ao lado o enchendo e o colocando na frente de Hardman.
+— MANDA MAIS UMA AÍ!
 
-— Aproveite a vida, homem. Antes que a morte chegue — falei, virando o resto da primeira garrafa, a atirando para trás vazia.
+O sujeito do balcão me passou outra garrafa. Abri, apanhei um copo numa mesa vazia e enchi pro Hardman.
 
-— Eu aproveito minha vida de outras formas. Com roupas decentes, e as máquinas em meus dedos.
+— Aproveita um pouco a liberdade, homem. Não foi pra isso que saímos da Fera?
 
-— Vai me dizer que não gosta disso?
+— Posso aproveitar minha liberdade vestido e longe de pessoas que tentam me despir.
 
-Então uma delas olhou para mim, uma sereia de mulher. Olhos verdes encantadores, o dedo na boca, me seduzindo.
+— Vai me dizer que não gosta do que tá vendo?
 
-— Olhe, Hardman. Isso é que é bom de assistir — falei, colocando meu copo à mesa, olhando para aquela princesa nos olhos. Então me virei para Hardman e vi que ele olhava para outra direção, parecendo distraído.
+Uma mulher de olhos verdes me viu do outro lado do salão. Sorriu e ergueu a própria garrafa na minha direção.
 
-— Ali, homem, olha para ela — chamei-lhe a atenção apontando para a garota de olhos verdes que agora mordia os seios de outra mulher — Qualé, vai me dizer que o seu menino não está pulando aí em baixo vendo todas essas bucetas?
+— Olha, Hardman. Aí, sim.
 
-— Jasmey… meu menino não está pulando — respondeu Hardman no momento em que uma delas derrubou bebida na outra e começou a lambê-la.
+Pousei meu copo na mesa. Quando me virei pro engenheiro, ele tava olhando em outra direção.
 
-— Olha para isso HARDMAN — falei aos berros, empolgado, colocando a mão sobre a virilha — Olha só que coisa maravilhosa.
+— Ali, homem. Aquela de olhos verdes. Vai dizer que nenhuma dessas mulheres te interessa?
+
+— Jasmey, não me interessam.
+
+— Nenhuma? Nem aquela ali?
 
 — Eu sou gay, Jasmey.
 
-— Presta atenç… — eu demorei para entender o que ele tinha falado, minha reação foi a de plena surpresa — o quê?
+— Presta aten... O quê?
 
-Me virei para ele e arregalei os olhos.
+Me virei pra ele. Hardman tomou um gole e pousou o copo, esperando que eu entendesse.
 
-— Significa que eu não tenho atração pelo sexo oposto — ele tentou me explicar.
+— Não sinto atração por mulheres. É bastante simples.
 
-— E você me fala isso agora? Porra, você dormiu na mesma cama que eu — falei.
+— E você me fala isso agora? Porra, você dormiu na mesma cama que eu!
 
-— E isso feriu sua masculinidade de alguma forma? Ou você acha que eu iria tentar te comer durante o turno fundo? — perguntou ele.
+— E o que aconteceu de tão terrível enquanto dormíamos? Além de você roubar o cobertor, naturalmente.
 
-— Não, porque se tentasse encostar em mim, ia acordar sem os dentes. — A ideia me embrulhou o estômago, e eu não fiz questão de esconder. — Isso é nojento, Hardman — respondi.
+— Se tentasse alguma coisa comigo, ia acordar sem os dentes.
 
-— Só porque sou gay, não significa que deixo de ser homem. Fui formado pelos mesmos cromossomos que você.
+A ideia de dois homens na cama me embrulhou o estômago. Eu tinha crescido ouvindo que aquilo era errado e, naquele momento, nem me preocupei em esconder o que achava.
+
+— Isso é nojento, Hardman.
+
+— Não deixo de ser homem por causa disso, Jasmey. Tenho os mesmos cromossomos que você. E, para sua informação, não tenho o menor interesse em você.
 
 — Mas gosta da fruta errada.
 
-— Fruta errada? E existe a fruta certa? Você realmente acha que sexo é só pra procriação, e por isso homens só devem ficar com mulheres?
+— E quem decidiu qual é a fruta certa? Você, por acaso, só se deita com mulheres para ter filhos?
 
-— Não Hardman, eu fodo porque gosto, mas nunca foderia outro homem.
+— Claro que não. Eu fodo porque gosto. Mas nunca faria isso com outro homem.
 
-— Deveria experimentar — ele me disse. Ergui a sobrancelha. — Ok, faz lá o que você tem que fazer, mas tô fora — falei. Antes que ele respondesse, alguém colocou uma garrafa em nossa mesa. Me virei e vi que era a princesa dos olhos verdes.
+— Então não faça. Não me recordo de ter feito convite algum.
+
+— Ok, faz lá o que você tem que fazer, mas tô fora.
+
+Antes que ele respondesse, alguém pôs uma garrafa na mesa. Era a mulher de olhos verdes.
 
 — Que tal uma dose? — perguntou ela com um lindo sorriso.
 
-— Linda assim, e ainda me trazendo a garrafa, pode se sentar, fique a vontade — falei.
+— Linda desse jeito e ainda me traz uma garrafa? Senta aí, querida.
 
-— Obrigada — ela me disse com um sorriso encantador — Me chamo Luna.
+— Obrigada. Me chamo Luna.
 
-— Sou Jasmey Badrock, e a criança aqui do meu lado é o Hardman.
+Tinha cabelo preto ondulado, com uma trança fina de um lado. Quando se acomodou perto de mim, os braceletes largos de metal bateram na mesa.
 
-— Em primeiro lugar, não sou criança e muito menos pirata — brandiu Hardman.
+— Jasmey Badrock. E esse é o Hardman, meu engenheiro.
 
-— É claro que somos — respondi — Piratas perigosos, princesa.
+Luna olhou de um pro outro. Hardman aproveitou pra pegar o copo.
 
-— Piratas é? Que piratas espaciais vocês são que não tem nem mesmo uma nave?
+— Não sou seu engenheiro. Nem fazemos parte de uma tripulação pirata.
 
-— Mas temos uma nave. Está lá no deserto. Meu amigo aqui tem a chave, mostra pra ela Hardman — falei, passando o braço por trás de Hardman.
+— Claro que fazemos. Piratas perigosíssimos, princesa.
 
-— Não vou mostrar a chave a ela, Jasmey — respondeu ele, ranzinza — desculpa, moça, é que preciso conversar com meu amigo. Ele delira, acha que é um pirata espacial.
+— Piratas? E cadê a nave de vocês?
 
-— Aqui a chave, olha só — falei, puxando a chave do bolso de Hardman, a mostrando para a mulher.
+— Tá lá fora, no deserto. O Hardman tá com a chave. Mostra pra ela.
 
-— JASMEY — brandiu Hardman pegando a chave de volta — desculpe, mas precisamos conversar a sós.
+— Não vou mostrar chave alguma. Desculpe, moça. Preciso conversar com meu amigo.
 
-— Tem razão, Hardman, eu e a querida precisamos conversar a sós. Vem cá, meu amor — falei, estendendo os braços para que ela se sentasse em meu colo.
+Vi a ponta da chave no bolso dele e puxei antes que conseguisse impedir.
 
-Luna olhou para mim e se sentou.
+— Aí, ó.
 
-— Está de pau duro, por que, Jasmey Badrock?
+— Jasmey!
 
-— Seu amigo está estressado. Talvez ele precise relaxar com uma de minhas amigas — disse ela, enquanto Hardman a olhava feio.
+Hardman arrancou a chave da minha mão e guardou-a no outro bolso.
 
-— Ahm, ele não gosta muito de amigas... — falei. Luna se virou para ele e deu um sorriso.
+— Por favor, precisamos conversar a sós.
 
-— Tenho amigos também. Que fodem muito gostoso.
+— Tem razão, eu e a querida precisamos conversar a sós.
 
-Olhei para Hardman, divertido. O homem parecia não estar curtindo o momento.
+Luna riu e aceitou se sentar comigo.
 
-— Não estou afim — resmungou Hardman.
+— Pirata perigoso, hein?
 
-— Ah sério? Tem um espaço que vai adorar, ali atrás, temos homens... incríveis. Nunca vi rolas maiores — disse Luna, mordendo os beiços.
+Ela olhou pro Hardman.
 
-— Ainda não viu a minha, querida — respondi.
+— Teu amigo tá precisando relaxar. Tenho umas amigas que podem ajudar.
 
-— Não estou interessado em rolas grandes, obrigado — disse Hardman.
+— Ele não se interessa muito por amigas, querida.
+
+— Tenho amigos também. Uns bem bonitos.
+
+Hardman apertou os lábios. Tava começando a achar que aquele copo era o único objeto do salão com que ele se sentia à vontade.
+
+— Agradeço, mas não estou interessado.
+
+Encostei o dedo de metal na borda do meu copo.
+
+Tlic.
+
+Hardman virou a cabeça tão depressa que tirei a mão da mesa. Não precisava comprar outra briga naquele momento.
+
+— Tem um espaço ali atrás. Garanto que você ia encontrar alguém do seu gosto.
+
+— Não vai encontrar ninguém melhor que eu, princesa.
+
+— Não estou fazendo uma seleção, obrigado.
 
 Luna hesitou olhando para ele e então sorriu para mim.
 
 — O que vieram fazer em Sumatram, piratas? — perguntou ela.
 
-— Olha, viemos trazer um amigo virgem para perder a virgindade, e é claro, não pude deixar de passar aqui no Vegas.
+— Trouxemos um amigo que nunca se deitou com uma mulher. E eu tava com saudade do Vegas.
 
-— Precisamos de energia para nossa nave, sabe onde conseguimos minério condensado próprio para motor nuclear? — perguntou Hardman.
+— Precisamos de combustível — interrompeu Hardman. — Sabe onde conseguir minério condensado próprio para um motor nuclear?
 
 — É claro que sei. Posso arrumar pra vocês.
 
 Olhei para Hardman e então sorri para Luna.
 
-— Agora ela vai pedir o preço dela e pelo jeito do sorriso, eu já sei qual é — falei. A olhei nos olhos e ela chegou bem perto de mim, tocando meus lábios. Exatamente como eu esperava.
+— E quanto vai custar?
 
-— Eu só quero foder com você. É só isso que quero, Jasmey Badrock.
+Luna olhou pra mim e sorriu. Já tava gostando da negociação.
 
-— Como quiser — falei, abrindo a camisa, mas ela então posou a mão sobre a minha, me impedindo.
+— Quero você, Jasmey Badrock. Só isso.
 
-— Meu pagamento é póstumo, querido. Vou levar o material até a vocês, e podemos transar depois. Posso saber onde deixaram a nave? — perguntou Luna.
+— Como quiser.
 
-— Não intere... — Hardman começou, mas o interrompi.
+Ela segurou minha mão antes que eu pudesse me levantar.
 
-— A mais ou menos um quilômetro da entrada oeste da cidade.
+— Depois da entrega, querido. Levo o material até vocês. Onde está a nave?
 
-— Ah, que ótimo. Eles vão montar uma tenda ali perto neste turno fundo. Podemos nos encontrar lá em uns trinta ectons, e eu entrego o material para vocês. Depois... você é meu.
+— Não precisamos revelar...
 
-Sorri. Sim. Sou totalmente seu. Luna me beijou e então se levantou de meu colo.
+— A um quilômetro da entrada oeste da cidade.
+
+— Ótimo. Vão montar uma tenda ali perto neste turno fundo. A gente se encontra lá em uns trinta ectons. Entrego o material e depois você é meu.
+
+Sorri. Luna me beijou e se levantou.
 
 — Temos de aproveitar a vida, não é? Nunca sabemos quando será nossa última vez — disse ela me mandando um beijo e saindo.
 
-Respirei fundo, olhando para Hardman que parecia enojado. Então ergui o braço para dar um tapa nas costas dele, mas ele segurou minha mão com a esquerda. A direita ficou no bolso, longe de mim.
+Hardman ficou olhando pra mesa. Estendi a mão pra dar um tapa amigável nas costas dele e o sujeito me segurou pelo pulso. A outra mão continuava no bolso da chave.
 
-— Vamos embora daqui! Já chega!
+— Vamos embora. Imediatamente.
 
 Hardman se levantou e saiu, apressado, passando no meio das pessoas que já começavam outra canção. O segui, rindo, a garrafa em mãos até a saída.
 
-Quando cheguei lá fora, Hardman tentou me empurrar, embora eu não saísse do lugar.
+Lá fora, Hardman parou no meio da rua e ficou bem na minha frente.
 
-— Você ficou maluco? Contou que temos uma nave para uma desconhecida. E se ela tentar nos roubar.
+— Você perdeu o juízo? Mostrou a chave e contou onde está nossa nave para uma desconhecida.
 
-— Meu amigo, você olhou praquela gostosura? Ela nunca tentaria nos roubar.
+— Cara, ela vai conseguir o combustível. A gente precisa disso.
 
-— AAH, eu me pergunto como você conseguiu viver até aqui. Você é muito burro. Confia cegamente nas pessoas.
+— Ela sequer perguntou qual é o modelo do motor! E você acabou de entregar a localização da nave. Como conseguiu sobreviver tanto tempo?
 
-— Não seja medroso. Nossa nave está bem vigiada — respondi
+— A nave tá bem vigiada. E vamos conferir o material antes de pegar.
 
 O sol continuava parado no horizonte, como estava desde que pousamos e como estaria até a estrela morrer, mas o sino da torre bateu o turno fundo, e as tavernas passaram a cobrar o dobro. As luzes iluminavam as ruelas de Geores.
 
 — Vamos atrás de Buni — falou Hardman, apressado se afastando o mais rápido que podia do Vegas.
 
-Olhava para todos os lados, encantado com como aquele lugar era perfeito, e meu encanto me distraiu a ponto de perder Hardman de vista. Procurei-o entre as pessoas, sem sucesso.
+Fui andando atrás dele, olhando pras tendas. Parei um instante pra desviar de dois sujeitos que carregavam uma caixa e, quando voltei a olhar, Hardman tinha sumido.
 
-— Agora pronto, onde está este homem? — perguntei-me.
+— Hardman?
 
 Mas logo, enquanto andava, o vi no meio das pessoas, entrando dentro de um estranho templo com muitos desenhos circulares em sua entrada.
 
 — Hardman? — perguntei, o seguindo para dentro do templo.
 
-Segui por um corredor de pedra, gelado, Hardman alguns passos à minha frente. No fim havia um salão imenso com um altar à frente e uma luz flutuante acesa em seu centro. Diversas pessoas estavam de joelhos, cabeças baixas, com toalhas às costas. Era o lugar mais silencioso da cidade. Nas paredes, figuras desenhadas em linhas curvas, como no lado de fora. Hardman as olhava com curiosidade até parar diante de uma. A princípio não identifiquei o que era, mas ao me afastar vi a forma de uma criatura de boca e olhos escuros, cujo corpo parecia não ter fim.
+Entrei num corredor de pedra, gelado. Hardman tava alguns passos à frente. No fim, havia um salão imenso com um altar e uma pequena luz flutuando sobre ele. Diversas pessoas ajoelhadas, cabeças baixas, toalhas às costas. O barulho das ruas mal chegava ali dentro. Nas paredes, figuras feitas de linhas curvas. Hardman parou diante de uma delas. Só consegui entender o desenho quando me afastei um pouco: uma criatura de boca e olhos escuros, com um corpo que parecia continuar por toda a parede.
 
-— O que foi, por que entrou aqui? — perguntei.
+— O que foi? Conhece esse lugar?
 
-— Este lugar... é um templo para adoração dos luzitanos.
+— É um templo dedicado aos luzitanos.
 
 — Luzitanos? — indaguei.
 
-— Meu pai era religioso, e eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes e que ensinaram todos os outros, e que espalharam os povos pelas estrelas. Dizem que viemos todos de um mesmo lugar. Havia um vazio, a Besta, que quase engoliu tudo antes de eles a deterem. O livro da verdade diz que a luz e a Besta vão se encontrar de novo, e que só uma vence, sem dizer qual. Se perdermos, acaba a galáxia inteira, as estrelas, tudo.
+— Meu pai era religioso. Eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes. Ensinaram os demais povos e os espalharam pelas estrelas. Segundo nossa tradição, todos viemos de um mesmo lugar. Havia um vazio, a Besta, que quase engoliu tudo antes que eles conseguissem detê-la.
 
-— Ainda poderemos tentar ir pra outra galáxia — falei, esperançoso.
+Hardman passou a mão perto do desenho, sem tocar na parede.
 
-— É impossível. É impossível vencer a energia escura, Jasmey. Se a galáxia morrer, morremos junto.
+— O Livro da Verdade diz que a luz e a Besta se encontrarão novamente. Só uma prevalecerá. Não diz qual. Se perdermos, acaba a galáxia inteira.
 
-— Entendi — falei, pouco interessado no assunto — e você veio pra cá pra adorar esses luzitanos e fortalecer sua fé?
+— A gente pega uma nave e vai pra outra galáxia.
 
-— Não é isso. É que ver essas imagens, me fez me lembrar de meu pai. Ele dizia para eu sempre manter minha fé e buscar os luzitanos. Porque no final, seria a única forma de ficar seguro.
+— Não é possível vencer a energia escura, Jasmey. Se a galáxia morrer, morremos com ela.
 
-— Ok, e acha mesmo que essa lenda existe? Ninguém nunca provou que essa raça mega inteligente exista, nem essa Besta que me contou. Ou esse tal livro da verdade... quem o escreveu? Pode ter sido um bêbado que contava histórias.
+— Tá. E você veio aqui pedir ajuda a esses luzitanos?
 
-— Deixe de ser idiota e desrespeitoso, Jasmey. Fé não se baseia em provas, e sim no que você sente.
+— Não. Fazia muito tempo que não via essas imagens. Meu pai me dizia que mantivesse a fé e procurasse os luzitanos. Dizia que, no fim, seria a única maneira de estar seguro.
 
-— Então você sente que deve ir atrás desses luzitanos?
+— E quem escreveu esse Livro da Verdade? Alguém viu a Besta? Alguém encontrou esses sujeitos? Vai que foi um bêbado que inventou a história.
 
-— Você não me perguntou o que eu faria caso meu nome fosse sorteado na nave — falou Hardman.
+— Pode discordar de mim sem ser desrespeitoso. Fé não exige a mesma espécie de prova que uma pesquisa científica.
 
-— Iria atrás de sua fé? Atrás dos criadores?
+— Então ainda quer encontrar os luzitanos?
+
+— Não me perguntou o que eu faria se meu nome tivesse saído no sorteio da nave.
+
+— Iria atrás deles? Dos criadores?
 
 Hardman assentiu e então se virou para as pessoas adorando a pequena luz no altar.
 
-— Todas essas pessoas e outras milhões no cosmos, buscam encontrar a luz, fugir das trevas.
+— Todas essas pessoas, e milhões de outras pelo cosmos, procuram a luz. Querem escapar das trevas.
 
-— Ok, mas e se essa história for um lance mais interno. Tipo, e se a luz for na verdade o seu lado bom e as trevas forem o seu lado mal? Esses livros religiosos tendem a ser metafóricos, não? — perguntei.
+— E se o livro tiver falando de outra coisa? Tipo, a luz é a parte boa da pessoa e as trevas são as merdas que ela faz. Essas histórias religiosas não costumam ser cheias de metáforas?
 
-— Não. Os luzitanos existem. E se eu fosse procurá-los, eu saberia por onde começar — falou Hardman.
+— Os luzitanos existem, Jasmey. E, se eu fosse procurá-los, saberia por onde começar.
 
-Então ele se virou e voltou para o corredor. Como as pessoas conseguiam acreditar nesses mitos religiosos? Quanta tosqueira!
+Ele ficou mais um instante olhando a luz do altar e voltou pro corredor. Não entendia como um sujeito que sabia explicar o funcionamento de uma nave em tantos detalhes conseguia acreditar naquelas histórias. Olhei outra vez pra figura escura na parede. Lembrei da Engenheira e daquilo que me dissera sobre a antivida nas escalas menores. Preferi guardar a pergunta pra depois.
 
 Quando chegamos na frente do Bordel, vimos que Buni não estava lá.
 
-— Ei — chamei a mulher de peles amarelas na entrada — Viu nosso amigo? O gordinho?
+— Ei! — chamei a mulher de pele amarela. — Viu nosso amigo? O grandão?
 
 A mulher sacudiu a cabeça e Hardman olhou para mim.
 
 — Será que ele voltou sozinho para a nave... ou ainda está lá dentro? — perguntou ele.
 
-— Se fosse eu, ainda estaria lá. Aproveitaria o máximo. Aliás, o que deixou com ele para que pudesse pagar mesmo? — perguntei. Mas ao olhar pra Hardman, vi que parecia preocupado.
+— Se fosse eu, ainda tava lá dentro. Aliás, quanto deixou com ele pra pagar?
 
-— Você não deixou nada com ele? — perguntei.
+Hardman olhou pra mim. Olhei pra ele.
 
-Então ouvimos um grito alto vindo de dentro do Bordel, e então Buni saiu de lá de dentro, nu enquanto dois homens surgiam com suas facas na mão gritando como loucos, assustando a mulher de peles amarelas. Ao nos ver, imediatamente Buni se escondeu atrás de nós.
+— Não deixou nada?
+
+Ouvimos um grito. Buni saiu correndo do bordel, nu, com dois homens armados de faca no encalço. Assim que nos viu, veio se esconder atrás da gente.
 
 — Desgraçado, vamos te matar! — gritou um dos homens.
 
 Me apressei a estender as mãos e pedir para que se acalmassem.
 
-— Vamos lá... — falei, os homens zangados parando em minha frente, as facas erguidas — Vamos manter a calma. Nosso amigo não lhes pagou, porque nós iríamos vir aqui para pagá-los.
+— Calma aí, meus amigos. Se o problema é dinheiro, a gente veio pagar.
 
-— Não estamos atrás de seu amigo por conta de pagamento — disse o homem da esquerda — seu amigo transou com a Madame, a mulher mais cara de nosso bordel.
+— Não é por dinheiro, desgraçado! Teu amigo foi pra cama com a Madame, a mulher mais cara do bordel.
 
 Olhei para Hardman, apertando os olhos, confuso.
 
-— E Madame não quis o pagamento dele. Ela quis fugir com ele. Um dos nossos ouviu toda a conversa — continuou ele.
+— E ela não quis receber. Quis fugir com ele. Um dos nossos ouviu a conversa inteira.
 
-— Ela disse que seu amigo fodia muito bem — disse o outro homem.
+— Disse que o sujeito era bom demais na cama.
 
-— Madame tentou fugir com ele, mas conseguimos pará-los. Após isso, tivemos uma discussão na qual Madame acabou se demitindo. Seu amigo nos fez perder a nossa melhor funcionária.
+— Tentaram sair juntos. Quando impedimos os dois, a Madame largou o trabalho. Perdemos nossa melhor funcionária por causa dele!
 
-— Ela me ama e eu amo ela — disse Buni.
+— Ela me ama! E eu amo ela!
 
 — Você vai amar minha faca no seu rabo — ameaçou o homem da direita, erguendo a faca. Eu e Hardman recuamos e estendemos nossas mãos.
 
-— Ei, ei, ei... Calma aí — falei — Nosso amigo não tem culpa se a sua funcionária gostou dele. Ele só queria dar uma boa fodida. Que culpa ele tem que os seus outros clientes não fodem tão bem quanto nosso amigo?
+— Pera aí. Nosso amigo não obrigou ninguém a largar o trabalho. Se a mulher gostou dele, a culpa é do cara?
 
-— Você não sabe o quanto nossos clientes pagam pela Madame. Não sabe quanto dinheiro vamos perder sem ela — falou o homem da esquerda — Vou fatiar este porco ao meio.
+— Tu não sabe quanto os clientes pagam pela Madame. Não sabe o prejuízo que esse porco vai dar.
 
 — Parem! — disse uma voz feminina, à nossa esquerda. Me virei e vi uma mulher alta e muito bela, com um sorriso maravilhoso vindo em nossa direção.
 
 — Madame — disse Buni, os olhos brilhando.
 
-A mulher sorriu para ele e então se dirigiu para os dois homens zangados.
+Ela sorriu pro Buni e parou diante dos dois homens.
 
-— Escutem! Deixem-no em paz e eu volto para o bordel — disse Madame.
+— Deixem ele em paz. Eu volto pro bordel.
 
 — Você nos ameaçou — berrou o homem da direita.
 
-— Ameacei se não me deixassem ir embora. Sou uma mulher livre, tenho meus direitos — disse Madame.
+— Ameacei vocês porque não me deixavam ir embora. Sou uma mulher livre. Tenho meus direitos.
 
-— Olha lá. Está tudo resolvido — falei, decidido — Vocês ficam com sua funcionária, e nós ficamos com nosso amigo.
+— Pronto. Tá resolvido. A Madame volta e a gente leva nosso amigo.
 
-— Não — disse Buni saindo de trás de nós e caminhando até perto de Madame — Não vou deixá-la.
+— Não!
 
-— Buni... Existem milhares de mulheres, mas só um Buni — disse Hardman — Não vale a pena perder sua vida por conta de um amor... De um dia.
+Buni saiu de trás de mim e foi até ela. Ainda tava tremendo, mas se colocou entre Madame e um dos homens.
 
-— Amor de um dia? — resmungou Madame olhando feio para Hardman — Você nunca deve ter sido amado, não é? Nunca nenhum homem me tratou tão bem quanto Buni. Nunca transei com tanto amor em minha vida — então ela se virou para Buni e o beijou, as mãos em seu rosto — Ainda vamos nos ver, meu bebê. Eu prometo.
+— Não vou deixar você aqui.
 
-Vi os olhos de Buni lacrimejarem e então, começou a chorar baixinho enquanto Madame lhe dava um beijo de despedida.
+— Buni, escute. Não quero que morra por causa disso. Podemos encontrar outra saída.
 
-— Não chore meu bebê — Madame disse o beijando mais uma vez antes de se virar e se dirigir aos dois zangados — Andem logo!
+— E qual seria essa outra saída? — Madame olhou pro Hardman. — Você não entende. Nunca nenhum homem me tratou como o Buni. Nunca me senti tão querida na cama.
+
+Ela segurou o rosto dele e o beijou.
+
+— Ainda vamos nos ver, meu amor. Prometo.
+
+Buni tentou responder e a voz falhou. Madame o abraçou.
+
+— Não chora, meu amor. Vai com teus amigos.
+
+Deu mais um beijo nele, se afastou e olhou pros dois homens.
+
+— Vamos logo!
 
 Madame seguiu de volta para o bordel, dando uma última olhada para Buni, e os dois zangados se retiraram com ela, de cara fechada. Quando me dei por conta, vi que estávamos cercados de curiosos, rindo.
 
-— Tão olhando o quê? Seus babacas — resmunguei, dispersando a multidão. Olhei para Hardman e vi que ele ria baixinho, sem que Buni o visse.
+— Tão olhando o quê, porra?
 
-— Bela fodida, amigo. Fez a puta gozar amores por você — falei. Buni não me respondeu. Estava com a cabeça baixa, triste.
+Fiz a multidão se dispersar. Hardman pegou o próprio casaco e entregou pro Buni cobrir a cintura.
+
+— Fez a Madame se apaixonar, hein, irmão.
+
+Buni não respondeu. Tava olhando pra porta por onde ela tinha entrado. Parei de sorrir.
 
 Voltamos para a nave, onde nossos colegas ainda esperavam, no matagal, do lado frio da cidade, sob um céu que escurecia até o negro da noite eterna e já mostrava estrelas. A uns trezentos metros, ao fundo, havia uma fogueira e algumas pessoas reunidas: a tenda onde Luna disse que nos encontraria.
 
-— Pelado? — O’reilly perguntou, surpreso ao ver nosso amigo nu.
+— Cadê a roupa do Buni? — perguntou O’reilly.
 
-Buni não respondeu. Estava cabisbaixo. Assim que Vivian o viu, tratou de cobrir os olhos e correr para longe para não vê-lo nu.
+Buni não respondeu. Vivian viu o casaco improvisado e desviou os olhos, mas logo voltou a olhar pra cara dele.
 
-— Ei — O’reilly chamou a Hardman, o perguntando baixo — foi tão ruim assim?
+— O que aconteceu? — O’reilly perguntou a Hardman, baixinho.
 
-— Na verdade, nosso amigo acabou fazendo mais que o trabalho dele — falei para Buni — não é Buni?
+— Nosso amigo se apaixonou. Longa história.
 
-Buni mais uma vez não respondeu. Apenas se sentou no chão e respirou fundo.
+Buni se sentou no chão. Vivian se aproximou e ofereceu um cantil. Ele aceitou, sem dizer nada.
 
-— Arrume uma roupa para ele — pediu Hardman. O’reilly entrou para procurar alguma veste que o amigo pudesse usar.
+— Pode arranjar roupa para ele, O’reilly?
 
-— Conseguiram o material para a fusão nuclear? — Kord perguntou mudando de assunto.
+Kord olhou pra cidade, depois pra mim.
 
-— Vamos encontrar uma pessoa que irá nos fornecer este material — explicou Hardman.
+— E aí? Arranjaram combustível?
 
-— E como é que vamos pagar está pessoa? — indagou Kord.
+— Vamos nos encontrar com uma pessoa que prometeu nos fornecer o material.
 
-— Pergunte ao Jasmey — disse Hardman, se virando e seguindo de volta para o matagal.
+— E como a gente vai pagar essa pessoa?
 
-— Não sei do que ele está falando — falei, forçando um sorriso. Vivian me olhou com um olhar esquisito, como se soubesse das minhas safadezas, mas ignorei-a. — Já voltamos.
+— Pergunte ao Jasmey.
+
+Hardman virou as costas e seguiu pro matagal.
+
+— Deixa comigo.
+
+Vivian ergueu as sobrancelhas, desconfiada.
+
+— Já voltamos.
 
 Segui Hardman pelo matagal até a fogueira. Ouvimos risadas e gritos de um grupo de dez pessoas bebendo e se divertindo numa clareira, em frente a uma tenda alta aberta, com algumas bebidas atrás.
 
-— Vamos nos juntar — falei, animado.
+— Vamos lá beber com eles enquanto a gente espera.
 
-— Não. Esperamos aqui. Vamos ver se ela realmente vem — disse Hardman, me segurando para que eu não me afastasse.
+— Não. Ficamos aqui até verificar o material.
 
 — É claro que ela vem — afirmei.
 
-Hardman bufou, duvidoso. Aqueles olhos verdes jamais mentiam.
+Hardman bufou. Eu ainda acreditava que a mulher vinha. Tinha gostado de mim, porra.
 
-Esperamos por quase 160 ectons, observando a festa, com muita vontade de participar. As pessoas ali jogavam dados para ver quem beberia a próxima rodada. O jogo estava muito interessante, até que Hardman virasse para mim.
+Esperamos quase cento e sessenta ectons. As pessoas junto à fogueira jogavam dados pra decidir quem beberia na próxima rodada. Um dos jogadores perdeu tantas vezes que começou a trocar de lugar com os outros. Hardman não tirava os olhos da tenda.
 
-— Eu disse que ela não viria. Vou embora.
+— Chega. Ela não vem.
 
-— Calma aí meu amigo. Vamos esperar mais, podemos nos juntar a eles e...
+— Calma, cara. A gente pode ir lá perguntar...
 
-— Jasmey... — disse Hardman respirando fundo, buscando paciência — Eu não vou ficar aqui no vento frio que desce da noite, vou entrar na nave e na próxima volta procuramos algum material para usarmos na nave.
+— Jasmey, está frio e já perdemos tempo suficiente. Voltarei para a nave. Na próxima volta, procuramos um fornecedor de verdade.
 
-— Lá está ela. Eu disse que ela viria — falei, enquanto via, no meio do matagal, Luna caminhando em nossa direção.
+— Tá vendo? Lá vem ela.
 
-— Deu sorte — disse Hardman — se ela não viesse, eu amarraria você em um poste na próxima volta antes de partirmos e lhe deixaria aqui.
+Luna apareceu no meio do matagal, carregando uma caixa.
 
-Olhei para Hardman, desconfiado.
+— Teve sorte. Mais um pouco e eu o deixava amarrado a um poste antes de partirmos.
 
-— É... brincadeira — apressou-se a explicar ele — Igual você fez comigo... ironia.
+Olhei pra ele.
 
-— Não me pareceu ironia — resmunguei.
+— É uma brincadeira, Jasmey.
 
-— Psiu — Luna nos chamou, acenando para que nos aproximássemos. Ela estava a alguns metros de nós, mais distante da tenda.
+— Sei. Uma brincadeira com um poste.
+
+Luna levou um dedo aos lábios e fez sinal pra gente se aproximar. Ela estava a alguns metros de nós, mais distante da tenda.
 
 Olhei para Hardman, então segui na direção dela.
 
-— Já posso lhe pagar? — indaguei ao alcançá-la.
+— Trouxe o que prometeu, princesa?
 
-— É um homem ansioso. Quer pagar, antes de receber — disse Luna — aqui está.
+— Claro, querido. Aqui está.
 
-Hardman virou os olhos, enquanto Luna colocava a caixa ao chão. Olhei para o objeto, e então para Luna.
+Hardman se abaixou perto da caixa. Luna a colocou no chão e abriu a trava.
 
-— Pode abri-la — ela disse.
+Lá dentro havia um material cinza e preto. Hardman aproximou o rosto, examinou a superfície e cheirou a amostra.
 
-Hardman puxou a trava das caixas e ao abri-la revelou um metal cinza e preto. Então ele se aproximou e cheirou o objeto.
+— Que composto é este?
 
-— O que tem aqui? — perguntou ele.
+— De hidrogênio. O mais puro que consegui arranjar.
 
-— Composto de hidrogênio? — respondeu Luna — o melhor e mais puro que existe.
+— Viu? Ela fez a parte dela.
 
-— Vê. Ela fez a parte dela — falei para Hardman. Lancei um sorriso para a mulher, e então olhei para Hardman, pedindo privacidade, pigarreando. Demorou, mas ele por fim entendeu, e saiu, de cara fechada, nos deixando a sós no meio dos capins amarelos.
+Hardman ainda examinou a caixa por um instante. Pigarreei, olhei pra Luna e voltei a olhar pra ele.
+
+— Levarei isto à nave. Não demore, por favor.
+
+O sujeito pegou a caixa e saiu. Ficamos sozinhos no meio dos capins amarelos.
 
 — De onde você vem? Nunca lhe vi por aqui — ela me perguntou.
 
-— Eu ia dizer o mesmo. Me lembraria se visse uma mulher tão linda antes — falei a olhando nos olhos — eu conquistei há pouco nossa nave. Derrotei o capitão Tzough e capturei uma das naves dele, levando comigo alguns dos prisioneiros dele que simpatizei. Sabe, eu sou um ex Dale da Lebargan. Com certeza já ouviu falar — respondi.
+— Eu ia dizer o mesmo. Lembraria de uma mulher dessas. Derrotei o capitão Tzough e tomei uma de suas naves. Tirei de lá uns prisioneiros que me ajudaram. Sou ex-Dale da Lebargan. Já deve ter ouvido falar.
 
 — Um ex Dale? Está falando que aquela nave enorme existe?
 
@@ -514,89 +604,96 @@ Hardman puxou a trava das caixas e ao abri-la revelou um metal cinza e preto. En
 
 — Deve ter uma nave grande para navegar por aí, pirata — ela me disse.
 
-— Olha, não é tão grande. Minha nave é aquela ali — falei, apontando para um vulto contra o lado escuro do céu, que mal se enxergava à luz das estrelas.
+— Não é tão grande quanto a Lebargan, mas serve.
+
+Apontei pro vulto contra o lado escuro do céu, mal visível à luz das estrelas.
 
 Luna olhou para ela, curiosa e me respondeu:
 
 — E você a deixa desprotegida assim?
 
-— Tem dois dos meus a vigiando — falei.
+— Tem gente vigiando.
 
 — É melhor que seja — disse ela — não seria sábio um pirata ser roubado por outros piratas.
 
-— Capitão pirata — falei.
+— Capitão pirata.
 
-— Capitão? Achei que fosse o menorzinho o capitão. Ele que geralmente manda em você.
+— Capitão? Achei que fosse o baixinho. É ele quem dá as ordens.
 
-— Manda em mim? Ele não manda nem nele mesmo. É um tolo preocupado com tudo. Mas me diz, de onde você é, princesa — perguntei.
+— Hardman? Ele dá ordens até pra uma porca que não encaixa. Não quer dizer que alguém obedeça. Mas me diz, de onde você é, princesa?
 
 Luna se sentou no mato, e olhou para mim com aqueles olhos lindos. Então a acompanhei, também me sentando.
 
 — Sou de Zyrion, exterior do Braço Principal.
 
-— Exterior do braço Principal? Garota, você vem de longe, hein — falei.
+— Exterior do Braço Principal? Veio de longe, hein.
 
 — Um pouco, mas minha história começou mesmo quando cheguei em Sumatram.
 
-— Entendo. E você trabalha assim? — perguntei.
+— E você vive de quê aqui?
 
 Luna olhou para mim, parecendo ofendida.
 
-— Assim como? Está perguntando se sou puta? — indagou ela. Me manifestei para responder, mas ela foi mais rápida — eu transo com quem eu quero. Não sou paga para isso.
+— Tá perguntando se sou puta? Transo com quem eu quero. Não cobro pra isso.
 
-A mulher então pegou em meu queixo e me puxou para perto, me beijando. Aos poucos senti meu corpo cair para o lado e quando vi, nos beijávamos deitados. Comecei a tirar minha camisa enquanto ela tirava a roupa dela. Beijei seu pescoço e desci até seus seios. Então abaixei as calças, mas antes que eu enfiasse nela, Luna se virou para mim, e colocou a mão em minha boca.
+Ela me pegou pelo queixo e me beijou. Deitamos na grama. Tirei a camisa e ela afastou o rosto por um instante, procurando alguma coisa nas próprias vestes.
 
-— Vamos apimentar um pouco as coisas? — perguntou ela.
+— Vamos apimentar um pouco as coisas?
 
-— Apimentar? — indaguei — mais?
+— Mais?
 
-Então ela retirou algo das calças.
+Ela abriu a mão.
 
-— Sempre uso isso antes do sexo — disse-me Luna mostrando em sua mão um tipo de doce azul e duro.
+— Costumo usar isto antes do sexo.
+
+Era um doce azul, duro, que eu nunca tinha visto.
 
 — O que é isso?
 
-— Um doce concentrado com néctar de rum necroriano. É extremamente forte. Vai deixar nosso sexo realmente... intenso — disse ela, mordendo os lábios.
+— Néctar de rum necroriano, bem concentrado. Vai deixar a noite mais interessante.
 
-— Rum necroriano? — indaguei — me dê isso aqui.
+— Necroriano? Deixa eu ver.
 
-Apanhei o doce de sua mão e olhei pra ele. Curioso, nunca tinha visto aquele tipo de doce antes.
+Peguei o doce. Virei entre os dedos, procurando entender como tinham conseguido botar rum dentro de uma coisa tão pequena.
 
-— Me admiro como você nunca provou isso antes, gato — disse-me Luna.
+— Nunca experimentou, gato?
 
-— Gato? — indaguei, confuso com a palavra. Mas antes que houvesse alguma explicação, ela pegou o doce de minha mão e o colocou em minha boca.
+— Gato?
 
-— Sinta o sabor — ela me disse, se aproximando de mim lentamente.
+Ela riu, pegou o doce da minha mão e colocou na minha boca.
 
-A agarrei enquanto ela começava a beijar meu peito e ia subindo pelo pescoço.
+Tinha um gosto forte, mas não reconheci o necroriano. Luna se aproximou e voltou a me beijar.
 
-— Vai com calma, sereia-da-nebulosa, o turno fundo é longo — falei, piscando para ela.
+— Vai com calma, princesa. A gente tem o turno fundo inteiro.
 
-— A frase certa é o turno fundo é uma criança. Assim como você, meu pequeno pombinho — disse-me ela me olhando nos olhos enquanto seus dois olhos se dividiam e se separavam do rosto.
+— Tem tempo de sobra, meu pequeno pombinho.
 
-Imediatamente me sentei e recuei. Olhei para Luna e vi que ela estava normal novamente. Nada de olhos distantes.
+Olhei pros olhos verdes dela. Por um instante, os dois se separaram do rosto.
+
+Me sentei de uma vez. Pisquei. Os olhos tavam no lugar de novo.
 
 — O que foi? — Luna me perguntou.
 
-— Nada, só que… o que é aquilo? — perguntei, apontando para uma criaturazinha plumada branca voadora que tinha pousado no ombro dela.
+— Nada... O que é aquilo?
 
-— Não deveria perguntar para ela, e sim para mim — disse-me a criatura.
+Apontei pra um bichinho branco de penas que tinha pousado no ombro dela.
 
-— Ih olha lá, ele fala — eu disse — vou pegar ele.
+— Por que pergunta a ela? Pode perguntar pra mim — disse o bicho.
 
-Me aproximei de Luna para apanhar a criatura e ao tocá-lo, ele se explodiu em diversas cores. Capotei para o lado e caí de costas no chão, o mundo girando em um caleidoscópio insano. O céu explodiu em cores que eu nunca tinha visto, uma sinfonia visual tão louca quanto a mordida de uma jaspa. O rosto de Luna, ao meu lado, também se dissolveu em tons psicodélicos. Sorri para ela, mas ao invés de um simples sorriso, uma gargalhada surgiu no lugar. Sapatos alados voadores sobrevoaram os céus coloridos e eu estiquei meus braços para tocá-los. Quando consegui, notei que não estava mais no chão. Eu estava voando, meu irmão, tem noção do quão feliz eu estava e do quanto eu ria?
+— Caralho. Ele fala!
+
+Estendi a mão pra pegá-lo. Assim que toquei nas penas, o bicho se desfez numa porrada de cores. Caí de costas. O céu girou, as estrelas começaram a mudar de lugar. Aquilo tava pior que a mordida de uma jaspa, e a cara da Luna se desmanchou no meio de tudo aquilo. Comecei a rir sem conseguir parar. Uns sapatos com asas passaram voando sobre mim. Tentei pegar um, mas, quando estiquei os braços, percebi que já não tava no chão. Tava voando. Porra, eu tava voando sem nave nenhuma!
 
 — ISSO É MUITO BOM! — ri, enquanto olhava para todas as cores ao redor de mim.
 
-Segui os sapatos alados pelos céus enquanto tentava apanhar um deles com a mão esticada. Então submergi das nuvens e pude ver a estrela em minha frente. Digo, literalmente em minha frente. Eu podia inclusive tocá-la. Ao encostar minhas mãos nela, percebi que não era quente, e sim muito gelada. Então eu fui puxado por ela e me vi nadando dentro de uma estrela de água. Peixes nadavam comigo e estranhamente tinham a cara de muitos conhecidos. Entre eles Vek, Amanda, Saezi e Jelles.
+Fui atrás dos sapatos até atravessar as nuvens. A estrela tava bem na minha frente. Estiquei a mão, esperando que queimasse, e encontrei água gelada. Fui puxado pra dentro e comecei a nadar. Tinha peixe por toda parte. Um deles virou a cabeça e reconheci o Vek. Depois vieram Amanda, Saezi e, por último, o Jelles.
 
-— Você… eu vou te matar — falei para o peixe-Jelles.
+— Você... Vou te matar.
 
-— Você não vai — falou-me o peixe-Vek — eu vou te matar antes.
+— Não vai, não — disse o peixe-Vek. — Eu vou te matar primeiro.
 
-— Não, deixe que ele o mate — disse o peixe-Saezi — ele já está acostumado a matar as pessoas.
+— Deixa, Vek. Ele já tá acostumado a matar os outros — disse o peixe-Saezi.
 
-— Alguém me arruma um balde para vomitar? — perguntou Amanda.
+— Alguém arranja um balde pra mim? — pediu Amanda.
 
-Naquele instante senti minha barriga embrulhar, e me virei ao lado para vomitar. De minha boca, no entanto, muitas luzes coloridas surgiram e eu então sorri para elas. Tudo era tão bonito. Foi bonito até o momento em que olhei para trás e vi uma mão com uma pedra vindo na direção de minha cara. Foi aí que eu não senti mais nada.
-
+Minha barriga embrulhou. Virei pro lado pra vomitar, mas só vi luzes coloridas saindo da minha boca. Estendi os dedos pra tocá-las. Quando olhei pra trás, vi uma mão com uma pedra vindo na direção da minha cara. Não deu tempo de levantar o braço.
