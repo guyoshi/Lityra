@@ -1,146 +1,160 @@
-Jelles me mandou buscar um Olho num planeta de atmosfera roxa. Missão de categoria A, o segundo nível de importância da Lebargan. A ordem vinha com as coordenadas e quase nenhuma explicação. Eu preferia assim. Perguntas não ganham medalhas.
+Jelles me mandou buscar um Olho num planeta de atmosfera roxa. Era uma missão de categoria A, o segundo nível de importância da Lebargan, e tudo o que eu tinha pra me orientar eram as coordenadas e o desenho do que devia procurar. Se o capitão sabia por que aquele troço valia uma missão de categoria A, fez o favor de guardar pra ele. Por mim, tudo bem, desde que me dessem o mérito quando eu voltasse.
 
-Meu nome é Jasmey Badrock. Sou um Dale da Lebargan. Há quem nos chame de piratas; acho uma palavra feia para gente que sabe exatamente o que quer. E eu nunca gostei de fingir modéstia.
+Meu nome é Jasmey Badrock. Sou um Dale da Lebargan. Pirata, se preferir. Tem gente que fala isso como se fosse um insulto. Eu nunca entendi essa gente. Pra que diabos eu esconderia a melhor parte da minha história?
 
-Trabalhar sozinho era melhor: ninguém atrapalhava, ninguém reclamava dos meus métodos e a glória vinha sem precisar ser dividida. Jelles sabia disso. Ou simplesmente queria poupar os outros de me ouvir falar durante a viagem.
+Eu gosto de trabalhar sozinho. Ninguém atrapalha, ninguém enche o saco e, quando dá certo, o mérito é todo meu. Jelles sabia disso. Ou queria poupar os outros de me ouvir durante a viagem. Quando uma missão exigia pilotagem, meu nome quase sempre aparecia entre os primeiros. As melhores ainda vinham com as melhores naves. O Eric vivia reclamando que eu pegava todas. Se o desgraçado fosse melhor do que eu, talvez tivesse motivo pra reclamar.
 
-Lá de cima, o céu roxo quase parecia convidativo. Eu já tinha visto planetas demais para acreditar em convites.
+Lá de cima, o céu roxo até que era bonito. Os instrumentos indicavam rajadas fortes junto à superfície. Desativei a aproximação automática, escolhi um terreno protegido por duas formações rochosas e trouxe a nave até lá de lado, compensando o vento. Os apoios tocaram o chão quase juntos. Gostava mais de pousar assim do que deixar uma máquina fazer tudo por mim. Já tinha visto mundos muito mais bonitos em que a última coisa que você queria era botar o pé.
 
 Ao pousar, liguei a respiração artificial. Sem ela, já estaria tossindo meu pulmão para fora naquele gás nojento. O monitor brilhava com as condições locais:
 
 — Gravidade próxima do nível 1, pressão atmosférica estável, nenhuma toxina detectada, desinfecção por contato e isolamento térmico ativados. Tudo em ordem para o desembarque.
 
-Essa cautela me salvou mais de uma vez. Quando ainda estava na Ala 66, achava que todo planeta tinha ar e gente sorridente. Hoje? Espero só não explodir ao respirar. A maioria dos mundos são hostis. Já pisei em planeta que derrete bota e em planeta onde o vento chega a dois mil quilômetros por hora. Perdemos um companheiro num lugar onde chovia vidro das nuvens. Conseguem imaginar como deve ter sido doloroso? A pior parte nem foi a chuva. O traje do Orten aguentou a tempestade inteira, as agulhas de vidro quicando na viseira como granizo de cristal. O que o matou foi achar um caco bonito demais: tirou a luva para guardá-lo de souvenir, e a chuva, que até então só fazia barulho, passou a fazer buraco. Acharam o Orten sentado numa pedra, sorrindo, a mão aberta no colo com o souvenir ainda dentro. Desde então, na Lebargan, ninguém tira a luva por planeta nenhum, por mais bonito que seja.
+Essa cautela me salvou mais de uma vez. Quando ainda estava na Ala 66, achava que todo planeta tinha ar e gente sorridente. Hoje? Espero só não explodir ao respirar. A maioria dos mundos é hostil. Já pisei em planeta que derrete bota e em planeta onde o vento chega a dois mil quilômetros por hora. Perdemos um companheiro num lugar onde chovia vidro das nuvens. Conseguem imaginar como deve ter sido doloroso? A pior parte nem foi a chuva. O traje do Orten aguentou a tempestade inteira, as agulhas de vidro quicando na viseira como granizo de cristal. O que o matou foi achar um caco bonito demais: tirou a luva para guardá-lo de souvenir, e a chuva, que até então só fazia barulho, passou a fazer buraco. Acharam o Orten sentado numa pedra, sorrindo, a mão aberta no colo com o souvenir ainda dentro. Desde então, na Lebargan, ninguém tira a luva por planeta nenhum, por mais bonito que seja.
 
-De volta ao planeta, ao abrir a escotilha, saí sob a luz fraca da anã vermelha.
+Abri a escotilha e saí sob a luz fraca da anã vermelha.
 
 — Alerta! Altas concentrações de amônia detectadas — o aviso veio através do meu comunicador auricular, uma ponte direta com meu bracelete. Amônia e fogo não são melhores amigos. Cuidado, Jasmey.
 
-— Ativar blindagem contra inflamáveis — ordenei, sentindo o líquido protetor banhar minha pele. A temperatura externa rondava os -98 graus, mas até com o traje, cada sopro alienígena era como facas de gelo arranhando meu rosto.
+— Ativar blindagem contra inflamáveis.
 
-A vegetação se erguia em árvores sinuosas rumo ao céu alienígena, finas, mas claramente fotossintéticas.
+O líquido protetor se espalhou pela minha pele. Flexionei os dedos dentro das luvas, conferi a vedação dos pulsos e só então soltei a trava da arma. O Sr. Peron tinha me feito repetir aquilo tantas vezes depois que saí da Ala 66 que eu conseguia fazer sem olhar. Na época, achava um exagero. Depois do Orten, nunca mais reclamei. Fazia uns 98 graus negativos lá fora e, mesmo com o traje, o vento me cortava o rosto. Excelente lugar pra passar as férias.
 
-Segui as coordenadas do capitão, marcadas no radar do bracelete, pela paisagem surreal. Contra o horizonte tingido de nuvens roxas, uma estrutura de uns cem metros chamou minha atenção: um arco colossal de rocha, coberto de vegetação sombria, subindo até as nuvens. No chão, bem na frente dele, havia uma construção pequena em forma de cúpula. A abertura circular dela deixava claro que aquilo era obra alienígena.
+Havia umas árvores finas e tortas por toda parte. Faziam fotossíntese, pelo menos era o que pareciam fazer. Não vim até ali estudar árvore.
 
-À medida que me aproximava, o receptor em meu bracelete captou fragmentos de uma comunicação: “Como ele. Você come aquilo. É bom!” Confirmava-se, então, a presença de vida inteligente. Esperava sinceramente que não fossem hostis. O derramamento de sangue não estava nos meus planos.
+Segui as coordenadas no radar do bracelete até avistar um arco de rocha de uns cem metros, coberto de vegetação escura. A parte de cima sumia nas nuvens roxas. Bem na frente dele havia uma construção em forma de cúpula, com uma abertura circular. Bom, pelo menos alguém ali sabia construir.
 
-“Vou te dar aquilo. Você come,” um segundo ser ofereceu. Meu tradutor, embora imperfeito, captava o essencial das suas intenções.
+O receptor do bracelete começou a captar uma conversa quando me aproximei: “Como ele. Você come aquilo. É bom!” Tinha gente ali. Gente que comia, aparentemente. Só esperava que não estivessem falando de mim. Eu não tava a fim de gastar munição à toa.
 
-Deslizei para dentro da construção escura, acionando a lanterna do bracelete. A luz revelou criaturas que soltaram urros assustados assim que me viram. Apaguei a luz na hora, por cortesia com os olhos sensíveis deles. Ah, sempre uma nova surpresa ao conhecer novas formas de vida!
+“Vou te dar aquilo. Você come”, respondeu outra voz. O tradutor pegava umas palavras meio tortas, mas dava pra entender.
 
-As criaturas pareciam tremer e continuavam a gritar de pânico, encolhidas no canto da construção. Uma delas decidiu que seria uma ótima ideia atirar algo grande em mim. Quase me acertou em cheio! Caramba, que forma de vida bizarra era aquela? Violeta, com dezenas de esferas negras onde normalmente se encontra a cabeça, e uma abertura larga e vertical no meio delas. Seria aquilo uma boca? Dos lados de seu corpo, desdobravam-se tentáculos adornados com mais dez tentáculos na ponta, cada um com ainda mais cinco mini-tentáculos, todos agitando-se em um balé caótico de medo e confusão. Sua pele parecia uma mistura de plástico velho com couro de sofá usado, com placas endurecidas protegendo suas costas.
+Entrei na construção e acendi a lanterna do bracelete. Os berros foram imediatos. Apaguei a luz. Pelo visto, tinha acabado de ofuscar os donos da casa. Esperei meus olhos se acostumarem à escuridão antes de chegar mais perto.
+
+As duas criaturas estavam encolhidas num canto, berrando. Tentei me aproximar e uma delas me arremessou um troço que quase pegou na minha cabeça. Dei um pulo pra trás e só aí consegui olhar direito pros dois. Que porra era aquilo? Eram violetas, com dezenas de esferas pretas no lugar da cabeça e um buraco vertical no meio. A boca, talvez. Dos lados saíam tentáculos, cada um com mais dez na ponta, e desses saíam mais cinco ainda menores. Imagina todo esse emaranhado se sacudindo de uma vez. A pele parecia couro de sofá velho misturado com plástico, com placas duras nas costas. Eu tentava acompanhar o movimento de um tentáculo, perdia de vista aquele e acabava com outros cinco se agitando na minha direção. Vai saber qual deles tinha me arremessado aquele troço.
 
 Um dos seres segurava algo parecido com uma pequena escultura de um tentáculo enrolado. Um brinquedo infantil? Droga, odeio quando eles parecem ter famílias.
 
-— Beleza, calmaria aí, beleza? Sem gritaria, tentáculos no chão e ninguém precisa virar churrasquinho — tentei acalmar, mas as criaturas continuavam em pânico. Olhei para o meu bracelete e logo percebi meu erro. Eu havia ativado o tradutor externo, mas me esqueci do interno. Ou seja, eu entendia o que eles diziam, mas eles não compreendiam nada do que eu falava. Corrigindo o lapso, insisti:
+— Beleza, vamos baixar esses tentáculos aí. Ninguém precisa virar churrasquinho.
+
+Continuaram berrando. Olhei o bracelete. Merda. Tinha ligado o tradutor externo e esquecido o interno. Eu entendia os desgraçados, mas eles não entendiam nada do que eu falava. Corrigi isso.
 
 — Vamos lá, rapazes, vamos colaborar.
 
-Ainda assim, o pânico reinava. A paciência é para os fracos, e a minha, já escassa, esvaiu-se num piscar de olhos. Aliás, nem sei se essa palavra existe no meu dicionário.
+O que eu ganhei por ter a consideração de falar na língua deles? Mais gritaria. Tentei apontar pro chão pra ver se baixavam os tentáculos, mas um começou a se agitar e o outro foi atrás. Eu já tinha gastado toda a boa vontade que levei praquele planeta.
 
 — JÁ CHEGA, PORRA!
 
-A frustração me levou a disparar um tiro de advertência no ar, esquecendo-me completamente, pra variar, da porra da amônia atmosférica. As chamas dançaram furiosamente pelo teto, como se estivessem aplaudindo minha burrice temporária, antes de extinguirem-se, deixando um silêncio carregado de tensão. Quem precisa de fogo quando se tem a minha aura para intimidar, certo?
+Disparei pro alto. Tinha me esquecido da amônia. Sim, a mesma que o comunicador tinha acabado de me avisar que ia encontrar por toda parte. O fogo correu pelo teto inteiro antes de se apagar e, por um momento, achei que tinha acabado de assar nós três. Pelo menos calaram a boca.
 
-Os alienígenas cessaram a agitação, mas continuaram vigilantes. A anatomia desses polvos com pernas não me interessava. Minha missão era outra, e não virar biólogo intergaláctico.
+Os tentáculos ainda se mexiam, mas agora dava pra conversar. Eu queria um olho, não um diploma de biólogo.
 
-— Vejam, esta arma que tenho é uma Incendiária, uma arma que dispara chamas. Acho que devem saber o que é fogo. Se eu atiro em vocês, não terão nem tempo de gritar. Seus corpos se carbonizam quase instantaneamente. Se há algum apreço por suas vidas, por esses tentáculos peculiares que gostam de usar para arremessar objetos, sugiro uma cooperação imediata.
+— Estão vendo essa arma? É uma Incendiária. Fogo. Vocês viram o que ela acabou de fazer com o teto? Pois é. Se eu apontar pra vocês, não vai sobrar tempo nem pra gritar. Então vamos fazer o seguinte: ninguém mais me atira porra nenhuma e vocês me ajudam. Combinado?
 
-Um deles, impelido pelo medo, balbuciou: “Comer eu, comer você,” recuando ainda mais, como se buscasse fundir-se à parede.
+Um deles se espremeu contra a parede e balbuciou: “Comer eu, comer você”.
 
-— Não, criaturas como vocês não estão no meu cardápio... Mas isso pode mudar, caso decidam não colaborar — respondi, aumentando a pressão.
+— Não tô com tanta fome assim. Mas vocês podem me fazer mudar de ideia.
 
-— Quero... ajuda. Preciso... ajuda — o outro tentou expressar, sua voz embargada pelo pavor.
+— Quero... ajuda. Preciso... ajuda.
 
-— Não são vocês que precisam de ajuda, sou eu. Eu preciso encontrar isto — esclareci, exibindo o pano com o desenho do objeto de minha busca, duvidando de sua capacidade de compreensão visual. Não tinha certeza se eles conseguiam enxergar luz, tomara que tenham evoluído essa habilidade.
+— Eu que preciso de ajuda, caralho. Tô procurando isto aqui.
 
-Inesperadamente, um deles projetou uma luz rubra sob a pele, iluminando o tecido com uma claridade sobrenatural.
+Mostrei o pano com o desenho. Será que aquelas bolinhas pretas enxergavam alguma coisa?
+
+Uma luz vermelha apareceu sob a pele de um deles e iluminou o tecido. Tá, pelo menos sabia acender a própria luz.
 
 — Isso... você busca... você tem.
 
-— Não, eu não quero isso — expliquei — Isso é só um desenho do que eu quero. Eu quero a porra do que está desenhado aqui. Estão me entendendo?
+— Isso é um desenho! Eu quero a porra do que tá desenhado aqui. Entenderam?
 
-A troca de olhares entre eles foi quase uma piada de circo, não fosse a situação tensa. Pareciam dois micrófilos tentando abrir uma fechadura sem chave.
+Os dois se encararam. Se micrófilos tentassem abrir uma fechadura sem chave, provavelmente se entenderiam melhor.
 
 — Comer eu, comer eu.
 
-— Não vou comer ninguém se me ajudarem. Porra, como vocês conseguiram sobreviver até hoje sem se comerem? Ou meu comunicador está mal ou vocês têm a inteligência de um micrófilo.
+— Não vou comer ninguém se me ajudarem. Porra, como vocês conseguiram sobreviver até hoje sem se comerem? Ou meu comunicador tá com defeito ou vocês têm a inteligência de um micrófilo.
 
 — Inteligência? Come ele, mais inteligente — o outro sugeriu, apontando um tentáculo para seu companheiro.
 
-Resolvi mudar de tática. Aproximando-me do meu bracelete, ativei seu transmissor.
+Acionei o transmissor do bracelete. Vek que me salvasse daquela conversa.
 
-— Vek, necessito de uma representação tridimensional do objeto. Estes “homens-polvo” parecem incapazes de compreender um simples desenho.
+— Vek, manda um holograma desse negócio pra mim. Tô tentando explicar um desenho pra dois homens-polvo e tá sendo uma merda.
 
-O bracelete é indissociável da existência Dale: linha de vida, comunicador e coleira. Indelével até o fim das nossas voltas, sob pena de morte. Se tentar arrancá-lo, ele libera uma toxina e você morre em poucos ectons. Nem é fácil tentar, pode apostar. Serve para não nos afastarmos do nosso povo e para sempre sabermos onde os colegas estão.
+Todo Dale tem um bracelete desses. Dá pra falar com os outros, rastrear os colegas e ser rastreado até o fim das suas voltas. A identificação e o transmissor ficam no próprio aparelho, que tem energia independente. Mesmo se o sujeito morrer numa missão, o sinal ajuda a encontrar o corpo. Se quiser arrancar o seu, pode tentar. Ele é duro pra caralho e, caso você consiga, libera uma toxina que te mata em poucos ectons. A Lebargan gosta muito de ter a família por perto.
 
-Esperei, num jogo de olhares entre mim, os polvos encolhidos e meu pulso.
+Esperei Vek responder. Os dois polvoides olhavam pro meu pulso.
 
-Finalmente, a conexão se estabeleceu, e o holograma do Olho que procurava brilhou diante de nós, uma esfera flutuante de dados e luz.
+O holograma do Olho apareceu sobre o bracelete.
 
-— Isso! Podem ver? Entendem o que é? — inquiri, esperançoso.
+— Aí! Esse negócio. Sabem o que é?
 
-As criaturas, agora fascinadas, iluminaram o holograma com suas estranhas bioluminescências. “Eu ver,” disse um. “Eu também ver,” ecoou o outro, confirmando a visão compartilhada. “O olho de um Domongo”, disse um deles.
+Os dois iluminaram o holograma com a luz que saía de seus corpos e chegaram um pouco mais perto. “Eu ver”, disse um. “Eu também ver”, respondeu o outro. Estava prestes a perguntar se também conseguiam pensar quando um deles falou: “O olho de um Domongo”.
 
-— Domongo? Que merda é um Domongo? — indaguei.
+— Domongo? Que merda é um Domongo?
 
-— Domongo é temido. Habita as alturas petrificadas. Devora os Laios, temidos por todos — explicaram, seus tentáculos tremendo ao evocar tal criatura.
+— Domongo... temido. Vive nas alturas petrificadas. Come Laios. Todos temer.
 
-— Laios? Nunca ouvi falar. Mas se o Domongo come, eu não quero ser um deles — hesitei e então continuei — Ele vive nas alturas, dizem? Em que alturas exatamente?
+Os tentáculos voltaram a se agitar. Não ficou muito claro se todos tinham medo dos Laios ou do Domongo, mas já dava pra entender que eu ia atrás do pior dos dois.
 
-Os alienígenas apontaram os tentáculos para o céu. Saí e ergui o olhar: lá estava o imponente arco de pedra, coberto pelas nuvens roxas. Minha jornada me levaria às alturas.
+— Laios? Sei lá o que é isso, mas se o Domongo come, espero não me confundir com um deles. Onde ficam essas alturas?
 
-Voltei para dentro e encarei as criaturas com cordialidade de vendedor. Eles mal tinham me entendido no início e agora compreendiam cada palavra, cada ameaça. Sabiam que eu podia acabar com suas vidas, e eu sabia o que Jelles esperava de mim.
+Apontaram pra cima. Saí pra conferir. Claro que era aquele arco enorme de pedra. Não podia ser uma caverna aqui do lado, né?
 
-— Agradeço a cooperação. Mas, infelizmente, não posso deixar testemunhas — disse, com aquele tom de “foda-se, preciso seguir o manual” que Jelles tanto adorava. Internamente, dei um revirar de olhos. Quem eu estava enganando? Matar esses coitados por um protocolo estúpido? Nem fodendo. Apesar da minha natureza (que não é tão assassina quanto o capitão gostaria), fingi uma ameaça com a cara mais séria que consegui e ativei o imobilizador no bracelete, atingindo os seres com uma descarga que os fez colapsar, paralisados. Que se dane o código, o importante é a glória... e não ter sangue de inocente na minha ficha.
+Voltei pra dentro. Os dois já tinham entendido o suficiente pra saber que eu podia matá-los. E eu sabia exatamente o que Jelles queria que eu fizesse.
 
-Gravei uma mensagem, mais para provar que fiz o trabalho sozinho do que por preocupação com o relatório:
+— Valeu pela ajuda, rapazes. Infelizmente, não posso deixar testemunhas.
 
-— Eles cooperaram e me revelaram a morada da criatura, de nome Domongo. É para lá que me dirijo agora — concluí, desativando a gravação.
+Que saco. Eu ia ter que matar dois polvoides que nem sabiam o que era um desenho? Ainda estavam encolhidos naquele canto. Olhei pro bracelete, escolhi o imobilizador e fiz a cara mais ameaçadora que consegui. Os dois desabaram no chão. Fiquei ali o suficiente pra saber que estavam vivos, só paralisados. Pelo menos, enquanto eu estivesse fora, não iam sair correndo por aí. A outra parte da missão eu resolvia na volta.
 
-Preparando-me para a escalada, respirei fundo, não porque precisasse de concentração extra, mas para me certificar de que o ar estava à altura do meu desempenho. Se a gravidade cooperasse e fosse menos cruel, eu poderia subir ali como um bailarino espacial.
+Ativei a gravação da missão, ajeitei o cabelo e procurei um ângulo que mostrasse o arco atrás de mim. Na Lebargan, ninguém ia precisar perguntar quem tinha subido aquela merda:
 
-Foram quase sessenta ectons escalando até que eu chegasse na inclinação do arco onde eu podia continuar subindo a pé. Segui por mais uns 24 ectons olhando para os lados, procurando por alguma criatura. Se eu tivesse medo de altura, já teria virado geleia de pirata no chão. Mas a emoção mantém a gente em pé. Estava a mais de sessenta metros do chão e não conseguia ver quase nada da superfície.
+— Consegui a localização da criatura. Chamam ela de Domongo. Tô indo buscar o olho.
 
-Alcançando o topo após uma escalada tensa, o cheiro pungente de enxofre invadiu minhas narinas. Pude constatar que pisava em sulfeto dele, um prenúncio da presença do Domongo. Mas algo ali não me cheirava bem, e não era só o enxofre. Em meio à neblina roxa, uma sensação inquietante me alertou do perigo iminente. Ativei a lanterna mais forte e olhei por entre as nuvens. Não havia nada. Continuei seguindo, e então senti algo. Um tremor sutil, quase imperceptível, antecipou o encontro.
+Desativei a gravação.
 
-— Mostre-se, Domongo! — desafiei, a adrenalina pulsando.
+Olhei pro alto, procurando onde poderia apoiar as mãos e as botas. Ia subir aquela merda na unha. Por sorte, a vegetação e as irregularidades da rocha davam alguma coisa pra agarrar, mas a gravidade era próxima da que eu conhecia. Ia ter que fazer força de verdade.
 
-A resposta veio na forma de uma vibração mais intensa. Movendo-me cautelosamente, arma em punho, percebi uma sombra se agitando à minha direita. Ao virar-me, deparei com a imensa figura do Domongo, uma serpente colossal coberta de placas azul-cobalto e violeta, com fendas magenta brilhando entre elas. No centro da fronte ardia um único olho laranja, maior que uma manga: o objeto de minha busca. A boca enorme se abriu, revelando duas fileiras de dentes claros e afiados. Pele dura feito pedra e, mesmo assim, voando. Claramente, o universo estava de brincadeira comigo.
+Levei quase sessenta ectons até alcançar uma parte do arco cuja inclinação permitia que eu continuasse a pé. Foi um alívio poder soltar as mãos da rocha. Andei por mais uns 24 ectons de olho nos dois lados, procurando alguma coisa que denunciasse a presença da criatura. A superfície já mal aparecia por baixo das nuvens e eu devia estar a mais de sessenta metros do chão. Por mais que gostasse de lugares altos, preferia estar ali com uma nave.
 
-Esquivando-me de seu ataque rasante, senti a aspereza do solo sob mim, escorregando pelo chão pedregoso. O Domongo se virou para mim. O corpo disforme exalava um cheiro metálico, de sangue de ferro, embora não houvesse veias visíveis. Então guardei minha arma e, com adaga em mãos, lancei-me ao seu encalço. No instante em que passou raspando minha cabeça, saltei com tudo o que tinha. Minha adaga gritou contra a pele dura enquanto eu me pendurava desesperadamente. Não recomendo isso a ninguém, especialmente se você gostar de estar vivo.
+No topo, o fedor de enxofre quase me fez desistir de respirar. Havia sulfeto no chão. Devia estar perto do Domongo. Liguei a lanterna mais forte e tentei enxergar no meio da neblina roxa. Nada. Andei mais um pouco e senti a rocha vibrar sob as botas.
 
-Ali, pendurado numa adaga em uma serpente voadora a mais de cinquenta metros de altura, eu tinha um dilema: montar nele e tentar alcançar o olho. A queda seria fatal.
+— Aparece, Domongo!
 
-Escalei por seu dorso enquanto a criatura girava pelos ares, provavelmente para me atacar de novo. Iria se frustrar quando visse que eu não estava mais no arco. A pele era dura e fria ao toque, e a adaga não tirava sangue nem fluido nenhum. Era como furar uma couraça, não um bicho vivo.
+A rocha tremeu de novo. Ergui a arma e vi uma sombra passar à direita. Virei bem a tempo de dar de cara com uma serpente enorme, coberta de placas azul-cobalto e violeta, com fendas magenta brilhando entre elas. Na testa, um olho laranja maior que uma manga. Era ele! Aí a criatura abriu a boca e me mostrou duas fileiras de dentes afiados. Uma cobra com pele de pedra que ainda por cima voava. Claro. Por que facilitar?
 
-Equilibrei-me sobre a criatura, que, em um movimento abrupto, inclinou-se para um mergulho. Rolando por sua extensão, detive minha queda fincando a adaga novamente. Meu objetivo era claro: alcançar seu olho singular. No momento exato em que o domongo desviava do arco mais uma vez, me lancei em direção à sua cabeça. Mas ali, minha adaga encontrou uma resistência ainda maior, recusando-se a perfurar. Deslizei pelo seu corpo, perdendo minha ferramenta na neblina abaixo. Senti meu coração acelerar. Não que estivesse com medo, claro. Mas porra, pendurado a cem metros do chão em uma cobra voadora gigante faz até os melhores pensarem duas vezes.
+Me joguei no chão quando ela veio pra cima de mim e raspei o corpo na pedra. O Domongo se virou. Fedia a metal, a sangue de ferro, embora eu não visse veia nenhuma. Guardei a arma, saquei a adaga e esperei a próxima investida. Quando passou raspando minha cabeça, saltei e enterrei a lâmina na carapaça. O metal rangeu. Eu fiquei pendurado nela, torcendo pra adaga do Vek ser tão boa quanto ele dizia.
 
-Desesperado, agarrei-me a um espinho proeminente na cauda do Domongo, lamentando a perda da adaga.
+A mais de cinquenta metros do chão, descobri que o meu brilhante plano tinha um probleminha: eu ainda precisava subir na cobra e chegar até o olho. Soltar a adaga tava fora de questão.
 
-— Ah droga, Vek nunca mais vai me emprestar nada.
+Fui subindo pelo dorso enquanto ela fazia a volta no ar. Provavelmente tava voltando pra me atacar no arco. Eu adoraria ver a cara dela quando descobrisse onde eu tinha ido parar, mas naquele momento mal conseguia levantar a cabeça. A pele era fria e dura, e, mesmo onde eu tinha enfiado a adaga, não saía sangue nem fluido nenhum. Parecia que eu tinha perfurado a blindagem de uma nave.
 
-A criatura deu uma volta pelos ares e escancarou as mandíbulas dentadas para me abocanhar. Aguardei o momento, contei até três e saltei. Então ao cair em direção à criatura, atirei duas bombas por meu bracelete em direção à sua boca. Elas não eram muito fortes, mas a amônia fez a sua parte. A reação causou uma explosão ensurdecedora que rasgou a boca do Domongo, espalhando uma substância escura ao vento. Imediatamente me agarrei nas irregularidades da cabeça da criatura, me preparando para a queda inevitável, torcendo para que seu corpo não se virasse ao cair, senão minha morte seria rápida.
+Consegui ficar em cima dela. A desgraçada mergulhou, me fez rolar pelo corpo e tive que fincar a adaga outra vez. Esperei que passasse pelo arco e me joguei em direção à cabeça. A lâmina bateu na carapaça e não entrou. Comecei a escorregar e vi a adaga sumir na neblina. Porra. Tava a uns cem metros do chão. Meu coração tava disparado. E que se foda a pose, eu precisava me segurar em alguma coisa.
 
-O impacto foi monumental. Achei que tinha quebrado todas as costelas, as minhas e as do Domongo. Mas, veja só, ainda tô inteiro, amortecido pela carcaça da besta. A dor mais significativa veio quando fui projetado ao solo, um golpe duro contra a terra.
+Agarrei um espinho na cauda do Domongo por puro reflexo.
 
-Tirei o cabelo do rosto e cambaleei antes de me levantar. Aproximei-me do monstro abatido, seu rosto uma máscara de destruição. A boca estava completamente arrancada de seu corpo, presa apenas por uma pequena parte. Mas pela graça de Trimonius, o olho estava intacto.
+— Droga, Vek nunca mais vai me emprestar nada.
+
+O Domongo fez uma curva e abriu a boca na minha direção. Se eu continuasse segurando aquele espinho, ia parar dentro da criatura, e, se soltasse, ia direto pro chão. Esperei que ela chegasse perto, contei até três e saltei. Disparei duas bombas do bracelete pra dentro da boca dela enquanto caía. As bombas nem eram lá essas coisas, mas dessa vez eu tinha lembrado da amônia. O estrondo foi tão forte que por um instante não ouvi mais nada. A boca do Domongo se rasgou e um monte de gosma escura voou pelos ares. Consegui me agarrar nas irregularidades da cabeça. Agora era torcer pra aquela carcaça chegar ao chão com a barriga pra baixo, porque, se virasse, o peso dela ia acabar comigo.
+
+Bati com tanta força que achei que tinha quebrado todas as costelas, as minhas e as do Domongo. A carcaça amorteceu a queda, mas fui arremessado contra o chão. Aí doeu de verdade.
+
+Tirei o cabelo da cara e me levantei meio torto. A boca do Domongo tava praticamente arrancada, pendurada por um pedaço de carne. O olho continuava lá. Obrigado, Trimonius.
 
 — Eu sei, eu sei. Não adianta me olhar assim, eu preciso do seu olho, cara.
 
-Sem minha adaga, tirar o olho ia ser tão fácil quanto ensinar matemática avançada a um micrófilo. Sem escolha, envolvi o olho com as mãos, e puxei-o fortemente, arrancando-o com um puxão vigoroso, rompendo as conexões nervosas. Uma onda da mesma substância negra e viscosa atingiu meu rosto, mas não me detive. Limpei os resíduos de minha visão e admirei a esfera cobiçada, grande demais para caber numa mão só, sorrindo de vitória.
+Sem a adaga, tive que tirar o olho na mão. Segurei com as duas, puxei e senti as conexões nervosas arrebentarem. Aquela gosma preta espirrou na minha cara. Limpei os olhos e admirei o troféu. A porra era tão grande que nem cabia numa mão só. Valeu cada costela.
 
-— Missão cumprida. Quase morri duas vezes, o que é um dia normal pra mim, e ainda conquistei a inimizade eterna de uma raça de moluscos esquisitos, que devem ser mais irritantes que uma pulga espacial. Nada mal para uma missão de início de hepton.
+— Missão cumprida! Quase morri duas vezes e acho que tenho dois novos inimigos lá embaixo. Nada mal pra um início de hepton.
 
-Eu estava prestes a deixar a área quando algo me fez parar. Não foi o olho. Nem o cheiro de amônia. Foi uma sensação interior de que algo estava faltando. Uma corrente de relutância fria que me percorria. Aquela era a Primeira Regra do Código dos Dales, ecoando em minha mente como um trovão antigo:
+Ajeitei o olho debaixo do braço pra registrar o resultado no bracelete. Tive que apagar a primeira imagem. Com aquela gosma toda na viseira, mal dava pra distinguir a minha cara da do Domongo. Limpei o vidro e tentei de novo, dessa vez com o arco de pedra aparecendo atrás de mim.
+
+Já ia embora quando lembrei dos dois polvoides. Puta merda. A Primeira Regra do Código dos Dales:
 
 “Lendas só são lendas, porque não deixam testemunhas”
 
-Fomos treinados para isso, para sermos eficazes, implacáveis. Sem rastros, sem pontas soltas. Repetida tantas vezes nos treinamentos que parecia parte do nosso sangue. Segui de volta à casa dos tentaculóides… E ali estavam eles, paralisados, confusos, respirando (ou o equivalente disso), e vivos.
+Na Ala 66, fizeram a gente repetir essa merda até decorar. Voltei à casa dos tentaculóides. Continuavam paralisados, respirando, ou fazendo o que quer que usassem pra respirar.
 
-Respirei fundo. Podia só apertar um botão no bracelete e garantir que a regra fosse cumprida. A hesitação não era uma opção para um Dale. Não publicamente, pelo menos. Mas hesitei. Um segundo que se arrastou em um ecton.
+Era só apertar um botão no bracelete. Um Dale não costuma demorar tanto pra apertar um botão, especialmente com a ordem que eu tinha recebido.
 
-Eram seres assustados, indefesos. Um deles tinha até uma colcha de tecido com desenhos jogada sobre o ombro, como um cobertor infantil. A imagem da pequena escultura de tentáculo, um brinquedo, que um deles segurava mais cedo, me veio à mente. Droga, odeio quando eles parecem ter famílias. Tremiam, sem uma arma à vista. Que lenda eu seria, matando polvoides desarmados por causa de um protocolo?
+Um deles tava com um tecido cheio de desenhos jogado no ombro. Lembrei daquela escultura de tentáculo que ele segurava antes. Merda, será que era mesmo um brinquedo? Os dois tremiam, e eu não via arma nenhuma ali. Ia contar o quê na Lebargan? Que o grande Jasmey Badrock matou dois sujeitos que nem sabiam ficar em pé direito?
 
 — Por Trimonius, por que essa parte nunca é fácil? — murmurei.
 
@@ -152,11 +166,11 @@ Jelles tinha me dado a missão e me dito com todas as letras:
 
 “Recupere o Olho. Não deixe rastros. Você sabe o que fazer, Jasmey.”
 
-Eu sabia. Mas também sabia que Jelles não era Nastácia. A capitã nunca usava essas palavras. Ela dizia coisas como “complete a missão, seja discreto, mas direto. Elimine apenas quem entrar em seu caminho”. A interpretação da primeira regra para Jelles, era completamente diferente.
+Com Nastácia era diferente. Ela dizia: “Complete a missão, seja discreto, mas direto. Elimine apenas quem entrar em seu caminho”. Aqueles dois tinham me mostrado o caminho, porra.
 
 — Ok, capitão. Vamos seguir o manual — sussurrei, mais para mim do que para eles.
 
-Ativei a lanterna e mirei o rosto paralisado de uma das criaturas. Parecia... assustado, sim, mas também aliviado. Como se ter sido paralisado fosse melhor do que a alternativa. Talvez fosse mesmo.
+Acendi a lanterna na direção de um deles. O coitado nem conseguia se virar pra fugir da luz. Tive que olhar pro chão pra lembrar onde tinha encontrado os dois quando entrei. Era a casa deles, afinal. Eu é que tinha invadido aquela porra.
 
 Foi então que a Terceira Regra passou pela minha mente, uma que ninguém falava muito:
 
@@ -164,13 +178,13 @@ Foi então que a Terceira Regra passou pela minha mente, uma que ninguém falava
 
 — Grande filosofia, né? — falei para a criatura imóvel. — Três regras. Uma me manda matar você. Outra me manda obedecer alguém que mandou te matar. E a última diz que eu tenho que pensar por conta própria. Vai entender.
 
-Guardei o detonador. Apaguei a lanterna. E saí.
+Guardei o detonador e apaguei a lanterna. Fui embora.
 
 Que se dane. Que queiram me punir. Eu tinha o Olho, e ninguém ia sentir falta de uns polvoides assustados no meio de um planeta roxo perdido.
 
 Assim que cheguei à beirada do templo, o bracelete piscou. Era Amanda.
 
-— Eaí. Tá vivo? — ela perguntou, com aquele tom entre preocupação genuína e desprezo habitual.
+— E aí, tá vivo? — perguntou Amanda.
 
 — Vivo, inteiro, e com o olho. Sem nenhuma nova cicatriz, infelizmente.
 
@@ -182,15 +196,15 @@ Amanda hesitou.
 
 — Você não...
 
-— Claro que fiz. Você me conhece — falei, em tom forçado.
+— Claro que fiz. Você me conhece.
 
-— Não, você não fez. Vai dar merda se descobrirem, Jasmey.
+— Conheço. Você não fez. Vai dar merda se descobrirem, Jasmey.
 
-— Ninguém vai descobrir. To no meio do nada na merda de um planeta aleatório. Eles vivos ou mortos, não fariam diferença pra essa missão.
+— Ninguém vai descobrir. Tô no meio do nada na merda de um planeta aleatório. Eles vivos ou mortos, não fariam diferença pra essa missão.
 
-Ela não respondeu. Mas ouvi um suspiro do outro lado. Não de frustração. Era mais... aprovação silenciosa. Talvez eu não fosse o único questionando tudo ultimamente.
+Ouvi Amanda soltar o ar do outro lado. Conhecia aquele suspiro. Se achasse que eu tinha feito merda, já teria me xingado umas três vezes.
 
 Desliguei o canal.
 
-Ali, sob o céu roxo e o fedor de enxofre, preparei o meu retorno à Lebargan, para a celebração habitual de conquistas, mesmo sabendo que teria uma conversa difícil com Vek sobre sua adaga perdida. Mas, por agora, o momento era de triunfo, era hora de voltar para casa, comer, beber e transar por mais umas voltas antes da próxima missão. Eu sorri, imaginando o rosto de Jelles quando entregasse aquele maldito olho. Mas algo me dizia que essa vitória traria mais problemas do que soluções.
+Olhei pro céu roxo e fui voltando pra nave com aquele olho debaixo do braço. Tava fedendo a enxofre, doía até pra andar e ainda devia uma adaga ao Vek. Mal podia esperar pra ver a cara do Jelles. Depois, eu só queria comer, beber e transar por umas boas voltas.
 
