@@ -1,252 +1,294 @@
-A decolagem foi mais rápida que um piscar de olhos e, em meros ectons, o manto estrelado se abriu diante de nós, revelando a anã vermelha que dominava o sistema. No vácuo, avistei a Lebargan, aparecendo como uma ex que você não superou: linda, ameaçadora e prestes a destruir sua paz de novo. Invisível a olho nu, ela devorava a luz ao redor e virava um buraco nas estrelas.
+Em poucos ectons eu já tava fora daquele planeta. Vi a anã vermelha pela janela e procurei a Lebargan entre as estrelas. Procurei pelo que faltava, na verdade. Ela engolia a luz ao redor, então, mesmo sabendo onde estava, eu só conseguia distinguir um buraco no céu. Tinha passado a missão inteira querendo voltar pra lá. Agora que estava perto, só pensava no que ia dizer ao Jelles sobre os polvoides.
 
-Conforme nos aproximávamos da barreira temporal quântica, a nave reduziu a velocidade. O laser de identificação da Lebargan, invisível no vácuo até tocar o vidro, pintou o interior da cabine de vermelho. A nave se revelou em toda a sua glória. Diziam que valia uma frota inteira. Eu não apostaria contra ela.
+A nave reduziu a velocidade perto da barreira temporal quântica. Um laser de identificação bateu no vidro, deixou a cabine vermelha e, quando a Lebargan se revelou, tive o prazer de esquecer os polvoides por alguns instantes. Diziam que aquela belezinha valia uma frota inteira. Apostaria meu chapéu nela.
 
-“Seja bem-vindo à Lebargan”, eu poderia ter dito, mas a saudação não valia para todos. Os veteranos juravam que aquela fortaleza existia desde quando Trimonius ainda aprendia a construir naves. Olhando o casco, dava para acreditar. Aquilo era um paraíso só para quem se atrevesse a reclamá-lo. A nave parecia um navio antigo magnificado, com torres que subiam e se estendiam para os lados, de onde vigias escrutinavam o cosmos com telescópios de potência inigualável.
+A Lebargan era velha pra caralho. Os veteranos juravam que já existia quando Trimonius ainda aprendia a construir naves. Eu não podia provar, mas bastava olhar praquele casco. Tinha a forma de um daqueles navios antigos, com torres que se erguiam pra cima e pros lados. Lá de dentro, os vigias conseguiam enxergar boa parte do que se passava ao redor com seus telescópios. É melhor pensar duas vezes antes de se aproximar de uma nave dessas sem ser convidado.
 
-Um espetáculo de luzes dançava em cada recanto, e as velas solares bebiam a radiação estelar e a transformavam em energia. Na proa, um holograma do emblema pirata, um crânio ladeado por armas entrecruzadas, brilhava com orgulho.
+As luzes do casco já estavam acesas e as velas solares absorviam a radiação da estrela. Na proa, brilhava o holograma de um crânio com armas cruzadas. Nunca me cansava de ver aquela caveira.
 
-A nave era um microcosmo de delícias: piscinas termais, gastronomia que satisfazia os paladares mais exigentes, música que convidava ao movimento e liberdade para os prazeres carnais, tudo regado a rum antigo. Em troca, tínhamos as missões esporádicas, que na verdade eram saques brutais.
+Quer saber por que eu gostava tanto daquela nave? Tinha piscinas termais, comida boa, música, rum de qualidade e gente disposta a tirar a roupa sem fazer muita pergunta. De vez em quando mandavam a gente saquear algum lugar, mas, porra, era justamente essa a diversão de ser pirata.
 
-Para boa parte da tripulação, obedecer a Jelles ainda era obedecer à capitã Nastácia. Ela comandara a Lebargan até um ataque à nave deixá-la em coma. Desde então, Jelles ocupava seu lugar. Ninguém sabia quando ela voltaria, mas ele já se sentava como se o lugar fosse seu.
+A capitã Nastácia estava em coma desde que atacaram a Lebargan. Jelles assumiu o comando e boa parte dos Dales achava que obedecer a ele era o mesmo que obedecer a ela. O próprio Jelles parecia gostar bastante da ideia, a julgar pelo conforto com que ocupava o lugar da capitã. Ninguém sabia quando ela ia acordar.
 
-No perímetro, Dales mais velhos orientavam os jovens na arte da sobrevivência e da estratégia espacial. E lá estava ele, o Capitão Jelles, uma silhueta marcante contra as estrelas, observando minha chegada. Com um aceno, levei a nave à doca da popa, onde o chão se partiu para acolher meu retorno. Pousei com a dignidade dos conquistadores e desafivelei os cintos, ansioso pelo reencontro.
+No perímetro da Lebargan, os Dales mais velhos ensinavam a molecada a sobreviver e a se virar no espaço. O capitão Jelles observava minha chegada. Acenei pra ele e guiei a nave até a doca da popa, onde o chão se abriu pra me receber. Uma subnave saía da plataforma vizinha. Ajustei o impulso lateral, deixei que passasse e girei a minha antes de descer. Quando o encarregado da doca terminou de indicar a posição de pouso, eu já tava com os apoios no lugar. Assim que pousei, me livrei dos cintos. Tava louco pra ver a cara do Vek quando soubesse da adaga.
 
-Vek estendeu a mão, esperando um cumprimento digno. O que recebeu foi um aperto gosmento que o fez repensar a vida.
+Vek estendeu a mão e eu apertei com vontade. Ainda tinha gosma de Domongo entre os dedos. Podia ter limpado a mão antes, mas aí eu perderia a cara que ele fez.
 
-— Que diabos é isso? — Vek indagou, limpando a mão na calça.
+— Que merda é essa? — Vek limpou a mão na calça.
 
-— Gororoba de Domongo — respondi com um sorriso maroto — Não faça essa cara, Vek. Lembra daquela vez que aquele alienígena vomitou larvas no seu capacete? Essa gororoba nem se compara. Ah, e por falar nisso, parece que perdi sua adaga.
+— Gororoba de Domongo. Não faz essa cara, Vek. Lembra quando aquele alienígena vomitou larvas no seu capacete? Você já pegou em coisa pior. Ah, antes que eu esqueça, perdi sua adaga.
 
 — Droga, Jasmey, aquela era minha favorita.
 
-— Vai ter que achar outra. E meu chapéu, onde está? — perguntei.
+Vek abriu a mão, como se ainda esperasse que eu entregasse a adaga.
 
-— Onde você sempre deixa — Vek indicou, apontando para um gancho isolado na parede onde meu chapéu branco aguardava. Aproximei-me, parando ao lado dele, esperando.
+— Pelo menos matou o bicho com ela?
 
-— Coloca ele na minha cabeça — exigi.
+— Ajudou bastante.
 
-Vek, ainda com as mãos pegajosas, aproximou-se relutante e ajeitou o chapéu sobre meus cabelos. Ignorando a sensação desconfortável que deixou em minha cabeça, caminhamos pelos corredores metálicos até o depósito.
+— Então me arranja uma melhor.
 
-— Olha só quem decidiu aparecer — Amanda provocou assim que me viu, afastando do rosto os cabelos castanho-claros que lhe batiam nos ombros. As sobrancelhas levemente grossas se ergueram sobre os olhos da mesma cor, acompanhando o sorriso irônico. — E, como de costume, um espetáculo de horror.
+— Justo.
 
-— Minhas missões são rápidas, a não ser que envolvam uma dama encantadora — retruquei, devolvendo o sorriso com um charme forçado.
+— Arranja outra. Cadê meu chapéu?
 
-— Já ouvi dizer que seu “talento” é tão pequeno quanto uma agulha — ela zombou, ainda sorrindo.
+— Onde você sempre deixa.
 
-— Já sentiu a picada aguda de uma agulha? — rebati, elevando uma sobrancelha em desafio.
+Vek apontou pro gancho na parede. Lá estava meu chapéu branco. Parei do lado dele.
 
-— Oh, eu pagaria para ver — ela riu, me dando um soco leve no braço. — E então, como foi “lá embaixo”?
+— Coloca aí pra mim.
 
-— Repugnante. Montei numa cobra voadora, quase caí, ganhei um olho. No fim das contas, um saldo positivo. — revelei, mostrando o olho grotesco que segurava. — Sim, eu matei a criatura. Tentou me devorar, mas falhou miseravelmente.
+Vek fez uma cara de poucos amigos e colocou o chapéu na minha cabeça. O filho da mãe ainda deixou gosma no meu cabelo. Merecido, talvez. Fomos até o depósito.
 
-— Cosmos, por que eu perguntei? — Amanda suspirou, cobrindo o rosto com a mão.
+— Olha só quem resolveu aparecer.
 
-— Depois te conto os detalhes. Preciso entregar isso ao Jelles, estou morrendo de fome. O que temos para o almoço hoje?
+Amanda afastou os cabelos castanho-claros do rosto. Ergueu aquelas sobrancelhas grossinhas, me olhou de cima a baixo e abriu um sorriso.
+
+— E continua um espetáculo de horror.
+
+— Costumo terminar rápido. A não ser que tenha uma dama envolvida.
+
+— Já me disseram que o seu talento é do tamanho de uma agulha.
+
+— E desde quando uma agulha precisa ser grande pra fazer alguém gritar?
+
+— Eu pagaria pra ver isso. — Ela me deu um soco no braço. — E aí, como foi lá embaixo?
+
+— Uma merda. Montei numa cobra voadora, quase me espatifei no chão e arranjei um olho. Quer ver?
+
+Mostrei o olho pra ela, aproveitando a cara que fez.
+
+— A dona dele tentou me comer. Acabei matando a coitada.
+
+— Cosmos, por que eu fui perguntar?
+
+— Depois eu te conto a parte boa. Preciso levar isso pro Jelles. Tô cagado de fome. O que tem pra comer?
 
 — Bom, à esquerda tem silvadinha com carne de lisotos e à direita, um mexido de ervas com leite de mamério.
 
 — Aposto que os veganos vão fazer um escândalo.
 
-— Esses malucos já deveriam ter sido chutados da Lebargan há tempos.
+— Já deviam ter chutado esses malucos da Lebargan faz tempo.
 
-— E se quisessem te expulsar por gostar dos seus iguais? — provoquei, encarando-a.
+— E se resolvessem te chutar daqui porque você gosta de mulher?
 
-— Já tivemos alguém como eu no comando da Lebargan, caso tenha esquecido.
+— Já teve gente como eu comandando a Lebargan, caso você não se lembre.
 
-— Ah, o lunático que segregou mulheres dos homens na nave e as escravizou, pensando que homens poderiam viver sem elas, certo?
+— O maluco que separou os homens das mulheres e escravizou as coitadas porque achava que homem não precisava de mulher? Grande exemplo, Amanda.
 
-— Éramos mergulhados em trevas naquela época. Hoje, o universo nos vê de outra forma, Jasmey. Até você, com sua pose de machão, tem seus momentos de fragilidade. Os nativos, por exemplo, só estão vivos por conta de seu lado sensível.
+— Era outra época, Jasmey. Olha como o universo vê a gente hoje. As coisas mudam. Até você, com essa pose de machão, deixou os nativos vivos. Não vem me dizer que foi por falta de pontaria.
 
-— Porra de lado sensível, Amanda. O relatório tá feito da forma correta. E eu só não os matei, porque não tinha necessidade alguma. Aquela não era a missão. Mas nunca hesitei em puxar o gatilho quando a missão é essa. Eu só agi do jeito que meu instinto pirata me manda ser. É a terceira regra, não é?
+— Pose de machão é o caralho, Amanda. O relatório tá feito. A missão era pegar o olho e eu peguei o olho. Se a missão fosse matar aqueles bichos, eu matava. Nunca tive problema em puxar o gatilho. Agora, pra que gastar munição à toa? Um pirata faz o que o instinto manda, não faz? Terceira regra.
 
-— As regras não devem ser interpretadas de forma que uma anule a outra. Qualé, Jasmey. Você sabe o quanto o capitão é duro quanto às duas primeiras regras. Se Jelles descobrir...
+— Uma regra não apaga a outra. Qualé, Jasmey, você sabe muito bem o que o capitão acha das duas primeiras. Se o Jelles descobrir...
 
-— Descobrir o quê? — interrompeu-nos uma voz familiar, repleta de desdém — Que o Jasmey é uma bicha? Que ele faz o trabalho que seria das mulheres? — Genrir escarnecia, o Dale mais insolente que já conheci. Suas provocações eram constantes, apesar das inúmeras vezes em que o coloquei no lugar.
+— Descobrir o quê? Que o Jasmey é uma bicha? Que tá fazendo serviço de mulher?
 
-— Algum objeto pontiagudo para eu arrancar a garganta desse idiota, Jasmey? — Amanda perguntou, sem perder a compostura.
+Genrir. Reconheceria aquela voz de merda mesmo que estivesse do outro lado da nave. Já tinha perdido a conta de quantas vezes coloquei aquele sujeito no lugar dele.
 
-— Não preciso de nada pontiagudo. Minhas mãos são suficientes — assegurei.
+— Tem alguma coisa pontuda aí, Jasmey? Tô com vontade de arrancar a garganta desse idiota — Amanda falou.
+
+— Pra ele? Minhas mãos dão conta.
 
 — Dizem que você falou de mim na reunião. Que se tornou o queridinho do Jelles.
 
-— Capitão Jelles — Amanda corrigiu com firmeza. — Se falar assim na frente dele, você será jogado no vácuo sem pensar duas vezes.
+— Capitão Jelles — corrigiu Amanda. — Fala assim na frente dele pra ver se não te jogam no vácuo.
 
-— Cala a boca, não estou falando contigo — Genrir rosnou, mas notei pelo canto do olho Amanda pronta para agir. — Você me jogou lá embaixo pra brincar de mecânico enquanto vocês se divertem. Tá achando que sou seu cãozinho?
+— Cala a boca, não tô falando contigo. — Vi Amanda se mexer do meu lado. — Você me jogou lá embaixo pra brincar de mecânico enquanto vocês se divertem. Tá achando que sou seu cãozinho?
 
-— Exatamente — confirmei, sem rodeios. — Pra ser sincero, eu só não queria você trabalhando comigo.
+— É. Quer que eu te arranje uma coleira também? Eu só não queria você trabalhando comigo.
 
 — Seu desgraçado. E não treino, não me divirto, não fodo. Vou apodrecer lá embaixo por sua culpa.
 
-— Olha, trabalho é trabalho. Você tem teto e comida, não é? — respondi, tentando manter a calma. — Se estiver muito ruim, posso descer com umas garrafas... talvez uma ou duas vezes por meado de momento.
+— Você tem teto e comida, Genrir. Se tiver muito ruim, eu levo umas garrafas lá embaixo. Uma ou duas vezes por meado de momento. Não vai dizer que não cuido de você.
 
-— Você está sendo generoso demais, Jasmey — Amanda interveio.
+— Tá sendo até generoso demais, Jasmey.
 
 — Vão se foder, você e essa megera — Genrir cuspiu ao pé dos meus sapatos. — Tive que vir ver de perto... dizem que o cão de estimação do capitão agora late ordens. Precisava ver a cara do “queridinho” pra poder imaginar a feiura da sua mãe.
 
-Ignorei a provocação, contendo um riso enquanto ele se virava. Passei o olho grotesco para Amanda, que torceu o rosto em desgosto, e segui Genrir. Antes que ele pudesse reagir, enlacei meu braço ao redor de seu pescoço, derrubando-o com força. Genrir se debateu, tentando em vão se soltar, até que me mordeu, forçando-me a afrouxar o aperto. Ele se virou com um soco, me derrubando. Rapidamente, ambos nos levantamos e avancei, derrubando-o novamente. Lutamos até que ele me imobilizou. Em desespero, meus dedos encontraram algo pontiagudo no chão, e sem hesitar, o cravei em seu rosto. O grito de Genrir e o jorro quente de seu sangue sobre mim foram quase instantâneos. Ele recuou, agonizando, mas sua raiva o impeliu a atacar novamente, até que finalmente o imobilizei, sua consciência quase esvaindo.
+A parte da minha mãe eu deixei passar. Nunca conheci a mulher. Vai que o filho da puta tinha razão e ela era feia mesmo? Agora, o resto da conversa já tinha me enchido o saco. Entreguei o olho de Domongo pra Amanda e fui atrás do Genrir. Ela ainda tentou pegar a coisa pela parte menos gosmenta, mas não havia parte menos gosmenta. Quando alcancei Genrir, passei o braço em volta do pescoço dele e o derrubei. O desgraçado me mordeu e, quando afrouxei o braço, virou e me acertou um soco que me mandou pro chão. Nos levantamos quase juntos. Parti pra cima dele outra vez. Acabamos embolados no chão até que ele conseguiu me imobilizar. Tentei alcançar qualquer coisa que estivesse por perto e meus dedos esbarraram num objeto pontudo. Cravei no rosto dele. Genrir berrou e o sangue quente espirrou na minha cara. Achei que já tinha entendido o recado, mas o infeliz ainda veio pra cima de mim. Só parou de lutar quando consegui imobilizá-lo de novo. Ele já tava quase apagando.
 
-A briga foi interrompida pela chegada imponente do Capitão Jelles. Aquele homem cortava a tensão como faca em manteiga espacial. Todos ao redor se alinharam, e soltei Genrir, que se arrastou para longe, a mão cobrindo o ferimento. Bom pra ele, pelo menos sobrou um olho para contar a história.
+Foi nessa hora que apareceu o capitão Jelles. Bastou o homem chegar pro pessoal se alinhar no corredor. Soltei Genrir e ele se arrastou pra longe, com a mão no rosto. Pelo menos ainda tinha um olho. Eu, por outro lado, tinha acabado de arranjar mais sangue pra limpar.
 
 — Chega dessa palhaçada na minha nave, Jasmey — a voz do Capitão Jelles cortou o corredor.
 
-Recuei, me juntando a Amanda, que me devolveu o olho ensanguentado.
+Fui pro lado da Amanda e ela me devolveu o olho de Domongo. Tive que ajeitar a respiração antes de abrir a boca. A última coisa que eu queria era chegar diante do capitão bufando por causa do Genrir.
 
-— Tenho o item, capitão — anunciei, buscando recuperar alguma dignidade.
+— Tenho o item, capitão.
 
-Jelles me estudou por um momento, sua expressão inescrutável, antes de pegar o olho e inalar seu aroma bizarro.
+Jelles me examinou por um instante, pegou o olho e chegou a cheirar aquela merda. Eu já tinha passado tempo suficiente com aquilo na mão pra saber que não era uma boa ideia. Amanda estendeu discretamente um pano na minha direção. Quando fui pegar, vi que ela tava olhando pro sangue do Genrir na minha roupa, não pra gosma. Limpei o que consegui antes que o capitão voltasse a falar.
 
-— Isso será útil. Quero você e os outros dos 9 no salão do conselho, imediatamente.
+— Isso será útil. Quero você e os outros membros dos Nove no salão do conselho, imediatamente.
 
-— À sua ordem, capitão — concordei.
+— À ordem, capitão.
 
 Jelles ainda me encarou.
 
 — Missão cumprida?
 
-— Conforme as ordens, capitão — a mentira saiu lisa, mas seu sorriso sutil sugeriu que ele via além.
+— Conforme as ordens, capitão.
 
-— Bom trabalho, garoto. E você — sua atenção se voltou brevemente para Genrir, ainda se contorcendo de dor — volte ao trabalho.
+Ele sorriu de um jeito que me fez ficar bem quietinho. Melhor não dar detalhes que ninguém tinha pedido.
 
-Jelles se afastou entre os Dales. Havia um quê de ameaça naquela calma.
+— Bom trabalho, garoto. — Jelles olhou pro Genrir, que ainda tava no chão. — E você, volte ao trabalho.
 
-— Lembre ao seu irmão da reunião no salão do conselho. Cuidarei de avisar os outros — falei, virando-me para Amanda, cuja expressão misturava frustração e preocupação.
+Jelles passou entre os Dales. Genrir ainda tava no chão, com a mão no olho, e o pessoal abriu espaço pro capitão passar.
 
-— Maldição! — ela praguejou. — Se eu encontrar o Eric no quarto de novo com aquelas putas...
+— Avisa teu irmão da reunião no conselho. Eu aviso o resto.
 
-— Faça o que deve ser feito, irmã — aconselhei, fingindo seriedade.
+— Porra! Se eu encontrar o Eric no quarto de novo com aquelas putas...
 
-Amanda partiu com um aceno relutante. Segui pelo corredor até a cabine do mensageiro e pedi que a convocação fosse feita: todos os 9 deveriam se apresentar no salão do conselho sem demora.
+— Faça o que deve ser feito, irmã.
 
-Enquanto retomava o caminho, a voz envelhecida, mas ainda vigorosa, do Sr. Peron cortou o ar. Um dos mais antigos ainda vivos na Lebargan, ele completava seus 2 tempos e 5 momentos na nave.
+Fiz a cara mais solene que consegui. Ela que se entendesse com as putas do Eric.
 
-— Ah, o notório Badrock — ele riu, um som carregado de lembranças e resignação.
+Amanda foi atrás do irmão. Passei pela cabine do mensageiro e pedi que convocassem os Nove pro conselho.
 
-Ao me virar, vi Sr. Peron, mais curvado do que eu lembrava. Trazia uma faixa de pó avermelhado na manga do uniforme. Mesmo perto do retiro, continuava indo ao depósito antigo de manutenção, sob a torre de Belzetar, onde empilhavam peças que ninguém sabia mais para que serviam. Eu teria usado minhas últimas voltas para beber, mas cada um escolhe a própria diversão.
+No caminho, ouvi uma voz que conhecia desde moleque. O Sr. Peron era um dos Dales mais antigos ainda vivos, com dois tempos e cinco momentos de Lebargan.
 
-— Sr. Peron, um prazer como sempre. Como está meu mestre ilustre?
+— Ah, o notório Badrock!
 
-— Extraindo o máximo dessas últimas voltas — respondeu, com um sorriso cansado.
+O velho tava mais curvado do que eu lembrava, com uma faixa de pó vermelho na manga do uniforme. Continuava frequentando aquele depósito de manutenção sob a torre de Belzetar, onde guardavam peças que ninguém sabia mais pra que serviam. Eu, nas últimas voltas de vida, ia querer ficar tão bêbado que não lembrasse nem o meu nome. Peron sempre foi diferente.
 
-— Ah... sim — respondi, recordando que Sr. Peron estava prestes a se aposentar. — Sinto muito. Quando vai ser?
+— Sr. Peron! Como anda o melhor Dale dessa nave?
+
+— Aproveitando o que resta dessas voltas, rapaz. — Ele sorriu, cansado.
+
+— Ah... é. Me desculpe. Quando vai ser?
 
 — Amanhã, ao fim da volta — disse ele.
 
-Olhei para ele, incrédulo. Já amanhã? Respirei fundo.
+Amanhã? Merda. Eu sabia que tava perto, mas não tinha me dado conta de que faltava tão pouco. Olhei pro velho, tentando imaginar quem ainda viria se despedir dele.
 
 — Quem vai estar lá? — perguntei.
 
 — Não espero muitos. Os tempos mudaram, e poucos dos meus restaram — disse ele.
 
-— Se importaria se eu fosse? — perguntei.
+— Se importa se eu for?
 
 Sr. Peron baixou o olhar.
 
 — Não é algo agradável de se ver, Jasmey.
 
-— Seria uma honra estar ao seu lado neste momento, Sr. Peron.
+— Eu quero estar lá com o senhor, mesmo assim.
 
-Ele assentiu, um gesto de reconhecimento e respeito mútuo. Peron havia sido uma lenda, um dos melhores Dales da Lebargan e, acima de tudo, um homem honroso, bondoso e gentil. Nas voltas de hoje, quase ninguém mais o reconhecia.
+Ele assentiu. Tinha sido um dos melhores Dales da Lebargan. Sempre me tratou bem, até quando eu era um moleque que só fazia merda. E agora passava pelos corredores e quase ninguém sabia quem ele era.
 
-— É bom ter as pessoas certas ao seu lado no final — disse Sr. Peron.
+— É bom ter as pessoas certas ao seu lado no final.
 
-Mesmo que estejam cobertos de gosma e dívidas morais. Sr. Peron… aquele homem era um verdadeiro Dale. Se eu era uma lenda, ele era a lenda.
+Olhei pra minha roupa, coberta de gosma e sangue. Tinha acabado de voltar de uma missão de categoria A, todo convencido, e o Sr. Peron ainda conseguia fazer com que eu me sentisse um moleque da Ala 66. Se eu era uma lenda, então o que dizer daquele velho?
 
-— É verdade — concordei. — Sabe, se eu tivesse o poder de mudar as coisas, Sr. Peron, acabaria com isso. O senhor merecia muito mais, depois de tudo que fez pela Lebargan e pelos Dales.
+— Se eu mandasse nessa nave, Sr. Peron, acabava com essa merda. Depois de tudo que o senhor fez pela Lebargan, merecia muito mais.
 
 Peron me encarou.
 
-— Mais? — Peron riu pelo nariz. — Justiça é uma palavra que se perdeu nos corredores desta nave, rapaz. Dois tempos e cinco momentos nesta nave, rapaz, e amanhã me despedem com meia dúzia de gente olhando. A Lebargan já foi um lar. Quem não tinha para onde ir vinha para cá. Saíamos atrás de glória e de aventura. Hoje saímos porque mandam.
+— Mais? — Peron riu pelo nariz. — Dois tempos e cinco momentos aqui, rapaz, e amanhã me despedem com meia dúzia de gente olhando. A Lebargan já foi um lar. Quem não tinha pra onde ir vinha pra cá. A gente saía atrás de glória e aventura. Hoje sai porque mandam.
 
-Eu não o respondi imediatamente. Refleti, e então concordei:
+Não sabia bem o que dizer. Eu tinha ouvido aquelas histórias desde pequeno.
 
-— As histórias da velha Lebargan de fato pareciam mais interessantes. Mas aqui temos tudo o que queremos, Sr. Peron.
+— Pelas histórias que o senhor conta, até parece que era melhor mesmo. Mas, Sr. Peron, olha o que a gente tem aqui. Tá faltando o quê?
 
-— Você é um bom homem, Jasmey. Um guerreiro astuto. Sempre respeitoso comigo. Você tem um bom coração. Mas está perdido, como muitos aqui que acreditam que a luta deles é pela liberdade, quando não é.
+— Você é um bom homem, Jasmey. Sempre foi respeitoso comigo e aprendeu a se virar melhor que muito Dale por aí. Mas você e muitos outros acham que tão lutando pela liberdade. E eu acho que vocês tão perdidos.
 
-Mais uma vez não respondi, então Sr. Peron continuou.
+Fiquei olhando pra ele. Eu tinha acabado de arrancar um olho de um sujeito no corredor. Se o velho soubesse disso, será que ainda diria a mesma coisa?
 
-— Não se esqueça do que esta nave um dia foi. Não é o ouro nem o poder que fazem um capitão, é o que ele deixa para trás — com hesitação, ele me estendeu um saco que retirou dos bolsos, as mãos trêmulas. — Acho que... queria que ficasse com isso.
+— Só não se esqueça da Lebargan que existia antes de você chegar. Ouro e poder não dizem muito sobre um capitão, rapaz. Quero que fique com uma coisa.
 
-Ele sorriu, os olhos úmidos. A mão tremia ao me passar o saco.
+Ele tirou um saco do bolso e me estendeu com a mão trêmula. Tava com os olhos úmidos. Peguei o saco com cuidado.
 
 — O que é isso? — perguntei.
 
-— Algo para lembrar de mim... e do que eu fui para esta nave. Carregue consigo, mas não o exiba por aí. Costuma dar sorte a quem tem consigo.
+— Uma lembrança minha, rapaz. E do que eu fui pra esta nave. Leve com você, mas não saia mostrando por aí. Costuma dar sorte.
 
 Dei uma olhada rápida dentro do saco, mas não consegui distinguir o que era.
 
-— Obrigado por tudo, Sr. Peron — agradeci.
+— Obrigado por tudo, Sr. Peron.
 
 Ele me deu um tapinha no ombro.
 
 — Não quero ver você chorando. Se chorar, perde meu respeito — disse ele.
 
-— Pois pode ficar tranquilo, Sr. Peron. É mais fácil me ver correr nu pela Lebargan, do que chorando — brinquei.
+— Pode ficar tranquilo, Sr. Peron. É mais fácil o senhor me ver correndo pelado pela Lebargan do que chorando.
 
-Com um último sorriso, Sr. Peron se afastou. Guardei o saco com cuidado.
+Ele sorriu e foi embora. Fiquei com o saco na mão por mais um instante, depois o guardei e segui pro conselho.
 
-Ao chegar no salão do conselho, pendurei minha jaqueta marcada pelos recentes confrontos à entrada, vestindo apenas a regata, outrora branca, agora marcada pelo sangue do Domongo e o de Genrir. O chapéu continuou onde estava: a gororoba de Domongo o colara ao meu cabelo, e eu não ia negociar meu couro cabeludo diante do conselho.
+No conselho, pendurei a jaqueta perto da entrada. A regata, que um dia tinha sido branca, tava manchada do sangue de Genrir e do Domongo. Tentei tirar o chapéu e desisti quando senti os cabelos puxarem. A gosma tinha colado aquela merda na minha cabeça.
 
-A sala do conselho era o tipo de lugar onde até os pensamentos suavam frio. O salão era grandioso, com duas portas robustas para que nenhum sussurro escapasse. As paredes de diamante, legado de Sacenis e da unificação das frotas Dale sob o estandarte da Lebargan, refletiam cada um de nós de todos os ângulos.
+O salão tinha duas portas grossas o bastante pra impedir que alguém escutasse do lado de fora. As paredes eram de diamante, herança de Sacenis e da época em que as frotas Dale se uniram sob a bandeira da Lebargan. Uma maravilha, a não ser quando você precisava se apresentar diante do capitão coberto de sangue. Era possível ver a minha cara de imbecil em praticamente qualquer direção.
 
-No extremo mais distante, uma modesta mesa redonda cercada de cadeiras ocupava o espaço, sob a sombra de um pedestal elevado. Lá, uma cadeira de pedra e uma mesa auxiliar esperavam pelo Capitão Jelles.
+No fundo havia uma mesa redonda com cadeiras. Acima dela, num pedestal, ficavam a cadeira de pedra do capitão e uma mesinha. Nós nove fomos tomando nossos lugares.
 
-Os demais membros foram preenchendo os lugares vagos até estarmos todos os nove reunidos, um círculo de guerreiros sob o olhar austero de nosso líder.
+Quando o último se sentou, Jelles começou.
 
-— Boa volta, senhores — Jelles iniciou, a voz ecoando nas paredes de diamante — Hoje, trago questões de suma importância. A começar por algo que tenho presenciado algumas vezes. Em breve nossa capitã estará acordada, e a ordem precisa ser mantida. Soldados feridos não servem para ser soldados — ele se virou para mim — isso inclui aqueles sem olhos.
+— Boa volta, senhores. Em breve teremos nossa capitã de volta e preciso tratar de um problema que tenho visto com frequência. Soldados feridos não servem para ser soldados. — Ele olhou pra mim. — Isso inclui aqueles sem olhos.
 
-— Foi para prevenir mais conflitos que sugeri a transferência de Genrir para as máquinas, capitão — intervim, a defesa pronta nos lábios.
+— Foi por isso que pedi pra mandar o Genrir pras máquinas, capitão. Pra evitar confusão.
 
-— Minhas observações, Jasmey, não se referem exclusivamente a Genrir, mas diretamente a você. Eric, Fejer, Genrir... sua propensão às brigas se tornou padrão. Sua sugestão de realocar Genrir foi atendida, e ainda assim, você lhe arranca um olho? Necessitamos de ordem, sobretudo com a iminente presença da capitã. Você me assegura que se comportará conforme esperado?
+— Estou falando de você, Jasmey. Eric, Fejer, Genrir... Atendi ao seu pedido, tirei Genrir do seu caminho e ainda assim você arranca um olho dele. Preciso de ordem nesta nave, especialmente com a volta da capitã. Posso contar com você ou não?
 
-— Absolutamente, capitão — confirmei, sem baixar o queixo.
+— Sim, capitão.
 
-A surpresa de Eric rompeu o silêncio subsequente.
+Eric se inclinou na cadeira.
 
-— Espera, o Jasmey foi o responsável pelo olho de Genrir? — — Que feito, arrancar dois olhos numa só volta.
+— E a nave que eu pedi pra testar, capitão? Voltou inteira, pelo menos?
 
-— Agradeça por não ter sido um dos seus — retorqui.
+— Está na doca, Eric. Badrock concluiu a missão.
 
-— Basta! Esse desrespeito é intolerável — Jelles cortou.
+— Claro. Quando aparece uma nave interessante, o Badrock conclui a missão.
 
-— Minhas desculpas, capitão — disse Eric.
+— Quer que eu deixe o assento ajustado pra você da próxima vez?
 
-Nesse momento, Jelles revelou o olho, colocando-o sobre a mesa.
+Eric passou a mão pelo queixo.
 
-— Sabem o que isto representa? — indagou o Capitão Jelles, erguendo o olho.
+— Foi você que arrancou o olho do Genrir? Dois olhos numa volta. Tá fazendo coleção agora, Badrock?
 
-— Um troféu bastante repulsivo, diria eu — lançou Nemes, arrancando risadas abafadas do grupo.
+— Agradece que nenhum deles era teu.
 
-— Senhores, o que têm em mãos é o mapa para o maior dos tesouros jamais encontrados — a voz de Jelles baixou, e todos nos inclinamos para ouvi-lo.
+Eric soltou uma risada curta e olhou pro capitão.
 
-— Um mapa? — questionou Eric — Essa coisa nos levará a um tesouro?
+— Basta!
+
+— Desculpe, capitão.
+
+Jelles pôs o olho sobre a mesa. Lá estava ele de novo.
+
+— Sabem o que é isto? — Jelles ergueu o olho.
+
+— Um troféu bem nojento, capitão — respondeu Nemes.
+
+Alguns riram.
+
+— Senhores, este é o mapa para o maior tesouro já encontrado.
+
+— Isso é um mapa? — perguntou Eric. — E a gente segue pra onde? Pro lado que ele estiver olhando?
 
 — Não a um tesouro qualquer, mas ao Tesouro. Alguém aqui sabe o que é o gerbe?
 
-— Sim — interveio Samara. — Relatos antigos descrevem o gerbe como o mineral mais precioso da galáxia, forjado junto ao início do universo. Sua raridade e valor são lendários.
+— O gerbe? Dizem que é o mineral mais valioso da galáxia, que se formou lá no começo do universo — respondeu Samara.
 
-— Precisamente. O gerbe representa uma fortuna incomensurável. Uma única grama financiaria tempos de sustento, pesquisa e armamento.
+— Com uma única grama, Samara, teríamos sustento, pesquisa e armamento por tempos.
 
-— Contos de fadas — desdenhou Fender. — Esse gerbe não existe. Muitos já perderam tudo em busca desse fantasma cósmico, sem nunca encontrá-lo.
+— Conto de fadas. Tem gente que perdeu tudo atrás desse gerbe, capitão. Até hoje ninguém achou porra nenhuma — Fender retrucou.
 
-— E se eu dissesse que ele existe, Fender? E que há um lugar, conhecido como a Aurora, abrigando toneladas desse tesouro, esperando por nós? Isso mudaria sua opinião.
+— E se eu dissesse que ele existe, Fender? Que há toneladas dele esperando por nós num lugar chamado Aurora?
 
 — Soaria como um sonho — admitiu Nemes.
 
-— Está dizendo que vamos nos dedicar a encontrar um tesouro de contos de fadas? — questionei, minha risada carregada de incredulidade. O silêncio que se seguiu foi sufocante, e todos os olhares convergiram para mim. Então completei minha frase, após limpar a garganta — capitão?
+— A gente vai atrás de um tesouro de conto de fadas?
 
-Jelles me encarou. Levantou-se, aproximou-se e parou ao meu lado.
+Dei uma risada e fui diminuindo o volume quando percebi que era o único rindo. Jelles já tava olhando pra mim.
 
-— Desculpe, capitão, mas acho que precisamos concentrar nossas forças em saques e missões mais importantes para a nossa colônia. Agora, um olho que serve como um mapa capaz de nos levar para um mineral tão raro que ninguém nunca o encontrou. Isso é sério? — respondi.
+— Capitão?
 
-Jelles me olhou nos olhos.
+Ele se levantou e veio até a minha cadeira.
 
-— Lembra-se de quando chegou à Lebargan, Jasmey? — perguntou Jelles — Lembra-se que não estava sozinho? Havia outras seis crianças contigo. E sabe por que apenas você permanece entre nós?
+— Desculpe, capitão. É que tem tanto saque que a gente podia fazer pra sustentar a colônia. Agora, mandar a frota atrás de um mineral que ninguém nunca viu, usando um olho de mapa? O senhor tá falando sério?
+
+— Lembra de quando chegou à Lebargan, Jasmey? Havia outras seis crianças com você. Sabe por que só você está entre nós?
 
 — Porque sobrevivi, capitão.
 
-— Não. Porque eu decidi que você viveria. Você não está nesta mesa por ser especial, mas porque eu quis. Não se esqueça de sua posição aqui. O mérito de matar o monstro é seu, Jasmey. Mas a glória é sempre do capitão.
+— Porque eu decidi que você viveria. Você está nesta mesa porque eu quis, Jasmey. Não porque seja especial. O mérito de matar o monstro é seu. A glória é sempre do capitão. Não confunda as duas coisas.
 
 Jelles respirou fundo antes de continuar.
 
@@ -254,45 +296,55 @@ Jelles respirou fundo antes de continuar.
 
 Vlad baixou a cabeça.
 
-— O cargo que ocupo, ao contrário, foi conquistado por méritos próprios. Como capitão desta nave, sou eu quem detém o controle absoluto, quem sustenta e provê para cada alma a bordo. Portanto, se eu ordeno a morte, mata-se sem hesitar. Se eu ordenar que enfiem as próprias mãos nos motores de plasma, espero só saber quem foi o primeiro. E se afirmar que para a nossa segurança, todos deverão comer toda merda da nave, eu espero todos os banheiros limpos e todos de barriga cheia. Compreende isso, Jasmey?
+— Eu conquistei meu cargo. Sou eu quem mantém cada um de vocês vivo nesta nave. Se eu mando matar, mata-se. Se mando enfiar a mão nos motores de plasma, quero saber apenas quem foi o primeiro. E se eu disser que, para nossa segurança, vocês precisam comer toda a merda da nave, espero encontrar os banheiros limpos e todos de barriga cheia. Entendeu, Jasmey?
 
-— Claro, capitão — respondi, sustentando seu olhar penetrante com uma firmeza igual.
+— Claro, capitão.
 
-Cap. Jelles então começou a caminhar entre nós, falando devagar:
+Mantive o queixo erguido. Pelo canto do olho, vi que ninguém tava disposto a me salvar daquela conversa. Também não ia dar ao Jelles o prazer de me ver baixar a cabeça.
 
-— Certamente se questionam sobre como este olho nos conduzirá ao gerbe. A chave está na compreensão da essência deste olho. Segundo minhas fontes, este olho contém uma informação que pode nos dar a localização exata da Aurora.
+Jelles voltou a andar entre as cadeiras.
+
+— O olho contém uma informação. Segundo minhas fontes, essa informação pode nos dar a localização exata da Aurora.
 
 — E como é que conseguiremos essa informação de um olho? — perguntou Saezi.
 
-— A resposta está em um planeta chamado Dekraaz. Os Dekraazianos possuem uma forma de interpretar esse olho. Eles conseguem nos dar a resposta.
+— Num planeta chamado Dekraaz. Os Dekraazianos são capazes de interpretar o olho.
 
-— Então, precisaremos desses Dekraazianos para localizar o tesouro? — indagou Eric.
+— Então a gente precisa desses caras pra achar o tesouro? — perguntou Eric.
 
-— Precisamente — confirmou o capitão, a convicção em sua voz. — Os Dekraazianos residem a aproximadamente 551 parsecs daqui, no confim do braço Menor da galáxia.
+— Precisamente. Dekraaz fica a aproximadamente 551 parsecs daqui, no extremo do braço Menor da galáxia.
 
-— E pretendemos coagir os Dekraazianos a nos revelarem o caminho para Aurora? — questionou Samara.
+— E se eles não quiserem mostrar o caminho pra Aurora? Vamos obrigar os Dekraazianos? — perguntou Samara.
 
-— Detecto um vislumbre de compaixão em suas palavras?
+— Está preocupada com eles, Samara?
 
-— Jamais, capitão. Foi apenas uma questão — Samara apressou-se a esclarecer, mascarando sua hesitação com uma risadinha nervosa.
+— Não, capitão. Só perguntei.
 
-Com passos calculados, Cap. Jelles se aproximou de Samara, seus dedos deslizando pelos cabelos dela num gesto que oscilava entre a ameaça e o carinho.
+Ela ainda tentou rir.
 
-— Veja, Samara, não ambicionamos o gerbe por necessidade, mas por sermos quem somos: piratas. Buscamos a Aurora para reafirmar nosso domínio, para mostrar a amigos e inimigos que a Lebargan é uma força indomável. Não há espaço para piedade em nosso credo. E destruiremos qualquer um que ousar desafiar essa verdade, seja um habitante planetário... ou um dos nossos.
+Jelles se aproximou de Samara e passou os dedos pelos cabelos dela. O sorriso dela desapareceu.
 
-— Sim, capitão — Samara assentiu.
+— Samara, não precisamos do gerbe. Vamos buscá-lo porque somos piratas. Quero que nossos aliados e nossos inimigos saibam do que a Lebargan é capaz. Quem tentar nos impedir será destruído. Um Dekraaziano ou um dos nossos, para mim dá no mesmo.
 
-— Se o Jasmey se afrouxar, pode deixar que eu cuido dos Dekraazianos, capitão — provocou Eric, com um brilho astuto no olhar.
+— Sim, capitão.
 
-— Acho que tá na hora de eu afrouxar minha mão na sua cara, Eric — retruquei.
+— Se o Badrock não der conta, pode me mandar, capitão.
 
-— Partimos em duas voltas — Jelles decretou, retornando ao trono de pedra.
+Eric endireitou o corpo na cadeira, esperando a resposta de Jelles.
 
-— Entendido, capitão — ecoamos em uníssono.
+— Continua falando, Eric. Daqui a pouco você vai ter um problema com os seus olhos também.
 
-Enquanto andava pela escuridão dos largos corredores de volta para os dormitórios, meu bracelete piscou. Tinha recebido uma mensagem. Ergui o braço e a exibi.
+— Partimos em duas voltas.
+
+Jelles voltou à cadeira de pedra.
+
+— Entendido, capitão — respondemos juntos.
+
+Eu voltava pelos corredores escuros pros dormitórios quando o bracelete piscou. Ergui o pulso e abri a mensagem.
 
 “01000100010001010101001101000001010000110100111101010010010100100100010101001110010101000100000101010010”
 
-— Que merda é essa? — perguntei, olhando para aquela sequência de uns e zeros sem entender. O remetente? Sem nome. Devia ser o idiota do Genrir me mandando códigos… mas como ele conseguiu enviar de forma anônima? Era impossível. Além disso, as mensagens eram rastreáveis… aquela… não exibia nem mesmo a localização. Quem quer que tinha me mandado aquilo, não queria ser descoberto.
+— Que merda é essa?
+
+Fiquei olhando aquele monte de uns e zeros. A primeira pessoa que me veio à cabeça foi o Genrir. Devia ter resolvido encher o meu saco com o olho que sobrou. Abri os detalhes da mensagem pra confirmar, mas não tinha nome do remetente, nem localização. Toda mensagem da Lebargan era rastreável. Como diabos aquela tinha chegado ao meu bracelete?
 
