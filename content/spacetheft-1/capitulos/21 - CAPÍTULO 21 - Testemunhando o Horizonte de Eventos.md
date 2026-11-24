@@ -1,540 +1,549 @@
-As armas estavam em mãos, agora era hora de seguir com o plano.
+Hardman trabalhava no bracelete que tínhamos recuperado. Mostrei a ele onde ficava o registro de identificação de Eric e indiquei a função que usávamos pra abrir as portas. Não adiantava tentar alterar os registros da Lebargan. Hardman só precisava recuperar a função de identificação do aparelho. Se o sistema central tivesse revogado o acesso de Eric, dependeríamos de alguém lá dentro.
 
-— Ok, temos as armas. Como iremos fugir? — perguntou Hardman.
+— Consegui preservar a identificação — disse Hardman. — Se o acesso já tiver sido revogado, porém, isto não abrirá coisa alguma. E sugiro que decidamos como sair daqui.
 
-— O plano é a doca — eu disse.
+— Voltamos pela doca. Pegamos a Princesa.
 
 — Eles sabem que vamos pra lá — disse Eric.
 
-— É a única forma de sequestrarmos uma nave — falei.
+— Tem outra nave naquela doca que sirva pra sete pessoas?
 
-— Como é? Vocês não têm um plano de fuga? — perguntou Hardman incrédulo — fazem um plano pra entrar, mas não sabem como sair?
+— Então nossa saída depende de os Dales ainda estarem ocupados com o tersário?
 
-— Eu nunca fui muito de seguir planos — falei — E até agora tudo tem dado certo.
+— Era o que eu esperava, Hardman.
 
-— Depois de ser morto duas vezes — riu Eric.
+— E agora temos um arsenal inteiro entre nós e a doca — Eric olhou pro corredor. — Vai dar trabalho.
 
-— Eu sabia que era uma missão suicida — resmungou Kord — vocês nos condenaram. A todos nós.
+— Eu avisei que não ia dar certo — disse Kord. — Não vou ficar aqui esperando aqueles filhos da puta.
 
-Se Jelles sabia que tentaríamos escapar por ali, os Dales estariam esperando, armados até os dentes. Passei os dedos pela alça do Gravitador.
+Passei os dedos pela alça do gravitador. A única outra saída que me veio à cabeça não era uma saída que eu tivesse vontade de usar.
 
-Então, uma voz familiar surgiu do meio da penumbra.
+Uma voz familiar veio do corredor.
 
-— Se for morrer tentando, ao menos tente com estilo, Badrock.
+— Vai morrer de novo, Badrock? Pelo menos tenta fazer direito dessa vez.
 
-Girei nos calcanhares. Genrir, o caolho, caminhava em minha direção, o tapa-olho reluzindo sob a iluminação bruxuleante. O sorriso irônico, cheio de dentes tortos e falhas, era o mesmo de sempre, mas a postura denunciava algo diferente.
+Genrir veio andando na nossa direção, com a arma abaixada. O tapa-olho continuava no mesmo lugar. O sorriso também.
 
-— Você veio perder o outro olho, Genrir? — perguntei, cerrando os punhos, pronto para um confronto.
+— Veio perder o outro olho?
 
-— Dessa vez, não Badrock. Eu quero sair daqui com vocês.
+— Não, filho da puta. Vim sair daqui.
 
-Meus olhos se estreitaram.
+Eric me olhou. Baixei o gravitador, mas mantive a mão no gatilho.
 
-— E não estou sozinho.
+— Trouxe companhia.
 
-Alguns passos rápidos atrás de Genrir denunciaram mais uma presença. Amanda surgiu e, sem hesitar, se jogou nos meus braços, abraçando-me com força. Fiquei rígido por um instante antes de retribuir, ainda tentando processar tudo.
+Amanda apareceu atrás dele. Antes que eu conseguisse dizer alguma coisa, ela me abraçou com tanta força que senti a ferida na perna. Retribuí o abraço.
 
-— Seu desgraçado, filho da puta. Achei que estava morto — resmungou ela, tentando esconder qualquer emoção.
+— Seu desgraçado. Achei que tinha morrido.
 
-— Eu até tentei. Mas me trouxeram de volta.
+— Também achei, querida.
 
-Amanda então se virou para Eric e, sem perder tempo, envolveu o irmão em um abraço apertado.
+Ela se afastou, examinou minha cara e o braço de metal, depois foi abraçar Eric.
 
-— Nunca pensei que fosse ficar feliz em te ver de novo — ela disse.
+— Nunca pensei que fosse ficar tão feliz em te ver.
 
-— Você tá bem — Eric riu, passando a mão pelo cabelo da irmã — isso que importa.
+— Você tá bem. Era o que eu precisava saber.
 
-Ela deu um leve soco no braço dele.
+Ela deu um soco de leve no ombro dele.
 
-— Da próxima vez que fugir… me leve junto.
+— Da próxima vez que fugir, me leva junto.
 
-Hardman cruzou os braços.
+Hardman olhou pro corredor. O alarme continuava tocando.
 
-— Ok, momentos de reencontro são adoráveis, mas eu só quero saber como diabos vamos sair daqui?
+— Desculpem interromper, mas como vamos sair daqui?
 
-Amanda ergueu o queixo, um brilho de confiança nos olhos.
+Amanda abriu a projeção do bracelete.
 
-— As barreiras da nave estão desativadas.
+— Tem gente nossa nos controles da barreira quântica. Desligaram a proteção externa.
 
-A encarei, desconfiado.
+— E quanto tempo conseguem manter aquilo desligado?
 
-— Temporariamente.
+— O suficiente pra gente sair, se tudo correr bem.
 
-Ela balançou a cabeça.
+Ela olhou pra Genrir.
 
-— Não. Até vocês saírem. — disse ela, me fazendo erguer a sobrancelha — Jasmey, você tem muitos aliados aqui dentro. Mais do que imagina.
+— Eu não fiz isso sozinha, Jasmey. Tem mais Dales dispostos a ajudar do que você imagina.
 
-Genrir endureceu a expressão.
+Genrir apontou pro corredor da doca.
 
-— Jelles sabe que vocês vão tentar fugir pela doca. Ele preparou um cerco. Se tentarem sair por lá, será um banho de sangue.
+— O Jelles mandou cercar a Princesa. Se voltar por ali agora, vai ter que matar metade dos teus admiradores.
 
-— Então qual é o plano brilhante? — perguntei, sarcástico.
+— E tu tem uma saída melhor, caolho?
 
-— A câmara de retiro — Amanda revelou.
+— A câmara de retiro — disse Amanda.
 
-O grupo trocou olhares. Eric assentiu, estava acostumado com a câmara.
+Eric assentiu. Olhei pro chão. Tinha pensado naquela mesma merda.
 
-— Você quer que a gente se jogue no vácuo? — O’reilly arqueou uma sobrancelha.
+— Câmara de quê? — perguntou O’reilly.
 
-— Não exatamente — ela retrucou. — Vocês vão sair pela câmara, e Genrir e eu pegamos duas naves para resgatar vocês do lado de fora.
+— É por onde retiram os mortos da Lebargan. Tem uma abertura pro espaço. Genrir e eu podemos retirar as naves da doca com nossas autorizações. Vamos levar a Princesa e outra embarcação até a câmara, pelo lado de fora. Eles ainda acham que estamos cumprindo ordens.
 
-— Não sei se sabe, queridinha, mas nós não sobrevivemos no vácuo do espaço — disse Hardman.
+— E como vamos atravessar o espaço? — perguntou Hardman.
 
-— Há trajes na câmara de retiro — afirmou Eric — deixamos em caso de algum problema técnico.
+— Tem trajes de emergência no armário da câmara — disse Eric. — E os propulsores deles funcionam sem o bracelete.
 
-— Como saberemos que vocês vão aparecer? — Kord questionou.
+— Se os guardas resolverem fechar aquela porta antes? — perguntou Kord.
 
-Amanda assentiu de lado.
+Amanda tocou o comunicador.
 
-— Não saberão. Somos piratas, querido.
+— Só saiam quando eu avisar que estamos em posição. Se não chegar nenhuma confirmação, não abram a comporta.
 
-Eu suspirei, massageando as têmporas.
+Genrir ergueu o próprio bracelete.
 
-— Isso está parecendo uma ideia minha.
+— Não demora, querida.
 
-— O que significa que pode funcionar — Eric retrucou.
+— Tu também não, Badrock.
 
-Vivian ergueu a mão e apontou para os gravitadores.
+Vivian apontou pros gravitadores e fez um sinal a Amanda.
 
-— Ela tem razão — traduziu Hardman — Fiquem com um dos gravitadores. Pode lhes ajudar na fuga.
+— Ela sugere que levem um — traduziu Hardman. — Poderá ser útil se alguma coisa bloquear a saída.
 
-Amanda apanhou um dos Gravitadores, enquanto Eric e Kord seguravam os outros dois.
+Passei meu gravitador à Amanda. Eric e Kord ficaram com os outros dois.
 
-— A gente se vê em algumas dezenas de ectons.
+— A gente se vê do lado de fora — disse ela.
 
-Os corredores inferiores da Lebargan eram uma colcha de retalhos de velhas naves unidas ao longo das eras, com cheiro de metal envelhecido e óleo lubrificante. Eu e Eric lideramos o grupo pelos labirintos de aço até a seção mais baixa.
+Eric entregou o gravitador que carregava ao O’reilly, pra ficar com as mãos livres quando chegássemos à câmara.
 
-Atravessamos a ponte metálica que ligava as naves Coreste e Poderosa Desenir, um vão imenso e deserto suspenso sobre o nada. O piso tremia sob meus pés e a escuridão quase nos engolia.
+Eric e eu conduzimos o grupo pelos corredores inferiores da Lebargan. As paredes mudavam de material conforme atravessávamos as naves incorporadas à frota. O cheiro de óleo e metal velho me era tão familiar quanto o do necroriano.
 
-Na entrada da Poderosa Desenir, a nave parecia mais sombria do que eu lembrava. O brilho espectral dos interiores de mármore refletia a luz azul dos painéis, e o corredor em espiral nos guiava para baixo, onde a câmara de retiro aguardava.
+Cruzamos a ponte entre a Coreste e a Poderosa Desenir. Buni olhou pro vão abaixo do piso e apertou o passo.
 
-— É bem ali — Eric murmurou.
+As paredes de mármore da Desenir ainda refletiam as luzes azuis do corredor em espiral. Dessa vez, não precisava consultar a hora pra saber que tava chegando à câmara de retiro.
 
-Diante de nós, a grande porta de metal reluzia. Eu ergui o braço e pressionei o bracelete modificado por Hardman contra o painel lateral. A luz piscou, um bip soou e a porta rangeu, se abrindo devagar.
+— Ali — disse Eric.
 
-A sala de retiro revelou-se numa luz azulada, silenciosa e serena. O vidro que ocupava a parede principal oferecia uma visão deslumbrante do planeta de gerbe. O lugar não me trazia boas lembranças: da última vez que estive ali, foi para me despedir de um amigo.
+Encostei o bracelete recuperado ao painel. O indicador ficou vermelho. Hardman conferiu a transmissão e tentou de novo. A voz de Amanda chegou pelo rádio.
+
+— Já liberaram o acesso à Desenir. Tentem agora.
+
+O painel aceitou a identificação do aparelho e a porta abriu.
+
+A luz azul da sala iluminou o chão. Pelo vidro, dava pra ver o planeta de gerbe. A última vez que estivera ali, o Sr. Peron tinha caminhado até a câmara sem pedir ajuda a ninguém. Evitei olhar pro lugar onde ele tinha se despedido de mim.
 
 Kord assobiou.
 
-— Parece um túmulo chique.
+— Parece um túmulo caro.
 
-Eric olhou para todos, seu semblante sério.
+Eric abriu o armário.
 
-— Os trajes estão ali — ele apontou para um armário da sala, onde alguns trajes espaciais estavam cuidadosamente alinhados.
+— Peguem os trajes. Confiram os reservatórios e os propulsores.
 
-Buni hesitou.
+Buni examinou um traje pequeno.
 
-— Tem tamanho pra você, grandão — disse Eric, retirando um dos trajes do fundo.
+— Tem um maior no fundo, Buni — disse Eric, puxando a peça.
 
-O traje era leve e flexível, quase uma segunda pele, com um brilho sutil que lembrava um holograma. Guardei o chapéu na mochila do traje. Após colocarmos os capacetes, o clima ficou pesado.
+Prendi o chapéu na mochila do traje, guardei o pequeno saco do Sr. Peron no bolso interno e conferi a vedação dos pulsos. Testei o rádio. Eric ajudou Buni a ajustar os propulsores e Vivian verificou a fivela dele.
 
-— Então, como vamos fazer isso? — Kord perguntou, sem paciência para explicações.
+— E agora? — perguntou Kord.
 
-Eric passou um olhar rápido para Vivian, que já estava de capacete e pronta para seguir com o plano.
+Eric foi até a alavanca da câmara e conferiu o indicador de pressão.
 
-— O segredo é que não há segredo. Quando a nave aparecer, esperamos a posição certa e aí é só ativar. Mas, lembrem-se, se abrirmos na hora errada, vamos ser jogados pelo espaço até a eternidade.
+— Esperamos a Princesa alinhar a câmara de acesso com esta abertura. Depois soltamos o ar e atravessamos com os propulsores. Não tentem corrigir a direção quando estiverem agarrados em alguém. Um movimento errado e a gente passa direto pela nave.
 
-Eric tirou o Olho do Domongo da bolsa e o estendeu a Vivian.
+Eric tirou o Olho do Domongo da bolsa e entregou a Vivian.
 
-— Ele só acende para você — disse. — Guarde, se eu não puder.
+— Guarda. Só você consegue fazer essa porra funcionar.
 
-Vivian o prendeu ao cinto e não disse nada.
+Ela prendeu o olho ao cinto.
 
-A tensão era quase insuportável. Fiquei observando a tela, os ectons passando lentamente, a mente em guerra com a chance de tudo dar errado. Mas não havia mais tempo para duvidar.
+O rádio estalou uma vez, mas não ouvi voz alguma. Ficamos esperando junto à primeira comporta. A sirene da nave mudou de tom.
 
-Ficamos imóveis, esperando que as naves se alinhassem. Durante ectons intermináveis, nada aconteceu. Só o som abafado da nave ao nosso redor.
+O’reilly aproximou Buni e Vivian da entrada. Hardman olhava pro indicador de pressão. Eric voltou a testar a alavanca.
 
-Então, pela janela, vi a primeira sombra se mover. A Princesa do Inverno apareceu diante de nós, acompanhada por outra nave. Eles estavam lá. A comporta exterior da Princesa do Inverno se abriu e aguardamos até que ela se alinhasse.
+A Princesa do Inverno apareceu pelo vidro, seguida de outra nave. Amanda falou pelo rádio:
 
-Eric abriu a primeira comporta, liberando uma leve corrente de ar para a sala. Meu coração acelerou. Sem pânico. Sem erros.
+— Tô alinhando a entrada. Genrir tá com a Fogo Pálido. Preparem-se.
 
-— Agora! — Eric gritou, puxando a alavanca da segunda comporta e o vácuo nos tragou.
+Entramos na câmara. Eric fechou a porta interna. O indicador desceu até a faixa de abertura externa.
 
-Com um movimento rápido, ele ativou o mecanismo de ejeção. As duas comportas se abriram à nossa frente, revelando o vasto abismo do espaço. Fomos imediatamente sugados para o vácuo.
+— Agora! — disse Amanda pelo rádio.
 
-Antes de a escuridão virar tudo, olhei para trás. Eric continuava junto à alavanca, o braço esticado, segurando a segunda comporta aberta para que ninguém ficasse preso do lado de dentro. Atrás dele, a porta da câmara estava se abrindo, e sombras de trajes pretos entravam.
+Eric acionou o mecanismo de ejeção e a comporta externa abriu. Os restos de ar escaparam junto com a gente. Ativei os propulsores do traje e apontei pra abertura da Princesa, a poucos metros de distância.
 
-Depois disso, não vi quase nada. Comecei a girar, vi Hardman se chocando com alguém, e então meu corpo bateu num metal duro, o que doeu. Olhei ao redor: todos estavam ali. A primeira comporta se fechou atrás de mim, selando o vazio que nos havia engolido.
+Antes de atravessar, olhei pra trás. A alavanca do mecanismo voltava à posição original sempre que Eric diminuía a pressão sobre ela. Ele continuava segurando a peça pra permitir que os últimos saíssem. A porta interna começou a abrir atrás dele, e vi dois trajes pretos entrando. Fiz sinal pra que viesse logo. Não sei se me viu.
 
-Assim que a segunda comporta se fechou, a gravidade artificial foi ativada e estávamos de novo na Princesa do Inverno, ofegantes.
+Hardman se chocou comigo. Agarrei o apoio da câmara da Princesa e puxei o engenheiro pra dentro. Buni veio logo atrás, segurando Vivian.
 
-O resto da equipe foi puxado para dentro enquanto as comportas se fechavam com precisão.
+Kord e O’reilly atravessaram a abertura e Amanda fechou a comporta externa. A pressão subiu e a gravidade artificial entrou em funcionamento.
 
-Eu olhei ao redor, tentando me recompor. Estávamos todos ali. O alívio era palpável, mas não havia tempo para comemorar.
+Caí de joelhos. A ferida na perna voltou a doer.
 
-Eu arranquei o capacete e soltei um suspiro longo.
+Conferi os outros. Faltava alguém.
 
-— Nunca mais — Hardman arfou, tirando o próprio capacete e se jogando no chão.
+Tirei o capacete.
 
-O’reilly riu, jogando a cabeça para trás.
+— Nunca mais — disse Hardman, apoiando as costas na parede.
 
-— Ah, eu não sei, acho que foi bem emocionante.
+O’reilly soltou o ar.
 
-— O que diabos é emocionante nisso?! — Hardman esbravejou, ofegante.
+— Todo mundo conseguiu?
+
+Ninguém respondeu.
 
 Amanda apareceu no corredor.
 
-— A segurança será ativada em alguns ectons, temos de nos afastar da Lebargan. Estão todos bem? — perguntou ela, seus olhos percorrendo em todos. Então percebi um vacilo em seu olhar — Onde está o Eric?
+— A proteção vai voltar. Temos que sair daqui. Cadê o Eric?
 
-Olhei ao redor. Eric não estava conosco.
+Me virei pra comporta.
 
-— Ele ficou na câmara — falei. — Eu vi gente entrando.
+— Ele ficou segurando a alavanca. Vi dois Dales entrando atrás dele.
 
-— Essa não. Rápido, para o comando.
+— Abre o rádio!
 
-Corri, acompanhado de Amanda e dos outros, e assumi o comando da nave. Enquanto nos afastávamos da Lebargan, procurei Eric no espaço. Girei os sensores. Revirei os rastreadores. Virei a nave e procurei. Não conseguia vê-lo.
+Corri pro comando e assumi os controles. Chamei Eric pela frequência dos trajes. Apontei os sensores pra câmara de retiro, procurei qualquer coisa que pudesse ter saído atrás de nós. A abertura já tava fechada.
 
-A voz de Genrir ecoou pelo comunicador:
+A voz de Genrir veio pelo rádio:
 
-— Está tudo certo aí? Podemos ir?
+— E aí? Vamos embora?
 
-Hardman se aproximou e pousou a mão no meu ombro.
+Hardman chegou à cabine e examinou a imagem da câmara.
 
-— Se pegaram ele, ele está vivo. Jelles não desperdiça prisioneiro.
+— Se foi capturado, ainda pode estar vivo.
 
-— Vamos voltar por ele — disse Amanda.
+— Vamos voltar — disse Amanda.
 
-— Se voltarmos agora, morremos todos — respondi. Não era o que ela queria ouvir. Era o que eu sabia.
+No monitor, duas naves começaram a se aproximar da região onde estávamos. O indicador da proteção externa mudou de cor. Não dava pra atravessar de novo sem ficar preso.
 
-Olhei para o chão, não aceitando que o tínhamos deixado.
+— Não por aqui. Se voltar agora, a gente perde todo mundo.
 
-Fiquei olhando para o painel, tentando ignorar o peso que puxava meu peito para o fundo do abismo. Ouvi Amanda ao meu lado, chorando. Cerrei os punhos. Eric sabia dos riscos. Sabíamos todos. A única coisa que eu podia fazer agora era garantir que essa perda não fosse em vão.
+Amanda apertou o braço da cadeira. Continuou chamando Eric pelo rádio. Não consegui olhar pra ela enquanto me afastava da câmara.
 
-Respirei fundo e assumi o controle.
+Acelerei a Princesa e conferi a rota mais próxima fora do alcance dos campos de captura.
 
-— Vamos para a superfície.
+— Vamos descer.
 
-Amanda limpou as lágrimas rapidamente e olhou para mim.
+— Descer onde?
 
-— Aonde estamos indo?
+Apontei pro planeta.
 
-— Vamos extrair um pouco do Gerbe — respondi sem rodeios, já programando as coordenadas no painel.
+— Ainda temos os gravitadores. A gente pode tirar o gerbe e sair pelo outro lado antes de restabelecerem os campos.
 
-Amanda franziu o cenho, o olhar duro.
+Amanda virou a cabeça pra mim.
 
-— O quê?
+— Você tá falando sério?
 
-— É o pagamento que todos estiveram de acordo ao aceitarem essa missão — expliquei. — Preciso honrar o que os prometi.
+— Prometi que ia tirar todo mundo daqui com o que veio buscar. E ainda temos que pagar o Mestre. Se o Eric estiver vivo, precisamos de uma nave e de gente disposta a voltar por ele.
 
-Ela balançou a cabeça, indignada.
+Ela negou com a cabeça.
 
-— Não. Nós precisamos fugir! O sistema deles será reestabelecido a qualquer momento. Se estivermos aqui, seremos incinerados.
+— Jasmey, ele tá lá dentro!
 
-Os motores zuniam, lembrando que o tempo estava correndo.
+Não tinha resposta que deixasse aquela decisão menos merda. Olhei pro Hardman.
 
-— Precisamos correr este risco — falei.
+— Quanto tempo pra extrair o suficiente?
 
-Amanda me olhou nos olhos.
+— Algumas dezenas de ectons, supondo que os gravitadores funcionem. Não posso prever quando os campos voltarão.
 
-— Meu irmão acabou de se sacrificar por nós, e tudo o que você consegue pensar é dinheiro?
+— Meu irmão ficou pra salvar vocês e você quer dinheiro?
 
-Aquelas palavras doeram. Engoli a dor e a culpa e encarei Amanda sem hesitação.
+Tirei a mão boa do comando por um instante.
 
-— Não é sobre dinheiro, Amanda. Eric se sacrificou pelo mesmo que todos nós — respondi. — Por um futuro.
+— Eu quero tirar o teu irmão de lá, Amanda. Mas não consigo fazer isso agora. Se tiver alguma outra ideia, me diz.
 
-Ela me encarou, a raiva queimando em seus olhos. Mas no fim, soltou um longo suspiro e desviou o olhar.
+Ela ficou olhando pro painel. Eric não respondia.
 
-— Faça o que quiser — murmurou.
+— Não demora.
 
-Apertei um botão e abri o canal de comunicação.
+Abri o canal de Genrir.
 
-— Genrir, prepare-se para descer ao planeta. Antes de sair, precisamos extrair um tesouro.
+— Caolho, vamos descer. Pega o gravitador que ficou com vocês.
 
-A Princesa do Inverno e a outra nave, Fogo Pálido, pairaram sobre o solo antes de descer lentamente. O trem de pouso afundou levemente na superfície, mas se estabilizou. O chão brilhava em tons iridescentes.
+A Princesa do Inverno e a Fogo Pálido pousaram na região onde tínhamos tentado extrair o gerbe. O’reilly trouxe o gravitador que Eric tinha lhe entregado. Agora tínhamos as três.
 
-Descemos rapidamente. O chapéu seguia preso à mochila, por mais ridículo que ficasse. Meu capacete filtrava informações na tela interna: pressão, temperatura, estabilidade do terreno.
+Vesti o capacete e desci. Hardman conferiu as leituras do solo e pediu que começássemos longe dos apoios das naves.
 
-Kord, Genrir e eu empunhamos os Gravitadores.
+Kord, Genrir e eu empunhamos os gravitadores.
 
-O nome da arma não fazia jus ao que ela era capaz de fazer. O Gravitador era um rifle largo e robusto, de núcleo alimentado por fusão magnética, que disparava campos gravitacionais controlados: movia objetos massivos ou criava vórtices que puxavam e empurravam o que estivesse por perto.
+Aquelas armas tinham um núcleo alimentado por fusão magnética. Podiam atrair carga, repelir estruturas ou concentrar forças em regiões pequenas. O problema não era erguer o gerbe, era arrancá-lo de uma superfície que não tinha cedido a ferramenta nenhuma.
 
-Apontamos os Gravitadores para o solo e ativamos.
+— Comecem com pouca potência. Se tirar uma placa, reduzam a atração antes de mover — disse Hardman pelo rádio.
 
-Os pulsos gravitacionais perfuraram o chão, cada um devolvendo um coice seco nos braços e nos pés. O gerbe, apesar de incrivelmente denso, foi sendo arrancado em placas maciças que quebravam como vidro. Mesmo com o peso reduzido, o material ainda era absurdamente pesado para movermos sem esforço.
+Disparei. O coice me fez recuar. Uma linha fina apareceu no chão e se prolongou até o ponto onde Genrir tinha disparado. A primeira placa se soltou. Mesmo com a força do gravitador reduzindo o peso, Buni teve de ajudar O’reilly a arrastá-la.
 
-Pensei em Zekko e no deserto que ele chamava de planeta. Extrair o gerbe era mais um dedo meu naquela ferida. Extraí mesmo assim.
+Pensei no que Zekko tinha contado sobre o próprio planeta. Ainda assim, voltei a apontar a arma pro chão.
 
-Começamos a arrastar os blocos até as naves, cada passo um esforço. O tempo parecia correr contra nós.
+Fomos levando as placas aos compartimentos de carga. Hardman conferia o peso no painel da Princesa e avisava quando era preciso mudar a distribuição.
 
-Buni carregava dois blocos de uma vez, a risada saindo em soluços pelo rádio do capacete. Pela primeira vez, ninguém pediu que ele parasse.
+Buni carregou dois blocos de uma vez. Ouvi a risada dele pelo rádio.
 
-Após três idas, as duas naves pareciam cheias o suficiente. Olhei ao redor.
+Depois da terceira ida, Hardman avisou que a carga já tava perto do limite que tinha calculado. O chão tremia de vez em quando, mesmo quando ninguém disparava.
 
-— Isso já é o suficiente! — gritei para os outros.
+— Chega! Voltem pras naves.
 
-Kord, no entanto, não ouviu. Ou melhor, ouviu, mas ignorou.
+Kord continuava com a arma erguida.
 
-Ele ainda estava coletando mais e mais placas, os olhos brilhando com a ambição.
+— Só mais uma, Badrock. Isso aqui vai pagar uma vida inteira!
 
-— Kord! — gritei.
+— Kord!
 
-Avancei até ele e o segurei pelo braço.
+Segurei o braço dele.
 
-— Eu disse, já chega!
+— O Hardman mandou parar. Já temos o suficiente!
 
-Ele me empurrou. Antes que eu pudesse reagir, o céu explodiu em fogo.
+Ele afastou minha mão. Um clarão atravessou o céu.
 
-Uma onda de chamas varreu o ar acima de nós, atingindo uma das naves. A explosão reverberou pelo solo, chacoalhando tudo ao redor. Todos se jogaram no chão instintivamente.
+O disparo acertou a Fogo Pálido perto do motor. O casco abriu, e parte da carga caiu pela lateral. Genrir recuou, berrando pelo rádio. Ainda bem que tava fora da nave.
 
-Então uma sombra começou a descer dos céus. Meus olhos se arregalaram para o nome na lateral da nave: Prosépina.
+Reconheci a embarcação que vinha descendo.
 
-A Prosépina pousou com precisão calculada, erguendo redemoinhos dourados de poeira de gerbe. O brilho da anã branca projetava sombras alongadas no solo metálico. Duas outras naves menores pousaram atrás, formando um cerco que eliminava qualquer fuga fácil.
+A Prosépina pousou. Duas subnaves menores se posicionaram atrás dela. Uma delas era a Orbe Azul.
 
-A rampa desceu lentamente e os primeiros Dales saíram, armados. Entre eles, rostos familiares: guerreiros que lutaram ao meu lado e agora apontavam armas para mim. Mas foi quando ele surgiu que o ar pareceu pesado demais.
+Os Dales desceram com as armas erguidas. Apontei a minha, mas não disparei. Reconheci vários dos homens que tavam ali.
 
-Jelles tinha a mesma postura impecável, a mesma confiança de sempre. O casco escuro do casaco quase tocava seus pés enquanto ele descia a rampa, cada passo carregado de domínio absoluto da situação.
+Jelles veio pela rampa da Prosépina, com o casaco preto e as luvas de sempre.
 
-Vivian me cutucou nas costas e apontou o chão. A anã branca esticava nossas sombras por metros. A de Jelles não alcançava o gerbe. Fingi não ver. Precisava dele falando.
+Vivian me cutucou e apontou pro chão. As sombras dos Dales acompanhavam os movimentos deles. A de Jelles não tava ali. Assenti de leve. Precisava que continuasse falando.
 
-— Piratas sempre são atraídos pelo tesouro, não é verdade? — Sua voz carregava um tom de desprezo divertido.
+— Deveria ter imaginado que o gerbe seria suficiente para fazê-lo voltar.
 
-Cruzei os braços, sem tirar os olhos dele.
+— Veio lutar comigo, capitão?
 
-— Estamos aqui Jelles, na frente dos Dales e da Lebargan. É a melhor hora pra finalmente termos nosso segundo round. É hora de você provar se realmente merece ser o capitão da Lebargan.
+— Desta vez tá todo mundo olhando. Vamos descobrir se merece mesmo o cargo.
 
-Jelles riu baixinho, balançando a cabeça.
+Jelles olhou pro solo.
 
-— Você é teimoso — Ele olhou ao redor, observando a poeira metálica do solo e o brilho peculiar do Gerbe. — Um adolescente em busca de vingança. Eu não me importo com você Jasmey. Se morre ou se vive. O que eu quero está debaixo dos seus pés.
+— Você ainda acredita que vim atrás de você, Badrock? O que quero está sob seus pés.
 
-Minhas sobrancelhas se franziram levemente.
+As linhas que tínhamos aberto no chão começavam a se alargar.
 
-— Você não sabe como acordar a besta. Vai fazer o quê? Destruir este planeta? — perguntei.
+— E como vai tirar essa coisa de lá?
 
-— Eu não preciso fazer nada. Vocês fizeram por mim — Ele passou as mãos pelas luvas negras, como se estivesse limpando algo invisível. — Quando extraíram o gerbe, desencadearam um desequilíbrio gravitacional que será sentido pela Besta. Ela está acordando, Jasmey.
+— As leituras das minhas naves confirmaram a concentração de massa ao redor do núcleo. Os pulsos dos gravitadores alteraram o equilíbrio dessa camada. Observem o que fizeram ao chão, Badrock. A Besta está acordando.
 
-Eu sentia o peso de suas palavras, mas minha paciência estava curta demais para joguinhos.
+Olhei pras fissuras. Hardman tinha razão em mandar parar. Não fazia ideia de que era aquilo que os disparos estavam provocando.
 
-— Você acha que pode ter controle das coisas, Jelles. Mas não tem. Nunca poderá controlar a mente das pessoas. Como nunca controlará esta criatura.
+— Então sabia que a gente ia roubar os gravitadores?
 
-Jelles pareceu se divertir.
+— Sabia que piratas não deixariam uma fortuna para trás. Se não tivessem feito o trabalho, meus homens o fariam.
 
-— A Besta é minha. Assim como a Lebargan.
+Ele abriu as mãos.
 
-Minha expressão não mudou, mas algo em meu peito se apertou.
+— Quando despertar, a Besta será minha.
 
-— Não. A Lebargan é dos Dales. Sempre será.
+— Essa nave é dos Dales, Jelles. Não é tua. E essa coisa aí também não.
 
-— Chega desse discursinho de herói. Você não é um herói Jasmey. Você matou mais do que qualquer um pode imaginar. Direta e indiretamente, as pessoas ao seu redor, todas morrerão. Porque você sempre tenta ser o que não é — Ele ergueu o olhar para o céu. — A sua morte seria um favor para os seus aliados.
+— Você fala como se tivesse preservado a vida de todos que o seguiram. Olhe para os seus homens. Quantos ainda estarão vivos quando terminar esta aventura?
 
-Olhei para trás, para Hardman, Amanda e todos os outros. Então me virei novamente para Jelles.
+Olhei pro Hardman e pra Amanda.
 
-— Se você conseguiu o que quer, por que está aqui?
+— E como o senhor vai controlar a Besta?
 
-— Porque quero presenciar este momento — disse Jelles — Quero vivenciar este despertar.
+— O Livro da Verdade é claro quanto ao destino de seu libertador. A Lebargan será o instrumento de meu poder.
 
-O sangue pulsou forte em meus ouvidos.
+Ele olhou pro planeta.
 
-— A destruição… é tão linda quanto a criação. Quando a Besta acordar… A Aurora deixará de existir. E sob controle da Lebargan estará a criatura mais destrutiva da galáxia. Chega de destruir planetas com gases tóxicos.
+— Não precisaremos mais recorrer à alteração molecular de atmosferas. Uma arma dessas faria o trabalho de toda uma frota.
 
-Um silêncio gélido tomou o ar. Eu podia sentir o olhar de Hardman nas minhas costas, mas não precisei me virar para saber o que pensava.
+Ouvi a respiração do Hardman no rádio. O sujeito tinha parado de falar.
 
-— Um gás — continuou. — Invisível, sem cheiro. Os pulmões queimam, os olhos sangram, e no fim… silêncio. Uma bela paz. Era bonito. Mas agora… o fogo é quem irá destruir.
+— O gás serviu durante muito tempo. Os planetas atingidos não ofereciam mais resistência. Mas não me interessa governar mundos vazios quando posso fazer com que se rendam.
 
-Foi então que olhei para Hardman. Ele tremia. Olhava para o vazio, sem ousar me olhar. Então me virei novamente para Jelles e entendi o que deveria fazer.
+Hardman deu um passo pra trás. Eu sabia no que tava pensando. Não tinha como fingir que não sabia mais.
 
-— Corram — gritei.
+— Voltem pras naves.
 
-Os outros hesitaram, mas não podiam se dar ao luxo de esperar.
+Kord olhou pra mim.
 
-— Fujam, agora!
+— VÃO! AGORA!
 
-Amanda olhou para mim, depois para Hardman, mas não disse nada. Hardman já estava correndo para a Princesa do Inverno, sem olhar para trás. Os demais hesitaram, mas aos poucos recuaram.
+Hardman correu pra Princesa. Vivian puxou Buni, e O’reilly levou Kord consigo. Amanda e Genrir seguiram atrás, desviando dos disparos. Vi os dois mudarem de direção quando chegaram perto da rampa da Prosépina.
 
-Os motores da Princesa do Inverno começaram a rugir, e eu soube que era o fim. Eles estavam indo embora.
+A Princesa decolou com os cinco a bordo. O motor da Orbe Azul começou a funcionar logo depois.
 
-Jelles observou a cena, satisfeito.
+Jelles acompanhou a saída da Princesa.
 
-— Parece que ninguém se importa com você.
+— Até eles compreenderam que não vale a pena morrer por você.
 
-Antes que eu pudesse reagir, ouvi o som cortante de um motor no ar. Olhei para cima e vi uma nave menor subindo logo atrás da Princesa do Inverno. Dentro dela, estava Vek. Ele estava os caçando.
+A Orbe Azul subiu atrás da Princesa. Reconheci a voz de Vek na frequência Dale, ordenando que o alvo fosse seguido. Pouco depois, ouvi que a Princesa tinha sido capturada pelo campo de Belzetar. Vek ordenou o retorno à doca. Não entendi por que o desgraçado não ficou perto da nave capturada.
 
-Eu estava diante de Jelles e uma tropa de Dales, sozinho, quando senti o chão começar a tremer.
+O chão tremeu. Os Dales que ainda estavam perto de mim ergueram a cabeça.
 
-O som profundo e vibrante vinha das entranhas do planeta, um aviso de que algo estava prestes a despertar.
+Uma fissura se abriu entre nós e as naves. Um ruído grave atravessou a superfície.
 
-Jelles sorriu de lado, como se aquilo fosse exatamente o que ele esperava.
+Jelles sorriu.
 
-— Parece que vamos ter uma bela vista.
+— Finalmente.
 
-Os Dales começaram a correr em direção às duas naves ao fundo. Mas eu não me mexi, tal como Jelles.
+Os homens começaram a recuar. Jelles não se mexeu.
 
-Por muito tempo, pensei que a única forma de derrubar Jelles era enfiando um punho na cara dele até que ele parasse de respirar. Mas agora, olhando ao redor, vendo os olhos dos Dales fixos em nós, percebi que minha luta nunca foi contra um homem. Era pela liberdade.
+Lembrei do Vek tentando me matar, do Dock com a espada e da Saezi estendida naquele asteroide. Enquanto o capitão pudesse ordenar que uns morressem pra preservar os outros, sempre teria alguém ali fazendo aquilo que eu fizera.
 
-— Você nunca teve coragem de me enfrentar, não é? — falei, minha voz ecoando no silêncio tenso.
+— Por que não veio pessoalmente, Jelles?
 
-Jelles arqueou uma sobrancelha.
+— Já o derrotei uma vez. Não preciso fazê-lo de novo.
 
-— Eu já te derrotei antes.
+Apontei a pistola.
 
-Sorri.
+— E lá no asteroide?
 
-— Não. Você teve medo Jelles. E está com medo de novo. Tanto medo, que nem sequer desceu aqui para me enfrentar de verdade.
+— Olha só, Dales. O capitão não desceu nem pra ver o que vai fazer com vocês.
 
-Retirei uma pistola do bolso e atirei em Jelles, o tiro o atravessando como se não o afetasse. Eu sabia, ele não se arriscaria em vir até aqui. Era um holograma projetado pelo bracelete de Jelles.
+Disparei. O projétil passou pela imagem de Jelles e acertou o chão atrás dele. Dois Dales olharam pro ponto do impacto, depois pro capitão.
 
-Os Dales começaram a murmurar entre si. Até mesmo aqueles que estavam prontos para abrir fogo hesitaram. Então tornaram a correr para a nave.
+— Puta merda, é uma projeção — disse um deles. Outro baixou a arma e correu pra nave restante. O resto foi atrás.
 
-— Covarde — murmurei, dando um passo à frente. — Que capitão condena seus homens dessa forma?
+— Vai deixar eles morrerem de novo?
 
-Mas antes que qualquer um pudesse reagir, o som de motores rugiu pelo ar.
+Ouvi os propulsores da Prosépina ligarem.
 
-A Prosépina se ergueu do chão. Os Dales estavam fugindo. O meu destino estava selado. Iria morrer ali naquele planeta. No entanto, a nave girou no ar e desceu diretamente na minha direção.
+A nave subiu alguns metros e girou em minha direção. Pensei que fosse disparar. Em vez disso, desceu até cobrir a linha de tiro dos últimos Dales.
 
-Os primeiros tiros foram disparados, mas foi contra o casco da Prosépina que bloqueou os disparos contra mim, protegendo-me.
+Os disparos bateram no escudo da Prosépina. Corri na direção da abertura inferior.
 
-A comporta inferior se abriu e eu ouvi uma voz.
+A voz veio pelo rádio.
 
-— Sobe logo, idiota! — Era Amanda.
+— Sobe logo, idiota!
 
-O vento quente da propulsão quase arrancou o chapéu da minha mochila enquanto eu corria, pulando para dentro da nave. A comporta se fechou no instante em que novos tiros cortaram o ar onde eu estava segundos antes. Quase. Mas “quase” não mata um Dale.
+Era Amanda. Acionei os propulsores do traje e me agarrei ao apoio da comporta. Genrir me puxou pra dentro.
 
-Lá dentro, Amanda estava nos controles, e Genrir, com seu jeito torto, me observava.
+Amanda tava no comando. O painel indicava autorização de emergência de oficial Dale. Genrir fechou a câmara e veio comigo.
 
-— Vocês não fugiram com os outros? — murmurei, arfando.
+— Como diabos roubaram a Prosépina?
 
-Amanda virou-se para mim, os olhos brilhando.
+— O capitão nem tava dentro dela. O piloto saiu armado atrás de vocês e deixou a nave pronta pra decolar. Genrir ainda tinha acesso de oficial. A gente aproveitou.
 
-— Você realmente achou que eu te deixaria para trás?
+Ela olhou pra mim.
 
-— E você ainda me deve um olho — resmungou Genrir, rindo.
+— E tu ainda me deve um olho, Badrock — disse Genrir.
 
-Mas antes que eu pudesse responder, o planeta inteiro começou a colapsar. Os tremores ficaram violentos. O solo abaixo das naves rachou em milhares de fissuras incandescentes. A nave subiu rapidamente para o espaço, enquanto erupções começavam a se formar. Então rochas foram se desprendendo do planeta e subindo em direção ao vácuo.
+O planeta estremeceu. A superfície se partiu em placas. A Prosépina subiu enquanto fragmentos de gerbe eram arremessados acima do solo.
 
-Então uma sombra negra colossal se ergueu das entranhas do planeta. Tentáculos de pura escuridão se desenrolavam ao redor, como um mar de trevas consumindo tudo. O próprio gerbe foi engolido, seu solo metálico afundando como areia movediça. Não havia olhos. Apenas um vazio profundo, uma presença esmagadora que nos fez sentir como insetos diante de algo incompreensível.
+Uma massa de escuridão saiu da abertura. Tinha extensões que lembravam tentáculos, embora eu não conseguisse distinguir seus limites. As regiões de gerbe em torno dela desapareceram. Amanda aumentou o impulso.
 
-Em um movimento rápido demais para algo daquela magnitude, a sombra se ergueu, atravessou o espaço e atingiu a anã branca.
+A sombra atravessou a distância até a anã branca. Os sensores perderam a leitura da estrela no ponto de contato.
 
-A estrela oscilou, incapaz de sustentar o próprio peso somado ao daquilo, e então começou a se dobrar sobre si mesma. Uma força invisível sugou tudo ao seu redor. Luz foi arrancada de sua superfície. As chamas brancas se apagaram, sugadas para dentro da escuridão. A estrela implodiu e um buraco negro nasceu.
+A luz se contraiu. O espectrômetro indicou uma variação de massa que não correspondia a nenhum fenômeno estelar que eu conhecesse. A anã branca desapareceu atrás de uma região negra, e um disco de matéria começou a se formar em volta dela. O alerta gravitacional da Prosépina identificou um buraco negro recém-formado.
 
-A onda gravitacional varreu o espaço como um tsunami invisível, distorcendo a luz e arrancando naves de suas rotas. A Lebargan oscilou, os escudos pulsando em tentativas desesperadas de manter a estabilidade, enquanto alarmes disparavam em todas as frequências. Mas o que realmente me fez prender a respiração foi ver a Princesa do Inverno presa num escudo da Lebargan, uma prisão translúcida e cruel. Eles não tinham conseguido escapar.
+A nave sacudiu. Os sensores recalcularam a trajetória. A Princesa do Inverno tava presa num campo de captura da Lebargan. Procurei a Orbe Azul. O sinal dela já aparecia junto à Lebargan. O Vek devia ter decidido salvar a própria pele.
 
-Minha mente girava até que meus olhos foram atraídos para uma silhueta no topo do mastro de defesa da Lebargan, a torre militar de Belzetar, que controlava os campos de captura. Jelles estava parado ali, imóvel, como se tivesse previsto cada um dos meus movimentos. Não parecia preocupado nem surpreso. Esperava por mim, como um jogador que sabia que sua peça mais importante estava prestes a ser capturada. Mas algo me chamou a atenção: a barreira temporal quântica da Lebargan ainda estava desativada. Ele cometeu um erro.
+Ampliei a leitura de Belzetar. Os emissores da torre militar mantinham o campo que prendia a Princesa. Jelles tava no alto da estrutura, junto ao acesso externo do posto de comando. A barreira temporal quântica ainda não tinha voltado. A torre tava exposta.
 
-Foi aí que a ideia surgiu. Meu olhar se deslocou até a Prosépina. Eu ainda tinha uma chance.
+Olhei pro painel da Prosépina. Conhecia aquela nave. Sabia quanto impulso ainda conseguiria tirar dela e quanto a blindagem podia aguentar. Tinha uma possibilidade, embora fosse uma bem merda.
 
-— O que você está fazendo?!
+— Que tá fazendo? — Amanda perguntou quando me levantei.
 
-Minhas mãos firmes sobre os comandos, respirei fundo antes de encará-la.
+— Me dá o comando. Vou abrir caminho pra Princesa.
 
-— O que precisa ser feito.
+Ela olhou pra torre e levantou do assento.
 
-Sem dar espaço para mais perguntas, puxei os controles e a Prosépina disparou em direção à Lebargan. Os sistemas começaram a apitar em alerta, enquanto a gravidade oscilava violentamente com a proximidade do buraco negro recém-formado. No painel, indicadores piscavam em vermelho.
+Assumi a pilotagem e acelerei em direção à Lebargan. Pedi a Amanda que transmitisse à Princesa a ordem de se preparar pra acelerar assim que o campo caísse.
 
-Os visores escureceram sozinhos contra o clarão do disco que nascia, o dosímetro do bracelete subiu do amarelo para o laranja, e o relógio da nave passou a discordar do meu bracelete por alguns segundos. Não era defeito. Era o buraco negro.
+Os filtros do visor escureceram. O radar perdeu alguns pontos de referência, e os indicadores começaram a divergir conforme nos aproximávamos da região de gravidade intensa.
 
-— Isso é suicídio! — Genrir gritou, segurando-se na lateral da cabine enquanto a nave chacoalhava.
+— Vai bater nessa porra! — gritou Genrir.
 
-— É um suicídio calculado.
+— Na ponta dela. Segura aí.
 
-A nave cortou o espaço como uma lâmina, entre destroços e impulsos gravitacionais instáveis. O casco tremia, os motores no limite. A Lebargan crescia à nossa frente, colosso de aço e torres blindadas. Precisávamos chegar mais perto.
+Ajustei a trajetória pra passar de raspão na torre, com o setor mais reforçado do casco voltado pro impacto. Desliguei a correção automática que tentava afastar a Prosépina do obstáculo. Mantive os motores principais livres.
 
-Calculei o momento exato. Puxei os controles bruscamente, e a Prosépina passou rente à lateral da Lebargan, os alarmes gritando, o casco estalando sob a tensão. Vi Jelles, no alto da torre de Belzetar, correr, mas a Prosépina colidiu com a torre, despedaçando-a numa rajada de estilhaços metálicos. Procurei Jelles nos destroços e não o encontrei. Algo escuro riscou o casco, rápido demais para ser destroço. Não dei importância.
+Puxei o comando no último instante. Vi Jelles correr pelo acesso externo. A lateral reforçada da Prosépina atingiu os emissores de Belzetar. A estrutura se partiu. O casco raspou nos destroços, e um alerta indicou dano na comporta externa de carga. Vi alguma coisa escura cruzar o visor, junto ao casco. Tentei estabilizar a nave antes que começássemos a girar.
 
-Meus olhos se voltaram para A Princesa do Inverno. O escudo ao seu redor se partiu como vidro quebrado, e a nave se afastou rapidamente, finalmente livre. Nós conseguimos. A adrenalina ainda pulsava em mim, mas o alívio percorreu meu corpo.
+O campo que prendia a Princesa desapareceu. Ela acelerou pra longe da Lebargan.
 
-Por um momento, houve silêncio. A Prosépina estabilizou sua trajetória, e o brilho instável da Lebargan foi ficando para trás.
+Conferi os motores. O impulso tinha caído, mas os comandos ainda respondiam. A Princesa apareceu no radar, aproximando-se por trás de nós.
 
-— Jelles está morto? — Amanda perguntou, ainda olhando para os destroços da estrutura que ele ocupava.
+— O Jelles morreu? — perguntou Amanda.
 
-Girei a nave para ter uma visão melhor. O impacto tinha sido brutal. Não havia como ele ter sobrevivido a aquilo.
+Olhei pros destroços. Não conseguia encontrá-lo.
 
-— Se não morreu, deve estar flutuando no espaço agora. — respondi, relaxando os ombros.
+— Se tava mesmo lá, não deve ter saído inteiro.
 
-Amanda, porém, não pareceu tão convencida.
+Amanda continuou olhando.
 
-— Devemos escanear o setor, confirmar que ele…
+— Precisamos confirmar...
 
-E então, um alarme soou. Era um som curto e estridente, indicando uma violação no sistema de segurança interna da nave.
+O alarme do compartimento de carga disparou.
 
-Minha mente tentou processar o que aquilo significava.
+No painel apareceu uma abertura externa seguida de autorização interna de oficial. Não era uma pane aleatória.
 
-Meus olhos passaram rapidamente pelo painel. O alarme indicava uma entrada não autorizada pelo compartimento de carga. Foi quando o disparo ecoou pelo interior da nave. O impacto ressoou no ambiente, e eu vi Genrir cair no chão.
+Ouvi um disparo vindo do corredor. Genrir caiu perto da porta do comando.
 
-Amanda soltou um grito sufocado, girando para tentar alcançá-lo, mas uma sombra se moveu atrás dela. Minha mente congelou por uma fração de segundo.
+Amanda correu na direção dele. Jelles saiu da passagem, com o traje retraído até os pulsos.
 
-Minha mão voou para minha arma, mas ele já estava um passo à frente. Jelles estava ali. Sua mão esquerda envolvia o braço de Amanda com força, enquanto a outra segurava uma pistola fria contra sua têmpora.
+Antes que eu conseguisse apontar a arma, ele agarrou Amanda e encostou a pistola na cabeça dela.
 
-— Como!? — perguntei mantendo a arma apontada para Jelles.
+— Filho da puta. Como entrou?
 
-Sua expressão era calma, inabalável. Mas seus olhos diziam outra coisa. O olhar de um homem que estava cansado de jogar.
+Ele olhou pro painel.
 
-— Surpresa! Você me subestima, Badrock. Essa é nave do capitão. — Sua voz cortou o silêncio. — Eu tenho acesso a tudo nesta nave. Inclusive á porta do compartimento de carga. Agora dê meia volta e pilote até a Lebargan.
+— Esta é a minha nave. Ainda reconhece meu acesso. A comporta externa estava avariada. Bastou abrir a interna depois de pressurizar a câmara. Volte para a Lebargan.
 
-Meus dentes rangeram, o coração martelava, a mente fervia de raiva e incredulidade. Ele se agarrara ao casco e entrara com suas credenciais.
+Tinha visto alguma coisa junto ao casco durante a colisão. O desgraçado tinha saltado pra Prosépina e entrado pelo compartimento de carga. O bracelete de oficial ainda autorizava a entrada naquela nave. Não precisava da chave que tinha deixado em Belzetar.
 
-O olhar de Jelles não carregava fúria nem medo. Era frio. Calculista. Havia uma serenidade doentia nele. Mas eu via algo ali, em seus olhos. Uma fraqueza.
+Olhei pra Amanda. A mão dela tava perto do próprio bracelete.
 
-— O seu jogo acabou Badrock — Ele apertou Amanda com mais força, a arma ainda firme contra sua cabeça.
+— Volte. Agora, Badrock.
 
-Eu cerrei os punhos, mas não cedi. Parei e pensei. O que estava em jogo ali?
+Mantive a pistola erguida.
 
-— Você a mata, e eu te mato. Fim de jogo — falei.
+— Se matar ela, eu mato o senhor.
 
-— Ou você se entrega, para não deixar sua amiga morrer — respondeu Jelles.
+— Se não voltar, ela morre.
 
-— Aí você me mata e mata ela.
+— E se voltar, morremos os dois.
 
-— Eu te conheço Badrock. Você não vai deixá-la morrer. Eu vejo como ela olha pra você. Da mesma forma que aquela família de dekraazianos devem ter olhado. Eles confiam em você. Acreditam que pode salvá-los, Mas no final, você nunca pode. Porque você é instável. E teve muita sorte de ter eu como capitão. Nastácia já teria te atirado no espaço, Badrock.
+— Conheço você. A família em Dekraaz acreditava que você conseguiria salvá-la. E o que aconteceu? Nastácia teria se livrado de você muito antes de mim.
 
-Não cedi. Olhei-o nos olhos e sorri. Eu sabia o que estava fazendo, e sabia que ele não mataria Amanda: me queria morto, e ela era sua moeda de troca. Enquanto ela respirasse, eu tinha tempo.
+Olhei pro comando. O alarme gravitacional avisava que, mantendo a rota, chegaríamos à região de onde não haveria retorno. Amanda seguiu meu olhar.
 
-— Sabe o que eu acho, Jelles. Que você tem medo. — Minha voz saiu baixa, calculada. — Porque ninguém quer lamber suas bolas como faziam com a Nastácia. Como você disse, Nastácia prezava pela Lebargan. Mas o seu jogo é outro. Você gosta dessa sensação. De estar no controle. Você quer que eles te temam, Jelles. Mas isso é superficial. Nenhum deles te respeita. E respeito é o que faz uma tripulação aceitar seu capitão. É por isso que nunca será o líder deles.
+— Sempre quis ser respeitado como a Nastácia, né, Jelles? Mas o senhor nunca conseguiu. Quando achei que podia escolher, deixei de obedecer. E tá cheio de Dale fazendo a mesma coisa agora.
 
-Seus olhos brilharam, e um meio sorriso se formou em seu rosto.
+Ele apertou o braço de Amanda.
 
-— Eu não preciso ser um líder. Eu comando a Lebargan. — Ele inclinou a cabeça. — Sabe qual é a diferença entre nós, Badrock? Você poupa seus inimigos. Até o dia em que eles atiram nas suas costas. Tudo nesse universo é movido por interesses, não por emoções. O seu interesse era me matar, não era? E cá estamos. Mas você não consegue, porque tem uma porra de uma aliada sob ameaça. Sua única chance é dar meia-volta. Eu te mato, e a garota continua viva, como minha prisioneira. Você perde. Eu ganho.
+— Não preciso da devoção deles. Comando a Lebargan. E você fará o que eu mandar se quiser que ela viva.
 
-— Eu acho que na verdade temos apenas duas opções, Jelles. Você se entrega, e eu te mato. Ou vamos todos em direção à singularidade. Você imagina como deve ser, ser espaguetificado por um buraco negro?
+— Então vai ter que escolher. Ou larga a Amanda ou a gente continua nessa rota até o buraco negro.
 
-Olhei para os olhos de Jelles e pela primeira vez vi. O medo.
+Jelles olhou pro painel. Pela primeira vez, vi o medo naquela cara.
 
-— Se eu morrer, você vai morrer junto — disse ele.
+— Se continuar, morrerá junto comigo.
 
-Amanda estava quase lá.
+Amanda deslizou o dedo sobre o comando do bracelete. O mesmo imobilizador que usávamos desde os treinamentos. Jelles tava olhando pra mim.
 
-— Eu sempre estou preparado para a morte, Jelles. Mas como você bem sabe, eu sempre volto dos mortos. O seu erro Jelles... É achar que somos servos. Quando na verdade somos piratas.
+— É o teu problema, capitão. Acha que ainda somos teus servos.
 
-Amanda tocou seu bracelete discretamente e uma rajada de energia emanou dele, eletrocutando Jelles. O disparo da arma de Jelles ricocheteou no teto da nave, e Amanda o derrubou.
+Amanda acionou o imobilizador encostado no braço de Jelles. Ele se contraiu e disparou contra o teto. Ela se abaixou, escapando da mão dele.
 
-Sem hesitar, eu atirei no peito dele. Mas os projéteis elétricos não o perfuraram. O bracelete dele tinha sido ativado, e estava o protegendo. Sem escolha, avancei para cima dele, meu punho de metal encontrando o rosto de Jelles com força, e a nave inteira sacudindo quando colidimos contra o painel de controle, a arma do capitão caindo ao chão.
+Atirei. Jelles já tinha acionado o escudo do próprio bracelete. Os projéteis elétricos se dissiparam antes de atingir o peito. Acertei o rosto dele com a mão de metal. A pistola caiu.
 
-Amanda correu para apanhá-la, mas Jelles foi mais rápido e a chutou fazendo-a rolar para debaixo do painel, num espaço onde teríamos dificuldade de alcançá-la.
+Amanda tentou pegá-la, mas Jelles chutou a arma pra debaixo do painel. Ela recuou e voltou pro comando.
 
-Jelles respondeu com um soco seco nas minhas costelas, me fazendo recuar. Ataquei de novo, mirando o estômago, mas ele desviou e usou minha força contra mim, me jogando contra a lateral da cabine. A nave tremeu. Eu sentia meu corpo ser puxado em direção ao vidro, e através dele o buraco negro crescia como uma entidade viva, sua sombra engolindo tudo.
+Jelles me acertou nas costelas e desviou do meu segundo golpe. Me jogou contra a parede da cabine. A Prosépina continuava na trajetória indicada pelo alarme.
 
-Amanda assumiu o controle e tentou virar a nave, usando os propulsores para afastá-la do buraco negro. Mas estávamos acelerando cada vez mais, e se saíssemos da rota seríamos disparados a velocidades exorbitantes espaço afora.
+Amanda começou a corrigir o curso. O motor danificado não fornecia impulso suficiente pra mudar a rota rapidamente.
 
-Avancei contra Jelles, dessa vez impulsionando todo o meu peso contra ele. Jelles caiu, e nós rolamos pelo chão da cabine, trocando socos e chutes como dois animais lutando pela sobrevivência. Jelles me agarrou pelo colarinho e jogou-me contra os corredores da Prosépina e eu rolei até a parede.
+Avancei de novo. Jelles me agarrou pelo traje e me arremessou no corredor.
 
-— AMANDA, AS PORTAS — gritei. Jelles se virou, para ir atrás dela, mas Amanda foi mais rápida e selou a entrada do comando trancando a mim e a Jelles nos corredores. Jelles então se virou para mim, com extrema fúria nos olhos.
+— AMANDA! FECHA O COMANDO!
 
-— Você acha que vencer essa luta significa alguma coisa, Badrock?
+Ela acionou a porta antes que Jelles conseguisse voltar. Ficamos os dois no corredor.
 
-O peso nos puxava cada vez mais. Pelo pequeno vidro da porta fechada, eu via a escuridão cada vez mais próxima.
+— Acredita que vencer uma luta vai mudar alguma coisa?
 
-— Você acha que pode controlar tudo, Jelles. Mas aquilo lá fora, é a prova de seu fracasso. Há forças que não podem ser controladas.
+Atrás dele, o alerta da comporta de carga continuava vermelho. A porta externa tinha ficado travada na abertura desde que Jelles entrara. A interna ainda selava o corredor.
 
-Meu olhar desviou por um instante e notei algo curioso. Através do vidro da comporta interior, vi que a comporta exterior estava aberta. Jelles não a fechou quando entrou. Girei o quadril e joguei Jelles contra a parede, segurando sua jaqueta para impedir que ele se afastasse. Ele tentou se desvencilhar, mas eu o acertei com um golpe na lateral da cabeça, ouvindo um estalo seco. Jelles cambaleou para trás, mas se recuperou rápido, revidando com um chute certeiro no meu joelho. Minha perna cedeu e eu fui ao chão, e antes que pudesse me levantar, ele caiu sobre mim, seu antebraço pressionando minha garganta.
+— Olha o que o senhor fez, Jelles. Nem a Lebargan conseguiu controlar aquela coisa.
 
-Quando ele foi me socar. Agarrei a mão com minha mão de metal e seu olhar vacilou.
+Empurrei o desgraçado contra a parede. Ele revidou com um chute na perna ferida e caí. O antebraço dele apertou minha garganta. Tentei alcançar a alavanca de emergência junto à porta.
 
-— Eu tenho que te agradecer, capitão — falei em tom de deboche, o olhando nos olhos — Você me deu um motivo… para lutar por minha vida. Uma única razão para chegar até aqui.
+Quando ergueu o punho, agarrei a mão dele com a minha de metal.
 
-Apertei a mão dele e o vi gritar de dor. Então o soquei a cara com minha mão de metal, e ele cambaleou para trás, o nariz quebrado. Me levantei. Estávamos nos fundos da nave, perto da comporta. Jelles limpou o sangue do rosto com as costas da mão e me encarou com um olhar furioso. Então olhei para ele.
+— O senhor me deu um motivo pra continuar vivo, capitão.
 
-— Mas pra minha missão ser cumprida, Jelles, como você mesmo diz, não deve haver sobreviventes.
+Apertei os dedos até ele largar minha garganta. Acertei o rosto dele e me arrastei até a alavanca. Levantei, com a perna tremendo.
 
-Então saltei para trás e alcancei a alavanca que abria a escotilha interna. Jelles entendeu o que eu estava fazendo e imediatamente ativou o traje espacial pelo seu bracelete.
+— E agora preciso dar um jeito de tirar meus amigos daqui.
 
-Imediatamente o vácuo nos sugou para fora da nave. O silêncio tomou conta de tudo enquanto flutuávamos no espaço.
+Fechei o capacete do traje que ainda vestia e puxei a abertura de emergência. Jelles ativou o próprio traje pelo bracelete ao ouvir o aviso de despressurização.
 
-Rodopiamos no espaço, corpos sem peso, perdidos entre a escuridão infinita. Eu sentia o traje esfriar ao redor do corpo. Jelles girava comigo, seu olhar selvagem preso ao meu.
+A corrente de ar nos arrastou pro compartimento de carga e dali pra abertura externa. A Prosépina se afastou, enquanto Amanda continuava corrigindo a trajetória.
 
-A fera negra estava bem em minha reta, e eu a encarava como um pequeno inseto diante de uma ave feroz. Mas algo distraiu minha atenção. Ao meu lado, havia uma nave. Mas não era a prosépina. Essa era prateada, com suaves linhas familiares. Pelo vidro dela, pude ver rostos familiares. Hardman, Kord, Buni, Vivian e O’reilly.
+Usei os propulsores pra parar de girar. O campo do buraco negro dominava os indicadores do traje, mas ainda estávamos fora do horizonte de eventos.
 
-Sorri enquanto eles tentavam me alcançar. E então eu senti algo me apanhar pelas costas. Jelles me segurou e enfiou a mão sobre minha cintura. Ele tinha arrancado minha adaga. Então senti uma dor exorbitante no abdome, tal como um frio intenso. O meu ar começou a sair pelo buraco que Jelles tinha me feito, e imediatamente dei-lhe uma cotovelada. Ele flutuou dando uma cambalhota na gravidade zero, a adaga saindo de sua mão. Enquanto ele rodopiava, eu ativei meus propulsores com força máxima e fui empurrado em sua direção. Ele tentou me agarrar, mas fui mais rápido, apanhei a adaga e gritei enquanto ela entrava em seu peito com toda força que me restava.
+Vi a Princesa do Inverno se aproximar pelo lado de fora da trajetória da Prosépina. Os refletores iluminaram meu traje.
 
-Vi o medo em seus olhos, e então o sangue flutuar pela sua boca em pequenas bolhas. Seu corpo estremeceu, e por um segundo, não houve nada além do silêncio absoluto do espaço nos separando. A adaga o soltou de mim, e a fera cuidou do resto. Jelles foi puxado de costas, os braços abertos, e a gravidade fez o que sempre fez: ele se esticou, fino, comprido, e continuou se esticando até virar um fio escuro que o disco engoliu sem fazer barulho. Não houve última frase. Pela primeira vez, Jelles ficou sem palavras. O sangue escapava de mim, flutuando ao meu redor em gotas dispersas, vermelhas contra o fundo negro que ameaçava me engolir. O ar estava me escapando, meu corpo estava extremamente frio. Olhei para trás e vi duas naves caindo comigo.
+Jelles me agarrou por trás. Arrancou a adaga que eu tinha recolhido no arsenal e a enterrou no meu abdome. O alarme de pressão disparou. Acertei uma cotovelada, e ele perdeu a lâmina. Acionei os propulsores, alcancei a adaga e voltei na direção dele. O desgraçado tentou me agarrar de novo. Enterrei a lâmina em seu peito e a torci.
 
-Meus sentidos foram ficando entorpecidos e minha visão escurecia aos poucos, puxado para um sono inevitável. Meu corpo flutuava sem controle, sem direção, perdido no vazio absoluto enquanto uma silhueta em um traje espacial se aproximava de mim, se movendo contra a escuridão infinita. Antes que ele me alcançasse, minha visão escureceu completamente.
+Ele soltou meu braço. O sangue começou a se espalhar dentro do capacete dele. Usei o impulso que ainda me restava pra me afastar. O traje de Jelles girava sem controle, indo em direção à região escura. Vi o traje se alongar e se romper quando o corpo entrou na região de maior força gravitacional. A distância entre nós aumentou rapidamente. Não ouvi uma palavra. Minha própria reserva de ar caía rápido. A Princesa continuava se aproximando. Vi a Prosépina mudar a direção dos propulsores pra acompanhar a outra nave.
 
+Tentei acionar o rádio, mas a mão boa já não obedecia. Uma figura saiu da abertura da Princesa, presa a um cabo. Estendeu o braço na minha direção. Tentei agarrá-lo. Antes de saber se tinha conseguido, apaguei.
