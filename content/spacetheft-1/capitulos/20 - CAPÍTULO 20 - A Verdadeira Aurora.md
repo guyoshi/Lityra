@@ -1,477 +1,496 @@
-O peso metálico ao redor dos meus pulsos não era só restrição. As algemas pulsavam num brilho azul intermitente, sincronizado com os batimentos do meu coração, e um formigamento dormente se espalhava pelos braços. Eram algemas de anulação neural: os impulsos elétricos do corpo eram reduzidos, enfraquecendo reflexos e força muscular. Fugir delas não era impossível, mas exigiria um esforço que eu não estava em condições de fazer no momento.
+As algemas de anulação neural começaram a piscar assim que os guardas as fecharam nos meus pulsos. A mão boa ficou dormente. Tentei mexer os dedos e demorei a conseguir. O braço metálico respondia aos comandos com um pequeno atraso. Não ia conseguir arrancar aquelas coisas na força, pelo menos não antes de receber uns tiros.
 
-— Olha quem temos aqui.
+— Olha só quem voltou pra casa.
 
-A voz carregada de sarcasmo veio dos fundos da doca.
+Reconheci a voz antes de olhar.
 
-Klest vinha andando, com as mãos nos bolsos, um sorriso estampado no rosto.
+Klest vinha da outra extremidade da doca, com dois guardas atrás dele.
 
-— Bem, bem, bem… Se não é Eric, o traidor mais arrogante da Lebargan. Parece que seu plano de fuga falhou, não é.
+— Eric. Não bastou roubar a Lebargan? Veio entregar teu amigo também?
 
-Ele se inclinou ligeiramente, observando Eric como um animal enjaulado.
+Eric ergueu o rosto. Klest apontou pra ele.
 
-— Sabe, tem sorte dos homens ainda o deixarem vivo. O capitão com certeza gostará de revê-lo.
+— Tem sorte de ainda estar vivo. O capitão vai querer conversar contigo.
 
-Eric revirou os olhos, exalando impaciência.
+Eric examinou a insígnia do uniforme dele.
 
-— Bom, pelo que parece você teve uma promoçãozinha enquanto estive fora, não é Klest? Fico imaginando que seu ego deve estar bem alto agora que ninguém mais te chama de cafona.
+— Te deram uma promoção? Pelo menos agora deve poder escolher a própria nave.
 
-Klest soltou uma risada curta e debochada, batendo levemente na grade com os nós dos dedos.
+Klest deu uma pancada na grade que nos separava da doca.
 
-— Aproveite seus últimos momentos antes da retirada.
+— Aproveita teus últimos ectons antes da retirada.
 
-Foi então que ele olhou para mim. O sorriso morreu no mesmo instante.
+Foi então que me viu.
 
-Os olhos dele se arregalaram, a surpresa escancarada na expressão. Ele deu um meio passo para trás. Precisava de um segundo para processar o que via.
+Parou com a mão ainda sobre a grade. Olhou pro meu rosto, pro braço de metal e de novo pro rosto.
 
-— Parece que alguém voltou dos mortos, não é?
+— Badrock?
 
-Sorri, inclinando a cabeça.
+— Em carne, osso e um pouco de titânio.
 
-Seu olhar desviou para o bracelete em seu pulso, que emitia um brilho azulado. Ele franziu a testa e virou a tela rapidamente para mim. No visor, uma explosão de imagens e textos coloridos: montagens dramáticas de mim lutando contra o Domongo, vídeos borrados de minhas lutas na Lebargan e até um trecho em loop de quando arranquei o olho de Genrir. Marcações como “&JasmeyVive”, “&ALendaNuncaMorre” e “&PirataImortal” piscavam incessantemente, todas com milhares de reações.
+Klest abriu a Unidale no bracelete. Virou a projeção na minha direção. Tinha imagens que eu tinha enviado quando voltei da missão do Domongo, gravações de treinamentos e até a cena em que arranquei o olho do Genrir. Alguém tinha colocado uma canção por cima daquela última. As marcações “&JasmeyVive”, “&ALendaNuncaMorre” e “&PirataImortal” se repetiam em publicações com milhares de reações.
 
-— Engraçado... você nem está logado na Unidale, Badrock, mas é o tópico mais quente por lá. Parece que ser uma lenda se espalha mais rápido do que uma praga.
+— Nem precisa entrar na Unidale pra ser o assunto da nave inteira, hein? Tavam discutindo se você tinha morrido.
 
-— Me faz parecer ainda mais lendário, não acha?
+— Espero que tenham escolhido meu melhor ângulo.
 
-Klest piscou algumas vezes, recuperando-se rapidamente. Ele cruzou os braços e fingiu desinteresse, mas o brilho atento nos olhos traía sua verdadeira reação.
+Klest fechou a projeção. Ainda olhava pra mim.
 
-— Lendário ou não, uma coisa é certa... o Capitão vai querer ver isso pessoalmente.
+— O capitão vai querer ver você pessoalmente.
 
-Ele fez um sinal para os guardas, que se aproximaram para ativar as algemas neurais e nos preparar para o transporte.
+Fez sinal pros guardas abrirem a grade. Um deles conferiu o indicador das minhas algemas.
 
-Eric respirou fundo, assumindo um ar de falsa resignação enquanto olhava ao redor, decidindo se devia dizer algo. Então inclinou a cabeça, observando as próprias algemas com um ar quase entediado.
+Eric olhou na direção da Princesa do Inverno, que já tava no outro lado da doca.
 
-— Imagino que vocês já tenham revistado nossa nave.
+— Já revistaram nossa nave?
 
-Klest estreitou os olhos.
+Klest se virou.
 
-— Aquela espelunca? Estávamos indo para lá agora. Apenas mais uma pra coleção.
+— Vamos fazer isso agora. Bela aquisição.
 
-Eric soltou um suspiro dramático, desviando o olhar.
+Eric deu um suspiro.
 
-— Bom... — Ele franziu os lábios, um gesto breve, quase imperceptível. — Espero que não sejam descuidados.
+— Espero que tenham cuidado.
 
-Klest cruzou os braços, a irritação evidente.
+— Cuidado com o quê?
 
-— Descuidados? O que exatamente você está insinuando?
+Eric olhou pros guardas antes de responder.
 
-Eric lançou-lhe um olhar casual, balançando a cabeça.
+— Nada. Vai lá.
 
-— Nada, nada. Só que... eu não sou burro, Klest. Se eu soubesse que seria capturado, você acha mesmo que eu deixaria nossa nave vulnerável?
+— Não acha estranho eu ter me entregado sem tentar fugir, Klest? A Princesa não é uma nave qualquer. Eu não deixaria uma embarcação dessas cair na mão de vocês sem preparar alguma coisa.
 
-Klest arqueou uma sobrancelha, tentando decifrá-lo.
+Klest virou de novo pra Princesa.
 
-— O que você quer dizer com isso?
+— Que coisa?
 
-Eric soltou uma risada nasal.
+Eric deu de ombros.
 
-— Quer mesmo que eu explique? Vamos lá, eu tenho algo naquela nave que é perigoso. Você não vai querer ela aqui na Lebargan. Eu tô falando sério.
+— É perigosa. Se eu fosse você, mandava devolver a nave ao planeta antes que o capitão descobrisse.
 
-Klest se manteve calado por um momento, o que significava que a ideia tinha pelo menos feito ele se perguntar.
+Um dos guardas olhou pro Klest. O sujeito baixou os olhos pro bracelete, provavelmente conferindo os homens que tinha enviado pra revista.
 
-Eric inclinou-se um pouco para frente, baixando a voz.
+Eric se aproximou da grade.
 
-— Tudo bem, vou te poupar tempo. Você não vai querer que o Capitão descubra o que vocês trouxeram pra dentro da Lebargan.
+— Mas a decisão é tua. Não sou eu quem vai ter de dar explicações se acontecer alguma coisa.
 
-Os olhos de Klest brilharam com uma faísca de desconfiança.
+Klest apertou os lábios.
 
 — O que tem naquela nave?
 
-Eric sorriu, satisfeito.
+Eric sorriu.
 
-— Nada que interesse a você.
+— Não tá mais sob meu comando. Descobre sozinho.
 
-A hesitação de Klest foi suficiente para selar o destino da conversa. Ele não era burro, e errar diante de Jelles custava caro.
+Klest olhou pros guardas. Conhecia aquele desgraçado. Tinha acabado de ser promovido e não queria aparecer diante do Jelles dizendo que tinha perdido uma nave.
 
-Ele olhou para os guardas e fez um gesto curto.
+— Levem o Badrock ao capitão. O Eric vem comigo. Se preparou alguma armadilha, vai mostrar onde está.
 
-— Levem o Badrock ao Capitão. Quanto ao traidor... quero ele dentro da nave capturada.
+Os guardas abriram a passagem e nos separaram.
 
-Eric não esboçou nenhuma reação além de um pequeno suspiro, fingindo exasperação.
+Eric nem olhou pra mim. Baixou a cabeça e seguiu Klest.
 
-Nos separamos ali. Ele ficou ali, cercado de Dales, e eu fui arrastado para o coração da Lebargan.
+Fui arrastado na direção dos elevadores.
 
-Enquanto era levado, vi pelo canto do olho Amanda surgindo entre os Dales, a expressão carregada de choque ao ver o irmão. Os cabelos estavam soltos, o olhar incrédulo enquanto tentava absorver a cena à sua frente.
+Antes de sair da doca, vi Amanda vindo pelo corredor lateral. Parou ao reconhecer o irmão.
 
 — Eric?
 
-A voz dela veio com um tom entre espanto e dúvida. Eric hesitou ao ver a irmã.
+Eric virou a cabeça.
 
-— Olha só que bela reunião de família. — O sarcasmo escorreu da voz de Klest como veneno. — Veio se despedir do irmão traidor, Amanda?
+— Olha quem veio se despedir do traidor — disse Klest.
 
-Genrir, o caolho, estava ali perto, observando tudo com um olhar frio e desconfiado.
+Genrir tava perto dela, com o tapa-olho que eu lembrava tão bem.
 
-Amanda ignorou Klest e deu um passo à frente, aproximando-se de Eric com o rosto tenso.
+Amanda ignorou Klest e chegou perto do irmão. Eu ainda conseguia ouvi-los enquanto os guardas esperavam o elevador.
 
-Ela sussurrou, apenas para ele ouvir:
+Ela falou tão baixo que quase não ouvi.
 
 — Eles vão te matar.
 
-Eric não piscou.
+Eric olhou pra irmã.
 
-— Não, não vão.
+— Não vão.
 
-Amanda apertou os lábios. Ela queria acreditar nele, mas não podia.
+Ela olhou pros guardas.
 
-Eric inclinou-se ligeiramente para ela.
+Eric indicou o elevador com a cabeça.
 
-— Vá até a sala do Capitão. Você precisa ver alguém.
+— Vai à sala do capitão. Precisa ver uma coisa.
 
-Amanda franziu a testa, claramente confusa, mas algo no tom dele fez com que ela não retrucasse.
+Amanda franziu a testa.
 
-Ela apenas deu um último olhar para o irmão antes de se afastar.
+As portas do elevador se fecharam antes que eu pudesse ver o que ela faria.
 
-Os passos ecoavam pelo corredor metálico da Lebargan, cada batida contra o chão acompanhando a pulsação acelerada do meu peito. Vek e os outros Dales me empurravam sem paciência, mas eu já não sentia as correntes. O que importava era o que estava além daquelas portas.
+Vek me conduziu pelos corredores da torre de Belzetar. Conhecia o caminho até o posto de comando, mas nunca tinha feito aquele percurso com armas apontadas pras minhas costas. Quando chegamos, ele me entregou aos guardas da porta e foi embora sem falar comigo.
 
-A sala do capitão se abriu com um sibilo mecânico. Baixa iluminação, monitores holográficos projetando sombras angulares. No centro, numa cadeira de alto encosto, Jelles girava preguiçosamente um copo de necroriano. Seus olhos subiram até mim e seu olhar vacilou por um instante. Ele se levantou, caminhou até mim a passos curtos, bebeu o resto do necroriano e me olhou dos pés à cabeça. Estava a poucos centímetros. Se eu tivesse algo nas mãos, minha vingança estava feita. Então finalmente falou:
+A porta do posto de comando abriu. Jelles tava sentado perto dos monitores, com um copo de necroriano na mão. Assim que me viu, parou de beber. Levantou e veio até mim. Olhou pro braço de metal antes de mandar os guardas esperarem do lado de fora.
 
 — Jasmey Badrock. O homem que se recusa a morrer.
 
-Não respondi. Apenas encarei, sentindo meu peito arder de ódio contido. Jelles me estudou com atenção. Seu olhar percorreu meu rosto, meu traje, e finalmente parou no meu braço mecânico.
+Tentei fechar a mão. A dormência ainda não tinha passado. O desgraçado tava tão perto que, se não fossem aquelas algemas, eu teria acabado com a conversa ali mesmo.
 
-— Você perdeu um pedaço de si no caminho.
+— Perdeu um pedaço de si no caminho.
 
-Mantive a expressão neutra.
+Ergui o braço metálico até onde a corrente permitia.
 
-— E ganhei outro.
+— Ganhei um melhor.
 
-Ele riu, um som curto e carregado de superioridade. Caminhou ao meu redor, analisando cada detalhe.
+Jelles contornou meu corpo, examinando a prótese.
 
-— Você sempre soube como se adaptar. Foi isso que te fez especial entre os Dales. Mas o que me intriga é como diabos você está aqui. Eu vi sua queda, Jasmey. Vi seu corpo despencar no abismo. Duas vezes, achei que estava morto… mas você insiste em voltar.
+— Sempre soube se adaptar. Era uma das suas qualidades. Mas preciso admitir que me surpreende. Vi você cair em Dekraaz. Não esperava revê-lo.
 
-Havia algo ali. Uma fagulha de incerteza, mesmo que ele tentasse mascarar. Ele temia alguma coisa.
+Não parecia satisfeito com o fato de não saber como eu tinha sobrevivido.
 
-— Eu sou durão, capitão. E isso parece te incomodar.
+— O senhor podia ter pulado atrás de mim, capitão. Ia descobrir um bocado de coisa interessante lá embaixo.
 
-Jelles balançou a cabeça, largando o copo ao chão.
+Jelles pousou o copo na mesa.
 
-— Me fascina.
+— Talvez ainda descubra.
 
-Então me acertou com as costas da mão enluvada, e o gosto de ferro encheu minha boca. Sorri com sangue nos dentes. Ele pegou meu maxilar e o apertou com força.
+Me acertou com as costas da mão enluvada. Senti o gosto de sangue. Ele segurou meu queixo e virou meu rosto na direção da luz.
 
-Ele me olhou de perto, sem pressa.
+— Desta vez não haverá corpo para recuperar.
 
-— Você é tolo. Mesmo que tenha sobrevivido até agora, dessa vez irei garantir que apodreça. Quero ver cada pedaço seu ser destruído em minha frente.
+— Pode tentar.
 
-Então ele me soltou. Mantive o olhar firme.
+Ele me soltou.
 
-— Você só esteve vivo este tempo todo porque eu quis. Eu sempre soube que era um fracasso, Badrock. Fraco. Uma doença na Lebargan. Os Dales tinham razão. Você era meu queridinho. Até me trouxe ao meu tesouro. Não tenho como agradecê-lo. Talvez eu beba um necroriano em cima de seu cadáver.
+— Te dei oportunidades que nenhum Dale da sua geração recebeu. E você desperdiçou todas. Ainda assim, acabou me trazendo à Aurora. Devo agradecer-lhe por isso.
 
-— Você diz que só estive vivo por sua conta, mas a verdade é que você só está aqui agora porque eu o salvei naquele asteroide, Jelles.
+— O senhor só tá aqui porque eu salvei sua vida naquele asteroide.
 
-Jelles soltou uma risada seca, um som sem alegria.
+Jelles olhou pra mim por um instante. Depois riu.
 
-— Eu nunca estive em perigo real. O Jelles que você salvou naquele asteroide era um holograma. Acha que eu arriscaria a minha vida em uma missão de rotina? Projetei a imagem e me mantive à distância. Esperava que, quando as coisas saíssem do controle, você escolhesse salvar seus irmãos Dales. Mas o seu problema, Badrock, é que você é inconsistente. Fluido, sem raízes. Não é leal a ninguém, nem aos seus próprios princípios. Um dia se diz um Dale, no outro os trai por capricho.
+— Salvar minha vida? Aquilo era uma projeção. Eu não estava naquele asteroide, Jasmey. Acha que um capitão deve arriscar a vida numa missão daquelas? Queria saber o que você faria quando a situação fugisse do controle. Poderia ter preservado seus irmãos. Escolheu salvar o homem que lhe dava ordens. E agora pretende dizer que nunca foi leal a mim.
 
-— Não. Eu sou leal a quem merece.
+Senti a boca secar. Lembrei do tanque, das explosões, da Saezi. Tentei encontrar na memória o instante em que tinha tocado Jelles. Não tinha tocado. Nem uma vez.
 
-— É um tolo…
+— O senhor sabia que eles iam morrer?
 
-— Não. Você é que é o tolo aqui, capitão. Trouxe a Lebargan até os confins da galáxia, tudo por conta da porra de um gerbe? Pra que a Lebargan precisa desse tesouro. Ela já não é a maior fortaleza viva da galáxia?
+— Sabia que você teria de escolher. O que não esperava era que sacrificasse os seus homens. Sempre achei curioso o quanto gosta de ser admirado e o pouco que se importa com aqueles que o admiram.
 
-Jelles parou por um instante, eu podia ver que algo em seu olhar tinha mudado.
+— Tudo aquilo... Pra quê? Pra descobrir se eu era um bom Dale? Trouxe a Lebargan até aqui atrás de gerbe. Essa nave já é a maior fortaleza da galáxia. Ainda não chega?
 
-— Você já leu o livro da verdade, Jasmey?
+Jelles se afastou e olhou pro planeta nos monitores.
 
-— Nunca fui muito religioso, capitão.
+— Já leu o Livro da Verdade?
 
-A risada dele encheu a sala, curta e afiada. Ele apontou um dedo para mim, ainda sorrindo. Fiquei calado, esperando ele continuar.
+— Nunca fui muito de ler livro religioso.
 
-— Você busca vingança, Jasmey. Eu busco o poder. Nunca se perguntou o porquê do nome Aurora? A primeira claridade antes do sol nascer. O gerbe é uma distração. A verdadeira glória repousa nas profundezas deste planeta. A citação do livro da verdade sobre a escuridão e a luz não é uma metáfora. — Ele fez uma pausa, deixando o peso das palavras no ar. — É dentro do núcleo que se encontra… a Besta.
+— Imaginei.
 
-Ele se aproximou, baixando a voz, revelando um segredo. Minha expressão se manteve firme, mas por dentro senti uma inquietação. Eu já tinha lido sobre esta besta em Sumatram… e acreditava ser só uma lenda.
+— Você veio em busca de vingança. Os outros, de gerbe. Nenhum de vocês entendeu o nome Aurora. É a primeira claridade antes de o sol nascer. O tesouro está ocultando algo muito maior. A passagem do Livro da Verdade sobre a luz e a escuridão não é uma metáfora. Dentro do núcleo deste planeta está a Besta.
 
-— A besta não passa de um demônio religioso. Realmente acredita nessa merda?
+Lembrei do desenho no templo de Geores. Hardman tinha me falado daquela coisa. O Livro da Verdade dizia que a luz voltaria a enfrentá-la. Lembrei também do aviso da Engenheira. Não gostei de juntar aquelas duas lembranças. O mapa que nos tinha trazido até ali apontava pro gerbe. Não dizia por que o gerbe tava todo concentrado em torno daquele núcleo.
 
-— Está agindo da mesma forma quando lhe disse sobre a Aurora. E cá estamos, Jasmey Badrock. Diante do segredo mais profundo da galáxia.
+— Tá me dizendo que um demônio religioso tá dormindo debaixo desse chão?
 
-A convicção na voz dele me fez perceber que isso não era um blefe. Ele acreditava em cada palavra. Jelles sempre buscou algo maior, algo que provasse que só ele podia liderar.
+— Também não acreditava na Aurora quando lhe falei dela. Olhe pela janela.
 
-— Eu terei controle sobre a besta. E tornarei a Lebargan a maior arma de destruição da galáxia. Meu poder será inigualável.
+Olhei pro planeta. Não tinha como negar que aquela porra existia.
 
-Olhei para ele, com uma pitada de descrença neste plano maluco dele.
+— Quando a Besta estiver sob meu controle, não haverá frota capaz de enfrentar a Lebargan.
 
-— E você realmente acha que pode domar isso?
+— E acha mesmo que consegue controlar essa coisa?
 
-Ele pareceu satisfeito.
+Jelles virou de novo pra mim.
 
-— Se não eu, então quem? O livro da verdade diz que a escuridão servirá a seu libertador. Eu irei libertá-lo. E ele servirá a mim.
+— O Livro da Verdade diz que a escuridão servirá a quem a libertar.
 
-Eu deveria ter previsto essa arrogância. Para Jelles, a Lebargan nunca foi apenas uma nave. Era um império ambulante, e ele o único digno de comandá-lo.
+— E se não servir?
 
-Antes que eu pudesse responder, a porta da sala se abriu. Amanda entrou e parou abruptamente ao me ver. Seus olhos se arregalaram, o choque evidente em sua expressão.
+— Não vim até aqui para discutir interpretação religiosa com você.
 
-Não desviei o olhar. Ela estava diferente, mais endurecida, mas ainda reconhecível.
+Ele olhou de novo pro planeta. Nos monitores, vi uma das naves de reconhecimento se afastar da superfície. Vi na leitura ao lado da imagem uma região de densidade enorme embaixo da superfície. Os dados tinham sido coletados pelas naves de reconhecimento. O filho da puta tinha vindo preparado. Ainda não sabia como pretendia alcançar o núcleo.
 
-Jelles girou o corpo, observando nossa interação com divertimento.
+A porta abriu. Amanda entrou e parou no mesmo instante.
 
-— Temos um milagre ambulante entre nós, Amanda.
+Ela olhou pro meu braço, depois pra minha cara. Abriu a boca, mas não disse nada.
 
-Amanda hesitou antes de se recompor. Seu olhar se manteve firme, mas eu notei a confusão em seus traços. Jelles continuou falando sobre seus planos, enquanto eu falava nas entrelinhas.
+Jelles acompanhou a reação dela.
 
-— Capitão, vim apenas para informá-lo que os homens estão revistando a nave deles.
+— Veja só, Amanda. O nosso Badrock voltou.
 
-— Revistem. O que der pra aproveitar, aproveitem. E preparem a câmara de incineração.
+Ela ficou imóvel por uns instantes. Quase dei um passo na direção dela. A corrente entre meus pulsos bateu na prótese.
 
-— Capitão? — perguntou Amanda, confusa.
+— Capitão... vim informar que os homens estão revistando a nave deles.
 
-— Não vamos retirar este prisioneiro. Vamos incinerá-lo. Preciso ter a certeza de que ele permanecerá morto dessa vez.
+— Recolham o que for útil. E preparem a câmara de incineração.
 
-— Só a mim? E quanto a meu parceiro?
+— Incineração?
 
-Jelles e Amanda se viraram para mim.
+— Não será retirado. Quero ter certeza de que permanecerá morto.
 
-— Você não sabia, mas foi feito de tolo este tempo todo Jelles. O seu fugitivo Eric, foi ele quem me tirou dos escombros quando tentou me matar da primeira vez. Foi ele quem dizia que eu deveria ser o capitão, era ele quem dizia a todos os Dales que eu deveria ser seguido. Seu domínio está fragmentado graças a ele. E agora ouço que só eu serei incinerado. Porra, isso é injusto.
+— E o Eric? — perguntei.
 
-Ele me encarou, estreitando os olhos.
+Amanda virou a cabeça pra mim.
 
-Amanda piscou rapidamente e me olhou feio. Senti o ódio em seu olhar, mas ela iria entender. Ela tinha que entender. Eu tinha plantado a semente.
+— O senhor tem um fugitivo dentro da nave. Se acha que eu voltei sozinho de Dekraaz, pergunte ao Eric. Foi ele quem andou dizendo aos Dales que eu devia tomar o seu lugar. E agora vai queimar só a mim? Isso não é justo, capitão.
 
-— Depois de todo este tempo, percebi que Eric é quem deveria ser o novo capitão. Ele é forte, é um bom líder… e até pilota bem. Além disso… ele é muito inteligente. Se ele pudesse, criaria uma rebelião aqui dentro. Se ele encontrasse as pessoas certas, poderia até mesmo tramar um plano para libertar a Lebargan do domínio do capitão. Você conhece seu irmão, Amanda. Ele nunca desiste.
+Jelles me encarou.
 
-Amanda desviou o olhar por um instante, processando tudo.
+Amanda fechou a cara. Precisava que ela entendesse o que eu tava tentando fazer.
 
-Jelles me olhou nos olhos e ergueu um curto sorriso.
+— Devia ter escolhido o Eric pra pilotar as melhores naves, capitão. Ele conhece a Lebargan tão bem quanto eu, sabe quem tá insatisfeito e já conseguiu roubar coisas debaixo do seu nariz. Se eu quisesse organizar uma rebelião, procuraria um homem desses. Você conhece teu irmão, Amanda. Sabe do que ele é capaz.
 
-— Você é um filho da puta covarde mesmo, Badrock. Mas fique tranquilo. Vou providenciar sua companhia.
+Ela olhou pro painel junto à porta.
 
-Amanda respirou fundo, sem olhar para mim.
+Jelles esboçou um sorriso.
 
-— Eu sou só a faísca, capitão.
+— Até na hora de morrer tenta arrastar os outros consigo. Fique tranquilo. Terá companhia.
 
-Os olhos de Amanda brilharam com algo que não consegui identificar. Jelles fez um gesto impaciente.
+Amanda não tirava os olhos do painel.
 
-— Faça o que eu ordenei, Amanda.
+— Eu só acendi a faísca, capitão. O resto já tava aqui quando cheguei.
 
-Ela permaneceu imóvel por um segundo. Pequeno, mas suficiente. Depois, sem dizer nada, virou-se e saiu.
+Ela virou a cabeça na minha direção. Jelles apontou pra porta.
 
-Mas antes que a porta se fechasse, percebi algo. O pequeno movimento de sua mão no painel ao lado. Sutil. Quase imperceptível. Não era certeza. Mas era o bastante.
+— Cumpra a ordem, Amanda.
 
-— Você sempre foi um problema, Jasmey.
+Ela assentiu e saiu.
 
-Inclinei a cabeça, fingindo consideração.
+Antes de a porta fechar, vi os dedos dela deslizarem sobre o painel lateral. Já tinha visto aquele movimento antes, quando um Dale era transferido de uma cela pra outra.
 
-— E você sempre foi um covarde.
+— Sempre foi um problema, Badrock.
 
-Jelles apertou a mandíbula, mas não perdeu a postura. Eu via o brilho nos olhos dele. Não era raiva. Era incerteza.
+Fechei a mão boa. Dessa vez os dedos obedeceram.
 
-— Até acorrentado, sente-se confiante. Uma pena que tenha que acabar assim. Você é só um pedaço do que já foi. Olhe para você. Quebrado. Remendado. Cansado — ele disse, abrindo os braços.
+— E o senhor sempre foi um covarde.
 
-— E, mesmo assim, continuo voltando para te assombrar.
+Jelles me observou.
 
-Meus pulsos giraram suavemente, e os braceletes que me prendiam fizeram um estalo baixo antes de se soltarem. As algemas caíram no chão com um tilintar metálico. Um som de liberdade. Sorri. Jelles não era o único com truques na manga.
+— Olhe para si mesmo. Perdeu o braço, perdeu os seus homens, voltou acorrentado. E ainda acredita que pode me enfrentar.
 
-Jelles congelou por um breve segundo. Então, inspirou fundo pelo nariz e soltou o ar devagar.
+— Vamos descobrir.
 
-— Amanda... — murmurei, sem precisar olhar para trás.
+O brilho das algemas apagou. Apertei os pulsos um contra o outro e ouvi o estalo das travas. As duas peças caíram no chão. Amanda tinha liberado os controles locais.
 
-Jelles não reagiu imediatamente, mas a tensão em seu corpo denunciava que ele percebeu.
+Jelles olhou pras algemas.
 
-Levantei os punhos e sorri.
+— Obrigado, Amanda — murmurei.
 
-— Só eu e você agora. Sem armas. Sem truques. Até a morte.
+Ele recuou na direção do posto de comando.
 
-Dei um passo à frente, abrindo bem os ombros. Estava confortável. Pronto. Esperando.
+Ergui os punhos.
 
-Mas Jelles não iria lutar. Ele recuou, correu e apertou um botão sobre a parede. O chão sob meus pés tremeu, e uma sirene começou a tocar.
+— Só eu e você. Sem arma, sem truque. Até a morte.
 
-— Quando é que você perceberá que poder não é força — Jelles retirou debaixo das vestes a chave antiga com as iniciais PR, a chave da Lebargan — eu sou o capitão da Lebargan, eu sou o poder.
+Dei um passo. O desgraçado não levantou nem as mãos.
 
-O metal do piso se partiu, e uma escotilha se abriu abaixo de mim. O vento sugou o ar da sala, e eu mal tive tempo de saltar para o lado antes de ser jogado para o vazio.
+Jelles chegou ao painel e acionou um dos comandos. Uma sirene começou a tocar. O indicador do piso mudou de cor.
 
-Estava em uma sala escura. Quando as luzes se acenderam, me vi diante de meia dúzia de Dales, que atacaram antes que eu pudesse reagir. Levei vários golpes e derrubei três. Os outros me deram trabalho, principalmente o que tinha uma arma de choque. Passei por eles e fugi pelos corredores sob os alarmes. Ao dobrar uma esquina, dei de cara com um garotinho. Era Dock, o garoto a quem eu ensinara alguns golpes de espada um tempo atrás. E, adivinhe… ele carregava uma espada.
+— Ainda não entendeu a diferença entre força e poder?
 
-— Olá, garoto. Preciso que saia da minha frente. Não quero te machucar, ok? — perguntei, olhando para o jovem que um dia treinei.
+Tirou a chave de arpão debaixo do casaco. Reconheci as letras PR. Inseriu a peça no alojamento do posto de comando, junto ao compartimento que eu tinha visto na última vez que estivera ali. O painel confirmou a autorização dos controles centrais. Jelles fechou a tampa de segurança e voltou a olhar pra mim.
 
-Dock não hesitou. O primeiro golpe veio rápido, uma sequência precisa de estocadas. Ele estava mais rápido. Mais calculista. Ele havia treinado. Estava muito melhor.
+— Sou o capitão da Lebargan, Jasmey.
 
-Nos primeiros movimentos, desviei com facilidade, mas então ele alterou o padrão. Um golpe imprevisível, uma variação que não previ.
+O piso se abriu sob meus pés. Tentei alcançar a borda, mas caí na passagem inferior. Bati o ombro numa plataforma metálica e rolei pro lado antes que a escotilha fechasse acima de mim.
 
-A lâmina afundou na minha perna. Grunhi de dor, recuando. Dock hesitou. Então com um giro rápido, apliquei um golpe no peito dele com o punho mecânico, jogando-o no chão. O impacto o fez gemer de dor, mas ele não se levantou.
+As luzes acenderam. Seis Dales vinham na minha direção. Derrubei três, desviei da arma de choque de outro e consegui alcançar a porta. O alarme continuava tocando quando virei uma esquina. Dock tava no meio do corredor, com uma espada na mão.
 
-— Garoto. Sinto lhe dizer, mas toda merda que disse antes pra você… era tudo mentira. A gente se vê por aí.
+— Ei, garoto. Sai da frente. Não quero te machucar.
 
-A espada escorregou da mão dele e bateu no chão. Foi a única resposta.
+Dock ergueu a lâmina. Reconheci a empunhadura. Tinha ensinado o moleque a segurar a espada daquele jeito.
 
-Passei por cima dele. Ficou olhando o chão onde eu estivera, com a cara de quem perdeu alguém que escolheu. Eu segui andando, que é o que sei fazer.
+Desviei da primeira estocada, depois da segunda. Quando fui agarrar o pulso dele, Dock mudou a posição do pé e atacou pelo lado que eu tinha deixado aberto.
 
-E, como se já não bastasse o garoto, dei de cara com Vek.
+A lâmina entrou na minha perna. Dei um passo pra trás. O moleque hesitou ao ver o sangue, e aproveitei pra acertá-lo no peito com a mão de metal. Dock caiu. A espada escorregou pro lado.
 
-Mesmo mancando, me preparei.
+— Lembra o que eu falei sobre saber quando usar a espada e quando largar? Não deixa ninguém escolher isso por você, garoto. Nem o capitão.
 
-— Você está do lado errado irmão — falei.
+Ele olhou pra espada. Não tentou pegá-la.
 
-— Você é que é o traidor aqui — disse Vek.
+Passei por ele mancando. Apertei a mão contra o corte na perna e improvisei uma compressão com um pedaço do tecido que rasgou na queda. Tinha ensinado o moleque a ser um Dale e agora ele fazia exatamente o que eu esperava que fizesse. Não conseguia nem ficar com raiva dele.
 
-— Não. Nenhum Dale é o traidor. Eu errei, admito. Não deveria ter deixado Saezi… não deveria ter deixado nenhum dos nossos. Jelles não merecia ter sido salvo. Ele não é nosso capitão. Não vale a pena lutar por ele.
+No corredor seguinte, encontrei Vek.
 
-— A minha briga aqui não é por ele, Jasmey. É com você.
+Parei. A perna doía pra caralho.
 
-— A sua luta deve ser por seus irmãos. Por você, por Amanda… e por Saezi.
+— Tá do lado errado, irmão.
 
-Vi o olhar furioso de Vek, junto a seus olhos cheio de lágrimas. Ele iria atacar. Mas antes que qualquer um de nós pudesse agir, uma voz surgiu do nada.
+— Não me chama assim.
 
-— Espera!
+— Eu devia ter salvado a Saezi. Devia ter salvado todos eles. O Jelles nem merecia ter sido salvo, Vek.
 
-Vek franziu o cenho, confuso e virou-se.
+— E acha que isso traz ela de volta? Minha briga não é com ele.
 
-Kord surgiu do nada, correndo, o peito arfando, erguendo um dedo no ar.
+— Não. Não traz ninguém de volta. Mas tu ainda tá fazendo o que aquele desgraçado quer.
 
-— Ei seus imbecis. Antes de começarem a lutar... Eu tenho uma canção.
+Vek ergueu a arma. Tinha os olhos molhados e apertava os dentes. Eu conhecia aquela cara. Só nunca tinha sido a pessoa que o deixava daquele jeito.
 
-Kord limpou a garganta, deu um passo à frente e bateu as mãos no peito, preparando um grande espetáculo. Depois, começou a bater o pé ritmicamente no chão, arrancando olhares confusos de todos ao redor.
+— Ei! Espera!
+
+Vek virou a cabeça.
+
+Kord apareceu na outra ponta do corredor, arfando. Tinha uma pistola na cintura e o uniforme coberto de manchas escuras. Levantou a mão, pedindo que esperássemos. Olhei pras passagens atrás dele, procurando os outros.
+
+— Antes de vocês dois se matarem, quero cantar uma coisa.
+
+Ele bateu o pé no chão e começou. Vek ficou olhando praquele careca como se tivesse acabado de encontrar o maior idiota da Lebargan.
 
 “Uma nave chegou, ninguém viu chegar,
 Piratas dormiam, sem desconfiar!
 Nas sombras do cais o escuro rugiu,
 O caos se ergueu e ninguém o previu!”
 
-Ele girou sobre os calcanhares, apontando teatralmente para mim.
+Kord girou e apontou pra mim.
 
 “O traidor voltou, diz a língua do cais,
 Mas quem traiu quem? Ninguém sabe mais!
 No meio da briga, a gerbe brilhou,
 E os Dales correram, que a coragem faltou!”
 
-Vek franziu o cenho, cruzando os braços.
+Vek franziu a testa.
 
-— Mas que diabos você está falando?
+— Que porra tu tá fazendo?
 
-Kord apenas sorriu, inclinando a cabeça.
+Kord deu mais um passo, sem interromper a canção.
 
 “Então prestem atenção, pois a verdade é fatal...
 O golpe vem do alto... rápido e brutal!”
 
 — Golpe?
 
-Vek nem teve tempo de processar a resposta. O’reilly surgiu atrás dele e desceu o punho com força, apagando-o com um único soco.
+O’reilly apareceu atrás do Vek e acertou um golpe na cabeça dele. Vek caiu. Corri pra segurá-lo antes que batesse no chão.
 
-Levantei o olhar e vi junto a ele Eric, Hardman, Buni e Vivian ao meu redor.
+Eric, Hardman, Buni e Vivian saíram das passagens laterais.
 
 — Demoraram.
 
-Hardman sorriu.
+Hardman conferiu a ferida na minha perna.
 
 — Queríamos esperar o refrão.
 
-— Uma piada vindo de Hardman. Que tempos estamos vivendo, senhores — disparei.
+Olhei pro Kord.
 
-Hardman suspirou.
+— Tu inventou essa porra agora?
 
-— Cale a boca, Jasmey. Agora precisamos ir atrás dos gravitadores antes que nos encontrem. Vocês dois conhecem a nave, nos guiem.
+— Depois conversa — disse Hardman. — Precisamos chegar aos gravitadores.
 
-Deixei o Vek de lado no chão, para ele não se engasgar com a própria raiva. Foi o máximo de despedida que o orgulho dele aceitaria.
+Virei Vek de lado e afastei a arma dele. Por um instante, tive vontade de ficar ali até o sujeito acordar. Não tinha mais nada pra dizer que ele quisesse ouvir.
 
-— Bom — comecei — ao meu ver, precisamos subir, e seguir até o arsenal 1. Depois descemos até a doca novamente para fugir.
+— Arsenal um. Tem um elevador no fim desse corredor. Depois voltamos pra doca.
 
-— A doca está bloqueada — disse Eric — eles estão lutando contra o tersário.
+— A doca tá bloqueada — disse Eric. — O tersário tá lá.
 
-— O plano deu certo então? — perguntei de lado, observando que cada um possuía uma arma.
+— Deu certo?
 
-O’reilly estufou o peito, presunçoso.
+O’reilly pegou uma arma que trazia presa ao cinturão.
 
-— Ah, você teria adorado ver isso. Quando Eric trouxe os Dales para dentro da Princesa do Inverno, nós esperamos o momento certo... e soltamos o tersário. Foi lindo! — O’reilly gargalhou. — O monstro saiu como um meteoro ensandecido, rasgando a doca inteira e transformando tudo num pandemônio. Os Dales tentaram segurá-lo, e isso nos deu a brecha perfeita pra fugir. Até aproveitamos para apanhar algumas armas.
+— Quando Eric voltou com os Dales pra Princesa, esperamos que entrassem. Hardman começou a aquecer a cápsula enquanto Eric entretinha os guardas. Quando o primeiro tentáculo voltou a se mexer, ele abriu a tampa e desligou o campo secundário pelo controle. Já estávamos na passagem de serviço. O bicho saiu pelo corredor onde os Dales faziam a revista. O primeiro guarda que viu um tentáculo largou a arma e correu. Os outros fizeram questão de ir atrás. Pegamos o que deixaram e viemos buscar você.
 
-O’reilly então entregou-me uma das armas.
+Ele me entregou a arma.
 
-— E agora a maioria dos Dales está ocupada tentando não ser destroçada por um predador cósmico — disse Eric.
+— O Klest nem ficou pra ver o que tinha na nave — acrescentou Eric.
 
-A adrenalina ainda pulsava no meu peito, mas eu tinha descoberto algo que tinha que compartilhar com eles.
+Olhei pro corredor. O alarme ainda vinha do alto da torre.
 
-— Não iremos pegar o gerbe.
+— Mudança de plano. Não vamos pegar o gerbe.
 
-— O quê? — indagou Eric.
+— Como assim? — Eric parou.
 
-— Precisamos sair desse planeta. O plano de Jelles não é apenas saquear o gerbe. Dentro deste planeta… tem uma criatura adormecida. Se ela acordar…
+— O Jelles quer alguma coisa que tá dentro do planeta. Diz que tem uma criatura adormecida ali. Se ela acordar...
 
-Olhei para Hardman, e ele pareceu entender.
+Hardman virou a cabeça.
 
-— A Besta? — perguntou ele.
+— A Besta?
 
 Assenti.
 
-— Isso é um conto religioso — resmungou Kord.
+— A Besta? Que porra de criatura é essa? — perguntou Kord.
 
-— Não zombe da fé da luz — disse O’reilly — só porque não acredita, não te dá o direito de dizer que é um conto.
+— Há histórias sobre ela no Livro da Verdade — disse Hardman.
 
-— Eu não sei se é real, mas não quero estar aqui se for — falei.
+— Eu não brincaria com isso, irmão — acrescentou O’reilly.
+
+— O Jelles acredita. E eu não quero descobrir se ele tá certo enquanto a gente ainda tá aqui.
 
 Kord cruzou os braços.
 
-— Não saio daqui sem o tesouro.
+— Não passei por tudo isso pra sair sem nada. Nem vou voltar pra trabalhar pros outros. Se a gente deixar o planeta agora, de onde vai tirar o dinheiro pra viver?
 
-Hesitei. Eu tinha prometido que sairíamos com o tesouro. E eu sabia que nenhum deles ali sairia de mãos abanando… Olhei para os outros, esperando que alguém tivesse o mínimo de bom senso. Mas, para minha frustração, vi Buni suspirar.
+Olhei pra Hardman, esperando que me ajudasse.
 
-— Preciso do tesouro para casar com a Madame.
+— Eu preciso do gerbe pra encontrar a Madame — disse Buni. — Não quero deixar ela lá.
 
-O’reilly sorriu, ajeitando o cinto.
+O’reilly conferiu o corredor.
 
-— Admito que não gosto da ideia de morrer, mas gosto menos ainda da ideia de morrer pobre.
+— Temos a dívida com o Mestre. Se sairmos de mãos vazias, ainda teremos outro problema.
 
-Eric não disse nada, mas seu olhar já me dizia que estava inclinado a concordar. Então vi Vivian, que até agora tinha se mantido em silêncio.
+Eric olhou pro Hardman. Vivian fez um gesto e apontou pro chão, depois para o casco da nave.
 
-Vivian se ajoelhou, apoiou a palma aberta no gerbe e depois no peito. Ninguém precisou traduzir. Nem Hardman tentou. Era a primeira vez que eu via alguém querer um tesouro por um motivo que não coubesse numa taverna.
+Ela apontou pros outros, depois uniu as mãos e fez um gesto que não reconheci. Kord acompanhou os sinais.
 
-Balancei a cabeça, bufando.
+— Ela também quer levar o gerbe, Badrock. Quer ajudar a gente a sair daqui com alguma coisa.
 
-— Então vamos pegar os gravitadores — respondi, derrotado.
+Olhei pra perna. A ferida não ia melhorar ficando parado ali.
 
-Seguimos pelos corredores, a nave tremendo ao nosso redor conforme os alarmes ecoavam. O chão vibrava sob nossos pés.
+— Tá bom. Pegamos os gravitadores e saímos o mais rápido possível.
 
-O primeiro grupo surgiu de uma bifurcação, armas em mãos, rugindo ameaças antes de abrir fogo. Eram três. Nos jogamos contra as paredes enquanto disparos queimavam o ar. Eric revidou com precisão, acertando um dos piratas no ombro. Kord avançou como um animal, usando a própria arma como bastão para esmagar um inimigo contra a parede. Eu conhecia aquele, um bom rapaz. Pena que estávamos em lados opostos da batalha.
+Seguimos. Os alarmes indicavam setores diferentes, e pelas mensagens de rádio percebi que a maior parte dos guardas tava sendo enviada à doca.
 
-Os corredores eram apertados, com tubulações expostas no teto e luzes piscantes lançando sombras fantasmagóricas. Era o caminho mais rápido até o arsenal 1. O barulho dos disparos ecoava como trovões.
+Três Dales apareceram numa bifurcação e abriram fogo. Eric atingiu um deles no ombro. Kord acertou outro com o cabo da arma. Reconheci o sujeito quando caiu. Tinha treinado comigo na Ala 66. Merda. Até pouco tempo atrás, se alguém apontasse uma arma pra ele, eu teria apontado a minha pro desgraçado. Desviei do último disparo e derrubei o terceiro com a mão de metal.
 
-Avançamos, chutando portas, atravessando passagens de manutenção e desviando de mais patrulhas. Os Dales não estavam brincando: a resistência aumentava a cada metro, forçando-nos a lutar mais intensamente. O’reilly derrubou um inimigo com um golpe rápido, rindo enquanto rolava para evitar um disparo.
+Indiquei a passagem de manutenção. Era o caminho mais curto até o arsenal.
 
-— Tinha esquecido como isso é divertido!
+O’reilly fechou uma porta atrás de nós e derrubou um guarda que tentou alcançá-lo. Eric esperou que todos passassem antes de voltar a atirar.
 
-— Não é divertido quase morrer! — retrucou Hardman, recarregando a arma enquanto recuava.
+— Vambora, irmãos!
 
-Seguimos, dobrando uma esquina e demos de cara com uma barricada improvisada. Atrás dela, uma dúzia de Dales, armas erguidas, esperando. O líder, um sujeito alto com cicatrizes no rosto. Klest.
+— Esperem! — gritou Hardman, recarregando a arma.
 
-— Vocês estão numa fortaleza de Dales. Os maiores guerreiros da galáxia. Não vão escapar.
+Viramos a esquina e encontramos uma barricada. Uma dúzia de Dales tinha armas apoiadas na estrutura. Klest tava no meio deles.
 
-— Uma dúzia de Dales, mas o da frente é o alvo — O’reilly murmurou para si mesmo, seus olhos percorrendo a formação inimiga — Ele se posiciona como um escudo, mas é a cabeça da cobra. Se tirarmos o líder, a disciplina deles vacila — Sua voz, como um chicote, rosnou — Quem não vai escapar é você!
+— Vocês não vão sair da Lebargan!
 
-Kord e Eric ergueram as armas, mas antes que alguém pudesse atirar, mais Dales surgiram e se juntaram a eles.
+O’reilly observou as armas e falou baixo pra gente:
 
-O silêncio foi cortado pelo som pesado da respiração de Buni.
+— Se o Klest sair do meio, eles vão perder a formação. Mas não dá pra chegar nele sem atravessar essa porra.
 
-Ele deu um passo à frente, olhando para os Dales com um olhar diferente. Mais firme.
+Mais Dales apareceram atrás da barricada. Eric puxou Vivian pra trás da parede. Eu procurei outra saída e não encontrei.
 
-— Chega!
+Buni olhou pra porta lateral.
 
-Antes que alguém pudesse reagir, Buni agarrou uma porta lateral com ambas as mãos e puxou. O metal rangeu, resistindo por um segundo antes de ser arrancado das dobradiças com um estrondo ensurdecedor. Os Dales ficaram momentaneamente paralisados, sem saber como reagir.
+— Sai um pouquinho, Kord.
 
-Foi quando Buni ergueu a porta para frente de si como um escudo improvisado e correu.
+— Que foi?
 
-A barreira de metal esmagou os primeiros piratas no impacto, arremessando-os contra as paredes como bonecos. Os tiros ricocheteavam na superfície metálica enquanto Buni avançava, empurrando tudo e todos em seu caminho.
+Buni agarrou a porta com as duas mãos e puxou. As dobradiças rangeram. O careca recuou quando a estrutura saiu inteira da parede.
+
+O grandalhão virou a porta na direção dos Dales e avançou.
+
+Os primeiros tiros bateram no metal. Buni atravessou a barricada, empurrando dois Dales contra a parede. Os outros se afastaram pra não serem atingidos pela porta.
 
 — AGORA! — gritou Kord.
 
-Sem hesitar, todos nós investimos logo atrás dele, usando a abertura criada. Os Dales tentaram reagir, mas estavam desorganizados demais para deter a investida. Hardman acertou um disparo certeiro na perna de um dos atiradores. O’reilly saltou sobre a barricada e derrubou Klest com um chute.
+Fomos atrás dele. Hardman acertou um dos guardas na perna. O’reilly saltou por cima do que restou da barricada e derrubou Klest. Eric cobriu o outro lado enquanto Vivian passava.
 
-O corredor virou um campo de batalha, mas a vantagem era nossa.
+Buni continuou andando. Os Dales que ainda tavam de pé recuaram.
 
-Com um último rugido, Buni empurrou a porta para frente, esmagando os últimos Dales contra a parede e abrindo o caminho para seguirmos em frente.
+Quando chegamos à outra extremidade do corredor, ele largou a porta no chão. O barulho fez todo mundo olhar.
 
-— Isso foi incrível Buni — elogiou O’reilly, limpando o sangue do rosto.
+— Puta merda, Buni — disse O’reilly. — Tu arrancou a porta da parede!
 
-Eu bati uma mão no ombro dele, rindo.
+Olhei pras dobradiças torcidas.
 
-— Agora me lembra de nunca te irritar.
+— Agora me lembra de nunca te dever dinheiro.
 
-Ele baixou os olhos, tímido.
+Buni baixou a cabeça.
 
-— Eu só queria atravessar — murmurou. — A porta estava no caminho.
+— Eu só queria passar.
 
-Seguimos pelos corredores destroçados, atravessando o caminho finalmente livre. E então, lá estava ela: o arsenal 1.
+Seguimos pro arsenal um. Eric me ajudou a abrir a entrada.
 
-Puxei a porta e entrei, varrendo o local com os olhos. Num caixote de confiscos, entre pistolas e braceletes, achei meu chapéu e o enfiei na cabeça sem cerimônia. Meus dedos tocaram o frio metal negro e brilhante das armas cilíndricas, semelhantes a grandes rifles, mas sem cano: tinham um núcleo central flutuante, cercado por um anel metálico que girava constantemente, pulsando em sintonia com a própria gravidade.
+Entre os caixotes de armas confiscadas, encontrei o chapéu branco e enfiei na cabeça. Peguei uma adaga do caixote de armas e prendi no cinturão. Eric encontrou a bolsa dele entre os objetos confiscados. Hardman pegou o bracelete que a Samara tinha tomado de mim.
 
-Levantei um deles, sentindo seu peso.
+— Se conseguirmos ajustar o acesso, isto poderá abrir algumas das portas da nave.
 
-— Agora sim — murmurei. — Vamos acabar com isso.
+— Eu te mostro o que precisa fazer. Já usei esse modelo a vida inteira.
 
+Na bancada ao lado havia os gravitadores. Os corpos cilíndricos de metal escuro não tinham canos, mas um núcleo suspenso no meio de um anel giratório. Reconheci o zumbido antes mesmo de levantar um deles.
+
+Entreguei um ao Kord, outro ao Eric e peguei o terceiro. Eric conferiu o conteúdo da bolsa e ergueu o Olho do Domongo. Continuava inteiro.
+
+— Agora sim. Vamos tirar nosso tesouro e dar o fora.
