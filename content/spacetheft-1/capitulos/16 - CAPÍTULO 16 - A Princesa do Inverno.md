@@ -1,446 +1,519 @@
-— Mas que droga está acontecendo aqui? Você o conhece Jasmey? — perguntou Hardman.
+— Jasmey, conhece esse homem? — perguntou Hardman.
 
-— Ei — falei — calma, Eric... larga essa arma.
+— Calma, Eric. Larga a arma.
 
-Eric sorriu por baixo das sobrancelhas grossas, os olhos pequenos e castanho-claros já preparando alguma piada. O cabelo castanho-claro, comprido mas ainda acima dos ombros, emoldurava o rosto alongado. Na cabeça, meio de lado, ele usava um chapéu branco de aba curta, com um broche redondo na faixa. Eu conhecia aquele chapéu melhor do que meu próprio rosto.
+Eric sorriu por baixo das sobrancelhas grossas. Tinha os mesmos olhos pequenos, castanho-claros, e o cabelo comprido até pouco acima dos ombros. Na cabeça, meio de lado, usava um chapéu branco de aba curta, com um broche redondo na faixa. Pera aí. Aquele chapéu era meu.
 
-— Achei que meus olhos estavam me enganando, mas Jasmey Badrock está vivo.
+— Achei que tava vendo coisa lá na arena. Jasmey Badrock, vivo.
 
-— Jasmey quem é ele? — tornou a perguntar Hardman.
+— Quem é ele, Jasmey?
 
-— Um velho amigo.
+— Um Dale. A gente cresceu na mesma nave.
 
-— Pode pedir pro seu amigo largar a faca do pescoço do meu amigo? — indagou Hardman, nervoso.
+— Então pode pedir que ele tire a arma do pescoço de Buni?
 
-Assenti e Eric afrouxou a mão. Então saiu de perto de Buni. Buni se levantou e correu para longe dele.
+Eric olhou pro Buni, soltou o braço dele e baixou a arma. Buni correu pra perto de Hardman, esfregando o pescoço.
 
-Antes de qualquer pergunta, estendi o braço e tirei o chapéu da cabeça dele.
+Estendi a mão e tirei o chapéu da cabeça do Eric.
 
-— Isso aqui é meu.
+— Isso aqui é meu, seu filho da puta.
 
-— Estava no gancho do hangar — Eric disse, sem pressa. — Você estava morto.
+— Tava no gancho do hangar. Você tava morto.
 
-— Eu estava *morto*, Eric, não doando minhas coisas. Qualquer pessoa decente espera um hepton.
+— Estar morto não significa que tô distribuindo minhas coisas.
 
 — Ficou bem em mim.
 
-— Ficou ridículo em você.
+— Ficou ridículo.
 
-Ajeitei o chapéu na cabeça com mais força do que o necessário. Hardman me olhou como quem decide se acabou de ver uma reunião de amigos ou um sequestro.
+Examinei a faixa, endireitei o broche e enfiei o chapéu na cabeça. Hardman ficou olhando de mim pro Eric, sem entender por que aquilo tinha tanta importância.
 
-— O que fez com eles? — perguntei, olhando para Kord e O’reilly ao chão.
+— E o que fez com esses dois? — Apontei pra Kord e O’reilly.
 
-— Tranquilizantes — disse Eric se abaixando ao lado deles e colocando um pano sobre suas narinas. Imediatamente eles acordaram, assustados, respirando fortemente.
+— Tranquilizantes. Calma, não matei ninguém.
 
-— Hardman — disse O’reilly ofegante — tem alguém...
+Eric tirou um pano do bolso, molhou com algumas gotas de um frasco e aproximou das narinas dos dois. O’reilly tossiu. Kord abriu os olhos pouco depois. Buni se abaixou ao lado dele e perguntou se tava bem. O careca olhou primeiro pro Buni, depois pra janela aberta, procurando de onde tinha vindo o ataque.
+
+— Hardman! Tinha um sujeito na janela...
 
 Hardman correu para perto dos amigos.
 
-— Ta tudo bem. Ao que parece, nosso amigo pirata conhece o inimigo.
+— Calma. Parece que Jasmey conhece esse homem.
 
 Kord e O’reilly olharam ao redor e avistaram Eric parado próximo à janela.
 
-— Quem é ele? — vociferou Kord — o filho da puta nos atacou.
+— Quem é o filho da puta? — rosnou Kord, se levantando.
 
-Kord ameaçou ir pra cima de Eric, mas o mesmo retirou uma pistola do bolso e apontou para ele. Kord parou, o olhar furioso.
+Eric ergueu a pistola quando Kord veio na direção dele. Hardman se colocou entre os dois. O careca parou.
 
-— Acalme-se. Peço desculpas pelo incidente. Não imaginei outra forma de chegar até Jasmey Badrock sem ser atacado. Com certeza deve pensar que estou atrás de você. Mas não é o caso. O destino acabou nos reencontrando.
+— Foi mal. Quando entrei, os dois vieram pra cima de mim. Não tava querendo matar ninguém. E antes que você pergunte, Badrock, não vim atrás de você. Foi coincidência.
 
-— Chega de vomitar palavras, Eric. O que faz aqui?
+— Então o que tá fazendo aqui?
 
-— Depois que você foi dado como morto, o regime mudou completamente na Lebargan. Jelles eliminou mais de 10 irmãos que acreditava ser uma ameaça. Genrir foi torturado por não aceitar uma missão. Jelles está cada vez mais paranóico. E eu estava cansado daquilo tudo. Então fiz o impensável. Durante uma missão, eu fugi e abandonei os Dales. Mas diferente de você que “morreu”, eu fui perseguido. Por Vlad, o caolho. Mas consegui despistá-lo. Aliás… como sobreviveu? As histórias de como você enfrentou Jelles e foi derrotado se espalhou por toda Lebargan.
+— Depois que você morreu, o Jelles ficou ainda pior. Retirou mais de dez irmãos porque achava que eram uma ameaça. Torturou o Genrir por recusar uma missão.
 
-— É uma longa história. Fui revivido, preso, traído, transei, fui traído de novo, roubei uma nave, fui traído uma terceira vez, e aqui estou — falei.
+Eric olhou pro chão e passou a mão pela nuca.
 
-Eric hesitou, me estudando.
+— Comecei a perceber que, se continuasse lá, ia acabar sendo um deles. Quando saí pra uma missão, não voltei. Mandaram o Vlad atrás de mim, mas consegui despistar o caolho. E você? Como é que tá vivo? A história da tua luta com Jelles se espalhou pela Lebargan.
 
-— É inacreditável como tudo que é ruim é difícil de morrer. Minha irmã ficará louca quando souber. Ela chorou horrores quando você se foi. Aliás, meu objetivo agora é resgatá-la da Lebargan.
+— Morri, voltei, fui preso, traído, roubei uma nave e uma mulher roubou ela de mim. Foi mais ou menos isso.
 
-— Amanda? Acha que ela iria contigo?
+Eric ficou me olhando, com a mão ainda em volta da pistola.
 
-— Bom… se você estivesse comigo, tenho mais chances de convencê-la.
+— É incrível como coisa ruim custa a morrer.
 
-— E como pretende resgatá-la? A Lebargan é como uma nave fantasma.
+Ele sorriu, mas logo guardou a arma.
 
-— Antes da missão, roubei da sala de Jelles o Olho do Domongo — disse Eric, tirando-o da bolsa. — E assim que pude, parti para Sumatram. Com ele em mãos, eu poderia convencer o Mestre Estelar a lutar do meu lado e me fornecer força para enfrentar a Lebargan.
+— A Amanda vai ficar louca quando souber. Chorou pra caralho quando você morreu. Quero tirar ela de lá.
 
-Parei por um instante e juntei as pontas.
+— E acha que ela vai contigo?
 
-— Então era esse o seu objetivo? Por isso estava aqui? Queria presentear o Mestre e conseguir força para invadir a Lebargan?
+— Sozinho? Não sei. Com você do meu lado, talvez.
 
-— Sim. O Mestre é um mercador, eles são loucos por dinheiro e tesouros. Nada muito diferente de nós, não é Jasmey?
+— E como tu vai voltar pra Lebargan? Nem sabe onde ela tá.
 
-— Ok, mas ainda acho seu plano maluco. Acha que pode tirar sua irmã de lá e lutar contra todos os seus irmãos? — perguntei, em tom debochado.
+Eric abriu a bolsa e tirou o Olho do Domongo. Reconheci a porra na hora.
 
-Eric pareceu extremamente desconfortável com a minha reação.
+— Roubei do Jelles antes de sair. Vim pra Sumatram porque o Mestre Estelar tem dinheiro, armas e naves. Pensei em oferecer o olho em troca de ajuda.
 
-— É claro que consigo. Está rindo de quê? Eu escapei da Lebargan… e inteiro — disse Eric mirando no meu braço metálico.
+Olhei pro olho que tinha me dado tanto trabalho pra arrancar daquela criatura. O desgraçado tinha conseguido tirar aquilo das mãos do Jelles.
 
-— Não. Você fugiu, se acovardou. E ainda não tem um braço tão legal quanto o meu — falei.
+— Era por isso que tava na arena?
 
-— Me acovardei? O que você tem feito este tempo todo escondido logo aqui em Sumatram? Transando com putas em Geores?
+— É. O Mestre é mercador. Se acreditar que aquilo pode render dinheiro, talvez me dê o que preciso.
 
-— Só estou em Sumatram porque perdi nossa nave.
+— E depois invade a Lebargan e sai matando os nossos irmãos até encontrar a Amanda? Belo plano, Eric.
 
-— Você perdeu uma nave?
+Ele baixou os olhos por um instante, depois voltou a me encarar.
 
-— Não foi bem assim, na verdade ele caiu de amores por uma garota e ela lhe roubou a nave — explicou Hardman.
+— Eu consegui sair de lá. E inteiro.
 
-— Eu não caí de amores por ela. Ela me drogou — argumentei.
+Olhou pro meu braço.
 
-— Você continua o mesmo: sexo e diversão — falou Eric. — Um idiota, mas um idiota esperto, o que é pior.
+— Fugir é uma coisa, enfrentar o Jelles é outra. E olha só esse braço. Tá bem melhor que o teu.
 
-— Isso é saber aproveitar a vida. Depois que tu morre não pode fazer mais porra nenhuma? Então enquanto estiver aqui quero foder a porra toda.
+— E o que fez desde então? Tava escondido em Sumatram, bebendo e transando em Geores?
 
-— Você me enoja, Jasmey — disse Hardman, com uma cara de desgosto.
+— Só tô aqui porque perdi nossa nave.
 
-Eu ri e suspirei antes de continuar.
+— Perdeu uma nave?
 
-— Ok irmão. Eu te ajudo a salvar sua irmã — falei, embora não estivesse de acordo com seus métodos — mas me diga, como vamos achar a Lebargan? Sem este olho, Jelles nunca chegará à Aurora.
+— Confiou numa mulher em Geores e ela nos roubou — explicou Hardman.
 
-Eric então colocou a mão em seu braço direito esperando que eu perguntasse isso. Me mantive atento, qualquer movimento, eu atirava. Então ele puxou a manga de sua roupa e revelou um bracelete, o mesmo que usávamos na Lebargan.
+— Ela me drogou!
 
-— Porra! Isso está funcionando? — perguntei.
+— Continua o mesmo, então. Um idiota que é esperto o suficiente pra dar trabalho aos outros.
 
-— Está desativado — falou Eric — se estivesse funcionando, eu estaria morto agora. Lembre-se que os braceletes são programados para matar rebeldes.
+— Tenta morrer uma vez, Eric. Depois me diz se não dá vontade de aproveitar o tempo que te sobrou.
 
-— Impossível — falei — o bracelete não pode ser desativado. A menos que a pessoa morra.
+Hardman apertou os lábios.
 
-— Você não está morto, Jasmey — falou Eric.
+— Seria uma excelente oportunidade para aprender alguma coisa.
 
-— Mas eu morri! — falei — e perdi meu braço no processo.
+Deixei pra lá.
 
-— Pena que não continuou morto — riu Eric — na sala do capitão, há um dispositivo que permite desativar o bracelete. Antes de roubar o olho, obviamente o desativei.
+— Tá bom, irmão. Eu te ajudo a tirar a Amanda de lá. Mas como vamos encontrar a Lebargan? Sem esse olho, o Jelles nem devia saber pra onde ir.
 
-— Isso significa… que para atrair a Lebargan aqui basta o ativarmos? — perguntei.
+Eric levou a mão ao braço direito. Acompanhei o movimento, pronto pra sacar a arma. Ele levantou a manga e mostrou um bracelete Dale.
 
-— Não! — exclamou Eric — se ativarem eu morro. Precisamos tirar isso de mim primeiro. E aí então ativar.
+— Porra. Isso tá funcionando?
 
-— Desculpe... mas eu to fora do plano de vocês — falou Kord — que se dane a briguinha de vocês, não quero eu nem meus companheiros envolvidos.
+— Desativei. Se tivesse ligado, já estaria morto. O Jelles manda matar quem se rebela, lembra?
 
-Me virei para Kord e respirei fundo.
+— Se tentar arrancar isso do braço, a toxina te mata. Como desligou?
 
-— Sabe pra onde aquele olho leva? Para o maior tesouro da galáxia. O tesouro que muitas raças acham ser um mito — falei.
+— Você tá vivo, não tá?
 
-— Como pode provar que aquele olho é mapa até a Aurora? — perguntou O’reilly — aquilo não me parece nada parecido com um mapa.
+— Eu morri, Eric! E o Jelles arrancou meu braço.
 
-— Tem uma forma de fazê-la funcionar... a mulher me disse algo com código genético... Deixe-me ver isso — falei, mas Eric recuou a mão com o olho, em alerta — Qualé cara, se quisesse lhe roubar já o tinha feito.
+— Pena que não arrancou o outro também. Tem um dispositivo na sala do capitão que coloca o bracelete em manutenção. Desliga o transmissor e bloqueia os comandos remotos, até o da toxina. Usei antes de roubar o olho.
 
-— Precaução meu amigo. Não confio em ninguém. Este olho é a única chance que tenho de tirar minha irmã daquela nave.
+Olhei pras luzes apagadas do bracelete. Aquele troço tinha sido parte do meu corpo desde a Ala 66. Sabia muito bem o que a Lebargan podia fazer quando recebia o sinal de um Dale.
 
-Enquanto discutíamos, Vivian passou ao meu lado e caminhou em direção a Eric. O rapaz, desconfiado, puxou o olho ainda mais para trás.
+— Se voltar ao funcionamento normal, a Lebargan recebe teu sinal, né?
 
-— Afaste-se! — ele grunhiu, mas Vivian, além de lhe lançar um olhar feio, o desafiou. Ela parou ao seu lado e estendeu a mão.
+— Não liga enquanto estiver em mim! Primeiro tira essa porra do meu braço. Depois faz o que quiser com ela.
 
-— O que você quer? — indagou Eric.
+— Não, não, não. Tô fora dessa briguinha de vocês — disse Kord. — Não vou meter meus amigos nisso.
 
-Vivian continuou a encará-lo, a mão estendida.
+Virei pro careca. Tava na hora de tentar outra coisa.
 
-— Dê o olho pra ela — disse Hardman — acho que ela tem uma ideia. Ela não para de encarar esse item desde que o tirou de sua bolsa.
+— Sabe o que esse olho faz? Leva a gente pro maior tesouro da galáxia. Aquele que metade dos piratas acha que nem existe.
 
-Olhei para a garota e vi que ela era persistente. Então Kord em um movimento rápido correu para cima de Eric, o que o fez apontar a arma para ele. Mas O’reilly, do outro lado, apanhou sua mão e lhe desarmou. O olho caiu e Vivian o apanhou. Eric então grunhiu enquanto Kord e O’reilly o prendiam.
+— E como sabe que é um mapa? — perguntou O’reilly. — Não vejo coordenada nenhuma nisso aí.
 
-— O que você...
+— Uma mulher me explicou que tinha alguma coisa a ver com o código genético. Deixa eu ver.
 
-— Shh — ela fez com a boca pedindo silêncio.
+Eric afastou o olho.
 
-Vivian encarou o olho por um instante, e por algum momento jurei ter visto pequenas partículas ou feixes de luz “dançar” dentro dos olhos dela. Foi então que algo curioso aconteceu. Da pupila do Olho do Domongo, uma luz violeta surgiu, sutil, mas direta, apontando para o teto.
+— Qualé, cara. Se quisesse tomar de você, já tinha tomado.
 
-— O que é isso? — Eric começou.
+— É a única coisa que tenho pra negociar a vida da Amanda. Não vou largar na mão de qualquer um.
 
-— Apague as luzes — disse Hardman. Kord, que estava mais próximo do interruptor, o fez. No escuro, podiam ver que o olho brilhava de cor púrpura.
+Vivian passou por mim e parou diante dele. Tava olhando pro olho desde que Eric o tinha tirado da bolsa.
 
-Hardman olhou para ela, perplexo.
+— Fica aí.
 
-— Ela… está alterando a composição atômica do olho.
+Eric afastou o braço. Vivian estendeu a mão e apontou pro objeto.
 
-— Fale minha língua — eu disse.
+— O que ela quer?
 
-— Isso significa que ela liberou fótons convertendo seu código genético em luz. E essa luz... parece apontar para algo.
+Ela apontou outra vez, sem tirar os olhos dele.
 
-Vivian vira-se para Kord e gesticula para ele.
+— Deixe-a examinar o olho — disse Hardman. — Acho que percebeu alguma coisa.
 
-— O que, o que ela disse? — perguntou Eric.
+Eric não cedeu. Kord avançou quando ele fez menção de erguer a pistola. O’reilly segurou o pulso dele e tomou a arma. O olho escapou da outra mão e Vivian o apanhou antes que caísse no chão. Kord prendeu o braço do Eric.
 
-— Ela encontrou a indicação da composição de gerbe atrelado ao código genético do olho. O material genético se tornou um imã de gerbe. Os fótons são atraídos pelo maior centro de gerbe da galáxia — traduziu Kord.
+— MAS QUE...
 
-— A aurora — dissemos eu e Eric juntos.
+Vivian levou um dedo aos lábios. Depois voltou toda a atenção pro olho.
 
-Vivian olhou para mim e assentiu. Em seguida virou-se para Eric e entregou-lhe o olho de volta. Eric, ainda sem reação, o apanhou de volta.
+Por um momento, achei que tivesse visto feixes minúsculos de luz dentro dos olhos dela. Vivian aproximou o polegar da pupila do Domongo e um raio violeta saiu dali, fino, apontando pro teto.
 
-Então essa era a habilidade que a Engenheira tinha. Era assim que ela realizava as microcirurgias celulares. Vivian então compartilhava do mesmo dom que ela. Era atrás da Engenheira que Jelles estava quando invadiu Dekraaz. Ela é quem poderia decodificar o olho.
+— Que porra é essa? — Eric parou de se debater.
 
-— O que é gerbe? — perguntou Buni, isolado em um canto.
+— Apague a luz, Kord.
 
-— Você fala? — riu Eric zombando do silêncio de nosso companheiro.
+O careca chegou ao interruptor. No escuro, dava pra enxergar o raio púrpura com muito mais nitidez.
 
-— É o que todo pirata sonha, Buni — respondi — O tesouro que vai fazer você ter todas as putas do mundo. E é na Aurora que o encontramos.
+Hardman se aproximou, sem tocar no olho.
 
-— Então realmente estamos com o mapa para o maior tesouro da galáxia — riu O’reilly bobamente.
+— Ela está alterando a composição atômica do tecido.
 
-— Estamos? Achei que vocês não queriam se envolver — resmunguei.
+— E isso quer dizer o quê?
 
-— Até então não havia tesouro real. Agora que há, é claro que nós queremos — disse Kord respirando fundo e colocando as mãos na cintura — Eu sempre quis recomeçar minha vida, e acho que com esse tesouro, posso recomeçar onde e como quiser.
+— A informação genética está sendo convertida em emissão de fótons. Observe a direção do feixe. Não parece aleatória.
 
-— E ainda vamos conseguir cumprir nossa parte do acordo com o Mestre — disse Hardman.
+Vivian fez alguns sinais pro Kord, apontando pro olho e depois pro teto.
 
-— Que se dane o Mestre! — falei, e então me virei para Eric — Se Jelles souber onde estamos, ele virá até nós. Eu posso matá-lo, e salvamos sua irmã.
+— Que foi que ela disse? — perguntou Eric.
 
-— Jasmey, o Mestre é um cara perigoso. Ele pode contratar sombras para irem atrás de nós — falou Hardman.
+— Que encontrou uma composição de gerbe ligada ao código genético. É... o olho tá funcionando como uma bússola. O feixe é atraído pro maior centro de gerbe da galáxia.
 
-— Quero ver que assassino será páreo para enfrentar os Dales — respondeu Eric.
+— A Aurora — dissemos eu e Eric ao mesmo tempo.
 
-— Vocês têm uma pinta de maiorais, não é? — disse Hardman, com aquele tom passivo-agressivo que era tão característico. — Acham que são os melhores da galáxia. Mas vivem em um mundinho fechado. Não sabem nada como é a realidade. E muito menos das forças que há em nossa galáxia. A Lebargan pode ser uma fortaleza, mas nada é eterno, nada é indestrutível.
+Vivian assentiu. Kord soltou Eric, O’reilly devolveu a pistola depois de receber um aceno do Hardman, e Vivian estendeu o olho ao dono. O sujeito demorou um instante pra pegá-lo.
 
-Eric, que estava encostado na parede polindo uma pistola, levantou o olhar e caminhou lentamente até Hardman. Ele o encarou com desprezo.
+Lembrei do úrgalo que a Engenheira tinha trazido de volta à vida em Dekraaz. Era ela que o Jelles queria encontrar. Se tivesse conseguido, talvez já estivesse na Aurora.
 
-— O nosso mundinho fechado existe por mais de mil momentos. E não interessa o quanto nos ataquem, sempre voltamos mais fortes.
+— Mas o que é gerbe? — perguntou Buni, lá do canto.
 
-Hardman arqueou as sobrancelhas e lançou uma de suas clássicas caretas, de quem acabou de ouvir algo ridículo.
+Eric virou a cabeça, surpreso.
 
-— Nem mesmo o metal mais forte sobrevive ao inferno de uma supernova ou à força de um buraco negro — retrucou ele, com uma tranquilidade provocadora.
+— Ah, você fala.
 
-Kord, sentado no braço de um sofá, bateu as mãos nos joelhos e levantou-se, irritado.
+— É o tesouro que todo pirata quer encontrar, Buni. Lembra do que a gente combinou na Fera? Uma nave própria, dinheiro pra ir onde quiser. Com gerbe suficiente, tu não vai precisar voltar a trabalhar pra ninguém.
 
-— Chega! O Hardman tem razão. Acho que depois de saquearmos a Aurora, devemos cumprir com nossa parte e trazer a parte do tesouro do Mestre. Não queremos ser surpreendidos por um Sombra Cósmica.
+O’reilly olhou pro feixe, depois pra Vivian.
 
-Eu ri, mas foi um riso seco.
+— Então é só seguir o feixe?
 
-— Sombra Cósmica? Kord, desde quando você tem medo de a polícia dos humanos? — provoquei. — Vai me dizer que um bando de burocratas vestidos de preto te assusta?
+— Temos? Não era o que tavam dizendo mais cedo.
 
-Kord me encarou, o olhar sério.
+— Mais cedo não tinha tesouro nenhum, Badrock — disse Kord. — Com gerbe suficiente, dá pra comprar uma nave, voltar pra casa e viver sem ter que servir a filho da puta nenhum.
 
-— Eu não temo nada, Badrock. Mas diferente de você eu tenho um cérebro e o uso. Sei que você quer atrair seu capitão para a Aurora, e ele não vai vir sozinho. Vai trazer a Lebargan inteira. E com ela, o inferno. Não temos chance. Você não está interessado no tesouro, e essa dessincronia vai nos custar.
+— E pagar ao Mestre a parte que prometemos — acrescentou Hardman.
 
-Antes que eu pudesse responder, O’reilly, que estava deitado no sofá com as pernas para cima, interveio.
+— Que se dane o Mestre! Eric, a gente liga o bracelete quando chegar lá, atrai o Jelles, eu mato o desgraçado e tiramos a Amanda da Lebargan.
 
-— Kord tem razão. Precisamos confiar um no outro agora. Se você atrair um pirata e todo seu arsenal para o tesouro que estamos querendo… vamos acabar sem nada… inclusive sem vida.
+— O Mestre Estelar pode contratar Sombras Cósmicas para nos perseguir, Jasmey. Não convém ignorar um homem com os recursos que ele tem.
 
-Buni soltou uma risada alta e nervosa.
+— Quero ver quem consegue enfrentar um Dale — disse Eric.
 
-— Tá vendo? — disse O’reilly, apontando para ele. — Até o Buni acha isso loucura.
+Hardman ergueu as sobrancelhas.
 
-Hardman suspirou, apoiando o queixo na mão.
+— É curioso. Vocês passaram a vida numa única nave e estão convencidos de que conhecem todas as forças da galáxia.
 
-— Olha, eu sei que você tem suas questões pessoais com esse Jelles, mas talvez fosse bom lembrar que você não está sozinho nessa. Nós não somos Dales. Não temos armas superpoderosas ou um braço de metal para nos salvar. Só queremos uma vida onde podemos ter sossego.
+Eric parou de limpar a pistola com a manga e veio até ele.
 
-Revirei os olhos e bati o braço de metal na mesa, produzindo um som metálico que fez todos se calarem por um momento.
+— Nossa nave existe há mais de mil momentos. Já tentaram destruir a Lebargan e nenhum conseguiu.
 
-— Esse cara destruiu tudo. Ele roubou tudo de mim.
+Hardman olhou pro braço de metal que eu apoiava na mesa.
 
-Kord apontou um dedo na minha direção.
+— Nenhuma liga metálica sobrevive à energia de uma supernova ou à força gravitacional de um buraco negro. A Lebargan não é indestrutível.
 
-— E que direito você tem de roubar tudo de nós?
+Kord bateu as mãos nos joelhos e se levantou do sofá.
 
-Vivian, com o semblante sério, começou a gesticular.
+— Chega. Vamos buscar o tesouro e entregar a parte do Mestre. Não quero cruzar com uma Sombra Cósmica porque vocês dois resolveram brincar de guerra.
 
-— O que… o que ela disse, Kord? — perguntou O’reilly.
+Soltei uma risada.
 
-— Ela está dizendo que o direito de um não anula o direito de todos. Se um quer justiça, deve agir com justiça também, e não condenar os outros pelos seus próprios objetivos.
+— Desde quando o Kord tem medo da polícia dos humanos?
 
-Ela não precisava falar para deixar claro que concordava com Kord, mas de uma forma mais ponderada.
+O careca se aproximou da mesa.
 
-— Olha só — comecei — Não tenho interesse naquele tesouro. Mas vou fazer do jeito de vocês. Vamos à Aurora, pegamos o tesouro, vocês fogem e fazem o que quiserem com o gerbe de vocês. Quando vocês estiverem longe… eu chamo o capitão.
+— Medo? O teu capitão vai trazer a Lebargan inteira atrás de nós. E você sabe o que aquela nave pode fazer. Eu quero sair vivo da Aurora. Não tô disposto a morrer pra ajudar você a se vingar.
 
-— É isso! — disse Hardman — fechado!
+O’reilly tirou os pés do sofá.
 
-Kord olhou para mim, suspeitando de minha mudança de ideia, mas assentiu.
+— Irmão, se a Lebargan chegar antes de a gente tirar o gerbe, não sobra nada pro Mestre. Nem pra nós. Uma coisa de cada vez.
 
-Pude ver que todos concordaram com o plano, então me virei.
+Buni soltou uma risada nervosa. Ninguém acompanhou.
 
-— Bom, vou dormir agora. Fiquem bem!
+— E eu não quero que a gente se separe — murmurou ele.
 
-Me retirei do quarto e segui para o meu. Antes de fechar a porta do quarto, uma mão a impediu de bater.
+Hardman apoiou as mãos na mesa.
 
-— Eles acreditaram em você? — perguntou Eric entrando em meu quarto.
+— Você não está sozinho nisso, Jasmey. Não somos Dales. Não temos os recursos da Lebargan. Alguns de nós mal voltaram a ver as estrelas depois de anos de cativeiro.
 
-— Não sei. Mas sou o capitão deles, eles dependem de mim. Com Jelles atrás de nós, vai ser questão de tempo de nos encontrarmos e eu acabar com ele. E você pode resgatar Amanda.
+Bati a mão de metal na mesa. O barulho fez todo mundo se calar.
 
-Ele ficou em silêncio por um momento, analisando minhas palavras. Então suspirou, enquanto sentava-se no sofá.
+— Aquele filho da puta tirou tudo de mim.
 
-— Antes de qualquer coisa, precisamos tirar esse bracelete de mim. Tem alguma ideia?
+Kord apontou o dedo pra minha cara.
 
-Sorri, aquele tipo de sorriso que sabia que o irritava.
+— E quem te deu o direito de tirar tudo da gente?
 
-— Não. Mas Hardman pode conseguir. Ele tem boas mãos.
+Vivian começou a fazer sinais. Parou, olhou pra mim e apontou pros outros.
 
-Eric pensou, e então se virou para mim.
+— Kord? — perguntou O’reilly.
 
-— Eles parecem ser boa gente. Se o plano der errado, você os condena junto, sabe disso.
+— Ela disse que a gente também tem coisas a perder, Badrock. Que não é justo fazer os outros pagarem pela tua vingança.
 
-— Ele vai dar certo. No final, eles vão agradecer a mim… vamos beber uma última vez, e poderei descansar com a mente tranquila — falei, me jogando na cama.
+Olhei pra Vivian. Ela cruzou os braços e ficou esperando minha resposta.
 
-Ele riu, balançando a cabeça.
+— Tá. A gente chega à Aurora, pega o gerbe, vocês vão embora. Quando estiverem longe, eu ligo o bracelete e resolvo minha briga com Jelles. Assim tá bom?
 
-— Espero que dê certo.
+— Assim, sim — disse Hardman.
 
-— Vou descansar agora — falei — O Mestre nos prometeu uma nave. Vamos partir nela na próxima volta, e traçamos nossa rota.
+Kord demorou um pouco pra assentir.
 
-Voltamos então a dormir. Eric se ajeitou no sofá. Ele disse que não queria cobertor, eu também não daria os meus para ele. Enfim, o turno fundo foi tranquilo. Até o susto que levei logo no turno claro.
+Buni relaxou os ombros. Vivian olhou pro Eric, que tinha ficado quieto.
 
-Acordei com um grito de quem estava sendo esfolado vivo. Claro, não era isso: era só o Hardman, dando um show porque um robô metálico invadira o quarto dele sem bater. Era feio pra cacete, uma lata de sardinha com pernas de grilo e olhos que piscavam como letreiro de motel barato.
+— Bom. Vou dormir.
 
-— AI MINHA ESTRELA, UM INTRUSO! — berrou Hardman, agarrando o cobertor como armadura. Eu juro que vi uma lágrima de desespero escorrendo no canto do olho dele.
+Saí do quarto. Antes que conseguisse fechar a porta do meu, Eric a segurou.
 
-O’reilly e Kord pularam da cama prontos para um ataque pirata, armas em punho e olhos semicerrados. Vivian, por outro lado, olhou para a cena, deu de ombros e voltou a dormir. Honestamente, invejo a calma dela.
+— Acha que acreditaram?
 
-— Saudações humanóides! — o robô começou, com uma voz robótica tão desafinada que parecia ter engolido um sintetizador quebrado. — O mestre estelar requer sua presença imediata no... Espaço estacionador real.
+— Sou o piloto. Precisam de mim pra chegar lá. Quando o Jelles vier atrás da gente, eu mato o desgraçado e você tira a Amanda da nave.
 
-Eu quase engasguei rindo. Espaço Estacionador Real? Que nome é esse? Era como se tivessem deixado um aprendiz criativo solto na hora de batizar o lugar.
+Eric entrou e se sentou no sofá. Ficou mexendo na manga que cobria o bracelete.
 
-— Espaço Estacionador Real? — perguntei, me levantando com uma expressão que misturava cansaço e deboche. — Parece nome de parque infantil.
+— Primeiro temos que tirar isso daqui. Alguma ideia?
 
-O robô ignorou completamente meu comentário, continuando a piscar os olhos de LED orgulhoso do título.
+Olhei pro braço dele.
 
-— Sigam-me. O mestre não tolera atrasos.
+— Não. Mas o Hardman deve dar um jeito.
 
-Hardman bufou e começou a se arrumar, resmungando algo sobre privacidade violada. Eu ri baixinho, enquanto Eric jogava sua camisa por cima do ombro e me lançava um olhar ácido.
+Eric ficou quieto por um tempo.
 
-— Não vai vestir nada melhor? — provocou ele, olhando para minha camiseta amarrotada.
+— Parecem boa gente. Se essa merda der errado, vão pagar junto com você.
 
-— Por quê? Tá com inveja do meu estilo ciborgue? — rebati, exibindo meu braço de metal como se fosse um acessório de luxo. Eric revirou os olhos, e seguimos o robô para fora do quarto.
+— Vai dar certo. Quando acabar, a gente bebe um necroriano e eles vão me agradecer.
 
-Saímos pelas ruas de Moldar. O lugar parecia o sonho molhado de quem adora LEDs e filmes futuristas (sim, eu sei o que são filmes. Temos alguns na Lebargan). Prédios altíssimos reluziam em neon, carros flutuavam como libélulas metálicas, pessoas voavam naquelas aves gigantes pré-históricas de asas translúcidas e vendedores gritavam ofertas de tecnologia de ponta que claramente eram gambiarra.
+Ele riu pelo nariz.
 
-— Ei, Jasmey, acha que essas aves são treinadas? — perguntou O’reilly, apontando para um cara que fazia piruetas no ar com um sorriso largo.
+— Tomara.
 
-— Com certeza. E se você comprar uma, ela vem com garantia de te derrubar na primeira curva.
+— Amanhã o Mestre entrega a nave. Aí traçamos a rota.
 
-Hardman fazia caretas desviando de vendedores ambulantes que ofereciam de próteses metálicas baratas a elixires galácticos que provavelmente eram só água com glitter. Kord, sempre atento, mantinha uma mão perto da arma, e Vivian seguia silenciosa, observando tudo.
+Eric se ajeitou no sofá. Disse que não precisava de cobertor. Ótimo, porque eu não ia dar o meu. Dormi até ouvir um grito vindo do corredor no turno claro.
 
-— Esse lugar é o paraíso pra idiotas gastarem dinheiro — comentou Eric, com seu tom habitual de superioridade.
+Saí do quarto com a pistola na mão. A porta do Hardman tava aberta, e um robô metálico, com pernas finas e luzes piscando no lugar dos olhos, tinha acabado de entrar sem bater.
 
-— Ah, é? Então por que você não tá comprando nada? Tá sem grana? — provoquei, piscando para ele.
+— QUEM AUTORIZOU SUA ENTRADA? — Hardman tava de pé junto à cama, tentando ajeitar o roupão.
 
-Eric respondeu com um resmungo, mas antes que pudesse retrucar, o robô que estávamos seguindo tropeçou em uma placa holográfica no chão e caiu de cara no asfalto brilhante.
+Kord saiu atrás dele com a arma na mão. O’reilly apareceu do outro quarto, ainda sonolento. Vivian abriu a porta do dela, olhou o robô, depois pro Hardman, e deu de ombros. Buni surgiu atrás do O’reilly.
 
-Ele balançava as pernas no ar, parecendo um inseto tentando se virar. Eu me encostei na parede de um prédio e cruzei os braços, assistindo à cena.
+— Saudações, humanoides! O Mestre Estelar requer sua presença imediata no Espaço Estacionador Real.
 
-Buni, sempre o bonzinho, correu para ajudar. O’reilly o seguiu, e juntos levantaram o robô com um esforço considerável.
+Baixei a pistola. Hardman ainda segurava as duas pontas do roupão.
 
-— Grato pela ajuda, mas eu não precisava. — disse o robô, imediatamente voltando a andar com aquele ar convencido. Eu e Eric trocamos olhares, e não conseguimos evitar uma gargalhada.
+— O sujeito tem uma doca chamada Espaço Estacionador Real, e eu achava que era convencido.
 
-Seguimos o robô até o que só posso descrever como a doca mais extravagante da galáxia. A entrada era uma cúpula gigantesca de vidro que refletia os neons de Moldar, quase dizendo aqui mora o luxo. Naves reluziam por todos os lados, como numa exposição de arte intergaláctica, algumas aerodinâmicas e elegantes, outras predadoras metálicas prontas para devorar tudo pelo caminho.
+O robô virou a cabeça na minha direção, sem responder.
 
-— A doca dos ricos — comentei, observando uma nave em forma de esfera que girava lentamente em um pedestal.
+— Sigam-me. O Mestre não tolera atrasos.
 
-— As naves da Lebargan também devem ser incríveis, não? — perguntou O’reilly.
+— Diga ao Mestre que alguns de nós têm o hábito de se vestir antes de sair — disse Hardman, fechando a porta na cara do robô.
 
-— Ah, claro. Como aquela porra que parece um sanduíche mal montado? Ou a que explode se você apertar o botão errado? — retruquei, apontando para a esfera giratória. — Essa aqui pelo menos não vai tentar me matar por engano.
+Eric veio do meu quarto, enfiando a camisa.
 
-Eric, que estava logo atrás, não conseguiu segurar a risada.
+— Vai aparecer na frente do homem vestido assim, Badrock?
 
-— As naves da Lebargan podem ser perigosas, mas pelo menos têm personalidade, né? Essa aí tá só tentando ser um enfeite de festa.
+— E desperdiçar a oportunidade de mostrar o meu braço novo?
 
-Os seguranças, uns brucutus robóticos com olhos que piscavam em vermelho, nos conduziram até uma nave parada no centro. E que nave! Princesa do Inverno, era o que dizia em sua lateral, era uma obra de arte. Com um casco prateado que brilhava como gelo ao luar e linhas suaves que lembravam asas de pássaro, ela parecia pronta para dançar entre as estrelas. Nas laterais, finas gravuras de neve se transformavam em rios brilhantes quando a luz incidia sobre elas.
+Ajeitei o chapéu e voltei pra buscar o resto das minhas coisas.
 
-— Nada mal! — murmurou O’reilly, claramente encantado.
+Saímos pelas ruas de Moldar atrás do robô. As luzes dos prédios ainda brilhavam, embora o sol continuasse no mesmo lugar. Veículos passavam acima das avenidas, e os criadores de aves gigantes tinham começado a disputar passageiros perto de uma praça. Uns vendedores já abordavam quem passava, oferecendo peças pra nave e todo tipo de aparelho.
 
-— Vem pro papai! — declarei, já me imaginando ao comando.
+— Será que essas aves são treinadas? — O’reilly apontou pra uma que fez uma curva por cima dos prédios.
 
-Antes que eu pudesse chegar perto da nave, o Mestre Estelar surgiu com um sorriso autêntico no rosto.
+— Espero que sim. Imagina o trabalho que dá ensinar um bicho daquele a parar de voar.
 
-— Bem-vindos ao meu templo de transportes! — exclamou ele, com uma voz que soava como mel misturado com cinismo. — Jasmey Badrock, a lenda sem braço, e sua trupe colorida. Hora de embarcar!
+Hardman parou pra examinar uma prótese numa banca. Virou o mecanismo, perguntou qual era o material da junta e devolveu ao vendedor antes que o sujeito terminasse de dizer o preço. Kord manteve a mão perto da arma, e Vivian ficou olhando as aves.
 
-Ao meu lado, Hardman congelou. O rosto dele foi do pálido ao vermelho em pulsos, e as mãos não sabiam se arrumavam o cabelo ou se escondiam a cara. Não resisti. Empurrei-o um passo à frente.
+— Um lugar ótimo pra arrancar dinheiro de idiota — comentou Eric.
 
-— Mestre Estelar, esse meu amigo aqui disse que quer quebrar a sua cara.
+— Então é melhor manter os bolsos fechados.
 
-— O QUÊ? Não! Nunca! Eu só… — Hardman engoliu seco e tentou apertar a mão do Mestre com as duas mãos, errou a direção e apertou a de um segurança robótico. — Senhor, é uma honra. A Carta. O senhor. A Carta! Eu aprendi a ler as estrelas nela, eu… eu nem sei o que estou dizendo!
+Eric ia responder quando o robô tropeçou numa placa holográfica e caiu de cara no chão.
 
-— Um admirador — o Mestre sorriu, satisfeito. — Custa menos que um segurança.
+Ficou balançando as pernas no ar, incapaz de se virar.
 
-Kord se inclinou para mim, baixo:
+Buni e O’reilly correram pra levantá-lo. Hardman apontou pra uma haste dobrada junto à articulação.
 
-— Ele é sempre assim?
+— Grato pela assistência. O procedimento de recuperação estava em curso — informou o robô, voltando a andar.
 
-— Só quando respira — respondi.
+Eric olhou pra mim. Começamos a rir ao mesmo tempo.
 
-Eu ia continuar a brincadeira, mas, claro, Eric tinha que se adiantar.
+A cúpula do Espaço Estacionador Real refletia as luzes da cidade. Lá dentro, as embarcações ocupavam plataformas individuais, com os avisos da Justa-Elétrica pairando acima delas. Tinha nave que eu reconhecia, tinha modelo que nunca tinha visto, e dava pra passar uma volta inteira examinando aquilo tudo.
 
-— Nos dê a chave da nave e sumimos daqui.
+Parei perto de uma nave esférica que girava devagar sobre um pedestal.
 
-O Mestre inclinou a cabeça estudando um inseto. Ele cruzou os braços de forma exagerada, seus óculos vermelhos refletindo a luz ambiente.
+— As naves da Lebargan são assim também? — perguntou O’reilly.
 
-— Engraçado. Não me lembro de você na volta passada. A tripulação cresceu durante o turno fundo? — Ele me lançou um olhar divertido antes de continuar:
+— Tem de tudo. A Prosépina é mais rápida que metade dessas aqui. Mas tem umas porcarias que o pessoal da manutenção jura que ainda servem.
 
-— Lembram-se do combinado? 50% do que encontrarem na Aurora será meu. E não pensem em me enganar, porque eu tenho olhos em todos os lugares. Não é à toa que me chamam de Mestre Estelar.
+Eric já tinha se aproximado do visor da plataforma. Leu as especificações da esfera até o fim, voltou pra primeira tela e chamou minha atenção pra posição dos propulsores.
 
-— Cada nave que usa a Carta devolve o que vê — sussurrou Hardman, quase em êxtase. — Ele enxerga por todas elas.
+— Olha isso, Badrock. Dá pra girar em qualquer direção sem mudar o eixo de impulso. Imagina pilotar uma dessas.
 
-Ele sorriu, um sorriso cheio de dentes, e então perguntou com curiosidade exagerada:
+— Tenta pousar esse enfeite no convés da Lebargan. Quero ver onde vai segurar quando desligarem a gravidade.
 
-— Mas me digam… como pretendem chegar até a Aurora? Seu amigo aí tem um mapa mágico ou algo assim?
+— Você sempre encontra um jeito de estragar a graça.
 
-Suspirei, já cansado do tom teatral. Fiz sinal para Eric, que tirou o Olho do Domongo da bolsa e o segurou na mão, firme.
+Os seguranças robóticos nos levaram a uma plataforma central. O nome na lateral da nave dizia Princesa do Inverno. O casco prateado tinha linhas compridas nas laterais, lembrando asas, e gravuras em forma de cristais de neve. Contornei a proa pra ver os propulsores. Mesmo sem conhecer os controles, já tinha uma boa ideia de como aquela belezinha ia se comportar. Eric passou por mim tão depressa que quase esbarrou num dos seguranças. Deu a volta na nave, examinou as junções do casco e se abaixou pra enxergar os apoios.
 
-Vivian, sempre atenta, estendeu a mão para tocá-lo, ativando novamente o feixe de fótons que iluminava o ambiente. Um traço púrpura disparou em direção ao teto, projetando o que parecia ser uma constelação de estrelas conectadas por linhas brilhantes.
+— Porra, olha os propulsores! Queria ver um desses de perto desde que vi o projeto nos registros de navegação.
 
-O Mestre Estelar congelou por um momento, os olhos arregalados por trás das lentes vermelhas.
+O sujeito tava sorrindo de um jeito que eu não via desde os treinos na Lebargan.
 
-— Fascinante! Absolutamente fascinante! — Ele bateu palmas lentamente, quase zombeteiro. — Vocês têm em mãos o próprio convite para a eternidade. Eu sabia que confiar em vocês seria um investimento interessante.
+— Bonita, hein? — disse O’reilly.
 
-Olhei para meus companheiros então assenti.
+— Vem pro papai.
 
-— Estamos prontos para embarcar.
+O Mestre Estelar apareceu antes que eu alcançasse a nave.
 
-Ele sorriu mais uma vez, ajeitando os óculos.
+— Badrock! Espero que tenha descansado. E que desta vez possamos conversar sem derrubar uma arquibancada.
 
-— Jasmey, meu caro, nunca subestime o Mestre Estelar. Agora, tomem sua nave. A Princesa do Inverno está à disposição. Lembrem-se, ao encontrar o tesouro, venham diretamente a mim. E… boa sorte. Vocês vão precisar.
+Ele fez um sinal pros seguranças. Um deles trouxe um painel fino com o acordo que tínhamos discutido na volta anterior. O’reilly leu as condições enquanto eu conferia a embarcação atrás do mercador. Cinquenta por cento do tesouro, entrega da nave e obrigação de retornar com a parte combinada. Hardman pediu pra ver o documento também.
 
-Ao entrar na Princesa do Inverno, fomos recebidos por um interior tão impressionante quanto o exterior: gelo polido e prata, com detalhes azuis suaves, hologramas de flocos de neve flutuando nas paredes e um chão que refletia nossas imagens. A cabine de comando era espaçosa e repleta de tecnologia de ponta.
+Hardman ficou ao meu lado, ajeitando a gola. Tinha passado a volta anterior inteira falando da Carta Estelar. Olhei pro Mestre e depois pra ele.
 
-— Maneiro! — murmurou Kord, passando a mão pelas laterais dos assentos acolchoados. Vivian o seguiu, seus olhos curiosos explorando o ambiente.
+— Esse aqui queria te fazer umas perguntas sobre a Carta.
 
-Hardman se aproximou de um painel de controle, franzindo o nariz como se o simples toque fosse contaminá-lo com a minha falta de finesse.
+— Senhor, é uma honra conhecê-lo. Estudei a Carta desde muito jovem. Sempre quis saber como conseguiu reunir tantos registros de sistemas distantes...
 
-— Jasmey, tente não destruir isso no primeiro salto, ok? — disse ele, com aquele tom de superioridade passivo-agressiva que só ele consegue fazer.
+Hardman estendeu a mão. O Mestre apertou.
 
-— Destruir? — retruquei, enquanto corria os dedos pelas teclas. — Hardman, eu sou um piloto tão bom que o espaço me agradece por passar por ele.
+— Ah, um leitor da Carta! É uma das poucas coisas que ofereço de graça. Mas rende bastante.
 
-Antes que eu pudesse continuar meu discurso, Eric entrou na cabine com a autoridade de quem acha que manda em alguma coisa.
+Kord chegou perto de mim.
 
-— Eu assumo o comando.
+— O cara vai pedir um autógrafo?
 
-Eu ri alto. Era a piada do momento.
+— Se pedir, quero ver onde vai guardar.
 
-— Quando eu morrer, talvez. E mesmo assim, vou pilotar no meu velório.
+Eric passou à frente.
 
-Eric cruzou os braços e me olhou.
+— Então, podemos pegar a chave da nave?
 
-— Jasmey, você pilotar uma nave é como ver um bebê tentando correr. Fica divertido até dar errado.
+O Mestre examinou o sujeito. As lentes vermelhas escondiam os olhos.
 
-— E você na missão do planeta Barbére? Pousou a nave dentro de um lago e jurou que era manobra. Ah, essa imagem nunca vai sair da minha cabeça. Um verdadeiro espetáculo!
+— Não estava com seus amigos na volta passada. Vejo que ganhei mais um tripulante.
 
-— Pelo menos eu não perdi minha nave por causa de uma garota. Ou vai me dizer que foi tudo parte do seu grande plano?
+Ele voltou a olhar pra gente.
 
-Eu abri a boca para responder, mas O’reilly cortou a discussão antes que escalasse ainda mais.
+— Cinquenta por cento de tudo que encontrarem na Aurora. É o combinado. Não tentem me enganar. Tenho olhos por toda a galáxia.
 
-— Vocês dois, pelo amor da galáxia! Façam uma votação, duelam com espadas, joguem par ou ímpar, mas decidam-se! — ele disse, segurando o riso.
+— As embarcações que utilizam a Carta devolvem os dados de suas observações — Hardman explicou, baixo. — É assim que ele mantém os registros atualizados.
 
-Vivian gesticulou algo para Kord, que tentou segurar uma risada, mas falhou miseravelmente.
+O Mestre assentiu.
 
-— Ela disse que se for pra morrer, pelo menos quer morrer com um capitão que ela conhece como pilota. Por pior que seja a opção.
+— Agora, quero ver o que me garante que conseguirão chegar à Aurora.
 
-Eu sorri e me virei para Eric.
+Olhei pro Eric. Ele tirou o Olho do Domongo da bolsa, com cuidado.
 
-— Ok, ok, Eric. Vamos fazer um acordo. Você pode pilotar…
+Vivian se aproximou e tocou o olho. O feixe púrpura voltou a brilhar, apontando pro teto. O Mestre inclinou a cabeça e acompanhou a direção do raio.
 
-Eric levantou uma sobrancelha, desconfiado.
+Ele tirou os óculos pra observar melhor.
 
-— Posso?
+— Interessante. Muito interessante. Não esperava que um olho pudesse lhes dar uma direção tão precisa.
 
-— …na próxima vida. Por enquanto, eu piloto, e você aproveita pra aprender algo. Que tal?
+Ele acompanhou a luz até a estrutura da cúpula. Hardman começou a explicar o princípio da atração pelo gerbe. O Mestre o ouviu sem interromper, e quando o engenheiro terminou, voltou a examinar Vivian. Ela já tinha afastado a mão do objeto.
 
-— Engraçado, Badrock. Assuma essa droga. Mas se der merda, eu assumo.
+Eric guardou o olho. Vivian afastou a mão.
 
-— Eric, se der merda, você vai estar morto junto comigo. Então relaxa e aproveita o show.
+— Estamos prontos pra embarcar.
 
-Eu me joguei no assento do piloto antes que ele pudesse protestar mais, ajustei os controles, e senti a Princesa do Inverno ganhar vida sob meus dedos. Vivian, do outro lado, piscou pra mim, como quem diz: Boa sorte, piloto.
+O Mestre colocou os óculos de volta. Confirmamos o acordo no painel e ele entregou a chave.
 
-Quando a nave decolou, senti o coração acelerar. Era como se o universo finalmente estivesse me chamando de volta. A gravidade diminuiu, e em instantes estávamos no espaço, cercados por um vazio pontilhado de estrelas.
+— A Princesa do Inverno está à disposição. Voltem diretamente a mim quando encontrarem o tesouro. Boa viagem, Badrock.
 
-— É isso! — falei, a confiança estampada no rosto. — Estamos indo para a Aurora — então continuei baixo para que só eu ouvisse — estou indo até você, Jelles.
+Entramos. O interior tinha detalhes prateados e azuis, cristais de neve projetados nas paredes e um piso tão polido que dava pra ver a sola das minhas botas. A cabine de comando era espaçosa. Passei a mão pelo assento do piloto e comecei a conferir os painéis.
 
-Kord começou a cantarolar algo, Buni soltou sua risada característica, e Hardman suspirou dramaticamente, provavelmente pensando no caos que ainda estava por vir. Mas, pela primeira vez em muito tempo, senti que as coisas estavam dando certo.
+— Porra, até os bancos são macios — disse Kord, apertando um deles com a mão.
 
+Vivian abriu um compartimento na parede e fez sinal pro Buni olhar dentro. Tinha um conjunto de utensílios e copos presos em suportes. Buni tirou um deles e me entregou. Encostei a unha de metal na borda. Hardman ergueu os olhos antes mesmo que eu fizesse barulho.
+
+— Nem pense nisso.
+
+Devolvi o copo ao Buni. Tava mais interessado na nave, de qualquer jeito.
+
+Hardman se inclinou sobre um dos controles, examinando os indicadores.
+
+— Jasmey, gostaria que esperasse até verificarmos o sistema de navegação.
+
+— Fica tranquilo, Hardman. Eu sei o que tô fazendo.
+
+Identifiquei o controle de impulso, o ajuste da gravidade e o painel de dobra. Tinha coisa ali bem diferente do que usávamos na Lebargan. Puxei o controle de impulso sem ativar os motores e observei a resposta na tela. Os indicadores estavam distribuídos de um jeito que me permitia acompanhar o campo gravitacional sem tirar os olhos do caminho. Pedi ao Hardman que me mostrasse onde estavam os controles auxiliares. Ele indicou um painel junto à cadeira da direita e começou a conferir os registros de manutenção. Gostei daquela belezinha cada vez mais.
+
+Eric entrou na cabine e parou junto ao assento.
+
+— Deixa que eu piloto.
+
+Eric passou os dedos pela borda do assento e conferiu a posição dos controles. Já tava quase se sentando.
+
+Olhei pro sujeito. Comecei a rir.
+
+— Tá de sacanagem, né?
+
+Ele cruzou os braços.
+
+— Eu sei pilotar, Badrock. Passei a vida esperando que me deixassem testar uma nave dessas. Até longe da Lebargan você vai querer pegar a melhor pra você? E, pelo menos, não vou entregar a nave à primeira mulher que aparecer.
+
+— Lembra do planeta Barbére? Você pousou dentro de um lago e jurou que era manobra de aterrissagem.
+
+— A nave saiu de lá. A tua, nem isso. E naquele planeta fui eu que descobri como tirar os motores da água sem fundir o sistema.
+
+O’reilly entrou no meio dos dois.
+
+— Irmãos, por que não decidimos isso antes de ligar os motores?
+
+Vivian fez alguns sinais pro Kord. Ele soltou uma risada.
+
+— Ela prefere o Jasmey. Já sabe o que esperar dele quando tá pilotando.
+
+Olhei pros outros. Hardman apontou pro assento.
+
+— Jasmey nos tirou da Fera. Eric pode ocupar o segundo comando, se necessário.
+
+Eric ficou olhando pro assento do piloto. Depois conferiu os controles do segundo comando, que não tinham nem metade da graça.
+
+— Tá bom. Mas quero pilotar essa nave. Não vou passar a viagem inteira olhando pra tua nuca.
+
+— Fechado. Só vê se não tem lago por perto.
+
+Eric riu pelo nariz e foi pro outro assento.
+
+Conferi os indicadores com Hardman. Kord fechou os compartimentos e O’reilly pediu que todos se sentassem.
+
+Girei a chave, acionei os propulsores e esperei a confirmação do painel. Dessa vez, nem o Eric tinha do que reclamar. O Mestre se afastou da plataforma junto com os guardas enquanto os apoios da nave se recolhiam. Pedi a Hardman que verificasse a autorização de saída. O sinal da Justa-Elétrica passou de vermelho a verde. Vivian levantou o polegar quando me viu olhar pra trás. A Princesa do Inverno começou a vibrar sob meus pés.
+
+A nave subiu acima das plataformas. Vi a cúpula se abrir e guiei a Princesa pelo espaço livre. Assim que saímos do perímetro, ajustei o impulso e fiz a curva de saída sem alterar a gravidade da cabine. Eric olhou pros indicadores, depois pra janela.
+
+— Que maravilha de nave.
+
+— E que maravilha de piloto.
+
+— Tava falando da nave, Badrock.
+
+O sol de Sumatram foi sumindo atrás da borda do planeta. Logo, só havia estrelas diante de nós.
+
+— É isso aí, meus amigos. Próxima parada, Aurora.
+
+Eric olhou pro bracelete no próprio pulso. Não precisava dizer nada.
+
+Kord começou a cantar baixinho. Buni acompanhou o refrão, e Hardman voltou pros painéis. Ergui um pouco o chapéu pra enxergar melhor o céu. Agora, sim, eu tinha uma nave, um mapa e um jeito de fazer o Jelles vir até mim.
