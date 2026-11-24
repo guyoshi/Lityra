@@ -1,218 +1,251 @@
-Fui empurrado ao chão, com armas apontadas para minha cabeça enquanto, com um sorriso irônico, observava o rosto enfurecido de Alekta.
+Os piratas me jogaram no chão. Tinha umas três armas apontadas pra minha cabeça, mas, pelo jeito que Alekta me olhava, era com ela que eu devia me preocupar.
 
-— Olhem o que temos aqui — provocou um dos piratas, um homem careca com olhos maquiados e brincos pendurados. — A vadia conseguiu fugir.
+— Olha só o que encontramos! — disse um careca com os olhos maquiados e as orelhas cheias de brincos. — A vadia fugiu.
 
-Ele deslizou sua espada curvada rente ao rosto de Alekta, quase acariciando sua pele com o frio do metal.
+Ele passou a ponta da espada curva perto do rosto dela. Alekta nem piscou.
 
-— Deveríamos matá-la aqui mesmo — sugeriu com crueldade.
+— Podíamos acabar com ela aqui mesmo.
 
-— Na verdade, fui eu quem a soltou — intervim rapidamente. — Não há necessidade de matá-la. Eu a libertei porque queria levá-la comigo. Ela não tinha intenção de fugir, resistiu até o fim, mas eu a forcei.
+— Fui eu que soltei a mulher. Queria levar ela comigo. A coitada fez de tudo pra ficar aqui, mas eu não deixei.
 
-O pirata careca caminhou até mim, malicioso.
+O careca veio até mim.
 
-— Está me dizendo que Alekta teve a chance de fugir, mas se recusou? E que você tentou forçá-la? Meu amigo, domar uma fera seria mais fácil do que submeter essa mulher.
+— Quer dizer que a Alekta podia fugir e não quis? Conta outra, rapaz. É mais fácil domar uma fera do que segurar essa mulher.
 
-— Até que essas duas coisas não são tão diferentes, afinal — provoquei.
+— Pois é. Não vi muita diferença entre as duas coisas.
 
-— E você, quem é? — ele perguntou, parando a poucos centímetros de mim.
+— E você é quem?
 
-— Medei — respondi, mantendo o sarcasmo.
+— Medei.
 
-— Medei? — ele riu, desdenhoso. — Que diabos de nome é esse?
+— Medei? Que porra de nome é esse?
 
-— Me deitei com sua mãe ontem — lancei a provocação. Foi o bastante para que o pirata me acertasse um soco. Ok, foi merecido.
+— Me deitei com tua mãe ontem.
 
-— Você é um puto de um engraçadinho. O tipo que o Senhor dos Vórtices gosta de ter.
+O soco veio tão rápido que nem consegui terminar de sorrir. Tá bom, mereci esse.
 
-— O Senhor dos Vórtices? Acho que gostaria de conhecê-lo — respondi, desafiador.
+— Engraçadinho. O Senhor dos Vórtices gosta de gente assim.
 
-— Acha que está em posição de escolher o que fazer? — retrucou o homem careca.
+— Ah, é? Quero conhecer esse sujeito.
 
-— Tem razão. Eu me rendo. Levem-me como prisioneiro e levem aquela mulher também. Decidam nosso destino em sua nave.
+— Tá achando que pode escolher pra onde vai?
 
-— Já vi rebeldes preferirem a morte a servir ao Senhor dos Vórtices. Sabe por quê? Eles não costumam ficar inteiros por muito tempo lá.
+— Tá certo. Me rendo. Podem me levar preso. A mulher também. O capitão que decida o que fazer com a gente.
 
-— Leve-os — ordenou o pirata, afastando-se enquanto os homens me empurravam com suas armas e espadas, fazendo o mesmo com Alekta.
+— Já vi muito rebelde pedir pra morrer em vez de servir ao Senhor dos Vórtices. Lá não costumam deixar sujeito como você inteiro por muito tempo.
 
-Fui arrastado pela vegetação até a nave que eu pretendia roubar. Dentro era um breu, iluminado só por LEDs dourados. Os piratas me jogaram num canto e me amarraram a uma barra metálica. Alekta ficou do outro lado, perto de um pilar manchado de escuro.
+— Levem os dois.
 
-Foi um alívio o momento em que ouvi o motor de uma nave ligando. Como eu sentia falta daquilo.
+O careca saiu na frente e os outros nos empurraram com as armas.
 
-— A nave vai se deslocar alguns microparsecs daqui — anunciou um dos piratas no controle, um homem de rabo-de-cavalo e rosto afilado. — O capitão alertou que viu uma tempestade solar na direção onde a Fera estava.
+Me levaram de volta à nave que eu pretendia roubar. Lá dentro mal dava pra ver o chão, iluminado por uns LEDs dourados. Me amarraram a uma barra metálica num canto. Alekta ficou do outro lado, junto a um pilar cheio de manchas escuras. Tentei acenar pra ela com a mão que ainda conseguia mexer. Ela virou a cara.
 
-— Motores prontos — informou um homem barbudo, com apenas um dente visível, vindo do corredor.
+— Ainda tá puta comigo?
 
-— Então vamos voltar para a Fera — decidiu finalmente o homem careca.
+— Não, Jasmey. Tô tentando decidir com qual braço vou te estrangular quando me soltarem.
 
-Os homens se acomodaram, e o de rabo-de-cavalo assumiu o controle. A partida foi abrupta: a nave subiu na diagonal, enfrentando a gravidade que tentava nos puxar de volta. Pelo vidro vi as nuvens escuras se aproximarem e as atravessamos, relâmpagos iluminando o interior em flashes. Do outro lado, o céu alaranjado, com o sol delineado por trás das nuvens. Os propulsores aceleraram rumo ao espaço, o laranja cedeu ao cinza e, enfim, ao negro profundo pontilhado de estrelas luminosas e acolhedoras. Respirei aliviado enquanto o piloto virava a nave para uma nova direção.
+Olhei pra minha mão de metal. Não era uma boa hora pra fazer sugestões.
 
-— Vamos ativar o motor de dobra — anunciou ele — o espaço à nossa frente está livre.
+Quando ouvi os motores ligarem, nem liguei mais pra corda. Porra, que saudade daquele barulho.
 
-— Ótimo, Kove, vamos nessa — respondeu o homem careca.
+— A Fera vai mudar de posição, uns microparsecs daqui — avisou o sujeito de rabo de cavalo que tava nos controles. — O capitão detectou uma tempestade solar na direção onde ela estava.
 
-Quando os painéis confirmaram o alinhamento, Kove ativou o motor de dobra. Uma bolha espacial se formou, e passamos a deslizar pelo tecido do espaço-tempo, as estrelas se apertando num cone à frente, com um azul quase invisível nas de diante, enquanto nós ficávamos estáticos dentro da bolha.
+— Motores prontos — informou um barbudo que tinha um único dente à mostra.
 
-Levamos quase 60 ectons até a temida “Fera Sideral”. Primeiro vi a estrutura alongada e sombria, com letras amarelas desbotadas na lateral do casco. Quando penetramos a bolha espaço-temporal e as janelas se abriram, expondo-nos à atmosfera artificial da nave, os detalhes ficaram nítidos. Eu nunca tinha visto uma nave daquele tipo. Era imensa, mas o que realmente chamava a atenção era a atividade frenética dos piratas: fogo, marteladas, gargalhadas e gritos de dor, um caos total.
+— De volta pra Fera, então — disse o careca.
 
-A carcaça não tinha janela nenhuma e estava toda enferrujada, com pedaços pendurados. A vela solar era de um negro opaco, com linhas azuis brilhantes nas bordas. No topo de duas torres, vigias observavam o entorno, e um holograma de um pirata imponente decorava a proa.
+A nave subiu de uma vez, na diagonal, e fiquei praticamente pendurado na barra. Pelas janelas, vi as nuvens escuras se aproximarem. Os relâmpagos iluminavam a cabine inteira. Do outro lado das nuvens havia um céu laranja, com o contorno da estrela aparecendo ao fundo. Os propulsores aceleraram. O laranja foi sumindo, deu lugar ao cinza e, finalmente, às estrelas. Fiquei olhando pro vidro mesmo depois que o piloto mudou a direção. Tinha passado tanto tempo sonhando com aquilo que nem o careca conseguiu estragar o momento.
 
-Descemos no coração da multidão, que se abriu para o pouso. Antes de tocarmos o chão, rostos risonhos apareceram, a maioria banguela, de olhos turvos, sujos, vestindo trapos que mal cobriam os corpos. Os motores silenciaram aos poucos até o último ruído se dissipar no ar viciado.
+— Vou ativar a dobra. Espaço livre à frente — avisou o piloto.
+
+— Manda ver, Kove.
+
+Os painéis confirmaram o alinhamento e Kove ativou o motor. A bolha se formou em volta da nave. As estrelas começaram a se concentrar num cone à frente, as mais próximas ganhando um tom azulado quase imperceptível. A gente continuava imóvel dentro da bolha enquanto o espaço se deformava ao redor. Ah, como eu gostava daquela parte.
+
+Quase sessenta ectons depois, vi a Fera Sideral. Uma estrutura comprida, escura, com letras amarelas desbotadas na lateral. Atravessamos a barreira espaço-temporal e as janelas se abriram, deixando entrar a atmosfera artificial da nave. Tive a impressão de que alguma coisa tava pegando fogo lá dentro. Ouvi marteladas, gritos e gargalhadas antes mesmo de pousarmos.
+
+A carcaça não tinha janelas. Tinha ferrugem, uns pedaços de metal pendurados e uma vela solar negra, com linhas azuis brilhando nas bordas. Vi vigias nas duas torres e um holograma de um pirata enorme na proa. A Lebargan também tinha um holograma na proa. Pelo menos o nosso não parecia estar pessoalmente ofendido com quem se aproximasse.
+
+A multidão se abriu pra gente pousar. Tinha pirata de todo jeito, embora a maioria parecesse ter perdido uma aposta com um dentista. Uns usavam trapos, outros tavam quase pelados, e todos pareciam se divertir com a nossa chegada. Os motores foram perdendo força até parar.
 
 — Vamos — comandou o homem careca.
 
-Um dos tripulantes me desamarrou e puxou a corda, como tinha feito com Alekta.
+Um dos piratas desamarrou a corda da barra e começou a me puxar pela outra ponta. Fizeram o mesmo com Alekta.
 
-Ao pisar fora da nave, tive certeza de que nunca vira nada igual. O ar era mais denso, uma mistura nauseante de suor, fumaça e um cheiro metálico de podridão enferrujada que grudava na pele. Os piratas, desgrenhados e sujos, se moviam como sombras famintas, os olhares vazios.
+Pisei no convés e me arrependi de respirar fundo. Suor, fumaça, ferrugem, carne podre. Tinha uns Dales que passavam voltas sem tomar banho, mas, perto daqueles sujeitos, pareciam ter acabado de sair da sauna. Olhei pro chão antes de dar o próximo passo.
 
-Homens eram torturados a poucos metros, os gritos rasgando o caos de marteladas e risadas insanas, e corpos eram distendidos por cordas que arranhavam o chão de metal, deixando um rastro viscoso. Mais adiante, altas chamas lambiam o lixo e a fumaça deixava o ambiente claustrofóbico.
+A poucos metros, uns homens eram torturados, e os gritos se misturavam ao barulho das ferramentas. Outros eram arrastados por cordas, deixando rastros no chão de metal. Mais adiante, queimavam lixo em montes enormes. A fumaça fazia arder os olhos. Ninguém parecia dar a menor importância a quem gritava.
 
-Meus primeiros passos foram interrompidos por uma dor aguda. Senti como se até mesmo minhas entranhas entrassem em curto-circuito. Ao me recuperar, percebi que tinha sido eletrocutado, provavelmente para destruir qualquer dispositivo eletrônico que eu carregasse. Então, uma mão firme agarrou meu braço humano, puxando-me para frente.
+De repente, meu corpo inteiro deu um tranco. Até meus dentes bateram uns nos outros. Quando consegui me endireitar, percebi que tinham me eletrocutado. Deviam fazer aquilo com todo mundo que chegava, pra destruir equipamentos eletrônicos. Testei os dedos de metal. Ainda mexiam. Uma mão me agarrou pelo braço de carne antes que eu pudesse examinar o outro.
 
-— Você parece forte, precisamos de ajuda para carregar os sacos de titânio — um homem alto e musculoso, coberto de tatuagens, disse-me diretamente.
+— Opa, mais um forte! Precisamos carregar titânio na proa — disse um grandalhão coberto de tatuagens.
 
-— Espere aí, Nosteratos, o prisioneiro precisa ser inspecionado primeiro — interveio o homem careca que me aprisionara.
+— Pera aí, Nosteratos. O prisioneiro ainda não foi inspecionado — reclamou o careca.
 
-— Enfie sua inspeção no cu, precisamos de mais braços na proa — retrucou Nosteratos, arrastando-me pela multidão. Piratas zombeteiros riam de mim enquanto ele me conduzia por corredores, passando por animais peludos chicoteados para mover uma engrenagem enorme no centro da nave e por chamas que saíam de grades espalhadas.
+— Enfia a inspeção no cu. Preciso de braço lá em cima.
 
-Subi as escadas e o homem me soltou diante de uma pilha de rochas, onde outros homens, sem camisa, carregavam-nas para algum destino desconhecido.
+E foi me puxando pelo meio da multidão. Vi animais peludos sendo chicoteados pra movimentar uma engrenagem enorme. De umas grades no piso saíam labaredas. Um pirata riu quando tive que desviar de uma delas. Tinha acabado de sair de Dekraaz pra parar naquela porra.
 
-— Leve as pedras para lá — ordenou o homem, apontando para uma das áreas elevadas da nave.
+Subimos uma escada até uma pilha de pedras. Vários homens sem camisa carregavam aquilo de um lado pro outro.
 
-Lancei um olhar furioso em sua direção antes de me aproximar das pedras. O rosto dos outros homens refletia o cansaço. Estavam todos suados e sujos. De repente, um estalo cortou o ar e uma dor lancinante atravessou minhas costas, derrubando-me no chão.
+— Leva as pedras pra lá.
 
-— AAAH, FILHO DA PUTA! — gritei, ao me virar e ver Nosteratos segurando um chicote, rindo desdenhosamente.
+Apontou pro convés superior.
 
-Forcei-me a levantar e escolhi uma pedra mais leve. Juntei-me aos homens que subiam as escadas rumo ao convés superior, dez metros acima. A nave, embora imensa, não chegava à magnitude da Lebargan. Enquanto subia, uma voz sussurrou perto do meu ouvido:
+Olhei pro sujeito, depois pras pedras. Já ia perguntar quanto pagavam quando ouvi um estalo e senti uma dor nas costas que me botou no chão.
 
-— Vai trabalhar pra Fera Sideral agora. Tem chance de ficar aqui em cima. Mas se vacilar… você morre.
+— AAAH, FILHO DA PUTA!
 
-Diminuí o passo por um instante e vi um homem de pele escura, carregando duas pedras de uma vez, sorrir para mim. Voltei à tarefa. Dezenas de ectons depois, já estava exausto. Parei para descansar, mas, ao ver um dos homens do chicote lá embaixo, apressei o passo. No destino, havia um amontoado de pedras de titânio, que alguns homens carregavam até uma esteira rumo a uma máquina trituradora.
+Me virei. Nosteratos segurava um chicote e tava rindo.
 
-— Ei — chamei um dos carregadores, um homem careca com olhos fundos. — Pra que são esses titânios?
+Levantei e peguei uma pedra mais leve. Subi atrás dos homens, até o convés superior, uns dez metros acima. A Fera era enorme, mas nem se comparava à Lebargan. Dali de cima dava pra enxergar uma boa parte do convés, os homens minúsculos lá embaixo e o espaço negro além das bordas. Tentei descobrir por onde se chegava às naves menores. Não consegui ver entrada nenhuma. Tava calculando quantas vezes ia ter que subir aquela escada quando ouvi uma voz atrás de mim:
 
-— Pra fabricação de armas — ele murmurou, aproximando-se discretamente. — Mas não diga que fui eu quem te disse isso.
+— Agora você trabalha pra Fera. Se fizer tudo direito, talvez fique aqui em cima. Se vacilar, morre.
 
-Ele se afastou, fixando os olhos nos meus de um jeito que me causou desconforto. Voltei para buscar mais uma pedra. Repeti o processo várias vezes, até um som grave de trombeta ecoar pela nave e silenciar todos. Os trabalhadores foram até a beira do convés superior. O único ruído eram as máquinas ao fundo.
+Olhei pro lado. Um sujeito de pele escura carregava duas pedras de uma vez e ainda teve fôlego pra sorrir. Olhei pra minha pedra. Na viagem seguinte, peguei duas. O sujeito passou por mim na escada e eu até apressei o passo pra chegar primeiro. Algumas dezenas de ectons depois, já tava procurando as menores pedras da pilha. Por sorte, o desgraçado não tava mais prestando atenção em mim. Parei pra descansar, vi o chicote lá embaixo e continuei subindo. No convés superior, os trabalhadores despejavam o titânio numa pilha e outros alimentavam a esteira de uma trituradora.
 
-— Troca de turno. Descansem por meia hora — anunciou um homem com moicano vermelho e coberto de tatuagens, do convés inferior.
+— Ei, amigo. Pra que tanto titânio? — perguntei a um careca de olhos fundos.
 
-Os homens dispararam para as escadas, e eu os segui, mais devagar. No meio do caminho, desviaram para um corredor de luzes vermelhas. Lá dentro cheirava a excremento e estava escuro como a noite. Passei por homens deitados no chão e sujeira acumulada até um salão imenso, também banhado de luz vermelha. Não dava para ver o teto.
+— Pra fazer arma. Mas não fala que fui eu que disse.
 
-No centro, uma mesa cercada por uma multidão faminta avançando sobre os restos de comida. Alguns subiam na mesa, outros brigavam, a confusão era total. Mergulhei na multidão. Uma cotovelada me acertou o estômago, um chute pegou a perna. Ah, meu amigo, eu não ia ficar parado. Agarrei o sujeito à frente e o soquei, puxando-o para trás. Fiz o mesmo com outro, distribuindo cotoveladas. Tentaram me puxar, mas meu braço de metal fazia estrago, e eu sabia usá-lo. Quando cheguei à mesa, só havia restos e ossos. Minha barriga roncava. Muitos brigavam por um pedaço de carne, outros corriam enquanto comiam para não serem pegos.
+Ele foi embora olhando pra mim por cima do ombro. Continuei carregando pedra até ouvir uma trombeta. Todo mundo largou o que tava fazendo e se aproximou da beira do convés. Até os sujeitos do chicote ficaram quietos.
 
-— CHEGA! — ecoou uma voz poderosa pelas sombras.
+— Troca de turno! Meia hora pra descansar! — gritou um homem de moicano vermelho, cheio de tatuagens, lá de baixo.
 
-Num instante todos recuaram e se encostaram à parede. Eu não me movi. Aproveitei o silêncio para pegar um pedaço de carne que sobrara num canto e o devorei. Foi então que um som de metal batendo no chão ressoou, e apertei os olhos para discernir a origem nas sombras. Emergiu um homem de barbas compridas e grisalhas, cabelos encaracolados com tranças curtas, pele pálida e um nariz torto marcado por cicatriz. Só o olho esquerdo era visível, circundado por uma mancha escura. Sobre o direito repousava uma lente vermelha presa por três cintas que se cruzavam sobre uma bandana vermelha. Brincos e pedras preciosas adornavam as orelhas e as órbitas dos olhos. O chapéu na cabeça não deixava dúvida: era o capitão da Fera Sideral.
+Os trabalhadores desceram correndo. Fui atrás, sem entender a pressa, até entrarem num corredor de luz vermelha. Tinha gente deitada no chão, sujeira acumulada nas paredes e um cheiro do caralho. O corredor terminava num salão enorme, tão escuro que nem dava pra ver o teto.
 
-Ele avançava com dificuldade sobre uma perna de aço, segurando firme uma pistola. A respiração pesada e o olhar ameaçador intimidavam todos ali, exceto a mim. E era na minha direção que ele vinha. O metal ressoou no chão até ele parar bem à minha frente, me encarando. Ficamos imóveis por quase três ectons, até que ele recuou um passo, virou-se para a tripulação e começou a falar.
+Aí entendi a pressa. Tinha uma mesa no centro e todos se jogavam em cima dela. Uns subiam na madeira, outros arrancavam a comida da mão dos companheiros. Entrei no meio da confusão e levei uma cotovelada no estômago, depois um chute na perna. Ah, não. Puxei um sujeito pra trás, acertei outro com o cotovelo e abri caminho com o braço de metal. Quando cheguei à mesa, só tinha osso. Depois de tanto tempo sem comer carne assada, eu ia ter que disputar até os restos. Vi um sujeito fugir com um pedaço na mão enquanto outro tentava morder o braço dele.
 
-— Não me lembro de você. Parece sangue novo. Por que ninguém mais tem a coragem, a ousadia, de fazer o que este homem fez?
+— CHEGA!
 
-Silêncio. Ninguém respondeu ao capitão, que se inclinou em minha direção e sussurrou:
+Todo mundo recuou pra parede. Eu fiquei onde tava. Tinha acabado de enxergar um pedaço de carne perto da borda da mesa e, pela primeira vez desde que entrara naquela nave, ninguém tava tentando roubá-lo. Peguei e enfiei na boca. O sujeito à minha direita fez um gesto desesperado com a mão, indicando a escuridão atrás de mim. Achei que quisesse a carne. Mostrei os dentes enquanto mastigava, pra deixar claro que não sobraria nada.
 
-— Acho que a maioria teme a morte — riu, antes de se voltar novamente para os homens — Estou percebendo que minha tripulação tem se comportado mais como bárbaros na hora de se alimentar. Isso não é aceitável. Tenho homens aqui, não ratos.
+Ouvi metal batendo no chão. Um homem saiu das sombras. Barbas longas e grisalhas, cabelos encaracolados com pequenas tranças, pele pálida, nariz torto e uma cicatriz. O olho esquerdo era rodeado por uma mancha escura. No lugar do direito, uma lente vermelha presa por três cintas que cruzavam a bandana. Tinha brincos, pedras preciosas em volta dos olhos e um chapéu de capitão. Ah. Então era por isso que tinham deixado a carne.
 
-O capitão mancou alguns metros até um dos homens, quando um som sinistro ao fundo, alto e semelhante a um guincho, fez os homens se agitarem e se pressionarem contra a parede. Ergui a cabeça e vi uma enorme criatura alada descendo dos ares: negra, esguia, de dentes afiados, longos chifres e asas finas no lugar dos braços. Curiosamente, não tinha olhos, mas tentáculos reluzentes no centro da face.
+Ele veio na minha direção, apoiando-se numa perna de aço, com uma pistola na mão. A cada passo, o salão inteiro ouvia o metal bater no piso. Continuei mastigando. Parou na minha frente e ficou me olhando por uns três ectons. Aí eu engoli. O velho recuou, abriu os braços pra tripulação e apontou a pistola na minha direção, de lado, sem nem olhar pra ela.
 
-A criatura pousou no chão e caminhou com suas patas traseiras e asas até ficar atrás do capitão, lançando-me um olhar enquanto passava.
+— Sangue novo, meus caros! Vejam só. Um homem que não se afasta da mesa nem quando seu capitão chega. Onde foi parar a coragem dos demais?
 
-— Vim trazer meu bebê para comer um pouco, e vejo que não deixaram nada para ele. Será que seria prudente deixar que ele também se alimente de forma bruta? Talvez ele pudesse matar um ou dois, como vocês ratos costumam fazer.
+Ninguém abriu a boca. Um sujeito perto da parede deixou cair um osso. O barulho fez dois homens se encolherem. Tzough virou a cabeça na direção deles e esperou. O homem se abaixou, apanhou o osso e ficou segurando aquilo junto ao peito, tremendo. Só então o capitão se inclinou um pouco pra mim.
 
-Os homens se encolhiam ainda mais nas paredes. O capitão então virou-se para mim e sorriu, exibindo dentes cariados.
+— Aposto que tem algo a ver com o medo de morrer.
 
-— Venha cá, homem — ordenou ele.
+Riu e voltou-se pros outros.
 
-Antes que eu pudesse reagir, senti espadas em minhas costas, empurrando-me em direção ao capitão. Avancei e parei diante dele, de frente para o monstro, que baixou sua cabeça até que sua mandíbula aberta estivesse perigosamente próxima de mim.
+— Que recepção deplorável! Eu saio dos meus aposentos, desço até aqui e encontro uma porção de ratos disputando a comida. Senhores, não me digam que essa é a minha tripulação.
 
-— Diga-me, o que devo fazer com esses ratos? — perguntou o capitão.
+Ele começou a andar na direção de um dos homens, mas um guincho fez todo mundo se apertar ainda mais contra a parede. Olhei pro teto e vi uma criatura alada descer. Negra, esguia, com dentes afiados, chifres compridos e asas finas no lugar dos braços. Não tinha olhos. No centro do rosto, uns tentáculos brilhavam e se agitavam.
 
-Olhei ao redor. Todos os olhares estavam fixos em mim. No entanto, o único que eu realmente via era o da criatura negra à minha frente.
+O animal pousou e veio andando com as patas traseiras e as asas até o capitão. Virou a cabeça pra mim. Por instinto, dei meio passo pro lado. Tzough abriu um sorriso e bateu a mão no flanco da criatura.
 
-— Os homens estavam famintos. Talvez devesse dar-lhes mais comida — sugeri.
+— E eu que vim trazer meu bebê para o almoço! Vejam o que fizeram. Nem um pedacinho de carne para a pobre criatura. Que falta de consideração, meus amigos.
 
-O capitão examinou a todos e, por fim, se virou para mim com ar cínico.
+Ele olhou pra mesa vazia e depois pros homens.
 
-— Você tem razão. Os homens estão famintos. Temos muita boca para pouca comida — observou o capitão, lançando um olhar primeiro aos homens e depois à sua fera.
+— Teremos de improvisar o cardápio, não acham?
 
-O animal pareceu captar a intenção em seu olhar e virou-se para a tripulação, avançando até eles e abocanhando dois homens em uma só mordida, engolindo-os ainda vivos.
+Os sujeitos se apertaram uns contra os outros. O capitão virou-se pra mim, exibindo os dentes cariados.
 
-— Está resolvido. Agora temos comida para todos — declarou o capitão, com sarcasmo para mim, antes de desaparecer na escuridão de onde viera. Os outros homens, aterrorizados, correram para a saída, enquanto a criatura alada retomava o voo atrás do dono. Acompanhei a fuga e vi um rosto familiar. Fui até Alekta e disse:
+— Venha cá, homem. Preciso de uma opinião imparcial.
 
-— Então eles não te mataram — falei — que ótimo. Minha história foi convincente.
+Senti duas espadas nas costas e fui pra frente. A criatura baixou a cabeça até que a boca ficasse praticamente na altura da minha cara. Tentei não pensar no bicho de Dekraaz. Definitivamente já tinha passado tempo demais perto de bocas enormes.
 
-Alekta me lançou um olhar fulminante. Por um momento, pensei que receberia um soco, mas ela conteve-se.
+— O que recomenda que eu faça com esses ratos?
 
-— Você é um idiota se acha que tem alguma chance de sair vivo daqui — disparou ela.
+Olhei de relance pros piratas. Todos esperavam pela minha resposta. A criatura continuava ali, a uma distância que eu não gostaria de medir com o braço.
 
-— O mesmo poderia ser dito sobre você e o planeta de onde você não queria sair. Acredite, salvei sua vida.
+— Dá mais comida pra eles. Tavam com fome.
 
-— Salvou minha vida? — Alekta riu com sarcasmo. — Você realmente acha que é possível viver aqui?
+O capitão ergueu as sobrancelhas. Olhou pros homens, pra fera e de novo pra mim.
 
-— Notei que os homens passam fome e alguns até se tornam comida, mas... ainda é possível impor alguma ordem — argumentei.
+— Mas é claro! Muitos homens, pouca comida. E aqui estou eu com um problema perfeitamente solucionável.
 
-— Você é maluco? — Alekta elevou a voz enquanto caminhávamos lado a lado. — Se o capitão quisesse te matar, teria feito ali mesmo.
+Ele fez um gesto na direção da multidão.
 
-— Eu não me curvo a ninguém mais — declarei.
+A criatura se virou e avançou. Dois homens desapareceram na mesma mordida. O resto tentou se afastar, mas não tinha pra onde ir. Um deles começou a chamar pelo companheiro. Tzough levantou a mão e o sujeito calou a boca no mesmo instante. O velho ficou observando o animal por mais um tempo, com um sorriso satisfeito. Ninguém ousou sequer olhar pro lugar onde os homens estavam antes.
 
-— Desse jeito, logo não vai ter mais cabeça para abaixar — ela retrucou, mantendo o passo ao meu lado pelo corredor.
+— Pronto! Duas bocas a menos e o meu bebê já almoçou.
 
-— De onde você é? — perguntou Alekta, mudando de assunto de repente.
+Tzough fez uma pequena reverência pra mim. Bateu de leve na mesa com o cabo da pistola e esperou até que todos os olhos estivessem nele. Um pirata tentou rir. Outros o acompanharam, sem tirar os olhos do capitão. Só fui entender depois que ninguém queria ser o primeiro a ficar calado. Então voltou pras sombras, com a mesma calma com que tinha chegado. A criatura levantou voo atrás dele. Os piratas correram pra saída. No meio da multidão, vi Alekta e fui até ela.
 
-— Eu era um Dale de Lebargan — respondi.
+— Olha só, não te mataram. Eu disse que aquela história ia funcionar.
 
-A mulher parou por um instante, claramente surpresa.
+Pela cara dela, era cedo pra comemorar.
 
-— Um Dale de Lebargan? Isso é impossível. Lebargan não existe.
+— Você é um idiota se acha que vai sair vivo daqui.
 
-Virei-me para Alekta e arqueei uma sobrancelha.
+— Você também não ia durar muito naquele planeta. Acabei salvando tua vida.
 
-— Então suponho que sou um holograma.
+— Salvou? Você viu a porra do almoço?
 
-— Você não é um Dale. Prove.
+— Vi. A comida é meio escassa e às vezes o pessoal vira comida. Mas deve ter algum jeito de botar ordem nisso.
 
-— Eu não vou provar porra nenhuma — retruquei — Só estou aqui porque precisava sair daquela merda de planeta.
+— Você tá maluco? Se o Tzough quisesse te matar, tinha feito ali mesmo.
 
-— Ok. Se você é um Dale, o que está fazendo preso aqui? Por que não foge? — provocou Alekta.
+— Não abaixo mais a cabeça pra ninguém.
 
-Arqueei uma sobrancelha, questionando o que ela queria insinuar com aquilo.
+— Daqui a pouco não vai ter cabeça pra baixar.
 
-— Afinal, dizem que os Dales têm habilidades incríveis, como disparar lasers pelos olhos e possuir ultra-velocidade.
+Andamos mais um pouco antes que ela perguntasse:
 
-— Eu costumo ser bom na cama — brinquei — esse é o meu superpoder.
+— De onde você veio?
 
-Alekta estreitou os olhos e mordeu o lábio inferior, com malícia.
+— Era um Dale da Lebargan.
 
-— O que fazia naquele planeta? — ela continuou a inquirir.
+Alekta parou.
 
-— O capitão de Lebargan tentou me matar. Mas infelizmente ele não conseguiu. E agora, eu que vou matá-lo.
+— Da Lebargan? Essa nave nem existe.
 
-— Você pretendia enfrentar o capitão com aquela navezinha que iria roubar? — questionou Alekta.
+Olhei pros meus braços.
 
-— Não preciso de uma nave grande para matar Jelles. Só de uma lâmina bem afiada e uma pistola com uma bala.
+— Então devo ser um holograma.
 
-Alekta sorriu, puxando-me então por um corredor oculto pouco antes de chegarmos à saída.
+— Prova que é um Dale.
 
-— O que é isso, aonde está me levando? — perguntei, enquanto ela me guiava por uma escadaria até um corredor de celas, algumas abertas, outras fechadas. Ali o cheiro era menos pungente. Entramos numa das celas abertas, e Alekta me soltou, recostou-se nas grades e me observou com aqueles olhos penetrantes. Sorriu, desabotoou a blusa e avançou, deslizando as mãos por dentro da minha camisa.
+— Não vou provar porra nenhuma. Só vim parar aqui porque precisava sair daquele planeta.
 
-Deixei que ela prosseguisse, soltando lentamente os botões da minha calça. Tirei a camiseta e a joguei no chão. Era a minha vez de dominar. Segurei Alekta pelo maxilar, desafiador.
+— Ué, se é um Dale, por que não foge daqui?
 
-— Toque em mim sem eu permitir... — Alekta recuou, o olhar firme. — e eu corto o seu pau fora.
+Parei de andar.
 
-Merda. Essa mulher não era de brincadeira. Gostei. Ela então se ajoelhou e abaixou minhas calças até os joelhos.
+— Dizem que vocês soltam laser pelos olhos, correm mais rápido que qualquer um...
 
-— Selvagem como uma gigante gasosa — murmurei, atraindo-a para mais perto enquanto sentia o calor de seus lábios. Segurei firmemente em seus cabelos, sentindo o desejo crescer, então a movi suavemente até o chão, colocando-a delicadamente sob mim enquanto me desfazia de minha calça. Me debrucei sobre ela, beijando seu pescoço com cuidado enquanto a auxiliava a se livrar de sua camiseta. Distribuí leves beijos pelo seu corpo até alcançar sua cintura, antes de remover sua calça e calcinha. Tracei um caminho com as mãos desde seus seios até o ventre, chegando por fim ao seu íntimo, sentindo a umidade entre meus dedos. Encarei Alekta nos olhos e, num movimento suave, puxei seu cabelo no instante em que a penetrei. Seus olhos se fecharam, e eu a aproximei ainda mais, depositando beijos em seus seios. Com cada movimento, Alekta emitia um som, enquanto eu explorava seus seios com cuidado.
+— Na cama eu costumo ter umas habilidades interessantes. Mas, se tivesse laser nos olhos, acredita que já tinha usado nessa nave.
 
-— Você ouviu as histórias erradas sobre os Dales. Devia ouvir como são as nossas fodas — sussurrei ao pé de seu ouvido, intensificando o ritmo de nossos corpos entrelaçados.
+Ela me examinou com um sorriso.
 
-Subitamente, Alekta me virou, assumindo o controle. Segurei seus cabelos novamente, e no auge de nossa união, ela soltou um grito tão poderoso que pensei ter sido muito intenso. Fechei meus olhos e, ao abri-los, reencontrei seu olhar feroz. Que mulher!
+— E o que você tava fazendo naquele planeta?
 
-— Que diabos está acontecendo aqui? — virei e vi que um homem tinha se levantado em uma das celas fechadas — Vadia! Não pode ver um homem que já quer dar o rabo.
+— O capitão da Lebargan tentou me matar. Não conseguiu. Agora é minha vez.
 
-— Está com inveja porque não sou eu quem você tem, Ederos? É melhor ficar calado antes que eu mostre quem vai precisar cuidar do rabo depois da minha faca entrar aí — retrucou Alekta com fúria.
+— E ia enfrentar ele com aquela navezinha?
 
-— Puta suja — vociferou Ederos.
+— Pra matar o Jelles, só preciso de uma lâmina afiada e uma pistola. A nave é pra chegar até ele.
 
-— Se abrir a boca mais uma vez, eu juro que corto sua língua — ameacei-o.
+Alekta sorriu e me puxou pra uma passagem estreita antes da saída.
 
-— Isso, acredite mesmo nessa piranha. Ela vai te usar que nem fez comigo e com todos os outros — disse Ederos, em seguida fazendo uma careta — e por favor, vista sua roupa.
+— Ei, pra onde a gente tá indo?
 
+Descemos uma escada até um corredor cheio de celas, algumas abertas. Pelo menos ali dava pra respirar sem sentir vontade de vomitar. Ela entrou numa das celas vazias, encostou nas grades e me puxou pra perto. Pela cara dela, a conversa sobre os poderes dos Dales tinha despertado alguma curiosidade.
+
+Ela me beijou e começou a tirar minha camisa. Levei a mão ao rosto dela, mas ela segurou meu pulso.
+
+— Toca em mim sem eu deixar e eu corto teu pau fora.
+
+— Tá bom, tá bom. — Afastei a mão. — Você manda.
+
+Ela riu e me puxou de volta.
+
+A gente se beijou outra vez. Ela puxou a porta da cela até onde dava e largou a roupa num canto. Por um tempo, esqueci completamente a nave, o capitão e até a merda da fome. Alekta também parecia ter coisa melhor pra fazer do que discutir nossa fuga.
+
+Quando finalmente paramos, ouvi alguém se mexer atrás das grades. Puta merda. Tinha gente nas outras celas.
+
+— Que porra é essa? — Um homem se levantou numa das celas fechadas. — Vadia! Não pode ver um homem que já quer dar o rabo.
+
+— Tá com inveja, Ederos? Cala a boca antes que eu encontre outro uso pra tua.
+
+— Puta suja.
+
+— Abre a boca de novo que eu corto tua língua.
+
+— Acredita nessa piranha mesmo. Vai te usar que nem fez comigo e com os outros. — Ele fez uma careta. — E bota a porra da roupa.
