@@ -1,462 +1,501 @@
-Percorremos a nebulosa escura por algumas voltas, atentos a qualquer adversidade. Até que certo dia, enquanto discutíamos se baratas do mar eram venenosas ou não, um probleminha surgiu. O painel começou a piscar em vermelho e, por alguma razão, os motores cessaram, nos deixando vagar pela escuridão plena.
+Passamos algumas voltas naquela nebulosa. O efeito daquela merda que eu tinha bebido passou, mas o Kord ainda perguntava se eu precisava de ajuda toda vez que levantava da cadeira. Pelo vidro, não dava pra distinguir uma pedra a dez metros de distância de uma estrela a dez parsecs. Numa dessas voltas, enquanto eu discutia com Kord se baratas do mar eram venenosas, ouvi um alarme no comando. O impulso cessou. A Princesa saiu da dobra e os indicadores do motor ficaram vermelhos. Nos primeiros instantes, achei que Eric tivesse feito alguma manobra. Mas o sujeito tinha tirado a mão dos controles e olhava pro painel sem entender.
 
-— O que houve? — perguntou O’reilly, frustrado.
+— Que aconteceu? — perguntou O’reilly.
 
-Eric hesitou enquanto mexia nos comandos da nave.
+Eric mexia nos controles, conferindo os indicadores.
 
-— Não sei. O mapa radioativo não detectou nada ao redor. Deve ser alguma falha nos motores.
+— Não tem nada no mapa radioativo. O motor parou sozinho.
 
-— Me parece problema nos motores de dobra — disse Hardman, apontando para uma luzinha vermelha no canto.
+Hardman apontou para um indicador vermelho.
 
-— É a maneira que ela expressa a revolta por três aqui dentro acharem que baratas do mar não são letais — resmunguei.
+— Falha no sistema de dobra.
 
-— Eu como uma barata do mar na sua frente, para te provar — disse Kord, o desafiando.
+— Tá vendo, Kord? Até a nave concorda comigo sobre as baratas do mar.
 
-— Ta, mas tem outra forma de sair sem ser com os motores de dobra? — perguntou Buni.
+— Quando encontrar uma, vou comer na tua frente.
 
-Eric balançou a cabeça, os olhos fixos no painel.
+— A gente consegue sair daqui sem a dobra? — perguntou Buni.
 
-— A plena velocidade, sem os motores de dobra, levaríamos uns 3 milhões de momentos para sair dessa nebulosa. Mas, claro, nossa energia acabaria antes. Talvez em umas... 30 voltas?
+Eric consultou a Carta.
 
-O’reilly se inclinou para frente, apertando os punhos.
+— A plena velocidade? Uns três milhões de momentos. A energia acaba em trinta voltas, se tivermos sorte.
 
-— Certo, ótimo. Em trinta milhões de momentos podemos evoluir para seres espaciais que enxergam radiação. Quem acha isso incrível levanta a mão. — Sua tentativa de humor foi recebida com olhares nada animados.
+O’reilly apoiou as mãos no encosto da cadeira.
 
-— Hardman! — reclamou Kord, se levantando com irritação — o que faremos?
+— Bom, quem sabe o transporte pra Moldar ainda não tenha sido a viagem mais demorada da nossa vida.
 
-Hardman assentiu, já se levantando.
+Buni não riu. Tava olhando o indicador de energia.
 
-— Bom, precisamos reiniciar o sistema manualmente. Isso significa desligar tudo e começar do zero. Literalmente, tudo.
+— Hardman, dá pra consertar essa merda? — perguntou Kord.
 
-Vivian, com os olhos fixos no monitor piscante, balançou a cabeça rapidamente, levantando as mãos em um gesto enfático para Hardman, e Kord, que observava atentamente, traduziu:
+O engenheiro levantou e examinou o painel.
 
-— Ela diz que desligar sem backup pode apagar os dados de navegação e do olho. Sugere procurar um protocolo de segurança antes de um desligamento bruto.
+— Podemos reiniciar os sistemas principais manualmente. O circuito auxiliar mantém o suporte à vida durante a interrupção.
 
-Hardman suspirou, olhando para ela.
+Vivian tocou o ombro dele e apontou pro registro de navegação. Fez alguns sinais.
 
-— Eu sei, mas é nossa única chance agora.
+— Ela perguntou se vai perder o caminho que o olho apontou — traduziu Kord. — Melhor guardar antes, não?
 
-— É isso que dá deixar o comando nas mãos de um incompetente — falei, encostado à parede.
+Hardman conferiu a memória auxiliar.
 
-— Ora cale a sua boca, Jasmey, senão você vai precisar de outro bracinho de ferro pra substituir o que vou quebrar — disse Eric.
+— Boa observação. Os registros estão salvos. Não vamos desligar esse circuito.
 
-— Chega! Vamos reiniciar — disse Hardman. O pequeno homem caminhou até a parte de baixo do painel, e abriu uma pequena portinha ali em baixo revelando uma alavanca vermelha.
+— Foi só deixar o Eric pilotar.
 
-Ele puxou a alavanca com força, e imediatamente todos os sons cessaram. Os bipes pararam, a iluminação de emergência desligou, e a cabine mergulhou na escuridão quase absoluta. Uma única luz vermelha piscava em um indicador, indicando que os sistemas estavam todos desativados.
+— Quer assumir, Badrock? Tem certeza que as pernas já obedecem?
 
-— Vamos contar três segundos antes de ligar de novo — Hardman murmurou, a voz baixa no silêncio.
+— Parem os dois, por favor. Vamos reiniciar.
 
-Por um momento, o único som era a respiração de todos. No breu, a única luz vinha do indicador. Aquele silêncio parecia pior do que qualquer som, como se algo estivesse à espreita.
+Hardman se abaixou e abriu uma tampa junto à base do painel. Havia uma alavanca vermelha dentro.
 
-Foi nesse instante que um som abafado ecoou, algo como uma batida distante, vinda das profundezas da nave. Todos pararam, trocando olhares.
+Puxou a alavanca. Os monitores apagaram, os ventiladores da cabine pararam e a iluminação principal sumiu. Uma luz vermelha do circuito auxiliar continuou piscando.
 
-— Alguém ouviu isso? — perguntou Kord, sua voz tensa.
+— Vamos esperar alguns segundos.
 
-Buni se encolheu, em seu canto.
+Fiquei ouvindo as respirações dos outros. No escuro, não dava nem pra saber quem tava do meu lado.
 
-— Eu ouvi — respondeu. — E to com medo.
+Toc.
 
-O’reilly, fechando os olhos por um segundo, sussurrou:
+Veio de algum ponto abaixo da cabine. Depois ouvi outra batida, mais distante. Tentei localizar o som pelo chão, mas antes que conseguisse veio uma terceira, junto à parede. Ninguém tinha saído da cabine.
 
-— Que a luz do Divino Sacerdote nos proteja de tudo o que se esconde nas trevas. Tenham fé, meus irmãos. — Então, continuou mais alto — O que quer que seja, enfrentaremos juntos.
+— Cês ouviram isso? — perguntou Kord.
 
-Antes que pudéssemos debater, Hardman puxou a alavanca novamente, reiniciando os sistemas. Um a um, os bipes começaram a retornar, os monitores se acenderam, e o som familiar dos motores encheu o espaço.
+Alguma coisa roçou no meu braço. Era Buni, que tinha chegado mais perto.
 
-— Tudo funcionando? — perguntei.
+— Ouvi. Não gostei, não.
 
-Hardman verificou os dados e assentiu.
+O’reilly murmurou uma oração.
 
-— O sistema de máquinas voltou. Mas ainda precisamos checar os motores de dobra. Tenho a indicação que há uma falha.
+— Que a luz do Divino Sacerdote nos proteja. Calma, irmão. Estamos todos aqui.
 
-O’reilly olhou para Vivian, que assentiu.
+Hardman empurrou a alavanca. As luzes da cabine voltaram, os monitores acenderam e ouvi o sistema de ventilação retomar o funcionamento.
 
-— Não precisam ir todos — disse Hardman — fiquem alguns aqui, para avisar caso algo aconteça.
+— E aí?
 
-— Eu vou ficar — disse Buni, ainda encolhido.
+Hardman examinou os indicadores.
 
-— Nós também vamos — disse Kord olhando para Vivian. Vivian lhe retribuiu o olhar, confusa, como se perguntasse “Eu vou?”. Mas então assentiu.
+— O sistema de máquinas respondeu. O motor de dobra, não. Precisamos descobrir a causa da falha.
 
-— Ótimo, então eu, O’reilly, Jasmey e Eric vamos ver o que se passa — concluiu Hardman.
+Vivian apontou para o corredor de acesso às máquinas.
 
-— Justo o Eric ir, pra consertar a cagada que ele fez na nave — falei.
+— Não precisamos ir todos. Alguém deve ficar no comando para acompanhar os indicadores.
 
-— Se eu tivesse a oportunidade Jasmey, retiraria você agora, mas ficaria ali olhando sua cara de otário sumir nessa escuridão — disse Eric.
+— Eu fico — disse Buni.
 
-— É, eu também — sibilou Hardman.
+— Eu também — disse Kord. Vivian indicou a cadeira junto ao painel e assentiu.
 
-Então nos dirigíamos aos fundos da nave. Sons abafados e esporádicos surgiam por vezes nas paredes. Alguém batia, ou algo.
+— Nesse caso, eu, O’reilly, Jasmey e Eric vamos inspecionar o motor.
 
-— Isso não me parece um som de motor — disse O’reilly.
+— Vem, Eric. Vamos ver o que você fez.
 
-— E não é — respondi.
+— Continua falando, Badrock. Na próxima vez que sair da nave, talvez eu esqueça de abrir a porta.
 
-Chegamos a uma pequena porta no chão no final do corredor, que acessava as máquinas. Hardman se ajoelhou e a abriu, revelando uma escada que levava ao compartimento inferior. Ele foi o primeiro a descer, seguido por Eric, que parecia desconfiado, e por mim.
+Hardman pegou a caixa de ferramentas.
 
-Hardman já estava na frente, analisando os monitores no compartimento. O lugar estava mal iluminado, com luzes piscando e pequenos sons mecânicos ecoando. A vibração constante da nave criava uma sensação de desconforto.
+— Por favor, não deem mais trabalho do que o motor.
 
-— Curioso — comentou Hardman, enquanto verificava as leituras em um dos painéis.
+Seguimos pro fundo da nave. De vez em quando, uma batida soava na parede. Parei junto a um dos painéis e encostei o ouvido. O som já vinha de outro lugar.
 
-— Não começa com esse mistério não, Hardman, diga logo o que viu — disse O’reilly, nervoso.
+— Isso não parece barulho de máquina — disse O’reilly.
 
-— O sistema de máquinas está funcionando normalmente, mas o comando não iniciou completamente. Isso deveria acontecer assim que reiniciamos tudo.
+— Também acho que não.
 
-Eric cruzou os braços, franzindo a testa.
+No fim do corredor, Hardman abriu uma escotilha no chão. Desceu pela escada, seguido pelo Eric, por mim e pelo O’reilly.
 
-— Então é só apertar o botão para ligar o que não ligou manualmente, certo?
+A sala das máquinas tava iluminada pelos painéis auxiliares. Os ventiladores giravam, e a vibração do casco passava pelos degraus. Hardman conferiu os registros de falha.
 
-Hardman hesitou, sua expressão ficando séria.
+— Curioso.
 
-— Não tão simples. Há uma trava de segurança: com avaria crítica, o comando não parte sozinho. Se forçarmos a ligação, podemos viajar às cegas, e a esta velocidade um grão de poeira já é uma explosão.
+— Que foi? — perguntou O’reilly.
 
-Havia um silêncio carregado que me fez querer tossir. Finalmente, Eric o quebrou, a voz tensa:
+— O sistema de máquinas reiniciou, mas a autorização de partida do motor de dobra continua bloqueada.
 
-— Ok, então qual é o plano?
+Eric chegou perto do painel.
 
-— Precisamos inspecionar o motor de dobra — respondeu Hardman. — Fica no exterior da nave, revestido por uma camada líquida que o mantém refrigerado. Se ela estiver comprometida, a falha pode ser superaquecimento, o que seria fácil de resolver.
+— Dá pra liberar manualmente?
 
-O’reilly se aproximou.
+Hardman indicou um símbolo de advertência.
 
-— Por acaso não temos módulos de reparo, temos?
+— Há uma trava de segurança. Se o equipamento detecta uma avaria crítica, não permite a dobra. Forçar a partida sem saber a causa da falha seria uma excelente maneira de destruir a nave.
 
-Hardman olhou para O’reilly sem responder.
+Eric afastou a mão do painel.
 
-— Alguém precisa sair da nave e verificar.
+— Então o que fazemos?
 
-— Ótimo, vamos mandar o Eric — declarei.
+— Inspecionamos o motor. A parte que preciso examinar fica do lado de fora, protegida por um revestimento resistente. Há um circuito de refrigeração sob essa proteção. Se estiver comprometido, teremos uma indicação do motivo da falha.
 
-— Por que não vai você, Badrock? É o mais descartável de nós.
+O’reilly olhou ao redor.
 
-— E como explicaria isso pra sua irmã depois? Que matou o amigo dela.
+— Não tem um módulo de reparo que possa fazer isso por nós?
 
-— Amanda nem lembra mais de você. Ela como todos os outros acham que você foi um cretino e que desafiou toda a ordem dos Dales.
+Hardman negou.
 
-Embora aquele comentário tivesse mexido comigo, soltei uma risada irônica e respondi:
+— Alguém terá de sair.
 
-— Errada ela não está.
+— O Eric tá disponível.
 
-Hardman pôs as mãos na testa e suspirou.
+— Por que não você? Já perdeu um braço mesmo.
 
-— Se ninguém se voluntaria, vamos tirar no papel de novo. Não é uma tarefa simples: o motor de dobra é protegido por uma camada super-resistente, e algo muito forte deve ter danificado essa proteção. Precisamos saber com o que lidamos antes de agir.
+— E como vai explicar pra tua irmã que me deixou morrer?
 
-— Ok, eu vou nessa merda — falei.
+— A Amanda já sofreu o suficiente por tua causa. Pra metade dos Dales, você morreu porque teve a brilhante ideia de desafiar o capitão.
 
-— Ué, mudou de ideia assim de repente? — perguntou Hardman.
+O filho da puta tinha acertado num assunto que eu preferia não discutir. Olhei pro indicador de falha.
 
-— Olhe pra você, Hardman. Seria levado pro espaço facinho. Eric… já vimos o que nos custou deixar ele no comando. Talvez possamos chamar o Kord para cantar para o motor funcionar.
+— Então vai poder contar pra ela que me viu sair daqui vivo.
 
-— Eu tenho certeza que a canção de Kord seria o suficiente pra acordar este motor — disse O’reilly animado.
+Hardman cruzou os braços.
 
-Enquanto caminhávamos pelo corredor em direção às comportas da nave, ouvimos mais alguns sons metálicos estranhos. Dessa vez, até Hardman parecia preocupado.
+— Se nenhum dos dois se oferece, vamos sortear. A proteção do motor deveria suportar impactos consideráveis. Não sabemos o que a danificou.
 
-Chegamos ao corredor de entrada da nave. Hardman começou a mexer nas ferramentas em um baú, enquanto Eric observava tudo fingindo um olhar sarcástico, mas notavelmente preocupado.
+— Tá bom. Eu vou.
 
-— Boa sorte, meu companheiro — disse O’reilly.
+Hardman me olhou.
 
-— O traje de exploração está no armário à direita — disse Hardman, apontando para um canto — Pegue o branco, que é mais resistente à radiação. Essa nebulosa deve ser extremamente radioativa.
+— Já fiz manutenção externa na Lebargan. O Eric pode ficar no comando, desde que não resolva tentar ligar o motor comigo em cima dele.
 
-Peguei o traje e comecei a vesti-lo. Pendurei o chapéu num gancho da parede: não ia deixá-lo flutuando numa nebulosa.
+— Boa ideia, irmão — disse O’reilly. — E nós ficamos de olho nos indicadores.
 
-— O kit de reparo não está no baú. Provavelmente está debaixo do banco — acrescentou ele, sem levantar os olhos.
+Subimos a escada. Ouvimos outra batida, desta vez perto do corredor das comportas. Hardman parou, olhou pro teto e depois conferiu o painel ao lado da porta.
 
-Abaixei-me, iluminando o espaço com a lanterna, e encontrei a caixa de ferramentas.
+Chegando à câmara de acesso, ele abriu um baú de ferramentas. Eric ficou junto ao painel, verificando o interfone.
 
-— Tá bom, deixa comigo. Vou consertar essa merda logo pra gente zarpar daqui — falei, tentando esconder o desconforto.
+— Boa sorte, meu amigo — disse O’reilly.
 
-— Ei. Você está ouvindo esses ruídos também, não está? Isso não me parece algo natural — Hardman ergueu uma sobrancelha. — Então Jasmey, por favor, me escute: Se você vir algo estranho lá fora, não brinque de herói. Volte imediatamente.
+— Pegue o traje branco no armário da direita. Possui proteção adicional contra radiação.
 
-O’reilly, que estava sentado em um canto observando a interação, riu baixo.
+Vesti o traje e pendurei o chapéu branco no gancho. Conferi as vedações dos pulsos e flexionei os dedos, exatamente como Peron tinha me ensinado.
 
-— Ah, Hardman, deixa o cara se divertir um pouco. Ele parece que nasceu pra isso.
+— O kit de reparo deve estar sob o banco — avisou Hardman.
 
-— Diversão é a última coisa que ele vai encontrar lá fora — retrucou Hardman, ajustando o comunicador em meu traje. — Ouça, Jasmey, não se afaste da nave.
+Me abaixei, iluminei o espaço com a lanterna e puxei a caixa.
 
-— Quer dar aula ao professor, Hardman? — respondi com sarcasmo, enquanto testava os propulsores do traje.
+— Vou dar uma olhada e volto. Se for só a proteção do motor, dá pra resolver.
 
-Hardman bufou, mas não insistiu. Coloquei o capacete e segui até o final do corredor, onde puxei a alavanca que abriu a primeira comporta. O ar dentro do traje parecia pesado, mas ajustei a respiração e continuei. A comporta fechou atrás de mim, deixando-me completamente sozinho na pequena câmara.
+Hardman aproximou-se enquanto eu encaixava o comunicador.
 
-— Está me ouvindo? — perguntou Hardman, sua voz clara no meu capacete.
+— Está ouvindo esses ruídos, não está? Se vir alguma coisa estranha, volte imediatamente. Não sabemos o que existe lá fora.
 
-— Infelizmente, sim — respondi.
+O’reilly chegou a abrir a boca, mas olhou pro corredor quando outra batida soou.
 
-— Ótimo. Agora use os propulsores para chegar à parte de baixo do comando. Boa sorte.
+— Ouviu o homem, irmão.
 
-Puxei a alavanca da segunda comporta, que se abriu com um assobio agudo, me empurrando imediatamente para o vazio do espaço. Acionei os mini-propulsores no pulso e fui lançado de volta para a superfície da nave, pousando com um leve impacto.
+— E mantenha o cabo de segurança preso ao casco — acrescentou Hardman.
 
-A nave parecia imensa e desolada naquele silêncio absoluto. O breu da nebulosa envolvia tudo, sem uma única estrela, e a lanterna só desenhava um círculo no casco.
+— Tá bom, professor. Já fiz isso antes.
 
-— Alguém mais sente que estamos dentro de uma lenda de assombração? — comentou O’reilly pelo comunicador, a voz abafada.
+Coloquei o capacete e entrei na câmara. A primeira comporta fechou atrás de mim. Esperei o indicador de pressão cair e conferi os propulsores do traje.
 
-— O que eu sinto é o peso de carregar esse time todo — rebati, enquanto avançava lentamente.
+— Está me ouvindo?
 
-— Foco — interrompeu Hardman, sua voz firme. — Vamos resolver isso e sair daqui logo.
+— Tô ouvindo.
 
-Continuei seguindo, iluminando o caminho com a lanterna. Quando passei próximo ao vidro da cabine de comando, percebi uma oscilação na luz. Meu coração disparou.
+— Siga para a parte inferior do compartimento de comando. A grade do motor fica perto de uma das luzes de manutenção.
 
-— Hardman, me diz uma coisa... É possível um ser vivo viver fora da atmosfera de um planeta? — perguntei, tentando parecer casual.
+Abri a segunda comporta. Me impulsionei pra fora, girei o corpo com os propulsores do pulso e prendi o cabo num dos apoios do casco.
 
-— Depende do que você chama de ser vivo. Há relatos de formas de vida baseadas em silicatos que sobrevivem em ambientes extremos. Mas por que a pergunta?
+A Princesa do Inverno parecia muito maior vista dali. A lanterna desenhava um círculo branco sobre o metal. Além daquele círculo, não conseguia enxergar porra nenhuma. Tentei encontrar o contorno da proa, mas a poeira devolvia parte da luz direto pro visor. Baixei a intensidade e consegui distinguir os apoios. Ao longe, um dos indicadores externos brilhava e desaparecia conforme eu me movia.
 
-— Não sei — admiti. — Mas acho que vi alguma coisa se mexendo.
+— Ainda consigo ver sua posição no painel — avisou O’reilly pelo comunicador.
 
-— Por favor, Jasmey, não começa com paranoia agora, tá? — disse Hardman.
+— Ótimo. Se eu sumir, dá pra saber por onde comecei.
 
-Ignorei e continuei até avistar a grade mencionada por Hardman. Era enorme, com pelo menos um metro de largura por dois de altura. Prendi o cabo de segurança do traje no gancho exterior e abri o kit de ferramentas. A luz da lanterna oscilava, criando sombras inquietantes ao redor.
+— Preste atenção ao trabalho, Jasmey — disse Hardman.
 
-— Já estou no lugar — informei.
+Passei perto do vidro da cabine e vi uma sombra cruzar o reflexo da lanterna. Parei. Apontei a luz pra onde tinha visto o movimento.
 
-— Bom. Agora desparafuse a grade e veja se há algo estranho na caixa interna — instruiu Hardman.
+— Hardman, é possível ter bicho vivo aqui fora?
 
-Escolhi a ferramenta certa e comecei a desparafusar os parafusos, um por um. A cada movimento, minha atenção era constantemente desviada para a escuridão ao redor. Algo não parecia certo.
+— Há relatos de organismos de silicatos capazes de sobreviver em ambientes extremos. Por que a pergunta?
 
-— Tá tudo bem? — perguntou Hardman, sua voz demonstrando preocupação.
+— Achei que vi alguma coisa se mexer.
 
-— Tirando o fato de que sinto que estou sendo observado — respondi, tentando disfarçar meu nervosismo.
+— Não se afaste do casco. Se voltar a vê-la, me avise.
 
-Finalmente, removi o último parafuso e segurei a grade com firmeza, prendendo-a com um dos cabos para não perdê-la. A lanterna revelou o interior, onde uma substância negra e viscosa cobria o metal.
+Encontrei a grade, com uns dois metros de altura e um de largura. Passei o cabo de segurança pro gancho mais próximo, prendi o kit de ferramentas e iluminei as bordas.
 
-— Acho que encontrei o problema — falei.
+— Cheguei.
 
-— O que é? — perguntou Hardman, sua voz carregada de curiosidade.
+— Retire a grade e veja o estado da proteção interna.
 
-Não toquei. Por um segundo. Mas a curiosidade foi mais forte.
+Soltei os parafusos. Um deles escapou da mão de metal e começou a flutuar. Consegui apanhá-lo antes que saísse do alcance. Guardei cada um no bolso do traje e continuei olhando por cima do ombro.
 
-— Merda, Hardman, parece piche, mas... — E então, como o bom idiota que eu era, toquei.
+— Tudo bem aí?
 
-— Não toque nisso, seu idiota! — ouvi a voz de Hardman.
+— Tirando a impressão de que tem alguém olhando pra mim, tudo.
 
-— Droga! Essa merda é quente! — gritei, puxando a mão de volta.
+Retirei a grade e prendi a peça ao casco com uma das presilhas do kit. A luz mostrou uma camada de substância preta e viscosa cobrindo o metal. Parecia ter escorrido por toda a parte interna da caixa.
 
-— Claro que é quente! — retrucou Hardman, frustrado. — O motor de dobra funcionava sem refrigeração. Qualquer coisa que entrou ali foi aquecida ao máximo. Remova com a pá de raspagem e verifique se há fissuras no metal.
+— Encontrei alguma coisa.
 
-— Certo — falei, retirando do kit uma pá. Comecei a raspar o metal para remover o fluido viscoso, atirando-o no espaço. A cada raspada, a substância negra reluzia sob a luz da lanterna antes de flutuar no vazio. Quando terminei, pude ver uma fissura extensa, quase de ponta a ponta no metal.
+— Descreva o que está vendo.
 
-— Está fissurado. Vou tentar consertar — avisei pelo comunicador.
+Aproximei a lanterna.
 
-— Era o que eu imaginava — respondeu Hardman, tenso mas controlado. — A fissura vazou o refrigerante e o motor desligou para não fundir. Preciso de um trabalho impecável. Solde a fenda inteira.
+— Parece piche. Preto, grosso. Tá grudado no metal.
 
-— Já entendi — respondi, retirando o ferro de solda do kit.
+Toquei de leve com a ferramenta. A substância cedeu e aderiu à ponta.
 
-Enquanto eu soldava o metal da esquerda para a direita, senti algo roçar na minha perna. Instintivamente, encolhi as pernas e gritei.
+— Não toque com a mão! Não sabemos o que é.
 
-— Jasmey, tudo bem? — perguntou Hardman preocupado.
+Um pouco da substância escorreu pela ferramenta e encostou na luva da mão boa. Senti o calor atravessar a proteção e puxei o braço.
 
-— O cabo do kit! — gritei de volta, irritado. — Quase me matou do coração.
+— Merda! Tá quente!
 
-— Quer me matar do coração, idiota — ele resmungou, enquanto Eric ria ao fundo.
+— O motor perdeu a refrigeração. Qualquer material em contato com ele deve estar aquecido. Retire a substância com a ferramenta de raspagem e verifique o metal.
 
-Continuei o trabalho com cuidado, soldando a fissura até que o metal estivesse completamente vedado. No entanto, algo no ambiente me deixava inquieto. A escuridão da nebulosa parecia mais opressiva, e o silêncio era interrompido apenas pelo som das ferramentas.
+Fui soltando a gosma com a pá do kit. As porções desprendidas se afastaram devagar, umas esticando antes de se romperem. Quando iluminei o revestimento limpo, encontrei uma fissura que atravessava quase toda a placa.
 
-De repente, a voz de Hardman soou mais alta no comunicador.
+— Tem uma rachadura grande aqui.
 
-— Jasmey, Jasmey. Está me ouvindo? Descreva exatamente como era o fluido que você encontrou.
+— Isso explica a perda de refrigerante. O motor desligou antes que sofresse danos maiores. Consegue vedar a fissura?
 
-— Já disse, era denso, negro, viscoso. Por quê? — perguntei, sentindo um arrepio na espinha.
+— Consigo. Tô com o equipamento de solda.
 
-— Você precisa voltar para a nave agora — disse Hardman, sua voz ficando tensa.
+Comecei o trabalho. Uma coisa roçou na minha perna e recolhi o joelho tão depressa que bati a bota na borda da caixa.
 
-— Espera aí, ainda preciso recolocar a grade no lugar.
+— Jasmey?
 
-— Esqueça a grade, volte imediatamente!
+Iluminei a perna. Era o cabo do kit.
 
-Olhei ao redor, iluminando a escuridão com minha lanterna. Foi então que vi algo. Não podia ter certeza do que era, mas parecia uma forma viscosa movendo-se pela superfície da nave.
+— Foi nada. O cabo bateu na minha bota.
 
-— Jasmey, Buni disse que o fluido... é esporo de tersário — revelou Hardman, sua voz agora cheia de urgência.
+— Avise antes de gritar assim, por favor.
 
-— Esporo do quê? — perguntei, enquanto soltava o cabo do kit e o meu próprio.
+Ouvi o Eric rir do outro lado.
 
-Buni então explicou:
+Voltei a soldar, conferindo cada trecho da fenda. Quando terminei, a junta parecia bem vedada. Peguei a lanterna e comecei a examinar as bordas.
 
-— Na fazenda tinha um livro sobre eles. Era o único. Li até desbotar.
+A voz de Hardman voltou ao comunicador.
 
-— Tersários vivem em meteoritos escuros. Eles depositam esporos em superfícies quentes para criar novos indivíduos. Se encontrou esporos... a mãe deles pode estar por aí.
+— Jasmey, preciso que descreva mais uma vez o material que encontrou.
 
-— Então acabei de destruir o ninho da mamãe. E a mamãe deve estar bastante zangada — murmurei, enquanto a forma escura surgia da escuridão. — E esses tersários são agressivos?
+— Preto, grosso e grudento. Tava quente. Por quê?
 
-— Mortais, Jasmey. Eles se alimentam de qualquer forma de vida orgânica.
+— Volte imediatamente para a nave.
 
-— Merda! — respondi, ativando imediatamente os mini-propulsores para me afastar da criatura que agora avançava em minha direção.
+— Falta colocar a grade.
 
-O ser disparou na minha direção, sua massa disforme avançando como um predador faminto. A criatura passou perigosamente perto, quase me atingindo, e desapareceu novamente na escuridão. Usei os propulsores para voltar à nave, mas o caminho parecia interminável.
+— Deixe a grade! Volte agora!
 
-Enquanto me agarrava desesperadamente aos apoios externos da nave, olhei para trás. A coisa estava vindo de novo, mais rápida dessa vez, com movimentos que pareciam fluídos e imprevisíveis. Era úmida, escura e absolutamente aterrorizante.
+Iluminei o casco. Uma faixa preta se mexeu perto de um dos apoios. Apontei a lanterna pra ela. A faixa se recolheu pra fora do círculo de luz.
 
-— Está me ouvindo, Jasmey? Onde você está? — insistiu Hardman pelo rádio.
+— Buni acredita que encontrou esporos de tersário — disse Hardman.
 
-— Ocupado demais para te responder! — gritei de volta, enquanto me impulsionava para a comporta.
+— Esporos de quê?
 
-Então senti uma dor lancinante na perna direita. Olhei para baixo e vi que um tentáculo elástico, viscoso e negro estava enrolado na minha perna, apertando como uma garra de aço.
+Prendi o kit ao traje. Deixei a grade segura na presilha do casco.
 
-— PORRA! — gritei, tentando me soltar. O tentáculo parecia vivo, pulsando como se estivesse drenando minha força.
+A voz do Buni chegou pelo rádio.
 
-A dor aumentava a cada segundo, a perna prestes a ser arrancada. Sem pensar duas vezes, puxei minha adaga da cintura e golpeei o tentáculo. O primeiro corte apenas arranhou a superfície, mas no segundo, consegui separá-lo do resto do corpo da criatura. O tentáculo se retraiu, liberando minha perna, mas o alívio foi temporário.
+— Tinha um livro sobre eles na fazenda onde eu trabalhava. Era o único livro que eu tinha. Li tantas vezes que as figuras perderam a cor.
 
-Usei os propulsores para alcançar a comporta externa. Puxei a alavanca para abri-la, e consegui entrar no espaço entre as comportas. Mas quando tentei puxar a outra alavanca, para fechar a comporta externa, ela não se moveu.
+— Eles vivem nos meteoritos escuros e depositam esporos em lugares quentes. Se você encontrou os esporos, pode ter um tersário adulto aí perto.
 
-— MAS QUE MERDA! — gritei, puxando a alavanca com todas as minhas forças — Hardman, a alavanca está emperrada!
+Olhei pras porções de gosma que tinha acabado de arrancar. Uma delas já não tava onde eu esperava encontrar.
 
-Mas Hardman não respondeu. Atrás de mim, a criatura se aproximava novamente, sua forma agora mais definida sob a luz intermitente da lanterna. Era maior do que eu imaginava, com uma superfície carnosa que parecia brilhar de maneira ameaçadora.
+— E eles costumam ficar muito putos quando alguém destrói o ninho?
 
-— MERDA HARDMAN, FECHA A PORRA DA COMPORTA EXTERNA! — gritei, tentando desesperadamente encontrar uma solução.
+— Eles comem qualquer coisa orgânica, Jasmey! Volta logo!
 
-Então do meu comunicador, ouvi Kord berrando algo:
+Soltei meu cabo do gancho e acionei os propulsores. A faixa escura que eu tinha visto se estendeu na minha direção.
 
-— Segure firme, Jasmey! Estamos tentando reiniciar o sistema daqui!
+Uma massa negra passou rente à lanterna, tão depressa que mal distingui o contorno. Girei o corpo e acelerei na direção da comporta.
 
-— Não sei se consigo esperar! — respondi, vendo a criatura cada vez mais perto.
+Me agarrei a um dos apoios pra mudar de direção. Quando iluminei o casco atrás de mim, vi a criatura avançar de novo. Os tentáculos se estendiam e recolhiam à medida que ela se deslocava.
 
-Com um último esforço, puxei a alavanca com minha mão de metal. Forte demais. A alavanca quebrou, soltando-se completamente, quase me fazendo cair de novo. Droga de braço novo.
+— Jasmey! Qual é sua posição?
 
-— Vai se foder... — murmurei, em pânico.
+— Tô indo pra comporta!
 
-De repente, a luz interna da sala da comporta acendeu, e a comporta externa começou a se fechar. A criatura tentou forçar sua entrada, mas parte dela foi esmagada quando a porta se fechou com força. Fragmentos viscosos do tersário espirraram para dentro da câmara.
+Senti uma pressão na perna direita. Um tentáculo viscoso tinha se enrolado acima da bota, puxando meu corpo pra longe do casco. A pressão aumentou até começar a doer dentro do traje.
 
-Caí por quase dois metros até o chão da comporta com um baque, junto com os pedaços remanescentes da criatura quando a gravidade artificial foi ligada trazendo uma sensação de segurança que parecia um luxo há poucos segundos.
+— PORRA!
 
-Hardman e Buni chegaram correndo pelo corredor. Hardman olhou para mim com uma mistura de alívio e irritação.
+Saquei a adaga da cintura. O primeiro golpe mal marcou o tentáculo. Apoiei o braço de metal contra a perna e cortei de novo. O pedaço se separou do corpo da criatura e ficou girando no vazio. Acionei os propulsores antes que o restante voltasse pra cima de mim.
 
-— Mas que droga, Jasmey! Quando eu chamar você, responda!
+Alcancei a câmara externa, entrei e puxei a alavanca de fechamento. Não se moveu.
 
-— Ou eu prestava atenção em você ou na criatura que queria me transformar em jantar — retruquei, ainda ofegante.
+— Hardman, a alavanca emperrou!
 
-Buni se ajoelhou ao lado dos restos do tersário, seus olhos analisando cada detalhe com fascinação.
+Não recebi resposta. Pela abertura, a lanterna iluminou parte da criatura. Era muito maior do que eu tinha conseguido ver junto ao motor.
 
-— Tersários... — ele murmurou. — Eu estudei muito sobre eles. Eles queriam criar um ninho aqui.
+— FECHA A PORRA DA COMPORTA!
 
-Hardman me ajudou a levantar, e notei que estava cercado por todos os outros. Kord foi o primeiro a falar, com sua voz carregada de preocupação e desconfiança.
+Ouvi Kord berrar pelo rádio.
 
-— E aí, ele está morto? — perguntou, apontando para os restos viscosos no chão.
+— Aguenta aí! Estamos tentando restabelecer o comando!
 
-— Era só uma parte do corpo — respondi, ofegante. — O resto ficou lá fora. Mas consegui soldar a placa.
+Me empurrei pro fundo da câmara. O tersário já tinha estendido um tentáculo pela abertura.
 
-Vivian se aproximou, os olhos analisando os restos do tersário com cautela.
+Agarrei a alavanca com a mão de metal e puxei com tanta força que ela se partiu. Fiquei com o pedaço na mão, olhando pra porra da alavanca quebrada.
 
-— Sabe, Jasmey, você deveria continuar se voluntariando assim. Tô começando a achar que você gosta desse negócio de quase morrer — Eric, com um meio sorriso.
+— Merda.
 
-— Diante do perigo, alguns enfrentam… outros fogem — respondi sarcasticamente.
+A luz interna acendeu. A comporta começou a descer. O tersário tentou passar, mas a porta esmagou uma parte dele contra a borda. Pedaços de tecido escuro se espalharam pela câmara.
 
-— Bom, então acho que podemos sair logo daqui, ativando o motor de dobra — disse O’reilly.
+O indicador de pressão subiu até a faixa segura. A gravidade voltou, e caí de quase dois metros junto com os restos da criatura. Só depois de a segunda comporta abrir consegui tirar o capacete.
 
-— E o tersário? Não vai viajar com a gente? — perguntou Kord.
+Hardman e Buni vieram correndo pelo corredor. O engenheiro segurou a porta aberta enquanto Buni me oferecia a mão. Tentei levantar sem ajuda, mas a perna direita ainda doía demais.
 
-— Não por muito tempo. Se ativarmos o motor de dobra, o tersário será destruído — respondeu Buni — No entanto, tersários são muito conhecidos por manipular a forma de seus corpos, então não pode haver uma única fissura na nave, senão eles entram. Mas se ele não encontrar nada, logo ele vai embora.
+— Quando eu pedir sua posição, responda, por favor! Perdemos o sinal por alguns instantes.
 
-Assim que Buni terminou, no entanto, as luzes da nave piscaram e, de repente, se apagaram por completo. A escuridão tomou conta do ambiente, exceto pelos monitores dos painéis locais que ainda emitiam um brilho fraco.
+— Tava meio ocupado tentando não virar comida. — Apoiei a mão no chão e tentei me levantar. A perna direita doeu.
 
-— E agora, o que tá acontecendo? — perguntou Eric, com um tom exasperado.
+Buni se ajoelhou perto dos fragmentos, sem tocá-los.
 
-Hardman respirou fundo, parecendo juntar os pensamentos.
+— É um tersário. Tava mesmo fazendo um ninho no motor.
 
-— Não pode ser o tersário… não há nenhuma entrada que… — Ele pausou, então seus olhos se arregalaram. — Droga!
+Aceitei a mão do Buni. Hardman conferiu o indicador do traje e se certificou de que não tinha perdido pressão durante o ataque. O’reilly trouxe uma cadeira e Kord veio do comando.
 
-— O que foi? — perguntou Kord.
+— Matou o bicho? — perguntou Kord.
 
-— A câmara de detritos — respondeu ele, massageando as têmporas.
+— Não. Arranquei um pedaço e a comporta arrancou outro. O resto tá lá fora. Mas soldei a placa.
 
-— Certo, e daí? — perguntei, enquanto Kord estreitava os olhos, claramente desconfiado. — Ele não iria conseguir entrar aqui pela câmara de detritos. Não tem como ele atravessar a comporta sem que a abramos antes?
+Vivian examinou minha bota, apontou pra marca que o tentáculo tinha deixado no traje e fez sinal pra eu tirar a perna de cima dos fragmentos.
 
-— A câmara de detritos puxa gás de fora para o filtro da sala das máquinas. O tersário pode ter se esgueirado por lá.
+— Tá virando um hábito, né, Badrock? Sair da nave e voltar faltando algum pedaço. — Eric olhou pra perna.
 
-Vivian balançou a cabeça, parecendo preocupada.
+— Dessa vez não faltou nenhum.
 
-— Então ele pode estar dentro da nave agora? — perguntou Eric.
+— Podemos voltar pra dobra agora? — perguntou O’reilly.
 
-— O motor da nave continua ligado, apenas as luzes se apagaram. O disjuntor das luzes fica na sala das máquinas. Eu espero realmente estar errado. Mas é melhor pegarem alguma arma e descer comigo — falou Hardman.
+— E se o bicho continuar grudado na nave? — perguntou Kord.
 
-Estávamos presos em uma nave com um oitavo passageiro. E ele não parecia muito amigável. Ótimo. Mais um problema para a minha lista de “coisas que podem me matar”.
+— A dobra deve destruir ele — respondeu Buni. — Mas eles conseguem mudar de forma. Se tiver uma abertura, entram. Se não encontrarem nenhuma, acabam indo embora.
 
-— Então Buni, alguma dica sobre como deter essa criatura? — perguntou Kord.
+As luzes do corredor piscaram. Apagaram de vez, deixando só o brilho dos painéis auxiliares.
 
-— Tersários têm comportamento predatório. Se ele conseguiu entrar, provavelmente está procurando por matéria orgânica. Isso nos inclui. Mas eles são sensíveis ao frio — respondeu Buni — por isso vivem em meteoros com núcleos quentes. Seus corpos se solidificam ao entrarem em contato com temperaturas muito baixas.
+— Agora o quê? — Eric olhou pro teto.
 
-— Ótimo! Vamos usar o canhão de nitrogênio líquido — disse Kord caminhando até o armário de armas. Ele abriu a porta com força e começou a distribuir armas para todos.
+Hardman ficou quieto por um instante.
 
-— Vamos nós três — falei, pegando o canhão de nitrogênio, olhando pra Eric e Kord.
+— Não há nenhuma abertura direta para... Espere.
+
+Ele virou a cabeça pra escotilha das máquinas.
+
+— Que foi? — perguntou Kord.
+
+— A câmara de detritos.
+
+— As comportas não impedem que alguma coisa entre por lá?
+
+— É uma entrada de coleta externa. O material passa pelo filtro da sala de máquinas. Deveria haver uma vedação que bloqueia objetos grandes, mas, se o organismo consegue deformar o corpo...
+
+Vivian olhou pra Buni.
+
+— Tá dizendo que já entrou? — perguntou Eric.
+
+— O sistema auxiliar continua ativo. O disjuntor da iluminação fica nas máquinas. Espero estar enganado. Peguem armas e lanternas.
+
+Olhei pro teto. A batida que ouvimos antes de desligar os sistemas não era do motor. Agora tinha um oitavo passageiro naquela porra de nave.
+
+— Buni, como a gente mata isso? — perguntou Kord.
+
+— Eles não aguentam muito frio. Vivem em meteoritos que têm núcleos quentes. Quando a temperatura cai bastante, o corpo fica duro. Não conseguem mexer os tentáculos.
+
+— Tem equipamento criogênico no armário de emergência. Vi quando conferi as máquinas — disse Kord, abrindo a porta. — Uns canhões de nitrogênio. Começou a distribuí-los.
+
+Peguei um dos canhões e conferi a carga.
+
+— Eu, Eric e Kord vamos descer.
 
 — E eu? — perguntou Buni.
 
-— Volte para o comando. Vivian, ajude a monitorar o sistema para nos dar localização precisa do tersário. Hardman, fique atento a qualquer coisa fora do padrão — ordenei, apontando para eles.
+— Fica no comando com Vivian e Hardman. Vivian, acompanha as leituras e avisa se o bicho mudar de lugar. Hardman, vê se consegue restabelecer as luzes. Buni, fica perto do rádio. Tu é quem mais sabe sobre essa coisa.
 
-— Não vou ficar aqui — disse O’reilly — vou descer com vocês.
+— Eu vou descer com vocês — disse O’reilly.
 
-— Como queira, amigo — disse Kord.
+Kord entregou uma lanterna pra ele.
 
-Nós quatro seguimos para as máquinas, descendo lentamente pelas escadas enquanto a escuridão opressiva tornava cada som suspeito. O som dos motores preenchia o ambiente, abafando qualquer ruído mais sutil. Caminhei devagar, com o canhão pronto e a lanterna iluminando à frente.
+Descemos os quatro. O barulho das máquinas abafava quase todos os sons do compartimento. Minha perna doía a cada degrau, mas conseguia apoiar o pé. Iluminei o chão antes de tirar as duas mãos da escada.
 
-Ao pisar no chão, apontei a lanterna e a arma para a minha esquerda procurando por algo, mas não avistei nada. Segui para a esquerda com O’reilly, enquanto Eric e Kord foram para a direita. Caminhei lentamente até me aproximar da parede onde estavam os disjuntores cobertos por uma camada de gosma negra.
+O’reilly veio comigo pela esquerda. Eric e Kord foram pela direita. Chegamos à parede dos disjuntores e a lanterna revelou uma camada preta sobre os interruptores.
 
-— Ele está aqui — sussurrei me virando para O’reilly quando de repente ele gritou. O’reilly estava sendo arrastado pelo chão por um tentáculo que o levava para a escuridão.
+— Tá aqui.
 
-Imediatamente me virei e corri em direção a ele para puxá-lo.
+Me virei quando ouvi O’reilly gritar. Um tentáculo tinha enrolado no tornozelo dele e já o arrastava pelo chão.
 
-Eric disparou contra a criatura, mas foi atingido por um golpe de outro tentáculo que o arremessou contra a parede. Ele caiu com um baque, gemendo de dor.
+Corri e agarrei o braço do O’reilly. A criatura continuou puxando nós dois.
 
-O tersário surgiu completamente, uma massa disforme e pulsante, com uma cabeça grotesca de carne em decomposição. Abriu uma espécie de boca e emitiu um som de metal rangendo e portas enferrujadas, que eu não ouvira antes por causa do silêncio do espaço.
+Eric disparou. Outro tentáculo o atingiu no peito e o arremessou contra a parede. Ele caiu no chão, tossindo.
 
-O’reilly gritava, sendo erguido no ar de frente para um buraco fétido enorme, provavelmente a boca da criatura.
+A massa negra saiu de trás das máquinas. Vi uma abertura cheia de dentes e senti um cheiro de carne estragada. O ruído que saiu dela me fez entender por que os golpes no casco soavam daquele jeito.
 
-— Segure firme, O’reilly! — gritei, atirando na criatura. Consegui congelar alguns tentáculos, que a criatura usou para tentar me parar, então tive de recarregar a arma.
+O’reilly foi erguido, de cabeça pra baixo. Tentei segurá-lo pelo pulso, mas outro tentáculo se enrolou no meu braço e me puxou na direção da criatura.
 
-Foi nesse momento que ouvi um grito vindo do corredor. Quem eu menos esperava estava lá, correndo para salvar O’reilly. Ou talvez aumentar o cardápio do tersário. Buni atirava com sua arma de nitrogênio líquido com uma coragem que nunca imaginei que ele teria.
+— SEGURA AÍ, O’REILLY!
 
-Mas sua coragem não foi o bastante. A criatura o agarrou com alguns de seus tentáculos e começou a apertá-lo no ar.
+Disparei o canhão contra os tentáculos. Alguns endureceram e se partiram ao bater no chão. O que me segurava se retraiu um pouco. Minha arma ficou sem carga.
 
-Ainda estava tentando recarregar minha arma, quando de repente, ouvi um estrondo atrás de mim. A fumaça branca tomou conta do ambiente. O tersário soltou um grunhido gutural e afrouxou os tentáculos que me prendiam.
+Ouvi um grito na escada. Buni apareceu com o próprio canhão de nitrogênio, disparando na direção do tentáculo que prendia O’reilly. O sujeito tremia tanto que mal conseguia manter a arma firme. Mesmo assim, continuou vindo.
 
-Olhei para trás e vi Kord, seus olhos brilhando de fúria enquanto ele gritava, atirando no rosto do monstro. Minha arma recarregou e imediatamente atirei nos tentáculos que prendiam O’reilly e Buni, e corri para libertá-los, socando os tentáculos congelados com meu braço de metal, os partindo em milhares de pedaços.
+Dois tentáculos agarraram Buni pela cintura e o ergueram. Ele perdeu a arma, mas apertou as mãos contra a massa pra tentar afastá-la do peito.
 
-Os dois caíram no chão, enquanto a criatura urrou. Me virei e vi que Hardman tinha se levantado e também atirava na criatura. Então me veio uma ideia e apanhei da cintura o paralisador quântico que roubei de Tzough. Mirei cuidadosamente e disparei. Um brilho azulado envolveu o tersário, congelando-o instantaneamente, junto ao gás de nitrogênio líquido que ainda flutuava sobre ele.
+Tentei recarregar. Ouvi um disparo atrás de mim e uma nuvem branca cobriu parte da criatura. Os tentáculos afrouxaram.
 
-O silêncio pairou na sala por alguns segundos. O’reilly foi o primeiro a quebrá-lo, soltando um suspiro irritado.
+Era Kord, atirando na boca do monstro. Minha arma ficou pronta. Disparei contra as partes que prendiam O’reilly e Buni, depois golpeei os tentáculos congelados com a mão de metal. Os dois caíram no chão. O’reilly puxou Buni pelo braço pra longe da boca.
 
-— E agora? — perguntou ele, cruzando os braços e olhando para a criatura congelada.
+O tersário se contorceu. Eric tinha conseguido se levantar e voltou a atirar. Kord gritou pro O’reilly apagar a lanterna, que iluminava a parte errada da criatura. Vi a boca aparecer no meio da névoa branca. Peguei o paralisador quântico que roubei de Tzough. Tinha levado comigo antes de descer. Mirei na massa exposta e disparei. Uma luz azul cobriu a criatura e a imobilizou. O nitrogênio continuou espalhando frio pela superfície do corpo.
 
-Hardman, descia as escadas acompanhado de Vivian.
+Fiquei com a arma erguida, esperando que algum tentáculo voltasse a se mexer.
 
-— Vamos aprisioná-lo — disse.
+— E agora? — perguntou O’reilly, esfregando o tornozelo.
 
-— O quê?! — O’reilly quase deu um salto para trás. — Essa coisa quase me engoliu inteiro! Você tá maluco?
+Hardman desceu acompanhado de Vivian. Pararam junto à escada, olhando pra criatura imóvel.
 
-— Tem razão. Ela é perigosa. Seria bom termos uma dessa para usarmos como arma — disse Hardman, o que me fez rir. Era típico de Hardman transformar qualquer situação em uma oportunidade para engenhocas.
+— Podemos aprisioná-lo.
 
-— Você quer criar uma bomba biológica no meio da nossa nave? — perguntei, ainda meio ofegante. — Porque é isso que parece.
+— Como assim, aprisionar? Acabou de tentar me engolir, cara!
 
-— Não exatamente — continuou Hardman, ignorando meu sarcasmo. — Podemos armazená-lo em criogenia. Temos cápsulas de viagem longa que mantêm temperaturas extremamente baixas e, como Buni disse, o frio impede o movimento dos tersários.
+Hardman se abaixou pra examinar o estado dos tentáculos, de longe.
 
-O’reilly, superando o susto inicial, analisou a situação.
+— Justamente. A Lebargan está seguindo nossa localização. Não possuímos armamento capaz de enfrentar aquela nave. Uma criatura dessas poderia criar uma distração se nos capturassem. Não estou propondo utilizá-la num combate aberto.
 
-— As cápsulas são grandes, Hardman, mas a criatura é elástica. Sugiro um campo de contenção secundário, ativado assim que ele entrar e antes de fechar a cápsula principal — propôs O’reilly, a mente de estrategista já calculando riscos.
+— Quer carregar essa porra dentro da nave?
 
-— É uma boa — disse Hardman — bem apontado, O’reilly.
+— Temos cápsulas de criogenia para viagens prolongadas. Se mantivermos a temperatura baixa, como Buni explicou, o tersário não poderá se mover.
 
-Eric balançou a cabeça, incrédulo.
+O’reilly olhou pro compartimento de acesso e depois pra criatura.
 
-— Você é completamente insano. — Ele apontou um dedo para o amigo. — Se essa coisa escapar, vai ser você quem vai enfrentá-la, sozinho.
+— E se der problema na cápsula? Melhor colocar um segundo campo de contenção em volta dela. Assim, se uma proteção falhar, ainda dá tempo de fazer alguma coisa.
 
-— Você não conhece esse carinha, ele tem sempre uma boa ideia que envolva coisas pequenas e contidas — falei, ácido.
+— Concordo. Um sistema independente de alimentação seria prudente. Também podemos controlar a abertura da cápsula sem precisar ficar no compartimento.
 
-Hardman ergueu uma sobrancelha para mim. Vivian estreitou os olhos para Hardman, num olhar penetrante, mas foi Buni, parado ao lado, quem interveio.
+Eric examinou a marca no peito.
 
-— Ele tem razão. — A voz de Buni era hesitante, mas ele parecia decidido a compartilhar sua opinião. — Se as condições forem mantidas, o tersário não poderá se mover.
+— Se esse bicho escapar, Hardman, você é o primeiro a descer pra buscar ele.
 
-Kord tocou no ombro do amigo.
+— Se for guardar o bicho, escolhe uma cápsula que caiba ele inteiro.
 
-— Ei Buni — disse — Não tente bancar o herói de novo, ok.
+Hardman abriu a boca, mas Buni falou antes dele.
 
-Buni coçou a nuca, sem graça.
+— Acho que pode dar certo. Se ficar frio de verdade, ele não se mexe. Tá no livro.
 
-— Vocês são meus amigos. Os únicos amigos que eu já tive na vida.
+Kord se aproximou do Buni.
 
-Kord não o respondeu, apenas sorriu para ele e deu-lhe alguns tapinhas nas costas.
+— Ei. Por que desceu? A gente mandou ficar no comando.
 
-Hardman olhou para mim, esperando a piada.
+Buni olhou pro O’reilly, depois pro Kord.
 
-— Vai lá fazer o que precisa — falei, e engoli o resto da frase antes que ele saísse. Ele percebeu e fingiu que não.
+— Ele tava gritando. Não queria que acontecesse nada com vocês. São os únicos amigos que eu tenho.
 
-Por fim, acabamos por seguir o plano de Hardman. Nos aproximamos do tersário congelado, começando o trabalho de movê-lo. A criatura era maior e mais pesada do que parecia, mesmo paralisada. Por sorte a cápsula de criogenia da Princesa do Inverno era extensa e larga. Ainda assim, encaixá-la lá foi um esforço monumental.
+Kord apertou o ombro dele. O’reilly chegou perto e abraçou o grandalhão.
 
-Finalmente, Hardman ativou o sistema de criogenia. O som do resfriamento tomou conta da sala enquanto uma fina camada de gelo começou a se formar dentro da cápsula. Todos soltaram um suspiro coletivo quando o sistema confirmou que o tersário estava completamente congelado.
+— Se não fosse você, irmão, acho que ia descobrir o que tem dentro dessa coisa.
 
-— Eu ainda não comi a barata do mar — lembrou Kord, olhando o tersário. — Hoje não. Perdi o apetite pra qualquer coisa que se mexe.
+Buni começou a rir baixinho, ainda com os olhos úmidos.
 
-— Pronto. Agora temos nosso monstro de estimação — comentei, secando o suor da testa.
+Hardman virou pra mim, esperando a resposta.
 
+— Vai lá fazer o que precisa. E coloca essa merda bem longe do quarto.
+
+Levamos um tempão pra transferir o tersário. Kord e Eric empurravam enquanto eu e Buni puxávamos a massa congelada. O’reilly indicava o caminho e Vivian mantinha a lanterna apontada pras bordas, pra não deixar nenhum tentáculo fora da cápsula. Hardman preparou o equipamento e o campo de contenção antes de autorizar que fechássemos a tampa.
+
+O sistema de criogenia ligou. Hardman esperou as leituras estabilizarem e conferiu o segundo campo. Buni ficou olhando um dos tentáculos pelo visor e avisou que, se a cápsula aquecesse, o bicho voltaria a se mexer. Hardman registrou a temperatura em que a massa começara a endurecer. Assim saberíamos quando não era mais seguro chegar perto dela. Depois voltou à sala das máquinas, verificou a câmara de detritos e isolou a entrada de coleta. O comando confirmou a vedação do circuito de refrigeração. Faltava reabastecê-lo com a reserva de fluido. Kord foi ajudar. A grade que eu tinha deixado presa ao casco teria de ser recolocada quando saíssemos da nebulosa. Quando voltei a olhar a cápsula, uma camada de gelo cobria o visor.
+
+— Ainda não comi a barata do mar — disse Kord, passando por mim. — Hoje não. Perdi a vontade de comer qualquer coisa que se mexa.
+
+Olhei pra cápsula.
+
+— Pronto. Agora temos um bicho de estimação.
