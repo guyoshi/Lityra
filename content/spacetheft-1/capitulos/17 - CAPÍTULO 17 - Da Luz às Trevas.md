@@ -1,406 +1,435 @@
-O espaço sempre teve aquele jeito de nos lembrar de como somos pequenos. Mas, claro, a Princesa do Inverno fazia questão de fazer o oposto. Seu interior era um luxo. Quase esquecia que, em algum momento, isso poderia explodir ou ser atingido por um asteroide. A vida sempre tem dessas. Um dia você tá fodendo, no outro tá explodindo no espaço.
+Depois de algumas voltas na Princesa do Inverno, a gente já tinha descoberto quais portas emperravam, onde ficava a comida e quem roncava. A nave era um luxo, mas o Mestre Estelar certamente não tinha pensado em acomodar sete pessoas por uma viagem longa.
 
-O quarto na Princesa do Inverno era tudo menos o que o nome sugeria. Não que eu estivesse reclamando: já dormi em lugares piores, tipo buracos em cavernas infestadas de insetos, mas, ainda assim, chamar aquilo de “quarto” era um exagero.
+O quarto dos homens tinha duas camas e pouco espaço entre elas. Já tinha dormido em cavernas cheias de insetos, então não ia reclamar do chão de uma nave daquelas.
 
-Eram duas camas. Uma pra Hardman, porque o cara era franzino e tinha prioridade por ser um gênio que, aparentemente, não conseguia consertar seu próprio sono. A outra era de Buni, porque, bom, ninguém tinha coragem de tirar o privilégio de dormir em uma cama do grandão tímido com uma risada que parecia um motor falhando. Eu, Eric, Kord e O’reilly? A gente dormia no chão. Cada um tinha seu canto improvisado com almofadas e cobertores finos que cheiravam levemente a óleo. Não era a cama de uma prostituta, mas dava pro gasto.
+Buni ficou com uma das camas. Ocupava metade do caminho entre a porta e o banheiro quando dormia no chão, e ninguém queria continuar pulando por cima dele. Hardman ficou com a outra, perto da mesa onde trabalhava até tarde. Quando fui reclamar da divisão, Kord apontou pro tamanho da cama do Hardman. Pensei em fazer uma observação, mas o engenheiro já tinha fechado os olhos. Eu, Eric, Kord e O’reilly estendíamos os cobertores no chão.
 
-As paredes eram lisas e metálicas, com painéis de luz azulada e um monitor embutido, a única tecnologia que realmente funcionava ali, mostrando o espaço lá fora.
+As paredes tinham painéis de luz azul e um monitor embutido. De vez em quando, alguém deixava a imagem do céu ligada enquanto os outros tentavam dormir. O’reilly era o principal suspeito.
 
-No canto oposto ao monitor, havia uma mesa estreita e dobrável, com ferramentas que Hardman insistia em deixar espalhadas, alegando que “trabalho organizado é trabalho improdutivo”. Claro, eu sempre lembrava a ele que chutar uma chave inglesa no meio da noite não era exatamente eficiente também.
+Hardman guardava as ferramentas numa caixa junto à mesa dobrável. Kord tinha o hábito de pegar alguma coisa e não devolver ao lugar. Na última vez que o engenheiro reclamou, encontrei a chave inglesa que procurava debaixo do travesseiro do Eric. Preferi deixar os dois discutindo até o café.
 
-Uma estante improvisada segurava as tralhas: uma lanterna que piscava mais do que iluminava, um pacote de ração de emergência que ninguém abria por parecer mais velho que a nave, e o baralho com que O’reilly esvaziava os bolsos de Buni.
+Na estante tinha uma lanterna que piscava mais do que iluminava, um pacote de ração de emergência que ninguém queria experimentar e o baralho que O’reilly usava pra ganhar as apostas mais idiotas que se podia fazer sem dinheiro. Buni já devia a ele três turnos de lavagem de pratos. O sujeito chegou a ganhar uma partida, mas ficou tão contente que ofereceu uma revanche. Agora devia quatro.
 
-Vivian tinha o próprio quarto, do outro lado do corredor. Não era luxo, era necessidade: Kord era praticamente o guarda dela, e ninguém discutia quando ele dizia que ela precisava de privacidade. Pelo que eu sabia, era pequeno, mas muito mais organizado que o nosso.
+Vivian ficou com o quarto menor, do outro lado do corredor. Kord tinha perguntado se ela preferia dormir sozinha, e ela nem precisou fazer sinal. Foi lá dentro, deixou a esfera de estrelas sobre a mesa e fechou a porta.
 
-Em uma das voltas que se sucederam, eu me espreguicei e saí do quarto. A cabine de comando, por outro lado, estava movimentada. Eric estava sentado, com cara de quem perdeu o sono, e Hardman estava curvado sobre ele, mexendo no bracelete com uma concentração que parecia digna de um cirurgião.
+Numa das voltas, saí do quarto e encontrei Eric sentado na cabine de comando, com um braço estendido sobre a mesa. Hardman examinava o bracelete Dale com uma lupa, cercado de ferramentas. Parei a uma distância segura. O Eric já tava com cara de quem não tinha dormido porra nenhuma.
 
-— Boa volta pra vocês também — eu disse, estalando os dedos de meu braço metálico. — O que tá rolando?
+— Boa volta, meus amigos. Já conseguiram arrancar o braço dele?
 
-Hardman nem se deu ao trabalho de me olhar, ocupado com o monte de ferramentas espalhadas sobre a mesa.
+Hardman continuou olhando pela lupa.
 
-— Estou removendo isso — respondeu ele, com o tom irritado de quem acha que tá salvando o universo sozinho.
+— Vou remover o bracelete, não o braço.
 
 Eric suspirou, passando a mão no rosto.
 
-— Cai com calma, se você ligar essa coisa, ele me mata, sabia?
+— Cuidado com essa coisa. Se ligar, eu morro.
 
-Hardman fez uma careta exagerada e acenou com a mão.
+Hardman afastou a lupa e olhou pra ele.
 
-— Por gentileza mantenha sua boca fechadinha, meu querido. Deixe o trabalho difícil para quem sabe o que tá fazendo.
+— Estou perfeitamente ciente disso. Seria útil que mantivesse o braço imóvel.
 
-— Difícil é manter a paciência quando está a um triz de perder a vida — resmungou Eric, a testa suando.
+— Experimenta ficar sentado sabendo que um movimento errado pode te matar.
 
-Olhei para ele e não pude deixar de rir.
+Eric tinha a testa molhada de suor. A última vez que vi aquele sujeito tão quieto foi quando o Sr. Peron resolveu examinar uma nave que ele tinha avariado.
 
-Kord estava encostado na parede, observando a cena com os olhos semicerrados, como se esperasse o momento em que aquilo ia dar errado.
+Kord tava encostado na parede, acompanhando o trabalho.
 
-— Se ele ligar esse bracelete, você explode? Ou só desmaia? — perguntou, mas o tom indicava que ele estava mesmo esperando a primeira opção.
+— Se der errado, o que acontece com ele? Explode ou fica só durinho?
 
-O’reilly, sentado à mesa com uma xícara de algo quente, virou-se para mim.
+Eric lançou um olhar pro careca. O’reilly ergueu uma xícara na minha direção.
 
-— Estamos passando por um sistema binário, no caso você queira conferir a vista — disse ele, com a voz tranquila.
+— Vem ver isso, irmão. Estamos passando por duas estrelas.
 
-Através da janela principal da nave, era possível ver os dois brilhos quase colados que indicavam as estrelas gêmeas. Uma delas tinha um tom alaranjado quente, enquanto a outra brilhava com um azul gelado. O contraste era hipnotizante.
+Pela janela da cabine, dava pra ver duas estrelas do sistema binário, uma alaranjada e outra azulada. O filtro do visor reduzia o brilho, e ainda assim dava vontade de ficar olhando.
 
-— O espaço é lindo, não é? — O’reilly me disse.
+— Bonito, não é?
 
-— Você gosta? — perguntei.
+— Tu gosta dessas coisas?
 
-O’reilly sorriu e apoiou os cotovelos na mesa.
+O’reilly puxou uma cadeira pra mim.
 
-— Desde pequeno. Minha mãe e eu morávamos em Nebora Prime, um planeta superpopuloso. Dá pra imaginar? Trilhões de pessoas, tudo empilhado. O céu era uma mancha cinza, cheio de naves de carga. Meu pai era minerador nos campos lunares, então eu raramente os via. Já minha mãe vendia artesanato nos mercados locais. Tinha dois irmãos mais novos também, os quais ficavam sob minha responsabilidade na maior parte do tempo.
+— Desde pequeno. Minha mãe e eu morávamos em Nebora Prime. Trilhões de pessoas, umas em cima das outras. Você olhava pro céu e via carga passando, fumaça, prédios. Meu pai trabalhava nas minas lunares. Quase não via o homem. Minha mãe vendia artesanato no mercado e eu cuidava dos meus dois irmãos menores.
 
-Eu assenti, curioso.
+Sentei junto dele.
 
-— E então?
+— Como foi parar na Fera?
 
-Ele respirou fundo, o olhar fixo no horizonte estrelado.
+Ele ficou um instante girando a xícara.
 
-— Infelizmente meu pai morreu, e eu fiz o que pude para ajudar minha mãe e meus irmãos. Enquanto minha mãe trabalhava, eu costumava jogar alguns jogos para entreter os clientes. Era assim que a gente conseguia uns trocados a mais.
+— Meu pai morreu. Eu ajudava minha mãe como podia. Jogava no mercado pra entreter os clientes. Quando tinha sorte, a gente conseguia uns trocados a mais.
 
-O tom dele ficou mais sério, mas sua voz continuava firme.
+O’reilly deu um gole.
 
-— Eu disputei jogos nas ruas, trabalhei em uma nave de transporte... Até que fui preso. Minha mãe estava doente, e aceitei transportar carga ilegal para pagar o tratamento dela. Foi a primeira vez que vi o céu de verdade, sabe? Preto, pontilhado de estrelas. Funcionou por um tempo, mas a última entrega foi interceptada. Enquanto estava preso aguardando julgamento, a Fera Sideral invadiu a prisão, capturando vários detentos para trabalharem como escravos nas máquinas da nave. Foi assim que acabei preso.
+— Depois joguei nas ruas e consegui trabalho numa nave de transporte. Minha mãe ficou doente. Aceitei levar umas cargas ilegais pra pagar o tratamento dela. Foi a primeira vez que vi um céu de verdade, sabe? Preto, cheio de estrelas. As primeiras entregas deram certo. Na última, me pegaram. Tava esperando julgamento quando a Fera Sideral invadiu a prisão e levou um monte de detentos pras máquinas. Fui um deles.
 
-Hardman, ainda concentrado no bracelete, levantou a sobrancelha.
+— E tua mãe?
 
-— E você ainda consegue ser sarcástico com toda essa história triste?
+— Tinha ido pra Tangreia pra fazer tratamento. Antes de me prenderem, prometi que ia encontrar ela lá. Nunca consegui mandar notícia depois da Fera. Nem sei se meus irmãos ainda tão com ela.
 
-O’reilly riu, mas era um riso melancólico.
+Ele olhou de novo pras duas estrelas. A xícara já devia estar fria.
 
-— Ser como sou foi o que me manteve são. Era o que fazia minha mãe sorrir, e se tem algo que aprendi na vida, é que precisamos de algo para nos agarrar quando tudo parece estar desmoronando. E para mim, é a fé no Divino Sacerdote que me mantém, um elo com o que é puro e inabalável.
+Hardman levantou a cabeça.
 
-Eu dei um tapinha nas costas dele, mais como um gesto de “tá bom, chega de drama”.
+— E mesmo depois de tudo isso você ainda consegue brincar.
 
-— É como me sinto, quando canto — disse Kord.
+O’reilly sorriu e pousou a xícara.
 
-— Bonito. Se eu soubesse cantar, me sentiria do mesmo jeito. Mas fico só no charme mesmo — falei — Mas como você se tornou fera nos jogos?
+— Minha mãe gostava quando eu fazia ela rir. Se eu chegasse em casa preocupado, ela ficava ainda mais preocupada. Não ia ajudar ninguém ficando triste o dia inteiro. E, se não fosse minha fé no Divino Sacerdote, talvez nem tivesse saído vivo da Fera.
 
-O’reilly riu, coçando a nuca.
+Dei um tapa de leve no ombro dele. Não sabia o que responder à parte do Sacerdote. Mas lembrei do jeito que O’reilly tinha falado com Buni na Fera e no caminho pra Moldar. Até quando a situação tava uma merda, dava um jeito de falar alguma coisa que fazia o sujeito sorrir.
 
-— Aprendi nos intervalos. O piloto do cargueiro era um apostador nato. Eu comecei com cartas, depois fui aprendendo outros jogos. Não demorou muito pra eu perceber que tinha jeito pra coisa. Digamos que eu não perco fácil. Uma vez ganhei de um capitão a nave dele inteira. Devolvi na manhã seguinte. O sujeito chorava tanto que a tripulação ameaçou me matar, e nave de um motor só não vale uma facada.
+— Pra mim é cantar — disse Kord. — Se não tiver uma canção na cabeça, começo a pensar em coisa que não quero.
 
-Enquanto isso, Buni e Vivian estavam em outro canto, quietos como sempre. Ou pelo menos até Buni tropeçar em uma ferramenta caída e derrubar um copo de líquido no colo de Vivian. Ele soltou sua risada característica, aquela que mais parecia uma sirene enguiçada, enquanto Vivian o olhava com uma mistura de descrença e ameaça.
+— Eu até cantaria junto, mas vocês iam pedir pra eu voltar a falar. E os jogos, O’reilly? Aprendeu tudo no mercado?
 
-Vivian balançou a cabeça e empurrou Buni de leve com a palma da mão, mas não sem antes apontar para o pano mais próximo, claramente ordenando que ele limpasse a bagunça.
+Ele riu.
 
-Kord, do outro lado, riu baixo.
+— Aprendi muita coisa nos intervalos do trabalho. O piloto do cargueiro apostava em tudo. Comecei com cartas e depois fui aprendendo outros jogos. Uma vez ganhei a nave de um capitão. Devolvi na manhã seguinte. O sujeito chorou tanto que até fiquei com pena. E a tripulação dele tinha prometido me esfaquear. Uma nave de um motor só não valia isso tudo.
 
-— Buni, você precisa parar de irritar a Vivian. Um dia ela te joga pela escotilha.
+— Então aquela mulher do Sem-Cabeça era boa mesmo?
 
-Buni tentou se recompor, mas a risada escapava sempre que olhava para Vivian. Ela, por outro lado, pegou o pano da mão dele e começou a limpar, revirando os olhos de forma tão dramática que até Hardman olhou e fez sua própria careta em solidariedade.
+— Era. Mas acho que sozinho eu tinha mais chance, irmão.
 
-Buni ergueu a caixa de ferramentas com uma mão, a mesma que três de nós tínhamos arrastado, e a pôs no lugar sem reparar. Eu reparei. Guardei a informação para a próxima vez que ele me irritasse.
+O desgraçado ainda teve a delicadeza de sorrir.
 
-— Vocês vivem de forma tão descompromissada — ele disse, finalmente, quase como um sussurro.
+Buni vinha trazendo um copo de bebida pra Vivian quando tropeçou numa ferramenta. Parte do líquido caiu no colo dela. Ele ficou parado com o copo vazio e começou a rir, tentando pedir desculpa ao mesmo tempo.
 
-Eu sabia que algo vinha. Hardman raramente falava daquele jeito, e, pela primeira vez, seus movimentos meticulosos no bracelete de Eric pareciam automáticos. Eric, por outro lado, olhava de esguelha para as mãos de Hardman, claramente desconfortável com o silêncio e a precisão exagerada.
+Vivian pegou o copo, devolveu ao Buni e apontou pro pano junto à pia. Deu dois tapinhas no braço dele pra que andasse logo.
 
-— Eu de fato nunca fui à Aurora. Mas meu pai… ele me contava histórias… eu tenho certeza que ele já esteve lá — começou Hardman, sua voz firme, mas com uma ponta de nostalgia.
+Kord soltou uma risada.
 
-Eric, ainda preso ao bracelete, ergueu uma sobrancelha, mas ficou em silêncio.
+— Ainda vai acabar te jogando pela escotilha, Buni.
 
-— Ele era um engenheiro de energia em Kaséia, um planeta pacífico, sem líderes, sem guerras.
+Buni trouxe o pano, mas não parava de rir. Vivian tomou o pano da mão dele e entregou outro, indicando a poça no chão. Dessa vez, o grandalhão entendeu.
 
-Hardman pausou, ajustando uma ferramenta no bracelete. O clique seco do metal ecoou na cabine. Eric engoliu em seco, mas manteve-se imóvel.
+Quando terminou, Buni ergueu com uma mão a caixa de ferramentas que três de nós tínhamos arrastado pra cabine. Pôs no lugar sem nem interromper a conversa com Vivian. Fiquei olhando pra caixa. O sujeito nunca parecia perceber a força que tinha. Vivian pediu que afastasse a caixa um pouco mais. Buni obedeceu. O’reilly chegou a se levantar pra ajudar, mas voltou a sentar quando viu que não precisava. Buni tinha arranhado os dedos numa das bordas da caixa. Vivian pegou a mão dele e a cobriu com as duas dela. Quando o grandalhão voltou pra mesa, nem procurou o pano que tinha deixado junto à pia. Vivian se sentou, com uma expressão cansada. Achei que o Buni tinha exagerado na hora de pedir desculpa.
 
-— Kaséia era linda — continuou, mais leve. — Mas, para o meu pai, aquele paraíso era uma prisão. Quando meu avô morreu, ele herdou uma pequena fortuna. E decidiu que não ia fazer o mesmo que meu avô. Não ia passar a vida inteira trabalhando, sem ver nada do universo. Ele vendeu tudo, comprou uma nave, e nos levou para as estrelas. Ele, minha irmã mais nova e eu. Foi a melhor época da minha vida. Viajamos para lugares que pareciam saídos de contos de fadas. Meu pai dizia que tinha fontes confiáveis. Sempre que íamos procurar algo, encontrávamos. Foi através dele que ouvi falar da Aurora pela primeira vez. Ele dizia que era o lugar mais próximo do paraíso que alguém poderia encontrar no universo. Ele sempre quis nos levar para lá.
+— Vocês conseguem se divertir com qualquer coisa — disse Hardman, voltando a examinar o bracelete.
 
-Buni, que até então estava tentando não chamar atenção, soltou um som baixo, como um “hmm” curioso. Vivian o cutucou de leve, mas ele apenas deu de ombros e continuou ouvindo.
+O sorriso dele durou pouco. Eric ficou acompanhando a ponta da ferramenta enquanto o engenheiro falava.
 
-— Isso explica muito sobre você, sabia? — provoquei, tentando aliviar o peso no ar. — Esse lance de saber tudo e não contar nada.
+— Jasmey, sobre a Aurora... Eu nunca estive lá. Mas não inventei tudo. Tenho motivos para acreditar que meu pai a conheceu.
 
-Hardman soltou um som que poderia ser uma risada, mas continuou sério.
+Eric ergueu a sobrancelha. Não interrompeu.
 
-— Viajar com ele era como viver em uma história de aventura — Hardman disse, relaxando os ombros.
+— Ele era engenheiro de energia em Kaséia. Um planeta pacífico. Não tínhamos líderes nem guerras.
 
-Ele parou de falar e também de mexer no bracelete. Ficou quieto por um momento, os olhos pesados.
+Uma ferramenta fez um clique no bracelete. Eric respirou fundo e ficou imóvel.
 
-— Então, o que aconteceu? — perguntou O’reilly, suavemente.
+— Meu pai gostava de Kaséia, mas não queria passar a vida inteira ali. Quando meu avô morreu, deixou-lhe uma pequena fortuna. Ele vendeu o que tínhamos, comprou uma nave e levou a mim e à minha irmã mais nova para conhecer o espaço. Foi a melhor época da minha vida. Visitamos lugares que eu só conhecia de livros. Meu pai dizia ter fontes confiáveis. Quando procurávamos alguma coisa, geralmente encontrávamos. Foi dele que ouvi falar da Aurora pela primeira vez. Dizia que era o lugar mais próximo do paraíso que existia no universo. Pretendia nos levar até lá.
 
-Hardman suspirou profundamente e olhou para mim por um instante antes de voltar a trabalhar no bracelete.
+Hardman afastou a lupa e sorriu.
 
-— Meu pai começou a adoecer. Primeiro, ele perdeu os cabelos, depois começou a emagrecer. Ele vomitava frequentemente, mal comia. Insistimos para que ele parasse de viajar e procurasse ajuda, mas ele se recusava. Um dia, minha irmã o encontrou morto na cama. Ele parecia em paz. Mas, para nós, foi o fim de tudo.
+— Quando a rota passava perto de um sistema que eu não conhecia, ele deixava que eu consultasse a Carta e tentasse identificar as estrelas. Às vezes fingia que estava perdido só para me deixar encontrar o caminho.
 
-O silêncio na cabine era pesado agora. Eu não sabia o que dizer, e parecia que ninguém mais sabia também. Vivian, que raramente demonstrava emoções, tinha o olhar levemente abaixado.
+Buni puxou uma cadeira pra perto de Vivian. Os dois ficaram ouvindo.
 
-— Minha irmã e eu brigamos sobre o que fazer a seguir — continuou Hardman, sua voz agora mais baixa. — Ela queria voltar para Kaséia, enquanto eu queria ir para Venar. Acabamos vendendo nossa nave e seguindo caminhos separados. Eu fui para Venar e conheci o Sr. Faule, um homem que me ensinou tudo sobre engenharia das máquinas. Tornei-me mestre em mecânica, construí armas, sistemas de energia, até fui convidado para comandar naves.. Já minha irmã...
+— E nunca levou vocês?
 
-Ele parou novamente, respirando fundo.
+Hardman negou com a cabeça.
 
-— Nunca mais a vi. Mas tinha certeza de que ela voltou para Kaséia. Até que, um dia, ouvi rumores. Rumores ruins. Peguei minha nave e fui até Kaséia. Quando cheguei, o planeta estava coberto por uma névoa fina e verde. Mortal. Fiquei na nave, sabendo que se saísse, seria meu fim. Não havia mais nada vivo. Era... devastador.
+— Havia sempre algum lugar novo para visitar antes. Eu não me importava. Queria aprender tudo que pudesse.
 
-Buni soltou um som baixo de lamento, e até Eric, geralmente sarcástico, parecia desconfortável. O’reilly olhou para o chão, balançando a cabeça.
+Ele largou a ferramenta por um instante.
 
-Ele olhou para mim, os olhos marejados.
+— O que aconteceu com ele? — perguntou O’reilly.
 
-— Isso não foi natural — disse Hardman, sua voz agora carregada de raiva contida. — Aquilo foi um assassinato. Alguém matou meu povo.
+Hardman tirou a lupa do rosto.
 
-Meu peito apertou. Eu sabia o que era aquele gás, mas não podia dizer nada. Ele olhou para mim, e eu apenas assenti, indicando que entendia o que ele estava sentindo.
+— Adoeceu. Perdeu os cabelos, emagreceu e começou a vomitar com frequência. Minha irmã e eu insistimos para que interrompesse a viagem e procurasse um médico. Ele não quis. Uma manhã, ela o encontrou morto na cama. Parecia estar dormindo.
 
-— Como você sabe que aquilo foi intencional? — perguntou O’reilly.
+Ninguém disse nada. Hardman recolocou a lupa.
+
+— Vendemos a nave. Minha irmã queria voltar a Kaséia, e eu pretendia ir para Venar. Foi lá que conheci o Sr. Faule, que me ensinou engenharia das máquinas. Aprendi a construir armas e sistemas de energia. Cheguei a receber propostas para comandar embarcações. Minha irmã...
+
+Ele parou. Eric baixou o olhar.
+
+— Nunca mais a vi. Tinha certeza de que voltara para Kaséia. Quando ouvi notícias do que havia acontecido, consegui uma nave e fui até lá. O planeta estava coberto por uma névoa verde. Os instrumentos indicavam que a atmosfera era letal. Não pude pousar. Não havia nenhum sinal de vida.
+
+Buni deixou escapar um suspiro. O’reilly pousou a mão no ombro de Hardman.
+
+O engenheiro piscou algumas vezes e voltou a olhar pro bracelete.
+
+— Aquilo não foi uma doença. Alguém matou meu povo.
+
+Minha mão boa ficou apertada contra o joelho. Conhecia aquele gás. Já tinha ouvido falar dele na Lebargan. Lembrei de uma conversa dos Dales sobre os mundos que tinham deixado de responder. Até então, nunca tinha conhecido ninguém que tivesse perdido a família num deles. Olhei pro Eric, mas ele tava olhando pro próprio pulso. Não abri a boca.
+
+— Como chegou a essa conclusão? — perguntou O’reilly.
 
 Hardman respirou fundo.
 
-— Tive muito tempo para pensar nisso. Um planeta inteiro exigiria gás demais para uma nave carregar, e o peso não permite. Então descartei a ideia de que o gás foi transportado. O assassinato, isso eu nunca descartei.
+— Passei muito tempo estudando os registros que consegui reunir. Aquilo não correspondia a nenhum fenômeno natural que eu conhecesse. E uma nave precisaria transportar uma quantidade absurda de gás para afetar um planeta inteiro. A massa por si só tornava essa explicação improvável.
 
-Ele suspirou, empurrando a dor de volta para o fundo.
+Ele ajustou a posição do bracelete antes de continuar.
 
-— Foi quando percebi que havia uma forma de fazer isso: um transformador molecular. Não é necessário transportar o gás, apenas transformar as moléculas do ar local em algo letal. Uma nave pequena, equipada com a tecnologia certa, poderia fazer isso. É cruel, mas brilhante. O povo da Kaséia deve ter pensado que era uma pandemia. Nunca perceberam que estavam respirando a própria morte.
+— A hipótese que me parece mais provável é a de um transformador molecular. Uma tecnologia capaz de alterar a própria atmosfera. É difícil acreditar que alguém tenha feito uma coisa dessas deliberadamente. Mas, quanto mais estudava Kaséia, menos conseguia encontrar outra explicação.
 
-A sala ficou silenciosa. O peso da história de Hardman era quase palpável.
+O’reilly retirou a mão do ombro dele. Hardman continuava olhando pra mesa.
 
-— Kaséia não tinha líderes, exércitos, nem nada que ameaçasse os outros. Mas talvez nossa liberdade fosse ameaça o suficiente para alguém. Às vezes, a existência de algo puro incomoda quem só sabe viver no caos.
+— Não tínhamos exércitos. Não estávamos em guerra com ninguém. Minha irmã devia estar lá. Ainda não consegui descobrir.
 
-Eu não tinha respostas. Não era meu forte consolar ninguém. Mas sabia o que precisava ser dito.
+Tentei pensar em alguma coisa pra dizer. Não consegui pensar em nada que não envolvesse o que eu sabia dos Dales.
 
-— Não deixe isso foder sua cabeça, Hardman — falei, a voz mais firme do que eu me sentia. — Você viveu coisas que a maioria das pessoas jamais sonharia em viver. O passado é um peso, mas você não precisa carregá-lo o tempo todo. Deixa ele no chão e anda sobre ele.
+— Sinto muito, Hardman.
 
-Buni deixou escapar um som estrangulado, como um soluço. Ele desviou o olhar, tentando esconder as lágrimas que começaram a rolar. Olhei para ele. Sabia que em sua mente, cada centímetro que nos movíamos pelo espaço era um passo mais perto da Madame, daquela promessa de amor que ele nem sabia que merecia. Todos ali buscavam suas recompensas. E eu estava ali… prestes a trair a todos.
+Ele assentiu sem me olhar. Fiquei sentado ali. O sujeito tinha acabado de me contar o que acontecera com sua família, e eu não tinha coragem de dizer quem tinha feito aquilo.
 
-O clique do bracelete ecoou pela cabine e Eric imediatamente fechou os olhos, visivelmente aliviado, enquanto Hardman erguia o bracelete no ar como um troféu.
+Buni esfregou o rosto com as mãos. Vivian empurrou um copo de água na direção do engenheiro. Ele agradeceu e bebeu um pouco antes de retomar o trabalho. Buni continuou quieto. Tinha falado da Madame tantas vezes desde Geores que eu sabia que ele também queria voltar pra alguém. Olhei pro bracelete. Precisava daquele aparelho pra atrair o Jelles. Não sabia a quantos parsecs a Lebargan tava, nem quanto tempo o desgraçado levaria pra chegar se eu só ligasse o bracelete depois de encontrar a Aurora. Podia esperar, como tinha prometido. Mas o Eric também tinha dito que Amanda continuava lá dentro, e eu não queria dar ao Jelles mais tempo do que o necessário. Já tava procurando uma desculpa pra fazer o que queria.
 
-— Está feito — anunciou ele, colocando o bracelete sobre a mesa com cuidado exagerado.
+O bracelete fez um estalo. Eric fechou os olhos. Hardman afastou a ferramenta e retirou o aparelho inteiro do pulso dele.
 
-Eu me aproximei, pegando o objeto. Era frio e pesado, e meu braço de metal quase parecia reagir ao toque. Um artefato tão pequeno, mas cheio de possibilidades.
+— Pronto. Isolei o reservatório da toxina e retirei a trava mecânica sem reativar o circuito. Está separado de você.
 
-— Deixa comigo — falei, estudando o bracelete com cuidado.
+Eric examinou a marca que tinha ficado no braço e flexionou a mão.
 
-Kord imediatamente estreitou os olhos, avançando um passo.
+Estendi a mão e peguei o bracelete antes que Hardman o guardasse. Reconheci o peso. Parecia errado segurar aquela coisa em vez de sentir presa ao braço.
 
-— E o que você vai fazer com isso, Jasmey?
+— Deixa comigo.
 
-Eu sorri, aquele sorriso que, pra quem me conhecia, significava: “Não é da sua conta, seu intrometido”. Afinal, por que eu contaria meus planos a ele?
+Kord se levantou.
 
-— Precaução, só isso.
+— Vai fazer o quê com isso, Jasmey?
 
-— Precaução? — Kord replicou, sua voz carregada de sarcasmo e irritação. — Me dá isso agora.
+Virei o painel na minha direção.
 
-Eu não obedeci. Então Kord puxou a pistola dele, e eu rapidamente ergui a minha. O’reilly rapidamente colocou uma mão no ombro do amigo.
+— Precaução.
 
-— Calma aí, Kord.
+— A gente combinou de ligar essa merda só depois de sair da Aurora. Me dá isso.
 
-Eric, que finalmente parecia relaxado por estar sem o bracelete, se recostou no banco com ar de espectador satisfeito.
+Não entreguei. Kord sacou a pistola e eu ergui a minha. O’reilly se colocou de lado, entre nós.
 
-Eu levantei o bracelete e, antes que Kord pudesse fazer algo, toquei o painel. As luzes se acenderam, piscando em um ritmo constante.
+— Calma, Kord. Abaixa a arma.
 
-— DESGRAÇADO! — gritou Kord, avançando na minha direção, mas O’reilly o segurou.
+Eric tava recostado na cadeira, ainda examinando o pulso livre. Viu minha mão sobre o painel e não fez nada pra me impedir.
 
-— Para com isso! — O’reilly insistiu, tentando acalmá-lo.
+Acessei a rotina de manutenção que o Eric tinha deixado ativa e restabeleci a transmissão de localização. As luzes do bracelete acenderam. O indicador piscou três vezes e confirmou a recepção pela rede Dale.
 
-Kord apontou a pistola para o bracelete.
+— SEU FILHO DA PUTA!
 
-— Vou jogar isso fora. Ou destruir aqui mesmo!
+Kord avançou. O’reilly agarrou o braço dele.
 
-— Não adianta — interrompi, a voz baixa mas firme. — Eles já sabem onde estamos.
+— Kord! Pelo amor do Divino, abaixa essa arma!
 
-Kord hesitou, os olhos arregalados.
+O careca apontou a pistola pro bracelete.
 
-— Esse bracelete... — comecei, apontando para as luzes. — não é só um rastreador. Ele é uma máquina extremamente avançada. Mesmo que você jogue fora, a informação de cada um de nós já está registrada nos bancos da Lebargan. Eles sabem quem somos e estão vindo atrás de nós.
+— Então vou destruir essa porra.
 
-Vivian apertou o próprio pulso, os olhos fixos nas luzes do bracelete. Seu semblante dizia tudo: preocupação.
+— Já transmitiu. Olha a luz.
 
-— E não adianta vigiar o horizonte — acrescentei. — A Lebargan se camufla no vazio. Quando alguém a vê, já está dentro dela.
+Ele hesitou. O indicador voltou a piscar.
 
-— Nossa única chance é chegar rápido na Aurora. Quando ele nos encontrar, eu irei derrotá-lo, tomarei a Lebargan, e darei a cada um de vocês uma nave nova. Poderão carregar muito mais gerbe cada um com sua própria nave, do que apenas nessa.
+— Isso não serve só pra localizar um Dale. A rede Dale já confirmou a recepção do sinal. Se destruir agora, eles perdem o rastreio contínuo, mas não vão esquecer onde a gente tava. E, se conseguirem seguir o nosso rastro, vão descobrir quem tá comigo.
 
-Fiz as contas de cabeça, que é o único lugar onde eu faço contas: a Lebargan vinha rumo à Aurora desde o dia em que me jogaram fora, e agora tinha um bracelete aceso para apontar onde me achar. Uma corrida em que eu largava atrás. Por sorte, nunca aprendi a perder corridas, só a mudar o percurso.
+Vivian apertou o próprio pulso e olhou pro Hardman.
 
-— Não acreditem nele... esse mentiroso, safado! — gritou Kord, irritado.
+— Não contem com enxergar a Lebargan se ela se aproximar. Aquela nave se camufla no vazio. Já vi gente perceber que tava cercada quando era tarde demais.
 
-— Não estou mentindo — interrompi. — Não dessa vez.
+— A gente precisa chegar primeiro à Aurora. Quando o Jelles aparecer, eu acabo com ele e tomo a Lebargan. Posso dar uma nave pra cada um de vocês. Caberia muito mais gerbe em sete naves do que nesta aqui.
 
-Kord abaixou a pistola lentamente, mas seu olhar ainda estava carregado de desconfiança. Então ele se afastou, mas eu podia sentir que a tensão ainda estava ali. Vivian fez um gesto para Kord, algo que parecia um lembrete silencioso de que ele precisava confiar em mim.
+Jelles tinha um motivo a mais pra seguir o sinal: Eric fugira com o Olho do Domongo. Se o desgraçado pensasse um pouquinho, concluiria que o fugitivo tava tentando chegar à Aurora. O problema era que agora podia nos alcançar antes de chegarmos lá.
 
-Hardman, agora calado, apenas assentiu para mim, voltando a organizar suas ferramentas. Eric, por outro lado, estava claramente aproveitando o show.
+— Não escutem esse desgraçado. Prometeu uma coisa ontem e olha o que fez hoje.
 
-— Bom, parece que temos um plano — disse ele, casualmente. — Então... minha vez de pilotar?
+— Não tô mentindo, Kord. Quero tomar a Lebargan.
 
-O clima ficou ruim entre nós a partir daí. Quando fomos dormir, apagamos as luzes principais e rumamos para os dormitórios. Havia dois, um para todos nós homens, e um que deixamos Vivian ficar.
+Kord baixou a arma, mas continuou olhando pra mim. Vivian tocou o braço dele, apontou pro bracelete e fez alguns sinais pro Hardman. O engenheiro não traduziu. Recolheu a lupa e guardou as ferramentas uma por uma, sem me dirigir a palavra.
 
-A Princesa do Inverno estava mergulhada no silêncio. O brilho suave das luzes da cabine criava uma sensação de calma tensa. Eu tinha ido até o comando da nave, procurando algum momento de solidão, sem sono.
+Eric se levantou.
 
-Para minha surpresa, Hardman estava sentado na cadeira do piloto, os olhos fixos no espaço à frente.
+— E agora? Quem fica no comando?
 
-— Sem sono? — perguntei, me aproximando.
+Ninguém tava com vontade de conversar depois daquilo. Quando chegou a hora do descanso, combinaram entre si quem ficaria acordado. Não me perguntaram se eu concordava.
 
-Ele virou a cabeça lentamente, sua expressão serena.
+Mais tarde, sem conseguir dormir, fui até a cabine de comando.
 
-— Estamos revezando o sono. Ninguém confia em você, sabe?
+Hardman tava sentado na cadeira do piloto, observando os indicadores.
 
-Ri de leve, embora soubesse que ele não estava brincando.
+— Sem sono?
 
-— Por que a dobra espacial está desativada?
+Ele virou a cabeça.
 
-Hardman indicou o painel, onde várias luzes amarelas piscavam.
+— Estamos nos revezando. Ninguém quer deixar a nave sozinha com você.
 
-— O motor superaqueceu. O campo de um magnetar, mesmo a esta distância, enche os sensores de ruído e frita o resfriamento. Com ruído assim, pela Síntese a bolha de dobra não fecha. Ativei a blindagem. Agora precisamos esperar até que a temperatura normalize.
+Puxei a cadeira do segundo comando. Não tinha muito como reclamar.
 
-Olhei pela janela. Lá fora não havia nada para ver, e era isso que me incomodava. No monitor, os sensores pintavam o magnetar de azul, um ponto pulsando em falsa-cor, perto o bastante para qualquer cor ser um mau sinal. Se chegássemos mais perto… seria uma viagem sem volta.
+— Por que saímos da dobra?
 
-— São verdadeiros monstros.
+Hardman indicou as luzes amarelas.
+
+— O motor superaqueceu. O campo do magnetar interferiu nos sensores e no resfriamento. Pela Síntese, a bolha não fecha nessas condições. Ativei a blindagem. Temos de esperar que a temperatura normalize.
+
+Pelo vidro, não dava pra ver o magnetar. No monitor, os sensores representavam sua posição por um ponto azul pulsante. Pensei no que aconteceria se chegássemos mais perto.
+
+— É uma porra de um monstro.
 
 Hardman assentiu.
 
-— Bem-vindo ao espaço, meu amigo. Ele não dá nada de graça.
+— Por isso prefiro não atravessar um sistema sem consultar a Carta.
 
-Houve um momento de silêncio, até que ele quebrou a tensão.
+Ficamos um tempo acompanhando os indicadores. Tirei o orbe do bolso e fiquei passando o polegar sobre o vidro. Hardman tava concentrado nas leituras. Quando virou a cadeira pra mim, guardei o presente do velho.
 
-— Qual a sua história Jasmey?
+— Como foi crescer na Lebargan, Jasmey?
 
-Eu hesitei, passando a mão pelo braço metálico. Não estava no humor para falar, mas senti que seria justo depois de tudo o que ele compartilhou.
+Olhei pro braço de metal. O sujeito tinha me contado a história dele. Não me custava contar parte da minha.
 
-— Fui criado no interior escuro de uma nave, educado com outras centenas de crianças para me tornar um guerreiro — comecei, a voz mais baixa que o normal. — Vi dezenas dos meus irmãos morrerem nos testes. E tirei a vida de um deles em um duelo... era ele ou eu. O mundo lá fora era um mistério proibido, e o nosso, dentro da Ala 66, uma lição constante de que a sobrevivência vinha antes de qualquer sentimento. Você aprende a não se apegar, a ver cada “irmão” como rival em potencial, uma boca a menos para alimentar se falharem num teste. Era a única forma de não enlouquecer. A dor não era permitida. Apenas a força.
+— Cresci na Ala 66 com centenas de crianças. A gente estudava, treinava e fazia o que mandavam. Perdi vários irmãos nos testes. Num duelo, matei um deles. Era ele ou eu, pelo menos foi o que me ensinaram. Se você chorasse, mandavam continuar. Se não conseguisse, tiravam você do grupo. O resto da nave era um lugar que a gente só conhecia de ouvir falar. Quando saí de lá e vi as estrelas pela primeira vez, pensei que finalmente era livre.
 
-Hardman me observava atentamente, suas mãos descansando sobre o painel.
+Hardman ficou quieto, esperando que eu continuasse.
 
-Contei sobre minha primeira missão, o massacre, e a traição de Jelles. Quando mencionei a Engenheira, ele se inclinou para frente, surpreso.
+Contei sobre as missões, a traição de Jelles e o que aconteceu em Dekraaz. Falei das crianças que encontrei e do braço que perdi. Quando mencionei a Engenheira, ele se inclinou pra frente.
 
-— Você conheceu a Engenheira?
+— Conheceu a Engenheira?
 
 Assenti para ele.
 
-— Como ela era?
+— Como ela era? Há relatos sobre ela em tantos sistemas...
 
-— Ahm… uma solteirona muito bonita. Ela disse que precisava de minha ajuda para uma… cirurgia. Mas aquilo que eu vi… não se assemelhava a nada que já tinha presenciado antes.
+— Bonita pra caralho. E sabia fazer coisas que eu nem sabia que eram possíveis. Me fez segurar um animal morto enquanto ela mexia nas células dele. O bicho voltou a respirar.
 
-— Há tantas histórias sobre ela. Se sobrevivermos a isso, talvez devêssemos procurá-la.
+— Se sobrevivermos a esta viagem, gostaria de encontrá-la.
 
-Sorri.
+Olhei pra mão de metal.
 
-— Boa sorte com isso. Não pretendo pisar naquele planeta de novo.
+— Boa sorte. Não tô com muita vontade de voltar a Dekraaz.
 
-O silêncio voltou, pesado e contemplativo.
+Hardman verificou os indicadores mais uma vez.
 
-— Você quer matar Jelles, mas já considerou uma alternativa? — Hardman perguntou, a voz calma, mas incisiva.
+— Já pensou em outra maneira de resolver o que tem com Jelles?
 
-Olhei para o espaço novamente, as luzes da magnetar refletindo no vidro da nave.
+Olhei pro vidro.
 
-— Não há outra alternativa — falei, suspirando. — Jelles dizia que eu era uma doença. Mas ele é quem é: enquanto estiver respirando, contaminará todos os Dales. Passa aos tripulantes a falsa sensação de liberdade, de que podem fazer o que quiserem. As missões são como trabalhos, e trabalhando se tem direito a comida e abrigo. Eles acham que essa é a melhor forma de viver, acreditam que a Lebargan é justa e única e não a abandonariam por nada. E é essa lealdade que se transfere ao capitão, o que torna meu desafio ainda mais difícil.
+— Que outra maneira? O Jelles diz que eu sou uma doença. Os Dales recebem comida, cama e missão. Acham que podem fazer o que quiserem enquanto obedecerem. Se o capitão mandar matar alguém, matam. Eu era igualzinho. O Vek... — Parei por um instante. — O Vek sabia quem eu era. Mesmo assim, não acreditou em mim quando tentei contar o que aquele desgraçado tinha feito. É isso que eu tô enfrentando, Hardman.
 
-Hardman parecia prestes a argumentar, mas se calou.
+O engenheiro apoiou a mão sobre o painel.
 
-— Acho que posso ver algo positivo na sua história, — falei, mudando de tom. — Você perdeu sua família, mas pelo menos teve uma. A minha nunca foi verdadeira. Mas temos algo em comum. Todos nós perdemos nossa família. Talvez por isso estejamos aqui juntos.
+— Você teve um pai, uma irmã. Eu nem sei de onde vim. Na Lebargan, todo mundo era meu irmão. Hoje metade deles quer me matar. — Olhei pro corredor. — E aqueles idiotas lá dentro tão putos comigo com razão.
 
-Ele olhou para mim, surpreso.
+Hardman virou a cabeça.
 
-— Achei que você não acreditasse em propósitos.
+— É a primeira vez que ouço você dizer isso.
 
-— Quero que os propósitos se fodam. Mas podemos nos ajudar. Como uma família improvisada.
+— Não se acostuma. Só tô dizendo que talvez dê pra gente continuar junto. Quando acabar essa merda toda.
 
-Hardman relaxou, ligeiramente.
+— Primeiro terá de aprender a cumprir o que promete.
 
-— Bom, pelo menos isso é um começo.
+Ele apontou pro bracelete que eu tinha deixado sobre o painel. O indicador de transmissão continuava piscando. Não consegui olhar muito tempo praquilo.
 
-O painel emitiu um bip. Ele olhou para a luz do motor de dobra que estava verde novamente e apontou.
+Assenti. Ele tinha razão, por mais que me custasse ouvir aquilo.
 
-— Estamos prontos para continuar.
+O painel deu um bip. Hardman apontou pro indicador verde.
 
-Assenti, apertando o botão verde no painel.
+— Temperatura normalizada.
 
-— Então hora de seguir viagem.
+Conferi a rota na Carta e ativei os controles de dobra.
 
-Hardman recostou-se, soltando um suspiro aliviado.
+— Vamos embora.
 
-Então voltei para minha cama. Acordei com um chamado inconveniente.
+Hardman recostou na cadeira.
 
-— Jasmey, tá acordado? — Hardman chamou pelo interfone, interrompendo meu sono.
+Voltei pro quarto depois que ele confirmou que os motores estavam estáveis. Dormi até ouvir a voz dele pelo interfone.
 
-— Se estivesse dormindo, agora não tô mais, né?
+— Jasmey, está acordado?
 
-Levantei-me, indo em direção à cabine, onde todos estavam reunidos ao redor do painel principal.
+— Agora tô.
 
-— Olhem isso, pessoal, — disse Hardman, apontando para o telescópio da nave.
+Na cabine, todo mundo tava reunido diante do monitor do telescópio.
 
-Ele ajustou o visor, e uma visão impressionante apareceu na tela: uma estrela em formação, no meio de uma nebulosa escura. Era como assistir a um nascimento cósmico, uma dança de partículas e gases iluminados por um brilho suave.
+— Vejam isto — disse Hardman, ajustando a imagem.
 
-— É lindo, não é? — comentou Vivian, gesticulando com um leve sorriso.
+Uma estrela começava a se formar junto à borda de uma nebulosa escura. O brilho escapava pelos gases ao redor, revelando regiões da nuvem que antes eram invisíveis. Hardman aumentou a imagem e mostrou o material se acumulando perto do centro. Kord chegou a encostar os dedos na tela. Nunca tinha visto o careca tão quieto por tanto tempo.
 
-— Lindo pra quem gosta de poeira brilhante, — retruquei, mas admiti para mim mesmo que era realmente fascinante.
+Vivian apontou pra imagem e sorriu. Fez um gesto pro Kord, que assentiu.
 
-O’reilly, com uma xícara na mão, observava com atenção.
+— Bonita mesmo — disse o careca.
 
-— Isso é o tipo de coisa que nos faz sentir pequenos, não acha?
+O’reilly aproximou a xícara do peito, sem tirar os olhos da tela.
 
-— O Hardman que o diga — falei, recebendo uma risada abafada de Buni.
+— Faz a gente se sentir pequeno, né?
 
-Hardman fez a mesma careta que sempre fazia quando fazia uma piada com ele, e ajustou os controles do telescópio, o brilho da estrela em formação ainda refletindo em seus olhos. Ele se afastou ligeiramente, indicando que todos poderiam dar uma última olhada antes que o espetáculo fosse engolido por algo bem mais intimidador.
+— O Hardman que o diga.
 
-— Bom, pessoal, aproveitem a vista enquanto podem — disse Hardman, voltando para os painéis com uma expressão que misturava fascinação e preocupação. — A estrela está nas bordas de uma nebulosa escura. E, adivinhem!
+Buni riu pelo nariz.
 
-A imagem da estrela se desfez no vidro e, em seu lugar, crescendo diante de nós, surgiu a nebulosa escura: uma muralha colossal de sombras, em tons de roxo e preto, entrecortada por filamentos luminosos que rasgavam a escuridão como veias de luz elétrica. Parecia pulsar, quase viva, como a respiração lenta de algo primordial. Adentrar ali era mais do que entrar numa nebulosa, era mergulhar na goela de um ser adormecido.
+Hardman nem me olhou. Ajustou a escala da imagem e apontou pra região escura que ocupava o outro lado do monitor.
 
-— Vamos entrar nela em algumas dezenas de ectons — disse Hardman.
+— Aproveitem enquanto é visível. A estrela está nas bordas de uma nebulosa que teremos de atravessar.
 
-O silêncio na cabine era palpável. Até Eric, geralmente o primeiro a soltar uma piada ou provocação, estava calado, os olhos fixos no abismo que se aproximava.
+A imagem ampliada deu lugar à visão do caminho. A nebulosa se estendia pela janela inteira, em roxo e preto, com alguns filamentos luminosos nas regiões menos densas. Quanto mais nos aproximávamos, menos estrelas conseguíamos ver.
 
-— Poeira e gás frios o bastante para apagar toda a luz — disse Hardman. — Os sensores ópticos vão ficar cegos. Guiamos só por radar e por massa.
+— Entraremos nela em algumas dezenas de ectons.
 
-— Em resumo? — pediu Kord.
+Eric veio até o painel e examinou a rota.
 
-— Vamos voar cegos — traduzi, antes que Hardman abrisse a boca para outra aula.
+— Os gases e a poeira bloqueiam a luz — explicou Hardman. — Os sensores ópticos deixarão de ser úteis. Teremos de navegar com o radar e as leituras de massa.
 
-Buni, que estava inclinado sobre a mesa, olhando pelo vidro, endireitou-se lentamente, a preocupação óbvia em seu rosto. Vivian, ao lado dele, inclinou a cabeça, os olhos fixos na tela, medindo a dimensão daquilo.
+— E dá pra enxergar até onde? — perguntou Kord.
 
-— É gigantesca... — murmurou Kord, cruzando os braços. Sua postura rígida não escondia a tensão no ar.
+— Pelo vidro, porra nenhuma — respondi.
 
-— Tem certeza que não tem outro caminho? — perguntou Eric.
+Buni se afastou um pouco da janela. Vivian apontou pro monitor e depois pro Olho do Domongo, que continuava indicando a direção.
 
-— O olho nos indica essa direção. Não podemos desviar… até porque seu amigo colocou um bando de piratas atrás de nós — disse Hardman.
+— É grande pra caralho — disse Kord.
 
-Hardman ajustou alguns botões no painel, verificando leituras e dados com uma concentração inquietante.
+— Não tem como dar a volta? — Eric perguntou.
 
-— Isso não pode estar certo… — murmurou, batendo o dedo numa leitura que não parava de oscilar.
+— O olho aponta para lá. Dar a volta nos custaria tempo. E, graças a Jasmey, há uma nave pirata que pode nos alcançar.
 
-— A gravidade nesses lugares é instável. E dependendo da densidade da nebulosa, pode haver fragmentos sólidos de gelo, rocha, ou até campos magnéticos que desorientam os sistemas. — disse Eric, com a voz mais baixa. — ou pior… podem haver formações estelares como a que vimos ou coisas piores lá dentro.
+Hardman conferiu uma leitura que oscilava no painel.
 
-Eu bufei, tentando aliviar a tensão.
+— Estas variações não me agradam.
 
-— É basicamente um convite pra morrer.
+— Pode ter rocha, gelo ou campo magnético lá dentro — disse Eric. — Se algum sensor falhar, a gente só vai perceber que tem alguma coisa na frente quando bater nela.
 
-Vivian me olhou, a sobrancelha erguida.
+— Então fica de olho nos sensores. Vou reduzir a velocidade.
 
-A nebulosa continuava a crescer diante de nós, engolindo o espaço com sua escuridão sinistra. Pequenas fendas eram vistas nas trevas, emanando raros feixes de luz interior, como se quisessem nos atrair para dentro. Era lindo e aterrorizante ao mesmo tempo.
+Vivian foi pra perto do Buni e tocou o braço dele.
 
-Buni soltou um som nervoso, algo entre um grunhido e um suspiro, enquanto Vivian pousava uma mão em seu braço, tentando tranquilizá-lo.
+Kord conferiu se os compartimentos estavam fechados.
 
-Eu me inclinei, os olhos fixos naquilo.
+A nebulosa crescia à nossa frente. As últimas estrelas visíveis desapareceram uma a uma, e a luz rosada do gás iluminou a cabine por um breve instante.
 
-— Bom, vamos lá, Princesa do Inverno — murmurou Hardman. — Mostre que você pode enfrentar qualquer coisa.
+Buni soltou um suspiro e segurou a borda do assento.
 
-Um brilho rosado de gás incandescente tingiu as janelas por alguns segundos, o último luxo antes do escuro.
+Reduzi o impulso e mantive a proa alinhada à direção do olho.
 
-A nave mergulhou numa escuridão tão densa que parecia sólida. Gases opacos envolveram o casco, a luz das estrelas desapareceu, e partículas de poeira cósmica passavam pelas janelas como fagulhas incandescentes.
+— Vamos lá, Princesa — murmurou Hardman.
 
-— Se opressivo fosse um lugar, seria exatamente aqui — comentei, tentando aliviar a tensão. Enquanto isso, meus olhos encontraram uma garrafa em uma prateleira próxima. O líquido dourado em seu interior chamou minha atenção imediatamente. Peguei a garrafa, abri, e tomei um gole. O calor subiu pela garganta, espalhando-se pelo meu peito.
+A luz do gás sumiu atrás do casco.
 
-— Ah, isso sim é uma pausa merecida — declarei com satisfação.
+Entramos na nebulosa. O vidro ficou quase todo negro. Restaram os indicadores e os contornos que o radar traçava no monitor.
 
-Hardman virou-se para mim e imediatamente franziu a testa ao me ver segurando a garrafa.
+Pedi ao Eric que acompanhasse os controles enquanto eu esticava as pernas. Numa prateleira próxima à mesa, vi uma garrafa de líquido dourado. Tava ao lado dos copos, com um rótulo escrito numa língua que eu não conhecia. Parecia uma daquelas bebidas caras que o Mestre devia ter deixado na nave. Peguei, abri e tomei um gole. Não era necroriano, mas descia quente e tinha um sabor forte.
 
-— Você sabe o que está bebendo? — ele perguntou.
+— E ninguém me avisou que tinha bebida aqui?
 
-— Sei que tá descendo bem. Isso é o suficiente pra mim — rebati, dando mais um gole.
+Hardman se virou. Ficou olhando pra garrafa.
 
-Antes que eu pudesse reagir, Hardman avançou e arrancou a garrafa da minha mão. Ele analisou o rótulo com uma expressão de puro horror.
+— O que está fazendo com isso?
 
-— Jasmey, você acabou de beber relaxante muscular. Isso aqui é pra ser usado em pequenas doses! Você tomou o equivalente a uma dose pra um cardiçal!
+— Bebendo, ué.
 
-Eu pisquei, a cabeça girando, enquanto sentia um formigamento que subia dos dedos e me deixava mole.
+Tomei mais um gole.
 
-— Puta merda, tá brincando comigo? Quem é o idiota que deixa essa porra numa prateleira como se fosse licor? — perguntei, já sentindo minhas pernas começarem a falhar, a voz se arrastando.
+Ele veio até mim e tomou a garrafa da minha mão.
 
-Kord riu alto, cruzando os braços enquanto me observava lutar contra o próprio corpo.
+— Isto é relaxante muscular, Jasmey! A quantidade que tomou daria para um cardiçal. Quanto bebeu?
 
-— Parece que o idiota aqui é você, Jasmey — ele comentou, com uma risada irritante. Eric acompanhou Kord com uma gargalhada.
+Pisquei. Tinha começado a sentir um formigamento nas pernas.
 
-Antes que eu pudesse responder, o formigamento se espalhou. Minhas pernas cederam de vez, e eu caí no chão com um baque.
+— Quem é o idiota que guarda essa porra do lado dos copos?
 
-— Puta que pariu! — resmunguei, tentando me levantar, mas meu corpo, o traidor, não me obedecia.
+Kord olhou pra garrafa e começou a rir.
 
-Buni correu para tentar me ajudar, mas sua risada extravagante atrapalhou mais do que ajudou. Vivian, ao lado, balançou a cabeça com uma expressão de reprovação silenciosa, gesticulando rapidamente como se dissesse “Você só pode estar brincando comigo”.
+— Aquele que leu o rótulo, não foi.
 
-Hardman bufou, colocando a garrafa de volta na prateleira com força.
+Tentei apoiar a mão na mesa. As pernas cederam e fui parar no chão.
 
-— Ok Eric! Agora você pode pilotar.
+— Puta que pariu. Minhas pernas.
 
+Buni veio me ajudar. Vivian apontou pro banco, e os dois me acomodaram ali. Hardman verificou o rótulo mais uma vez, perguntou se eu conseguia respirar normalmente e ficou esperando minha resposta.
+
+— Consigo, porra. Só não consigo levantar.
+
+Ele guardou a garrafa no compartimento dos medicamentos e olhou pro Eric.
+
+— Muito bem, Eric. O comando é seu.
