@@ -1,432 +1,547 @@
-— É um homem de coragem... ou um tolo inocente — murmurou Alekta, recostada em meu peito.
+— Ou você tem coragem pra caralho ou é muito burro — disse Alekta, recostada no meu peito.
 
-— Por que diz isso? — indaguei, curioso.
+— Por quê?
 
-— Encarar o Capitão Tzough daquela forma. Ele é um sujeito perigoso. Certamente, não é alguém que você queria ter como inimigo — explicou Alekta.
+— Aquele jeito de falar com Tzough. Não é um homem que você queira ter como inimigo.
 
-— Capitão Tzough? Este é o nome dele? — perguntei, tentando esconder minha surpresa com um sorriso torto.
+— Então aquele é o tal Senhor dos Vórtices?
 
-— Vê aquele tolo ali atrás, na prisão? — Alekta sussurrou, inclinando a cabeça em direção a Ederos — Seria fácil para ele escapar. No entanto, os prisioneiros aqui preferem o confinamento das grades ao mundo exterior. A tripulação o teme mais do que a própria morte.
+— Tá vendo o Ederos ali? — Ela apontou com a cabeça pra outra cela. — Podia sair dali se quisesse. Tem gente que prefere ficar atrás das grades a andar por esta nave. O pessoal tem mais medo do Tzough do que de morrer.
 
-Eu já tinha visto medos maiores, claro, mas a histeria dela era quase cômica.
+Olhei pro Ederos. O sujeito fez questão de virar a cara.
 
-— E você tem medo dele? — questionei, buscando seu olhar.
+— E você tem medo dele?
 
-— Ele é intimidador, sim, mas eu não sou de me acovardar. Isso não significa que eu o subestime. Só faço o que preciso para sobreviver — afirmou Alekta.
+— Tenho juízo. É diferente. Faço o que preciso pra sobreviver, mas não sou idiota de achar que posso enfrentá-lo.
 
-— Faz bem — concordei — seria uma excelente Dale.
+— Seria uma excelente Dale.
 
-Alekta vacilou brevemente antes de se erguer, recolhendo suas roupas do chão frio da cela e começando a se vestir.
+Ela ficou quieta por um momento, depois começou a catar a roupa do chão.
 
-— Como você conseguiu fugir daqui? — perguntei, intrigado.
+— Como você conseguiu fugir daqui?
 
-Ela hesitou, lançando-me um olhar pensativo, antes de se voltar completamente em minha direção.
+Alekta vestiu a calça antes de responder.
 
-— Contei com uma pequena ajuda — começou Alekta — de um aliado. Escapei a bordo de uma nave, mas não demorou para que os homens de Tzough me interceptassem. Eles tinham infiltrados à bordo. Fui capturada pouco após a fuga. Então, uma luz misteriosa emanou do planeta onde te encontrei, e eles decidiram investigá-la com autorização do capitão.
+— Tive ajuda de um sujeito daqui. Consegui fugir numa nave, mas tinha infiltrados a bordo. Os homens do Tzough me pegaram logo depois. Aí apareceu aquela luz que saiu do teu planeta e o capitão mandou investigarem.
 
-— Interessante. E você acha que conseguiria fugir novamente? — questionei, observando sua expressão atentamente.
+— E consegue fugir de novo?
 
-— Claro que sim, já escapei uma vez — afirmou ela com confiança, enquanto ajustava a blusa sobre o corpo — e se você estiver interessado, posso te incluir no plano desta vez.
+— Já consegui uma vez, não consegui? Se você quiser, te levo junto dessa vez.
 
-Arqueei uma sobrancelha, encontrando seu olhar firme e determinado.
+Olhei pra ela. Tava abotoando a blusa como se a gente estivesse discutindo onde ia jantar.
 
-— Quer que eu acredite que você vai me ajudar a fugir só porque fizemos sexo? — desafiei, meio em tom de brincadeira, meio sério.
+— Quer que eu confie em você só porque a gente transou?
 
-— Não, vai acreditar porque eu vou fugir com você — Alekta retorquiu, enquanto abotoava sua blusa com uma rapidez prática.
+— Não. Quero que confie porque também quero sair dessa merda.
 
-— E como pretende fazer isso?
+— E como?
 
-— Precisaremos de um aliado. O mesmo que me ajudou antes. Chama-se Hardman, trabalha nas máquinas.
+— Tem um homem nas máquinas que pode ajudar. O mesmo que me ajudou antes. Hardman.
 
-— Hardman? — repeti, assimilando a informação — Ok, e depois que eu encontrá-lo?
+— Hardman. E o que faço quando encontrar o sujeito?
 
-— Entregue isso a ele — disse Alekta, deslizando uma pulseira escura de seu pulso e entregando-a a mim — e diga-lhe que o plano dele deu certo. Depois, nos encontramos no hall de saída em 250 ectons.
+Ela tirou uma pulseira escura do pulso e me entregou.
 
-— 250 ectons? Como vou saber quando se passarem 250 ectons? Não tenho relógio algum.
+— Dá isso pra ele e diz que o plano deu certo. Daqui a duzentos e cinquenta ectons, te encontro no hall de saída.
 
-— O Hardman tem. É melhor encontrá-lo rápido. Ele vai garantir que o hall esteja vazio nesse momento, preparando o caminho para nossa fuga.
+— Como vou saber quando se passarem duzentos e cinquenta ectons? Tá vendo algum relógio em mim?
 
-Alekta sorriu para mim... aquele sorriso que desarma. Em seguida, ela partiu pelo corredor. De repente, ouvi batidas na grade atrás de mim e vi o homem que insultara Alekta momentos antes.
+— O Hardman tem um. É melhor achar ele logo. Vai dar um jeito de deixar o hall vazio na hora certa.
 
-— Não ouça ela. É uma pirata traiçoeira — ele vociferou.
+Ela sorriu e saiu pelo corredor. Ouvi umas batidas atrás de mim. Ederos tava segurando as grades.
 
-— É mesmo? Pois eu também sou — retruquei, sorrindo enquanto me vestia.
+— Não escuta essa mulher. É uma pirata traiçoeira.
 
-Subi as escadas até a saída e desci os degraus de volta ao trabalho, quando as chicotadas voltaram a estalar, despertando em mim uma fúria instantânea.
+— Que coincidência. Eu também.
 
-— Passou tempo demais no almoço, verme. Já deveria estar trabalhando — rosnou o homem, as tatuagens no rosto se contorcendo de desprezo. O deboche veio sozinho. Verme? Ele não sabia com quem estava falando.
+Terminei de me vestir.
 
-— Ei, cara-pintada — falei, subindo os degraus até ficar frente a frente com ele. Ele ergueu o chicote novamente, mas eu o segurei firme. — Quero deixar algo bem claro. É melhor não me provocar. Caso contrário, meu trabalho será lançar seu corpo no vácuo.
+Subi as escadas e voltei ao trabalho. Nem tinha chegado perto das pedras quando ouvi um chicote estalar.
 
-Ele me encarou, a raiva quase fazendo-o espumar pela boca, enquanto nossos olhares permaneciam travados até que ele virasse o rosto e cuspisse ao lado.
+— O almoço acabou faz tempo, verme. Devia estar trabalhando.
 
-— Todos começam como você — disse ele. — Mas acabam clamando pela mãe, dizendo que não suportam mais. Você acha que conhece o sofrimento eterno? Isso aqui é muito pior.
+— Ô, cara-pintada!
 
-Ele subiu as escadas, ainda lançando olhares ameaçadores. Eu desci ao convés inferior e retomei as pedras de titânio.
+Subi os degraus até ficar na frente dele. Quando ergueu o chicote, segurei a ponta com a mão de metal.
 
-Enquanto carregava as pedras, vi Alekta limpando o chão perto de um canhão de prótons, a alguns metros. Ela olhou para mim e apontou para o braço, gesto de que eu estava perdendo tempo. Eu precisava achar um jeito de me infiltrar nas máquinas, mas como? Talvez algum dos outros trabalhadores soubesse.
+— Vou falar uma vez só. Se continuar me enchendo o saco, meu próximo trabalho vai ser jogar teu corpo no vácuo.
 
-— Ei, psiu — chamei baixinho um homem à minha frente. Ele se virou e recuei por instinto: o rosto era liso na área dos olhos, sem cavidades oculares. — Que diabos... Quero dizer, amigo, preciso acessar as máquinas. Sabe como chego lá?
+O sujeito tentou puxar o chicote. Não soltei. Tinha uns trabalhadores olhando pra gente. Esperei que ele me encarasse antes de abrir a mão.
 
-O homem sorriu, revelando uma boca anormalmente grande, de lábios espessos. Definitivamente alienígena, ou um ser abandonado à própria sorte. Apontou com um de seus quatro dedos para uma entrada onde alguns piratas bebiam e riam, de guarda.
+— Todo mundo começa assim. Depois tão chamando pela mãe, implorando pra morrer. Acha que sabe o que é sofrer? Aqui vai aprender.
 
-— Ok, obrigado — agradeci, e ele alargou ainda mais o sorriso, girando estranhamente a cabeça em minha direção. Fiz uma careta, o cheiro de merda e suor nas narinas, e me afastei rumo aos homens.
+Ele cuspiu perto de mim e subiu a escada. Voltei pras pedras.
 
-Aproveitei que estavam distraídos e deslizei por trás deles, entrando pela passagem. Desci uma escada por quase cinco ectons até dois elevadores, cada um com inscrições num idioma que eu desconhecia. Escolhi o da direita.
+Enquanto carregava o titânio, vi Alekta limpando o chão perto de um canhão de prótons. Ela apontou pro próprio pulso. Tá bom, porra. Eu sabia que tava atrasado. Só não sabia como diabos se chegava às máquinas.
 
-As portas se fecharam sozinhas e o elevador desceu, iluminado por lâmpadas que piscavam. Quando abriram, dei num corredor escuro com várias passagens perpendiculares. Caminhei com cautela. Por sorte, estava deserto, mas nos corredores adjacentes ouvia-se o burburinho e as risadas de piratas embriagados.
+— Ei, amigo!
 
-— As tripas dele saíram para fora — gargalhou um pirata, a longa barba castanha embebida em rum necroriano. Ah, como eu sentia falta daquele sabor. Um gole de necroriano e eu esqueceria por um momento onde diabos eu tinha vindo parar.
+O homem à minha frente se virou. Tinha a cara completamente lisa onde deviam ficar os olhos.
 
-— O capitão vai cortar sua cabeça se te ver fazendo isso — advertiu outro homem, escondido em um dos corredores.
+— Mas que... Desculpa. Sabe como chego às máquinas?
 
-— Eu jogo a culpa em um dos trabalhadores. Assim me livro da condenação — o outro riu em resposta.
+Ele sorriu. A boca era enorme, de lábios grossos, e a mão tinha quatro dedos. Apontou pra uma passagem onde uns piratas bebiam e riam.
 
-Caminhei pelo corredor sombrio, notando de canto de olho que o segundo homem era o de moicano que anunciara o almoço. Perto do fim, um som familiar ecoou: o zumbido de máquinas em operação. Estava quase lá. Subi uma escadaria até uma porta larga e tentei abri-la, mas estava trancada.
+— Valeu.
 
-— Merda! — exclamei. Virei-me para buscar outro caminho e dei de cara com um pirata de cabeça baixa, brincando com seu copo de rum. Ele ergueu o olhar e me viu parado nas escadas. Sem hesitar, avancei, abafando seu grito com a mão e derrubando-nos escada abaixo. Segurei sua respiração até que desmaiasse e aproveitei para sorver o rum do copo. Plenamente satisfeito, notei o molho de chaves da porta no bolso do vigia. Experimentei uma por uma até a certa girar na fechadura, abri a porta e arrastei o corpo para dentro.
+Ele continuou sorrindo e girou a cabeça na minha direção de um jeito que me fez andar um pouco mais depressa.
 
-Era um salão vasto, onde numerosos homens trabalhavam sem camisa, sob calor quase insuportável e ruído incessante. Depositei o vigia num canto e comecei a percorrer o salão, terminando meu copo de rum.
+Os guardas tavam distraídos. Passei por trás deles, desci uma escada por quase cinco ectons e cheguei a dois elevadores. Tinha umas inscrições que eu não conseguia ler. Escolhi o da direita. Geralmente gosto mais das coisas que ficam à direita.
 
-— Ei, você conhece um cara chamado Hardman? — perguntei a um dos trabalhadores que passava apressado por mim. Ele negou com a cabeça e seguiu em direção a uma imensa válvula de controle de pressão atmosférica.
+As portas fecharam sozinhas. As lâmpadas piscavam enquanto o elevador descia. Quando abriu, dei num corredor escuro, cortado por várias passagens. Não havia ninguém ali, mas dava pra ouvir os piratas conversando nos corredores dos lados.
 
-Continuei perguntando. Todos negavam conhecê-lo ou me ignoravam. Quem diabos era Hardman?
+— As tripas do sujeito saltaram pra fora! — gargalhou um homem de barba castanha, molhada de rum necroriano.
 
-— Hardman, conhece algum? — questionei um homem que ostentava uma única e grossa sobrancelha.
+Necroriano. Reconheci o cheiro na hora. O filho da puta ainda balançou o copo enquanto falava.
 
-— Hardman? Sim — respondeu ele — acho que é o cara do controle de energia.
+— O capitão arranca tua cabeça se te pegar fazendo isso — avisou outro.
 
-— Controle de energia? Onde posso encontrá-lo? — perguntei ansioso.
+— Jogo a culpa num trabalhador. Quero ver descobrirem.
 
-— Ali, atrás das fornalhas — indicou ele.
+Reconheci o homem de moicano que tinha anunciado o almoço. Passei sem fazer barulho e, mais adiante, ouvi o zumbido das máquinas. Subi uma escadaria e encontrei uma porta larga. Trancada, claro.
 
-Virei-me e avistei várias fornalhas onde armas eram forjadas, o calor ainda mais extremo. Contornei-as e cheguei a uma área de painéis, alavancas e cabos grossos pendurados do teto. Alguns homens manipulavam a energia ali, e escaneei o grupo atrás de Hardman. Dois robustos, um de barba vistosa e outro careca, coberto de tatuagens, com um olho enorme nas costas. Um terceiro de porte avantajado e cachos curtos. O quarto, franzino, fazia esforço para operar as pesadas alavancas e parecia o menos provável. Sorri para mim mesmo e me aproximei do grupo.
+— Merda.
 
-— Olá — cumprimentei, atraindo a atenção do mais corpulento — Hardman?
+Me virei e dei de cara com um pirata entretido com um copo de rum. Ele abriu a boca. Antes que gritasse, me joguei pra cima dele e descemos a escada embolados. Apertei o sujeito até desmaiar. O copo tinha rolado até o pé da escada. Levantei, peguei e vi que ainda restava um pouco de rum lá dentro. Depois de tanto tempo em Dekraaz, não ia desperdiçar aquilo. Aí me dei conta de que o sujeito tinha uma porra de um molho de chaves no bolso. Finalmente, um pirata com alguma utilidade.
 
-O homem gordo lançou um olhar para o homem tatuado, que se virou em minha direção e caminhou até mim com passos pesados e um olhar severo. Encarei-o de volta até que ele parasse bem à minha frente.
+Bebi um gole e subi com as chaves. Fui testando uma por uma. Quando a última abriu a porta, ouvi passos ao longe e me apressei em arrastar o sujeito pra dentro.
 
-— O que quer com Hardman? — indagou ele.
+Era um salão enorme, cheio de homens sem camisa trabalhando no calor e no barulho das máquinas. Deixei o vigia num canto e fui andando pelo salão, ainda com o copo.
 
-— Você não é Hardman? Preciso falar com ele.
+— Ei! Conhece um tal de Hardman? — perguntei a um sujeito que passava.
 
-— O QUE QUER COM HARDMAN? — repetiu, sua mão pesada em meu ombro. Imediatamente, empurrei seu braço para longe.
+Ele negou e foi mexer numa válvula enorme de controle atmosférico.
 
-— Melhor você não encostar em mim, parceiro — ameacei, mantendo o olhar firme no dele.
+Perguntei pra mais uns três. Ou não conheciam ou não tavam nem aí. Onde diabos tinham enfiado esse Hardman?
 
-— Kord — uma voz soou atrás do homem, desviando minha atenção. Virei a cabeça e vi o sujeito franzino e baixo que lutava para operar as alavancas, caminhando em minha direção — Mantenha a calma, amigão.
+— Hardman. Conhece algum? — perguntei a um homem de sobrancelha única.
 
-O grandalhão olhou para o recém-chegado e, com uma expressão severa, deu um passo para trás, liberando espaço para ele se aproximar.
+— Hardman? Conheço. Controle de energia, eu acho.
 
-— O que você quer? — inquiriu ele, enquanto o careca e corpulento se aproximavam.
+— Onde?
 
-— Preciso falar com Hardman — declarei.
+— Atrás das fornalhas.
 
-— Ok, o próprio, o que quer falar comigo? — perguntou o homem menor. Franzi a testa, olhando para os três. Ele era o Hardman? Rosto liso, sem barba, cara de uns trinta momentos. Soltei uma risada, incapaz de controlar a surpresa. As sobrancelhas dele se juntaram no mesmo instante, como se já soubesse a piada que eu faria.
+Contornei as fornalhas onde os homens fabricavam armas. O calor piorou. Do outro lado, tinha uns painéis, alavancas e cabos grossos pendurados do teto. Quatro sujeitos trabalhavam ali. Dois eram enormes, um barbudo e um careca com um olho tatuado nas costas. O terceiro era grande também, de cachos curtos. O quarto mal conseguia fazer peso numa alavanca que devia ter quase o tamanho dele. Parei perto dos grandalhões.
 
-— Qual a graça? — perguntou o pequeno Hardman, claramente irritado.
+— Hardman?
 
-— Nenhuma, desculpa. Alekta me pediu para lhe entregar isto.
+O mais corpulento olhou pro careca. O careca veio até mim, e tive que erguer um pouquinho a cabeça pra encarar a cara do desgraçado.
 
-Retirei do bolso a pulseira que ela me dera e a joguei para Hardman. Ele deixou a pulseira cair no chão. Como puderam confiar num sujeito tão franzino para um trabalho tão crucial?
+— O que quer com o Hardman?
 
-Hardman apanhou a pulseira e a examinou antes de se aproximar, falando baixo o suficiente para que apenas eu pudesse ouvir.
+— Você é ele? Preciso conversar.
 
-— Ela desistiu de tentar fugir? — indagou.
+— O QUE QUER COM O HARDMAN?
 
-— Ela fugiu — sussurrei — Mas foi burra o suficiente pra ser capturada de novo. E por essa razão, pediu que eu viesse aqui para que você nos ajudasse a fugir.
+Pôs uma mão no meu ombro. Tirei a mão dele de lá.
 
-— Sinto muito. Não conte comigo dessa vez — resmungou Hardman.
+— Melhor não encostar em mim, parceiro.
 
-— Então você a ajudou a fugir antes? — perguntei.
+— Kord. Está tudo bem. Deixe-o.
 
-— Eu? Eu nunca fiz isso, ta maluco — advertiu Hardman, apertando os dentes. Ele segurou meu braço e me puxou para longe dos outros, acenando para eles, como se indicasse que estava tudo bem.
+Olhei por cima do ombro do careca. O sujeito da alavanca tinha largado o trabalho e vinha na nossa direção, limpando as mãos num pano.
 
-— Eu não ajudo ninguém. Troco meu tempo de trabalho por uma ferramenta. O que a pessoa vai fazer com a ferramenta não é problema meu.
+Kord deu um passo pro lado, ainda me encarando.
 
-— Posso lhe dar muito ouro. Sou um Dale. E se me ajudar, desta vez, podemos fugir juntos — argumentei.
+— Pois não? — perguntou o menor.
 
-— Entendi. Bom, se quiser, pode ir e se arriscar, eu fico.
+— Tô procurando o Hardman.
 
-— Prefere ficar nessa merda de lugar?
+— Encontrou.
 
-— Sabe quem é o capitão daqui? Estamos falando do Senhor dos Vórtices. Ouvi dizer que ele come os órgãos e bebe o sangue dos rebeldes no café da manhã.
+Olhei pro Kord, depois pros outros dois. Voltei a olhar pro homem na minha frente. Franzino, baixo, cara lisa, devia ter uns trinta momentos. Não consegui segurar a risada.
 
-— Ele não vai comer os seus. São tão pequeninos — ri ironicamente, encarando-o, fazendo Hardman levantar uma sobrancelha — Quero dizer, você tem a chance de ser livre novamente. Alekta disse para encontrá-la no hall de saída em 250 ectons.
+— Qual é a graça?
 
-— Quando falou com ela? — perguntou Hardman.
+— Nada, nada. Achei que Hardman fosse um nome um pouquinho mais...
 
-— Uns 150 ectons atrás — falei.
+Ergui a mão até a altura dos ombros do Kord. Hardman acompanhou o movimento com os olhos e cruzou os braços.
 
-— Contando o tempo que levou pra vir até aqui, você tem uns 100 ectons para estar no hall de saída com ela — calculou Hardman, olhando um relógio improvisado no pulso.
+— Sim?
 
-— Pensei que todos os aparelhos elétricos fossem destruídos ao entrar aqui.
+— Deixa pra lá. A Alekta mandou te entregar isso.
 
-— São. Mas eu construo os meus próprios. Preciso estar atento aos meus horários. Tenho disciplina e preciso me organizar.
+Joguei a pulseira. Ele tentou pegar, mas ela caiu no chão. Olhei pro Kord pra ver se alguém tinha achado graça. Kord não tinha achado. Pelo menos agora sabia qual dos quatro era o cara das máquinas.
 
-— Que tipo de pirata é você?
+Hardman apanhou a pulseira, passou o polegar pela superfície e girou o dispositivo pra examinar a parte interna. O sujeito do cabelo encaracolado chegou a se inclinar pra ver o que era, mas Hardman fechou a mão e veio até mim.
 
-— Eu não sou pirata — Hardman se ofendeu.
+— Ela desistiu de fugir? — perguntou, baixinho.
 
-— Então, o que faz aqui?
+— Fugiu, mas conseguiu ser capturada de novo. Mandou me procurar você pra tirar a gente daqui.
 
-— A mesma coisa que você. Sou um prisioneiro, um escravo, condenado a trabalhar todos os dias até a morte — explicou ele.
+— Lamento. Dessa vez, não.
 
-— Puxa, que maravilha. É assim que quer passar o resto dos seus dias? — perguntei.
+— Então foi você que ajudou ela antes?
 
-— É claro que não é assim que quero passar o resto dos meus dias — ecoou Hardman.
+— Eu? Não diga uma coisa dessas aqui!
 
-— É que não estou acostumado a ver gente tão frágil na minha antiga nave. Os mais fracos sempre eram jogados no espaço. Como você ainda não foi?
+Hardman olhou pros outros e me puxou um pouco pro lado. Fez um sinal pra Kord, que voltou a mexer na alavanca.
 
-— Há coisas muito mais importantes do que músculo, meu amigo — respondeu Hardman — Deve ser novo aqui. Não sabe como as coisas funcionam.
+— Eu não ajudo ninguém a fugir. Troco trabalho por ferramentas. O uso que fazem delas não é da minha responsabilidade.
 
-— Diga isso na hora em que estiver cercado por Adornianos musculosos. Se não tiver força para enfrentar um deles, vira comida.
+— Posso te arranjar ouro. Sou um Dale. Se me ajudar, a gente pode fugir junto.
 
-— Nunca precisei lutar contra Adornianos. Mas já construí armas poderosas para derrotá-los.
+— Entendo. Nesse caso, boa sorte. Eu fico.
 
-— Ah, claro — falei com sarcasmo e, antes que Hardman dissesse algo, continuei: — Então você é um mecânico?
+— Prefere ficar nessa merda?
 
-— Modestamente, sim. Aliás, adorei seu braço, titânio com fibra de carbono para deixá-lo mais leve — comentou Hardman, segurando meu braço de metal e o virando nos dedos para analisá-lo melhor — O que te fez decidir fugir com Alekta? Você realmente confia nela?
+— Sabe de quem é esta nave? Dizem que Tzough come os órgãos dos rebeldes e bebe o sangue deles no café da manhã.
 
-— E por que não confiaria? — perguntei, descontraído.
+— Os teus ele não vai comer. Não dava nem pra forrar o estômago.
 
-Hardman balançou a cabeça e apertou os lábios, com pesar nos olhos.
+Hardman abriu a boca, fechou e apertou os lábios.
 
-— Você não se envolveu com ela, não é? — perguntou ele.
+— Tô dizendo que você pode ser livre de novo. A Alekta quer que eu encontre ela no hall de saída em duzentos e cinquenta ectons.
 
-— Nããão, ela não faz o meu tipo — falei, tentando entender por que ele teria feito tal pergunta — Mas... só por curiosidade, você também não se envolveu com ela, né?
+— Há quanto tempo falou com ela?
 
-— É claro que não — Hardman retorquiu com uma careta — Alekta é esguia como uma cobra. Nestes três momentos que estou aqui aprendi bem a lidar com ela.
+— Uns cento e cinquenta ectons atrás.
 
-— Três momentos nessa merda? — perguntei, surpreso.
+Ele ergueu o pulso e conferiu um relógio improvisado.
 
-— O tempo passa rápido depois que se acostuma — ele respondeu casualmente — Mas sigamos. Alekta está tentando escapar mais uma vez pelo hall de saída. Por que ela insiste no mesmo plano? Os guardas estão bem mais vigilantes agora.
+— Então dispõe de cerca de cem ectons para chegar ao hall.
 
-— Talvez seja por isso que ela precise de você. Acho que você pode elaborar um novo plano. Você conhece bem o pessoal daqui, não é?
+— Ué, não destroem tudo que é eletrônico quando a gente chega aqui?
 
-— Alekta não precisa de ninguém — ele suspirou, desviando o olhar enquanto manipulava a pulseira que eu havia entregado — Ela só pensa em si mesma. Como todos aqui, aliás.
+— Destroem. Por isso construo os meus próprios equipamentos. Preciso saber meus horários. Não gosto de me atrasar.
 
-Hardman soltou um suspiro mais profundo e colocou as mãos nos quadris, seu olhar finalmente encontrando o meu novamente.
+— Que tipo de pirata é você, cara?
 
-— Por falar nisso, já estamos conversando há um bom tempo e eu preciso voltar ao trabalho. Tenho um trabalho pra terminar em meio ecton.
+Hardman endireitou as costas.
 
-— Espere, você precisa nos ajudar nessa, eu posso lhe dar algo... — implorei, revirando as vestes atrás de algo para oferecer. A única coisa de valor era o orbe do Sr. Peron, meu último trunfo, a única coisa que me ligava de verdade à Lebargan. Um Dale de verdade não hesitaria em usar tudo o que tem. Mas não era uma “coisa”: era a memória do velho. Minhas mãos tremeram. Por um instante pensei em revelá-lo, mas hesitei e retirei as mãos vazias dos bolsos.
+— Eu NÃO sou pirata.
 
-— Lamento, mas não posso ir. Boa sorte! — Hardman começou a se afastar, mas o segurei firmemente pelo ombro, impedindo sua partida. Naquele momento, seus três colegas se voltaram em nossa direção e avançaram.
+— Então que porra tá fazendo aqui?
 
-— Olha, eu prometo que, assim que eu escapar, vou encontrar uma maneira de te libertar.
+— O mesmo que você. Sou prisioneiro. Trabalho todos os dias sem remuneração, sob ameaça, até que decidam que já não tenho utilidade.
 
-— Hmm... Desculpe, qual é mesmo o seu nome?
+— E quer passar o resto da vida assim?
 
-— Jasmey — respondi, nervoso.
+— Evidentemente, não!
 
-— Jasmey, homem de promessas vazias, pirata e desonesto… Não posso garantir nada, mas... vou ver o que consigo fazer. Não por você, nem por esperar algo em troca, mas porque gostei do seu braço. Não acho que conseguirá escapar, você parece ter miolos nos braços — ele disse, um leve sorriso surgindo em seu rosto.
+— Na Lebargan, jogavam no espaço quem não aguentava o trabalho. Como é que um cara do teu tamanho conseguiu durar tanto aqui?
 
-— Miolos nos braços? — indaguei.
+— A circunferência do braço não é uma medida de inteligência, rapaz.
 
-— Vou pedir para alguns amigos distraírem os guardas outra vez. Quando você chegar ao hall de entrada, levante a pulseira o mais alto que puder. Farei o possível para limpar o caminho.
+— Diga isso quando tiver cercado de Adornianos querendo te comer.
 
-— Isso, você é um grande homem, Hardman. Mesmo sendo tão pequenino — eu disse, puxando-o para um abraço. Ele se esquivou rápido.
+— Nunca precisei lutar pessoalmente contra um Adorniano. Construí armas capazes de derrotá-los.
 
-— Por favor, não faça isso — ele resmungou, retorcendo o nariz. — Só lembrando que se alguém me perguntar de algo, eu não sei de nada. Se tentarem te matar, não vou impedir. Não temos nada um com o outro. Tenho contatos aqui dentro, então para o seu próprio bem, não mencione meu nome para ninguém.
+— Tá, entendi. Você é mecânico?
 
-— Fica em paz, cara das máquinas. Então, em 100 ectons? Como saberei que é a hora?
+— Modestamente, sim. Aliás, excelente prótese. — Hardman pegou minha mão de metal e a virou com cuidado. — Titânio com fibra de carbono para reduzir a massa. Muito interessante.
 
-— Não se preocupe. Quando todos começarem a correr para uma direção, você seguirá para a parte mais alta da popa da Fera Sideral.
+Passou a ponta dos dedos por uma das juntas e pediu que eu fechasse a mão. Obedeci. Ele ficou acompanhando o movimento dos dedos.
 
-Assenti, vendo-o voltar aos colegas. Encontrei a porta fechada e o pirata nocauteado ainda caído, bocejando inconsciente. Passei por ele e reentrei na nave.
+— Não há folga entre os segmentos. Quem projetou isto tinha um conhecimento considerável de biomecânica.
 
-Percorri de novo os corredores sombrios, quase detectado por dois piratas que cruzaram um corredor perpendicular. Subi as escadas e o elevador me levou de volta ao convés. Na proa, cruzei com um homem arrastado pelos pés, preso a uma corrente, gritando em agonia. Sem hesitar, voltei às pedras e retomei o labor.
+— É, eu pedi pra caprichar.
 
-A ansiedade me consumia e o tempo se arrastava. Carreguei pedras até o toque de mais uma pausa e fiquei num canto, recostado, vendo os homens correrem para dentro da nave atrás de comida.
+Hardman me olhou por um momento. Se tinha acreditado, não demonstrou.
 
-Meus olhos vagaram pelos acorrentados que trabalhavam sob chicotadas e depois subiram às estrelas, à liberdade a meros passos de distância. Eu poderia ir para qualquer uma delas, viver livre depois de eliminar Jelles e libertar todos os Dales que ansiavam por isso. Sonhava com uma nave só minha, navegando sem rumo pela galáxia. Então um estrondo ecoou acima e as velas solares se fecharam de repente. Fui lançado para frente com força avassaladora, junto com outros piratas e objetos soltos no convés.
+De repente, parecia ter esquecido que tava com pressa.
 
-Agarrei-me a uma pilastra com meu braço metálico, salvando-me de um destino terrível. Ao meu redor, outros não tiveram a mesma sorte, projetados violentamente para fora da nave, encontraram a barreira temporal quântica. A intensa força gravitacional do campo os esticou até não dar mais, então os despedaçou, dispersando fragmentos de corpos por todas as direções.
+— E por que resolveu fugir com Alekta? Confia nela?
 
-Quando a força diminuiu, desabei no chão, exausto e aliviado. A nave começava a desacelerar. Todos os piratas correram para a entrada das máquinas, o sinal que eu esperava. Disparei pelo corredor, ultrapassando-os, e subi a escadaria em velocidade frenética, empurrando dois homens que tentaram me interceptar. Cruzei uma ponte e continuei. Foram cento e vinte longos ectons de corrida até o ponto mais alto da proa, por escadas metálicas, algumas sem corrimão, um pesadelo para qualquer acrofóbico.
+— Por que não confiaria?
 
-Diante de mim, uma imensa porta se abriu no chão, revelando uma escadaria para o interior da nave. O vento forte empurrava meus cabelos para trás e eu protegia os olhos com as mãos. Desci enquanto as luzes se acendiam aos poucos, a pulseira de Alekta nas mãos.
+Ele soltou minha mão e fez uma careta.
 
-Ergui a pulseira. Uma luz estranha emanou dela. Cheguei a um vasto salão repleto de naves menores, umas de perseguição, outras de captura, além de tanques espaciais. De repente, uma onda de choque partiu da pulseira e as portas das naves se abriram ao mesmo tempo.
+— Não me diga que se envolveu com ela.
 
-— Mas que merda... foi essa? — murmurei. Senti uma corrente fria de dados percorrer a nave. Não era magia, era Hardman. Aquele gênio franzino criara um dispositivo capaz de abrir qualquer embarcação, como se eu fosse o próprio Capitão Tzough. Todas à minha escolha? Que vantagem! Acelerei e então avistei Alekta, que me observava de longe. Respondi com um sorriso e um aceno e corri em sua direção. De todas as direções, homens armados emergiram e me cercaram. Alekta permanecia imóvel, o olhar fixo em mim, e compreendi a armadilha.
+— Nããão. Não faz meu tipo. Mas, já que tocou no assunto, você comeu ela?
+
+Hardman olhou pros lados tão depressa que achei que alguém tivesse chamado o nome dele.
+
+— Precisa falar desse jeito? Não. Conheço a Alekta há três momentos. Aprendi a manter uma distância segura.
+
+— Três momentos nessa merda?
+
+— O tempo passa mais depressa quando se estabelece uma rotina. Agora, por que ela insiste em usar o hall de saída? A vigilância aumentou desde a última tentativa.
+
+— Por isso ela precisa de você. Não consegue inventar outro plano? Conhece o pessoal daqui.
+
+— Alekta só precisa de Alekta. E só se preocupa com Alekta. Não é muito diferente do restante da população desta nave.
+
+Ele olhou a pulseira de novo. Depois conferiu o relógio.
+
+— E agora estou atrasado. Tenho meio ecton para terminar uma tarefa.
+
+— Pera aí, cara. Posso te dar alguma coisa...
+
+Revirei os bolsos. Tava com o orbe do Sr. Peron, a única coisa de valor que ainda me restava da Lebargan. Cheguei a colocar a mão em volta dele. Um Dale devia saber usar tudo que tinha pra sobreviver, mas eu não conseguia imaginar aquele troço em outras mãos. Tirei a mão do bolso.
+
+— Lamento. Boa sorte.
+
+Segurei o ombro dele quando tentou sair. Os três companheiros ergueram a cabeça ao mesmo tempo. Kord largou a alavanca.
+
+— Se eu conseguir sair daqui, prometo voltar pra te tirar dessa merda.
+
+— Desculpe, qual é o seu nome?
+
+— Jasmey.
+
+— Pois bem, Jasmey. Um pirata que promete riquezas que não tem, liberdade que ainda não conquistou e auxílio que não sabe como prestar. Vou ver o que consigo fazer. Não pelo ouro, nem pela promessa. Gostei do seu braço, embora me pareça que parte considerável dos seus miolos também esteja nele.
+
+— Que história é essa de miolos?
+
+— Vou pedir a alguns amigos que distraiam os guardas. Quando chegar ao hall, erga a pulseira o mais alto possível. Farei o que puder para liberar a passagem.
+
+— Sabia que tu era um grande homem, Hardman. Apesar de tudo.
+
+Olhei pra cima da cabeça dele. Hardman soltou o ar pelo nariz.
+
+Abri os braços pra abraçá-lo. Ele recuou tão depressa que quase bateu no painel.
+
+— Não, obrigado! — Apertou o pano entre os dedos, olhando pros lados. — E, por favor, não mencione meu nome a ninguém. Se for capturado, não nos conhecemos. Não vou intervir. Tenho contatos aqui e pretendo continuar vivo.
+
+— Fica tranquilo, cara das máquinas. Como vou saber quando chegou a hora?
+
+— Quando todos correrem na direção das máquinas, siga para a parte mais alta da popa. E procure não fazer nada além do que combinamos.
+
+Assenti e fui embora. Na porta, encontrei o vigia ainda desacordado. Deixei o copo perto da mão dele. Não era muito, mas pelo menos não ia precisar procurar o copo quando acordasse.
+
+Atravessei os corredores. Quase dei de cara com dois piratas numa passagem, mas consegui chegar à escada. O elevador me levou ao convés. Na proa, um homem era arrastado pelos pés, preso a uma corrente, gritando. Voltei pras pedras antes que resolvessem me arrastar também.
+
+Carreguei pedra até ouvir a trombeta de novo. Dessa vez, deixei todo mundo correr pro refeitório. Fiquei num canto, tentando calcular quanto tempo tinha passado.
+
+Olhei pros homens que continuavam trabalhando sob chicotadas, depois pras estrelas acima do convés. Se conseguisse uma nave minha, ia poder ir pra qualquer uma delas. Depois de acabar com o Jelles e tirar quem quisesse sair da Lebargan, claro. Tava imaginando a porra do nome que daria à nave quando ouvi um estrondo. As velas solares se fecharam de uma vez, e tudo que não tava preso ao convés voou pra frente, inclusive eu.
+
+Agarrei uma pilastra com a mão de metal. Vi outros homens passarem direto por mim e serem lançados contra a barreira temporal quântica. O campo gravitacional os esticou até despedaçá-los. Apertei a pilastra com mais força. Se a Engenheira tivesse reconstruído meu braço original, provavelmente teria acabado de morrer de novo.
+
+Quando a força diminuiu, caí no chão. A Fera tava desacelerando. Os piratas correram pra entrada das máquinas. Era o sinal. Disparei na direção oposta, passei por dois homens que tentaram me segurar e subi a escadaria. Cruzei uma ponte, depois mais escadas de metal, algumas sem corrimão. Levei uns cento e vinte ectons correndo até o ponto mais alto da popa. Nunca tinha sentido tanta falta de uma nave com elevadores funcionando. Quando passei pela última escada, parei um instante pra recuperar o fôlego e olhar pro convés. A multidão que antes se espalhava pelas plataformas tava concentrada junto à entrada das máquinas. Hardman tinha conseguido mesmo.
+
+Uma porta enorme se abriu no chão. Desci pela escada que apareceu, protegendo os olhos do vento, com a pulseira na mão. As luzes foram acendendo conforme eu passava.
+
+Ergui a pulseira. Ela brilhou. Cheguei a um salão cheio de naves de perseguição, de captura e até tanques espaciais. Uma onda partiu da pulseira e as portas das embarcações se abriram ao mesmo tempo.
+
+— Mas que porra...
+
+Olhei pras naves. Todas abertas. O filho da puta do Hardman tinha feito uma chave capaz de abrir a frota inteira! Eu podia escolher a que quisesse. Vi Alekta lá na frente e corri na direção dela, acenando. Aí surgiram homens armados de todos os lados. Ela não se mexeu. Merda.
 
 — Filha de uma...
 
-— Modere a linguagem, Jasmey — Alekta repreendeu, com sarcasmo. — Não queremos adicionar mais um palavrão à sua extensa ficha criminal, não é?
+— Olha a boca, Jasmey. Já se meteu em problema suficiente.
 
-Forcei uma pose de deboche e olhei ao redor, buscando uma saída, sem sucesso. Estava cercado por piratas enfurecidos. Ouvi o som de metal no chão, o mesmo de antes. Nem precisei me virar: o capitão parou diante de mim, os olhos intimidadores cravados nos meus. Ao seu lado estava o homem de moicano vermelho, o mesmo que mais cedo anunciara o almoço. Eu estava sendo capturado por um garçom, e o pior é que o serviço era rápido.
+Procurei uma saída enquanto os piratas se aproximavam. Nenhuma. Ouvi o metal batendo no chão e nem precisei olhar pra saber quem vinha. Tzough parou na minha frente. Ao lado dele tava o sujeito de moicano vermelho que anunciava as refeições. Aquele desgraçado tava sempre presente quando alguma coisa dava errado na minha vida.
 
-— Afaste-se, arquimestre — ordenou o capitão, fazendo com que o homem de moicano recuasse. — Você realmente tem coragem. Ou é muito idiota. Qual seu nome, homem?
+— Dê-nos um pouco de espaço, arquimestre. — Tzough fez sinal para que o homem recuasse. — O nosso convidado parece ter encontrado a saída. Só se esqueceu de pedir licença ao anfitrião. Qual é o seu nome, homem?
 
-— Jasmey Badrock — respondi, encarando-o com firmeza.
+— Jasmey Badrock.
 
-O capitão me avaliou de cima a baixo.
+Ele me examinou, apoiado na perna de metal.
 
-— Parece experiente em batalhas. E um rebelde problemático — comentou ele, virando-se brevemente para Alekta e assentindo. — Afinal, a traidora traiu mais uma vez.
+— Já viu algumas batalhas, pelo jeito. E já aprendeu a não obedecer. — Virou-se para Alekta. — Ora, nossa querida traidora conseguiu trair mais uma vez!
 
-— Às ordens, capitão — disse Alekta, formalmente.
+— Às ordens, capitão.
 
-O capitão voltou-se novamente para mim.
+Tzough estendeu a mão pra pulseira, mas parou antes de tocá-la.
 
-— Planejou tudo isso sozinho, ou teve ajuda, Jasmey Badrock?
+— Diga-me, Jasmey Badrock, foi tudo obra sua? Ou tenho mais alguém a quem agradecer pelo espetáculo?
 
-— Fiz quase tudo sozinho. Contei com uma pequena ajuda daquela moça ali — falei, acenando discretamente para Alekta.
+— Fiz quase tudo sozinho. Tive uma ajudinha daquela moça ali.
 
-— Estou apenas sendo leal ao meu capitão, Jasmey. Não é nada pessoal — disse Alekta.
+— Só tô sendo leal ao meu capitão, Jasmey. Nada pessoal.
 
-— A mulher alegou que você possui habilidades específicas para hackear o sistema de nossa frota de naves — disse o capitão, olhando para a pulseira em minha mão. — Você construiu este dispositivo no pouco tempo que esteve aqui?
+— A moça me contou que você tem uma habilidade extraordinária para invadir o sistema da minha frota. — Ele apontou a pulseira. — Fez esta maravilha durante sua breve visita?
 
-— Foi o mesmo que sua leal ali usou para fugir — respondi, sem desviar o olhar, decidido a não expor Hardman.
+— É o que ela usou pra fugir da nave.
 
-— Não — rebateu o capitão, desmentindo-me com um tom de certeza. — A garota se escondeu em uma das naves que enviei para investigar a anomalia luminosa no planeta. Meus homens disseram que ela tentou fugir quando eles chegaram lá. Ela não possuía nenhuma tecnologia consigo. Esse artefato é criação sua.
+— Não, meu caro. Ela se escondeu numa das embarcações enviadas para investigar a luz no planeta. Meus homens a apanharam tentando fugir de lá. Não encontraram tecnologia alguma com ela. Esta pequena maravilha é sua, então?
 
-Essa mentirosa... Ela havia me enganado sobre sua fuga. E como não encontraram a pulseira com ela? Onde ela poderia ter escondido? Um pensamento sobre o possível esconderijo cruzou minha mente, mas preferi não me ater a ele por ora.
+Alekta tinha me feito de idiota mais uma vez. E onde diabos tinha escondido a pulseira? Me veio à cabeça um lugar, mas achei melhor não perguntar na frente do capitão.
 
-— Dois rebeldes capturados no mesmo dia. Devo oferecer a você a chance de se redimir, como fiz com a garota? Tenho meus momentos de misericórdia com alguns dos meus homens — disse o capitão, soltando uma risada sarcástica. — Diga-me, de onde você vem, Jasmey?
+— Dois rebeldes no mesmo dia! E ainda me perguntam por que não tenho tempo para dormir. Talvez eu possa oferecer-lhe a mesma oportunidade que dei à moça. De onde vem, homem?
 
-— Sou um ex-Dale de Lebargan — respondi.
+— Sou um ex-Dale da Lebargan.
 
-Risadas e murmúrios surgiram ao fundo.
+Uns piratas começaram a rir.
 
-— Homens, qual a graça? — interrompeu o capitão, com escárnio, revelando dentes deteriorados, entre eles um dourado que brilhava sob a luz tênue. — Temos aqui um ex-tripulante de nossa lendária Nastácia. Tão lendária que se tornou um mito para muitos. Diga-me, homem, Lebargan realmente existe?
+— Senhores! Um ex-tripulante da nossa lendária Nastácia! — Tzough sorriu, mostrando um dente de ouro entre os outros. — Não vão estragar a história antes de ouvi-la. Diga-me, homem, a Lebargan existe mesmo?
 
-— É claro que existe, porra. Já disse que sou um ex-Dale. Eu cresci lá — retruquei.
+— Claro que existe, porra. Cresci naquela nave.
 
-As gargalhadas se intensificaram, e o capitão Tzough juntou-se ao coro.
+Os homens riram ainda mais alto. Tzough riu junto.
 
-— Não o matem. Este homem parece ter boas histórias para contar. Quero-o em meus aposentos — disse o capitão, retirando-se enquanto os piratas me seguravam, me jogavam ao chão e, por fim, me nocauteavam.
+— Não o matem. Ainda não. Quero ouvir as histórias desse sujeito nos meus aposentos.
 
-Despertei sendo arrastado por um corredor de luzes tênues. Passamos por uma porta e os homens me largaram abruptamente. Uma enxurrada de água golpeou meu rosto. Ergui-me trôpego, com dor aguda nas costas, como lanças fincadas.
+Ele se afastou. Os piratas me agarraram, me jogaram no chão e alguém me acertou na cabeça.
 
-— Ande — ordenou o arquimestre, empurrando-me corredor adentro. Ao final havia uma porta prateada com painel de leitura de retina, mas ao me aproximar ela deslizou aberta sozinha. Os homens pararam, e eu entrei.
+Acordei enquanto me arrastavam por um corredor. Me largaram no chão e jogaram água na minha cara. Levantei meio torto. As costas doíam no lugar das chicotadas.
 
-O interior era um antro de mistérios, distinto do resto da nave: mapas estelares nas paredes, vasos de plantas carnívoras, um aquário com um peixe de dentes ameaçadores, crânios e garras de criaturas abatidas. No centro, uma mesa imponente com uma tela digital de mapas de sistemas estelares e, suspenso no teto, um enxame de olhos inertes observando tudo. Sobre a mesa, um copo com resquícios de rum, flanqueado por dois armários, um no chão perto da cama e outro ao lado do visor, junto a uma cadeira robusta.
+— Anda — mandou o arquimestre.
 
-Do outro lado da mesa, um vidro amplo mostrava a proa da Fera Sideral e as velas solares. Julguei estar numa das torres centrais, mas ao me aproximar percebi que era um visor.
+No fim do corredor, uma porta prateada com leitor de retina abriu sozinha. Os homens ficaram do lado de fora. Entrei.
 
-— Preciso manter vigilância constante sobre meus homens — confessou o capitão, emergindo das sombras do quarto e se aproximando — um capitão pirata deve estar sempre alerta aos motins. Se não se impor, perde tanto sua tripulação quanto sua nave.
+Não parecia nem que eu tava na mesma nave. Mapas estelares cobriam as paredes. Havia vasos com plantas carnívoras, um aquário com um peixe cheio de dentes, crânios e garras de bichos que eu não reconhecia. Uma mesa enorme exibia mapas dos sistemas estelares e, no teto, um monte de olhos mortos pendurados. Onde eu olhava, tinha alguma coisa olhando de volta. Um dos vasos perto da mesa chegou a fechar as folhas quando passei por ele. Afastei o braço bom. Já tinha perdido um braço, não tava disposto a descobrir o que uma planta faria com o outro. Em cima da mesa, um copo com resto de rum. Do lado da cama havia um armário baixo, e, perto de um visor, outro armário e uma cadeira grande.
 
-Tzough trazia consigo algo que lançou em minha direção. Agarrei no ar e examinei: uma barra de ouro.
+Do outro lado da mesa, um vidro mostrava a proa da Fera e as velas solares. Achei que tivesse chegado a uma das torres, até me aproximar e perceber que era um visor.
 
-— Sabe o que é isso? — indagou ele.
+— Gosto de ver o que os meus homens fazem quando pensam que não os vejo.
 
-— Ouro — respondi — um mineral de grande valor.
+Tzough saiu das sombras. No visor, um dos trabalhadores tinha parado de carregar pedras e apoiado as mãos nos joelhos. O capitão tocou um ponto da tela. Vi um guarda receber um aviso no próprio painel e ir na direção do homem. Tzough observou até que o trabalhador voltasse a erguer a pedra. Aí desligou aquela imagem e voltou a me olhar, como se nada tivesse acontecido.
 
-— E sabe por que ele vale tanto? — indagou o capitão, inclinando-se para frente com interesse.
+— Um capitão que fecha os olhos por tempo demais costuma acordar sem tripulação. Ou não acordar.
 
-— Porque é raro — respondi prontamente.
+Ele jogou alguma coisa pra mim. Peguei no ar. Uma barra de ouro.
 
-— Exato. Ele é raro. Mas sabe por quê? Porque é forjado em supernovas, sob temperaturas e pressões indescritíveis, na explosão cataclísmica de uma estrela. Eventos que duram de milésimos de segundo a meros ectons... Consegue imaginar quão rara é a possibilidade dessa barra existir?
+— Reconhece?
 
-Não respondi. Tzough, então, caminhou até uma cadeira adornada com ornamentos de crânios e ossos, que estava encostada ao lado de um guarda-roupas.
+— Ouro. Vale bastante.
 
-— Mas aqui está ela. O ouro existe, e agora está em suas mãos. Muitos o valorizam como moeda. Para mim, o tesouro não serve para ser trocado: há algo quase mágico em sentir esse metal frio nas mãos, sabendo de onde ele veio. O mesmo valor de ter um Dale em minha tripulação. Eu poderia pensar que você delirava ao dizer ser um Dale, talvez blefasse. Mas percebi que seu coração falava a verdade.
+— E por que vale tanto?
 
-Tzough me encarou e sorriu, deixando-me confuso. Que história era essa de meu coração?
+— Porque é raro.
 
-— Tenho a capacidade de enxergar através da sua pele, ver o ritmo dos seus batimentos e discernir quando você mente. Sei que não foi você quem construiu aquele artefato, mas isso não importa. Poucos escapam vivos da Fera.
+— Exatamente! — Tzough bateu a palma na mesa. — Pense nas estrelas que explodiram. Nas pressões e temperaturas que forjaram este metal em eventos que duram de uma fração de segundo a poucos ectons. Quantas coisas precisaram acontecer para que essa barra acabasse em suas mãos?
 
-— Seus homens já fizeram um motim, “capitão”? — indaguei.
+Virei o ouro entre os dedos. Ele caminhou até uma cadeira enfeitada com ossos e crânios, junto ao guarda-roupa.
 
-— Ah, sim, várias vezes. O último foi Serold, o caolho, que espalhou boatos de que eu escondia ouro e tesouros na cabine. Soube antes que organizasse o motim. Rasguei seu abdômen e forcei os traidores a beberem do sangue. Manchados pela própria traição, os conduzi até a prancha.
+— E ainda há idiotas que trocam tudo isso por uma garrafa de rum. Para mim, o tesouro tem outro valor. Veja de onde veio! Agora imagine ter um Dale em minha tripulação, um pirata que muitos acreditam não existir. Poderia achar que você inventou essa história. Mas seu coração me disse o contrário.
 
-— Prancha? — perguntei.
+Olhei pra barra de ouro. Depois pro velho.
 
-— Não me surpreende não conhecer as tradições — o capitão pareceu desapontado, jogando sua arma sobre a mesa à sua frente. Eu poderia muito bem pegá-la e tentar usá-la contra ele, mas mesmo se tentasse, não sairia vivo dali — Já ouvi muitas histórias sobre a Lebargan, seu sistema e sua capitã. A velha Nastácia. Deixe-me deixar algo bem claro: vocês não são piratas.
+— Esta lente me permite ver através da pele, observar seus batimentos, notar quando tenta me enganar. Sei que não construiu aquele dispositivo. Não é o que me interessa, por ora. Poucos escapam vivos da Fera.
 
-— Ah não? Saqueamos, temos uma nave e uma bandeira. Precisamos de mais alguma coisa? — perguntei.
+— Já tentaram tomar tua nave, capitão?
 
-— A lenda da Lebargan. Uma canção de ninar para crianças mimadas. Vocês se chamam piratas, mas se agarram a irmãozinhos e regras — Ele gesticulou para o caos ao redor — Aqui, não há luxo. Só o medo. Olhe para a sujeira, para os chicotes. Aqui, a galáxia nos conhece. Vocês são um mito que foge, nós somos a realidade que devora — provocou o capitão.
+— Muitas vezes, meu caro! Ah, o último... Serold, o caolho. Espalhou a história de que eu escondia ouro aqui. Antes que pudesse organizar seu motim, abri-lhe o ventre e fiz os outros beberem de seu sangue. Depois, levei os traidores à prancha.
 
-Eu já não era mais um Dale, mas sabe quando alguém insulta seu irmão, e você se irrita, mesmo tendo feito o mesmo antes? Aquela regra de “Eu sou irmão, portanto posso” aplicava-se perfeitamente aqui.
+Ele parou de falar e sorriu, como quem se lembra de uma noite especialmente agradável. Não parecia estar tentando me impressionar com aquela história. Parecia querer contá-la de novo só pelo prazer de lembrar.
 
-— Os Dales são os maiores piratas que já existiram — afirmei com convicção.
+— À prancha?
 
-— Foi o que disseram para você? Vocês vivem no lixo de um sistema comunista, criam hábitos e disciplinas que me dão náuseas, e, pior de tudo, seguem a pior vadia que todos os cinco espaços já conheceram. Vocês se autodenominam piratas... quando, na verdade, são apenas um bando de crianças perdidas.
+— Ah, os jovens! Ninguém mais ensina as boas tradições. — Jogou a pistola sobre a mesa. — Ouvi bastante sobre a Lebargan e a velha Nastácia. Vocês, meus caros Dales, não são piratas.
 
-— Pelo menos temos necroriano a todo instante — respondi — desde que cheguei, não me ofereceram nem um gole de rum.
+— A gente saqueava, tinha nave e bandeira. Tá faltando o quê?
 
-Tzough me observou e, em seguida, sorriu. Levantou-se e pegou uma das garrafas nos armários ao chão, ao lado da cama. Abriu-a e despejou o conteúdo no copo sobre a mesa. Ao enchê-lo, estendeu o braço em minha direção e acenou para que eu pegasse o copo. Apanhei-o de sua mão e o virei na boca, saboreando o gosto da vida mais uma vez, enquanto o líquido descia por minha garganta. Era, verdadeiramente, maravilhoso.
+— Olhe para vocês! Irmãozinhos, horários, regras. Uma colônia de crianças obedientes. — Tzough apontou para o visor, onde homens trabalhavam no convés. — A minha bandeira é conhecida em toda parte. Quando a Fera aparece, os homens rezam. Quando a Lebargan aparece... bem, ninguém sabe se ela apareceu.
 
-— Diga-me como vai a Lebargan, depois do ataque?
+Porra. Passei tanto tempo xingando aquela nave e foi só esse sujeito abrir a boca pra eu sentir vontade de defendê-la.
 
-Ataque? Como ele sabia que tínhamos sido atacados?
+— Os Dales são os maiores piratas que já existiram.
 
-— Este olhar de surpresa — disse o capitão — Lembro-me bem de tê-la em minha mira. Foi extremamente fácil encontrá-los. Poderia ter abordado e subjugado vocês com simplicidade, mas isso parecia pouco desafiador. Apenas uma barreira de proteção? Como conseguiram sobreviver por tanto tempo?
+— Foi o que ensinaram na escolinha? Vocês vivem num sistema comunista, obedecem a hábitos que me dão náuseas e seguem a maior vadia dos cinco espaços. Piratas! — Ele soltou uma gargalhada. — São crianças perdidas.
 
-Então, era ele o responsável pelo ataque a Lebargan. Sua nave havia atingido a capitã Nastácia, deixando-a em coma. Aparentemente, ele não estava ciente de que havia atingido a capitã.
+— Pelo menos na Lebargan tem necroriano. Desde que cheguei aqui, ninguém me ofereceu um gole.
 
-— Você subestima as armas de Lebargan — afirmei com convicção.
+Tzough me olhou por um instante e começou a sorrir. Foi até o armário junto à cama, tirou uma garrafa e encheu o copo que tava na mesa.
 
-— E vocês, conhecem o arsenal que possuo? Uma nave paralisada no tempo, de eficiência lamentável. Meus homens se dedicam em todas as voltas, horas e ectons. Vivem pelo trabalho, não trabalham para viver. O que alcançamos em poucas voltas, vocês demoram momentos. É assim que nos tornamos poderosos. Diga-me então, Jasmey. Por que você serve a Lebargan?
+— Mas que falta de educação a minha!
 
-— Não os sirvo mais. Sou livre agora — respondi firmemente.
+Estendeu o copo com a mão aberta por baixo, como se estivesse me oferecendo uma joia. Peguei e virei de uma vez. O velho ficou olhando pro copo vazio. Depois pra garrafa, que ainda segurava na outra mão. Puta merda, aquilo era bom. Tinha valido a pena sair de Dekraaz só por aquele gole.
 
-— Livre? Não parece — zombou o capitão.
+— E como vai a Lebargan depois do ataque?
 
-Tzough pensou que eu seria apenas mais um de seus prisioneiros. Ele estava completamente enganado. Talvez a minha proposta pudesse interessá-lo, afinal ele gostava de colecionar troféus:
+Parei de olhar pra garrafa. Ataque?
 
-— Há algo que pode fazer Lebargan redimir-se aos seus olhos.
+— Ah! Essa cara! — Tzough se inclinou na cadeira, satisfeito. — Lembro-me muito bem de tê-la na mira. Uma barreira de proteção, só isso? Podia tê-la abordado com a maior facilidade. Não teria sido muito divertido, confesso. Como sobreviveram tanto tempo?
 
-O capitão me encarou com um olhar intrigante.
+Então tinha sido ele. O filho da puta tinha atingido a Lebargan e deixado a Nastácia em coma. Pelo jeito, nem sabia que tinha acertado a capitã.
+
+— Você não conhece as armas da Lebargan.
+
+— E vocês conhecem as minhas? A sua nave ficou parada no tempo. Meus homens trabalham a cada volta, a cada hora, a cada ecton. O que faço em voltas, vocês levam momentos para fazer. É por isso que a Fera cresce. Agora, diga-me: por que serve à Lebargan?
+
+— Não sirvo mais. Sou livre.
+
+Tzough olhou para a porta por onde eu tinha entrado.
+
+— É mesmo?
+
+Olhei pros troféus espalhados pelo quarto. O velho tinha uma fraqueza. Eu precisava fazer com que olhasse pra mim e enxergasse alguma coisa mais valiosa do que um crânio pra pendurar no teto.
+
+— Sei de uma coisa que talvez faça você mudar de ideia sobre a Lebargan.
+
+Ele girou o copo vazio entre os dedos.
 
 — Já ouviu falar da Aurora?
 
-— Ora, então você conhece uma de nossas lendas. Talvez eu devesse consagrá-lo como o novo capitão da Fera após isso — ele riu, observando-me atentamente.
+— Ora! A criança conhece as nossas lendas! Devemos passar-lhe o chapéu de capitão imediatamente?
 
-— E se, por acaso, ela existisse? — provoquei. O capitão manteve o olhar fixo em mim, o sorriso desaparecendo de seu rosto.
+— E se a Aurora for real?
 
-— O que quer dizer com isso?
+O velho parou de rir.
 
-O ponto fraco de um capitão pirata: as velhas lendas, as histórias antigas, os tesouros perdidos.
+— Continue.
 
-— A Aurora é real. E os Dales têm um mapa que os levará até ela.
+Aí tava. Não conheço pirata que não queira ouvir uma história sobre tesouro.
 
-O capitão me encarou intensamente, como se tentasse ver através de mim.
+— A Aurora existe. Os Dales têm um mapa pra chegar até ela.
 
-— Está tentando descobrir se estou mentindo, não é? Mas asseguro-lhe, eu não sou mais um Dale. Fui traído. Se me permitir fazer parte de sua tripulação, posso ajudá-lo a conquistar Lebargan e, em seguida, buscar a Aurora.
+Tzough me encarou. A lente vermelha tava apontada diretamente pra mim.
 
-Tzough me observou por um momento, então soltou uma risada alta.
+— Não sou mais um Dale. Fui traído. Se me aceitar na tripulação, posso ajudar a tomar a Lebargan. Depois, a gente vai atrás da Aurora.
 
-— Quer fazer parte da minha tripulação? — A risada evoluiu para uma gargalhada que o fez tossir e engasgar-se — Por que eu preferiria ter você na minha tripulação em vez de ter sua cabeça pendurada em minha parede? Apenas por uma informação?
+Tzough ficou quieto por um tempo. Aí começou a rir.
 
-— A Lebargan é perigosa pelo tamanho e pela capacidade de ataque, mas justamente o tamanho a torna fácil de detectar — expliquei, caminhando até a mesa, onde estava o mapa dos sistemas estelares. — Por isso você a encontrou no passado. Mas seu ataque não causou nem um arranhão. Sabe por que ela sempre se mantém oculta? As pessoas temem o desconhecido, as lendas, o que não podem ver. — Captei por inteiro a atenção de Tzough, que se levantou e veio à mesa, do lado oposto ao meu. — Ninguém conhece seu verdadeiro poder. Já vi a Lebargan destruir estações espaciais inteiras com um único disparo, já vi planetas consumidos por ela. É uma fortaleza de raridade inigualável, um troféu que valeria muito mais do que a cabeça de um Dale. Passei minha vida inteira nela, conheço cada canto. Como pirata, você entende esse desejo, e por isso digo que posso ajudá-lo a conquistá-la. E depois, vamos atrás da Aurora.
+— Aceitá-lo na minha tripulação? — A gargalhada fez o velho tossir. — Dê-me uma boa razão para não pendurar sua cabeça na parede e aproveitar a informação que acabou de me dar.
 
-Tzough olhou para o mapa no visor, onde o símbolo da Fera Espacial piscava próximo à estrela chamada Amonar. Ele então virou-se para mim, erguendo as sobrancelhas.
+Fui até a mesa dos mapas.
 
-— Então você, um ex-Dale, vai me ajudar a tomar a Lebargan para que eu assuma o comando? Por que eu deveria confiar em você?
+— A Lebargan é enorme. Por isso você conseguiu encontrar ela. Mas o teu ataque não fez estrago nenhum na estrutura da nave. Ela se esconde porque as pessoas têm medo do que não conhecem. Já vi aquela porra destruir estações espaciais inteiras com um disparo. Já vi planetas serem consumidos por ela. Você gosta de troféus, não gosta?
 
-— Porque a Lebargan necessitará de um novo capitão quando eu matar o Jelles — respondi prontamente.
+Tzough se levantou e veio pro outro lado da mesa.
 
-— Jelles? — indagou o capitão com uma sobrancelha erguida — quem é Jelles?
+— Imagina ter aquela nave na tua frota. Conheço cada corredor dela. Posso te ajudar a tomar a Lebargan. Depois, a gente vai atrás da Aurora.
 
-— Há alguns meados de momentos, a capitã foi traída e brutalmente assassinada — inventei rapidamente — por um homem chamado Jelles. Ele é o novo capitão, o homem que tentou me matar. A Lebargan está vulnerável agora, os Dales não confiam em Jelles. Se me aceitar em sua tripulação, te guio até a Lebargan, e quando chegarmos a ela, me encarrego de matar o capitão.
+Ele olhou pro mapa. O símbolo da Fera Sideral piscava perto de uma estrela chamada Amonar.
 
-— E após matar o capitão, você não desejará assumir o seu lugar? Poucos homens abririam mão de tal poder tão facilmente.
+— E deixaria que eu assumisse o comando de sua antiga casa? Por que haveria de confiar num Dale?
 
-— Meu único interesse é Jelles, capitão. Ele possui uma chave que controla o acesso a toda Lebargan. A maior nave a cruzar a matéria escura. Após matá-lo, a chave será sua.
+— Porque a Lebargan vai precisar de um capitão novo quando eu matar o Jelles.
 
-— Você é um sujeito engraçado, Jasmey Badrock. Ao mesmo tempo que vejo que fala a verdade, algo me diz que não é de confiança. Pode não ser um pirata, mas parece ter o espírito de um.
+— Jelles? Que sujeito é esse?
 
-— Então, posso contar com sua confiança? — perguntei.
+— Há alguns meados de momentos, um homem chamado Jelles traiu e matou a capitã. — Inventei aquilo na hora, tentando não pensar demais na lente vermelha. — Ele assumiu o comando e tentou me matar também. Os Dales não confiam nele. Posso te levar até a Lebargan e acabar com o desgraçado.
 
-Tzough me encarou silenciosamente por longos segundos, depois virou-se lentamente e caminhou até o seu guarda-roupa ao fundo do cômodo, parando diante dele.
+— E você não se sentaria na cadeira dele? Poucos homens abririam mão de tamanho poder.
 
-— Sabe o que guardo aqui dentro, homem?
+— Quero o Jelles, capitão. Ele tem uma chave que dá acesso à Lebargan inteira. A maior nave a cruzar a matéria escura. Quando eu matar ele, a chave é tua.
 
-— Talvez o seu pijama — palpitei.
+Tzough sorriu de canto.
 
-Tzough puxou a porta e, ao abri-la, um esqueleto caiu para frente, parando no ar, suspenso por uma corda amarrada aos ossos do pescoço. Os ossos, completamente escurecidos pela idade, balançaram suavemente.
+— Que sujeito interessante. Há verdade no que diz e, ainda assim, não confio em você. Talvez haja um pirata aí dentro, afinal.
 
-— Suponho que já tenha ouvido falar no capitão Tatch, também conhecido como o Diabo Negro. Enforcado aqui mesmo, por minhas mãos. Um de meus maiores troféus.
+— Então temos um acordo?
 
-O Diabo Negro estava morto? As histórias sobre suas façanhas eram comuns nas missões. O homem que tinha espalhado a pirataria pelo espaço. Ele só podia estar blefando.
+Ele não respondeu. Andou até o guarda-roupa no fundo do aposento e parou com a mão na porta.
 
-— Ele me tirou algo muito precioso — Tzough continuou, levantando a barra da calça para mostrar um toco de metal no lugar do pé. — Por causa desse maldito, preciso encaixar uma perna metálica toda vez que saio da cabine. Diziam que o Diabo Negro escolhia suas presas e que os inimigos simplesmente lhe entregavam as naves, que torturava homens até chorarem sangue. Encontrei Tatch pela última vez perto do buraco negro Garganta do Diabo. A nave negra surgiu junto ao disco de acreção e invadiu a Fera. Os homens dele degolavam os meus, olhos arregalados, línguas cortadas, assassinos treinados. Eu sabia que perderíamos a menos que destruísse o coração da ofensiva. Lutamos por horas, do convés aos mastros das velas solares, em meio às tempestades do disco. Quando ele me emboscou numa das torres, avancei e o perfurei na garganta. A tripulação, abalada, largou as armas e se rendeu: eram mais numerosos, mas sem o capitão perderam a razão de lutar. Assisti, imóvel, a cada um marchar obediente rumo à prancha e se lançar à Garganta do Diabo. Então pendurei o capitão no guarda-roupa, um lembrete constante sobre minha essência. Sou o capitão Tzough, o mais temível pirata que os mares já testemunharam. Pode-se questionar meu nome, Jasmey, mas jamais meus feitos. — Sacudiu o esqueleto diante de mim. — O cadáver fedeu por horas e os ossos começaram a cair, mas fiz questão de juntá-los. Quero-os exatamente nessa posição até a hora da minha morte.
+— Sabe quem guardo aqui, homem?
 
-Tzough então puxou uma corda escondida dentro do armário, fazendo o esqueleto recuar para as sombras do móvel, e amarrou a ponta da corda na maçaneta interna, fechando a porta com um baque surdo.
+— Teu pijama?
 
-— Se deseja negociar comigo, Jasmey, esteja à vontade, mas jamais se esqueça de quem eu sou.
+Tzough virou a cabeça bem devagar na minha direção.
 
+Abriu a porta. Um esqueleto caiu pra frente, preso por uma corda nos ossos do pescoço. Os ossos escuros balançaram de um lado pro outro. Tzough segurou a corda e fez o esqueleto girar na minha direção.
+
+— Meu caro, cumprimente o nosso convidado.
+
+Esperou um instante, olhando pro esqueleto.
+
+— O capitão Tatch! O Diabo Negro! Imagino que dispense apresentações.
+
+O Diabo Negro tava morto? Passei a vida ouvindo histórias sobre o sujeito que tinha espalhado a pirataria pelo espaço. Olhei pro esqueleto. Como diabos ia saber se era mesmo ele?
+
+— Tirou-me uma coisa muito preciosa, veja.
+
+Tzough ergueu a barra da calça e me mostrou o metal onde devia ter um pé.
+
+— Toda vez que preciso sair destes aposentos, tenho de encaixar a perna metálica. Uma lembrança dele. Diziam que bastava o Diabo Negro aparecer para os homens entregarem suas naves. Que torturava os inimigos até chorarem sangue. Pois bem! Encontrei-o junto à Garganta do Diabo. A nave negra saiu perto do disco de acreção e nos abordou. Os homens de Tatch eram assassinos treinados. Degolavam os meus homens, com uma eficiência admirável. Percebi que só venceria se acabasse com o capitão.
+
+Ele começou a caminhar pelo aposento, gesticulando com as mãos.
+
+— Lutamos por horas. Pelo convés, pelos mastros das velas solares, no meio das tempestades do disco. O maldito me emboscou numa das torres. Veja, homem, bem aqui!
+
+Tzough apontou para a própria garganta.
+
+— Perfurei-o. Os piratas dele eram mais numerosos, mas perderam a vontade de lutar junto com seu capitão. Largaram as armas. Assisti a cada um caminhar até a prancha e desaparecer na Garganta do Diabo.
+
+Voltou para junto do esqueleto e tocou-lhe a mandíbula.
+
+— O capitão ficou comigo. Enforquei-o aqui, com minhas próprias mãos. Fedeu por horas, perdeu uns ossinhos pelo caminho, mas fiz questão de guardar cada um. Até morrer, quero encontrá-lo nessa mesma posição. Sou o capitão Tzough, o mais temível pirata que estes mares conheceram. Questione meu nome, se quiser. Jamais meus feitos.
+
+Puxou a corda, fez o esqueleto recuar pro fundo do armário e amarrou a ponta na maçaneta interna. A porta bateu.
+
+— Quer negociar, Jasmey Badrock? Pois negociemos. Mas não se esqueça de quem está sentado do outro lado da mesa.
