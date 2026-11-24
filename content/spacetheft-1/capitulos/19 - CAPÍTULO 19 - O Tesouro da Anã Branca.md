@@ -1,488 +1,509 @@
-Eu já estava quase cochilando quando Buni me cutucou.
+Depois que Hardman e Kord terminaram de reabastecer o circuito de refrigeração, voltamos à dobra. Passei o restante do percurso revezando o comando com Eric. Tava quase dormindo quando Buni me cutucou.
 
-— Hm? — murmurei, sem vontade nenhuma de abrir os olhos.
+— Hm?
 
-— Saímos da nebulosa… — Buni sussurrou, hesitante.
+— Saímos da nebulosa, Jasmey.
 
-— Ótimo. Me avisa quando encontrarmos o tesouro. — Virei para o outro lado, mas a irritante voz de Hardman já se manifestava.
+— Ótimo. Me avisa quando encontrarmos o tesouro.
 
-— Olha só isso, já tô de boca aberta.
+Fechei os olhos de novo.
 
-Antes que ele terminasse, a Princesa do Inverno tremeu levemente, os sensores piscando como vaga-lumes nervosos. A vista diante de nós começou a se abrir, revelando uma estrela anã branca, brilhante como uma lâmpada de mil watts esquecida acesa.
+— Jasmey, venha ver isto — disse Hardman.
 
-— Bem, olha só. Estamos indo em direção a uma estrela — murmurei, esticando os braços.
+Abri um olho. Os sensores da Princesa do Inverno começavam a recuperar a leitura do espaço ao redor. Uma luz branca entrou pelo visor antes que os filtros se ajustassem. Era uma anã branca.
 
-— Os sensores indicam um planeta — retrucou Eric, seco. — Mas ainda não conseguimos fazer a leitura dele. Pode ser que nem sequer tenha chão firme.
+— Bonita. E o planeta?
 
-O Olho do Domongo pulsava em cima da mesa, a projeção riscando o espaço em direção à anã branca.
+— Os sensores detectaram um — respondeu Eric, no comando. — Ainda não conseguimos uma leitura da superfície.
 
-Enquanto a Princesa do Inverno deslizava pelo espaço, a tensão na cabine se dissipou num silêncio pesado. Até Eric e O’reilly pareciam cansados demais para continuar o embate verbal.
+O Olho do Domongo pulsava sobre a mesa. O feixe apontava na direção da estrela.
 
-A anã branca queimava ao longe como um farol solitário, e a luz dela criava sombras instáveis na cabine conforme a nave girava para se alinhar com a rota indicada pelo Olho do Domongo.
+Eric ajustou a proa, mantendo a trajetória indicada pelo olho. Fiquei observando os movimentos dele. O sujeito tinha passado parte da viagem estudando os controles da Princesa e finalmente conseguia usar aquelas funções sem perguntar nada ao Hardman.
 
-— O planeta dá a volta na estrela em onze horas — disse Hardman, sem tirar os olhos dos instrumentos. — Um momento inteiro dura menos que uma noite de sono.
+A luz da anã branca entrou pelo visor e se espalhou pelos painéis prateados. Eric conferiu a rota mais uma vez. Tinha descoberto que podia alterar a distribuição das informações nos monitores do segundo comando e passou boa parte da última volta me mostrando as vantagens daquilo. Admiti que facilitava a leitura dos indicadores de dobra. Não contei que já tinha reorganizado os meus também.
+
+— O período orbital do planeta é de onze horas — disse Hardman. — Um momento inteiro dura menos que uma noite de sono.
 
 — E o aniversário? — perguntou Kord.
 
 — Quando quiser. Hoje, se preferir.
 
-— Em volta de uma anã branca só sobra o que a estrela não quis — completou Hardman. — Parece um Silêncio.
+— Em volta de uma anã branca, normalmente encontramos o que restou da evolução da estrela. Este sistema parece um Silêncio.
 
 — Não começa — resmungou Kord.
 
-— Bom, já que ninguém vai morrer nos próximos ectons, acho que posso cochilar. — Cruzei os braços atrás da cabeça.
+— Bom, me acordem se alguém encontrar uma taverna.
 
-— Aproveite, porque pode ser seu último cochilo — murmurou Kord, sem levantar os olhos do painel.
+— Pode deixar. A gente te deixa aqui se não encontrar — disse Kord.
 
-Vivian, sentada perto da escotilha, observava o espaço à espera de algo. Ela olhou para mim e ergueu as sobrancelhas: Você não está curioso?
+Vivian apontou pro vidro e ergueu as sobrancelhas na minha direção. Levantei da cadeira.
 
-Eu suspirei.
+— Tá bom, querida. Tô olhando.
 
-— Qualé. O espaço não tem nada além de planetas mortos e buracos negros querendo nos engolir. Não tem nada de...
+— O espaço tá cheio de planetas mortos, rochas e buracos negros. Não pode ser tão...
 
-— Ali está ele — anunciou O’reilly.
+— Ali — interrompeu O’reilly.
 
-— Desligue o motor de dobra imediatamente — ordenou Hardman, e Eric o fez.
+— Eric, saia da dobra — pediu Hardman.
 
-Quando virei meu rosto, avistei uma bola se aproximando de nós. Um planeta. Só que esse planeta... não se parecia com nada que já havíamos visto antes.
+Eric executou a manobra e manteve a Princesa alinhada ao planeta.
 
-Ele não tinha uma cor definida. Mudava conforme o ângulo da luz: azul metálico, dourado líquido, violeta profundo, prateado esverdeado, depois algo completamente indescritível.
+A esfera apareceu no visor. Puxei a cadeira pra mais perto do vidro. Nunca tinha visto um planeta daquele jeito.
 
-O’reilly foi o primeiro a falar:
+A cor mudava conforme a posição da nave em relação à anã branca. Uma região azul metálica se transformou em dourado, depois em violeta. Mais perto da borda, o brilho era prateado e verde. Nem conseguia dar nome à cor de algumas partes.
 
-— O planeta é como um arco-íris metálico?
+O’reilly se inclinou sobre o painel.
 
-— Parece vidro molhado — comentou Buni, ainda encarando o planeta sem piscar.
+— Parece um arco-íris de metal.
 
-— Não, não, é mais como... como a superfície de óleo misturada com metal — murmurou Hardman, franzindo a testa.
+— Parece vidro molhado — disse Buni.
 
-— Então basicamente um planeta feito de lixo industrial — acrescentei.
+— A reflexão lembra uma película de óleo sobre metal — comentou Hardman, ajustando o espectrômetro.
 
-— Acho que você está em casa Badrock — disse Eric, não perdendo a oportunidade de me insultar.
+— Então encontramos um planeta de lixo industrial.
 
-E eu tinha que admitir, o planeta tinha algo estranhamente hipnótico. Sua superfície se transformava a cada movimento da nave. Não era sólido, mas também não parecia gasoso.
+— Finalmente encontrou teu lugar, Badrock.
 
-— Nunca vi algo assim antes — disse Hardman, quase num sussurro.
+Passei a mão pelo painel de navegação. A superfície não me dava nenhum ponto de referência. O brilho mudava conforme avançávamos, e as regiões que pareciam sólidas num momento pareciam líquidas no seguinte.
 
-Olhei para o Olho do Domongo. O feixe projetado que saía dele estava fixo no planeta, como se dissesse: Sim, é esse lugar. Se virem.
+— Nunca observei algo semelhante — disse Hardman.
 
-Suspirei.
+Olhei pro Olho do Domongo. O feixe continuava apontando pro planeta.
 
-— Bom, chegamos, senhores.
+— Eric, passa o comando.
 
-— Não me parece muito grande. Pequeno para um planeta, mas grande para um asteroide — comentou O’reilly, coçando a barba.
+— Ah, claro. Agora que chegamos, o grande piloto quer pousar.
 
-— Assim como seu cérebro — acrescentei, me espreguiçando.
+— O plano era esse. Tu fez um bom trabalho até aqui.
 
-— Ah, claro, e quem é que ativou o bracelete e pode ter condenado todo mundo? — Ele cruzou os braços, com ar presunçoso.
+Ele me olhou como se esperasse uma ofensa. Não veio. Eric levantou, foi pro segundo comando e abriu as leituras de massa.
 
-— Quando sua vida corre risco o tempo todo, somos obrigados a agir estrategicamente, O’reilly. Mas você não entende esse conceito.
+— Pequeno pra um planeta, grande pra um asteroide — comentou O’reilly.
 
-— Estrategicamente? Sua versão de estratégia é jogar as fichas na mesa e rezar pra não morrer.
+— E ainda não sabemos se dá pra pousar — disse Eric. Ele ampliou a região onde os sinais do radar pareciam mais estáveis. A imagem se desfez em várias manchas de cor. Eric tentou outra leitura e xingou baixinho.
 
-— E tem funcionado até agora.
+— Por isso vamos dar uma volta antes de descer.
 
-Hardman bufou, passando as mãos pelo cabelo como uma mãe exausta.
+— Duas — corrigiu Eric. — Quero comparar as leituras do outro lado.
 
-— Calem a boca vocês dois e vamos nos concentrar no planeta.
+— Duas, então.
 
-Desaceleramos em duas rotações em torno do planeta e começamos a descer.
+Hardman olhou pra nós dois, depois pros instrumentos.
 
-A luz da anã branca refletia no casco da Princesa do Inverno, num contraste absurdo entre claridade extrema e escuridão absoluta. Do lado da estrela, era como mergulhar numa lâmina de prata líquida. Do lado oposto, o universo era só um abismo negro pontilhado de estrelas.
+— Finalmente uma conversa produtiva.
 
-— Isso tá me dando dor de cabeça — murmurou O’reilly, apertando os olhos.
+Completei duas órbitas, reduzindo a velocidade aos poucos enquanto Eric comparava os dados. Escolhi uma região de menor incidência de luz, onde os sensores conseguiam distinguir o limite entre atmosfera e superfície.
 
-— Não ouse vomitar na minha nave — retruquei.
+Mesmo com os filtros, a luz refletida pelo planeta doía nos olhos. Do outro lado, o céu era preto.
 
-— Sua nave? — riu Kord.
+— Isso tá me dando dor de cabeça — disse O’reilly.
 
-Vivian bateu os dedos contra o vidro da cabine, chamando nossa atenção. Ela apontou para o horizonte curvado do planeta, onde algo estranho acontecia.
+— Se for vomitar, pega uma sacola. Não suja minha nave.
 
-Havia uma tênue névoa flutuando acima do solo, quase invisível contra o brilho da anã branca.
+— Tua nave? — Kord soltou uma risada. Eric virou a cabeça.
 
-Hardman ajustou os filtros espectrais, e os sensores da nave começaram a cuspir informações.
+Vivian bateu os dedos no vidro e apontou pro horizonte. Uma névoa fina acompanhava a curvatura do planeta.
+
+Hardman ajustou os filtros espectrais.
+
+As leituras apareceram no painel:
 
 “Superfície: composição desconhecida, altamente refletiva. Atmosfera: rarefeita, com traços de sódio e potássio. Pressão: baixíssima, trajes obrigatórios. Gravidade: 1,2.”
 
-— 1,2 num planetinha desses? Que porra é essa? — murmurei.
+— Um planetinha desse com gravidade de 1,2? Que porra tem aí dentro?
 
-— Precisamos dos trajes — Hardman rebateu.
+— Não sabemos. Precisaremos dos trajes.
 
-A luz da anã branca refratava nas partículas de sódio e potássio da atmosfera, espalhando tons dourados e esverdeados pelo céu pálido..
+A luz da estrela atravessava a névoa e espalhava tons dourados e esverdeados sobre a superfície.
 
-A gravidade aumentava gradativamente, puxando a Princesa do Inverno. Tivemos que manter os estabilizadores ativos para a nave não ser sugada direto para o solo.
+Senti a atração aumentar à medida que descíamos. Os estabilizadores começaram a compensar, mas uma das leituras oscilou. Reduzi a potência de descida, corrigi a inclinação e deixei Eric ajustar a compensação no segundo comando.
 
-— O que vocês acham que tem lá embaixo? — perguntou Buni, observando com olhos arregalados.
+— O que será que tem lá embaixo? — perguntou Buni.
 
-— Além do gerbe? Talvez uma casa de praia só pra mim — retruquei.
+— Além do gerbe? Espero que um lugar firme pra pousar.
 
-— Ou talvez... alguma coisa que não quer ser encontrada — murmurou O’reilly.
+— Ou alguma coisa que não quer ser encontrada — disse O’reilly.
 
-— E se a superfície for um oceano? — perguntou Buni, franzindo a testa enquanto analisava os dados no monitor. — E se isso tudo for algum tipo de líquido estranho?
+— E se for água? A gente não tá vendo onda nenhuma.
 
-— Se fosse um oceano, estaríamos vendo ondas — rebateu Eric. — Isso parece... sólido. Mas nunca vi algo assim.
+— Os sensores indicam uma superfície sólida — respondeu Eric. — Mas a composição...
 
-— Porque não existe nada assim — Hardman murmurou, fascinado. Ele ajustou os sensores. — A composição desse material... é desconhecida.
+— Continua desconhecida — completou Hardman.
 
-A superfície não tinha crateras, erosão, montanhas, nenhuma fenda, nada que denunciasse um ciclo geológico. Era lisa. Perfeita.
+Não vi cratera, montanha ou sequer uma fissura que pudesse usar de referência na descida. O chão parecia polido de um horizonte ao outro.
 
-— Isso não faz sentido — Hardman continuou. — Mesmo os planetas mais mortos têm alguma irregularidade na superfície. Esse aqui parece que foi... moldado.
+— Mesmo um planeta geologicamente inativo preservaria alguma irregularidade — disse Hardman. — É como se esta superfície tivesse sido moldada.
 
-— Ou reconstruído — acrescentou Kord, pensativo.
+— Ou reconstruída — disse Kord.
 
-A Princesa do Inverno atravessou as últimas camadas de gases finos e começou a desacelerar. O solo cintilante se aproximava, uma imensidão holográfica, reluzente e alienígena.
+Atravessamos a névoa. O indicador de distância começou a variar sem relação com o nosso movimento. Eric prendeu a respiração.
 
-A sombra da nave se projetou na superfície conforme descíamos, e pela primeira vez percebi algo assustador:
+— Badrock, o sensor tá dando duas alturas diferentes.
 
-A sombra da nave não era sólida.
+A sombra da Princesa se alongou sobre o chão e se dividiu em várias manchas.
 
-Ela se distorcia, alongava-se, desaparecia e surgia de novo em outros ângulos, como se a própria luz não soubesse como interagir com aquele planeta.
+Ignorei a leitura óptica e passei a usar a velocidade vertical e a distância medida pelo radar. Eric confirmou o valor no segundo comando.
 
-A nave tremeu levemente ao iniciar a sequência final de pouso.
+Reduzi o impulso e deixei a nave descer devagar. Os apoios tocaram a superfície quase ao mesmo tempo. Fiquei com a mão sobre o controle até verificar que não havia deslocamento nem alteração na inclinação.
 
-— Isso vai ser interessante — disse, com um sorriso.
+— Pronto. Não afundou.
 
-Então a nave pousou, e ouvimos os motores desligarem. Kord resmungou algo incompreensível e levantou indo buscar os trajes.
+Eric olhou pros indicadores, depois pra mim. Desliguei os propulsores e só então soltei o cinto.
 
-Vivian, que observava tudo com olhos atentos, ergueu as sobrancelhas e fez um gesto de interrogação para Kord.
+— Bonita aterrissagem — disse ele.
 
-— Não, eu não tô com medo — respondeu Kord.
+— É, eu sei.
 
-— Mas se tiver algo que possa o matar, certeza que ele te usaria como escudo — falei.
+— Puta merda, Badrock. É por isso que eu não te elogio.
 
-Ela revirou os olhos enquanto Kord me olhava feio.
+Kord levantou pra buscar os trajes. Hardman pediu que, antes de qualquer outra coisa, recolocássemos a grade do motor. Eu e Kord saímos primeiro, recuperamos a peça que tinha deixado presa ao casco e a fixamos no lugar. A Princesa tava pronta pra decolar quando precisássemos.
 
-— Vamos precisar de óculos especiais — disse Hardman — o planeta reflete muita luz. Se pousarmos na parte iluminada, podemos não enxergar nada.
+Vivian apontou pro lado de fora e fez uma pergunta ao careca.
 
-Eric já estava ajustando seu capacete quando me lançou um olhar de canto de olho, atirando-me o meu.
+— Medo? Eu? Tô é com vontade de ver quanto vale essa merda.
 
-— Espero que sirva em você, Badrock.
+Ela estendeu o capacete pra ele e esperou.
 
-— Eric, se meu traje tiver um defeito, você é um homem morto — ameacei, me aproximando dele.
+Kord pegou o capacete. Pela maneira como apertava a peça, não tava tão tranquilo quanto dizia.
 
-— Que isso, seria uma morte honrosa.
+— Usem os filtros dos visores — disse Hardman. — A superfície é extremamente refletiva.
 
-Revirei os olhos e segui para o compartimento de saída. Prendi o chapéu na mochila do traje, por mais ridículo que ficasse. Hardman conferia o traje pela terceira vez, e Buni parecia nervoso, pálido parado à porta.
+Eric atirou meu capacete na minha direção.
 
-— Relaxa, Buni. Se formos esmagados, pelo menos será rápido.
+— Vê se não perde a cabeça dessa vez.
 
-Ele não achou engraçado.
+— Fica tranquilo. Já conferi o traje.
 
-A porta da escotilha se abriu, e demos os primeiros passos em direção ao desconhecido.
+— Que pena.
 
-O vento rarefeito do planeta se movia preguiçoso, quase sem força para levantar poeira, mas a luz branca da anã branca refletia no solo em padrões hipnotizantes, como um mar de vidro ondulante. Cada passo era estranho. O chão liso e sem marcas nunca fora tocado por nada antes de nós.
+Prendi o chapéu na mochila e conferi a vedação dos pulsos. Hardman repetia o procedimento com Buni, que esperava perto da porta.
 
-Hardman foi o primeiro a ajoelhar-se e tocar a superfície com um dos sensores de pulso embutidos no traje. Ele franziu a testa enquanto lia os resultados.
+— Pisa onde a gente pisar, Buni. Se tiver alguma coisa estranha com esse chão, a gente volta pra nave.
 
-— Eu... não acredito — murmurou.
+Buni olhou pra mim. Estendi a mão pra que viesse junto.
 
-— Algum problema, Sr. inacreditável? — perguntei, cruzando os braços.
+Esperamos a equalização da câmara e saímos.
 
-Ele demorou um pouco para responder, processando a informação.
+O chão refletia o brilho da anã branca em manchas que mudavam de cor a cada passo. O vento rarefeito mal movia as partículas suspensas sobre a superfície. Olhei pra trás. Nem os apoios da nave tinham deixado marcas visíveis, muito menos nossas botas.
 
-— O gerbe que procuramos… está no chão. O planeta inteiro é feito dele.
+Hardman se ajoelhou e encostou o sensor do traje no chão. Conferiu o resultado, afastou o aparelho e repetiu a leitura.
 
-O silêncio entre nós foi imediato.
+— Não pode ser.
 
-— Então, estamos literalmente pisando em nossa fortuna? — O’reilly quebrou o silêncio, chutando levemente o chão.
+— Que foi, Hardman?
 
-— Chuta com mais respeito. Já vi homem vender a mãe por um grama disso. Aqui tem um planeta inteiro, a mãe dele ia sair de graça.
+Ele olhou pro sensor do Eric e pediu uma segunda medição. Os dois valores coincidiam.
 
-— Não só isso... estamos talvez pisando no único planeta feito de gerbe da galáxia, talvez do universo — Hardman balançou a cabeça. — Se isso se confirmar, esse lugar não só vale uma fortuna. Ele é, literalmente, o maior segredo da galáxia.
+— Gerbe. Estamos pisando em gerbe. A superfície inteira é feita dele.
 
-— O que explica por que Jelles quer tanto chegar aqui — Eric cruzou os braços.
+Olhei pros meus pés. Kord se abaixou e passou a mão enluvada pelo chão.
 
-Hardman e Kord tentaram do jeito que sabiam. Picareta, broca de mineração, o maçarico da nave no máximo. Kord martelou até o suor embaçar o visor. A broca soltou faíscas e perdeu a ponta, e o chão não ganhou nem um arranhão. Hardman passou a luva onde o maçarico havia apontado e olhou para ela como quem lê uma sentença. O Olho do Domongo, que Eric trouxera consigo, continuava vibrando e apontando para baixo, e o bracelete piscava feito um sino. Sem máquina nenhuma, Jelles não precisaria de mapa para nos achar.
+— Então a gente tá pisando numa fortuna? — perguntou O’reilly.
 
-O nome de Jelles fez minha mão coçar. O bracelete de Eric estava em minhas mãos, e sua luz piscava como um farol silencioso, alertando a Lebargan de nossa posição. Então O’reilly se virou para mim:
+— Já vi sujeito vender a mãe por um grama disso. Olha quanto tem aqui, porra!
 
-— Você disse que ficaria aqui e nós poderíamos roubar o gerbe. Acho que nos separamos aqui, então não?
+— Não conheço nenhum outro corpo celeste com essa composição — disse Hardman. — Se as leituras estiverem corretas, a quantidade de gerbe aqui supera tudo que já encontramos.
 
-Todos se viraram para mim. A troca de olhares foi rápida. Todos sabiam que Jelles viria. Era só uma questão de quando e como.
+— Agora entendo por que Jelles queria chegar primeiro — disse Eric.
 
-— Este era o plano — falei olhando para o chão —, mas vocês acabaram de ver: sem uma máquina, não extraímos nada. Não há deformação alguma. Deve ser bem mais resistente que o diamante.
+Kord buscou uma picareta na nave. Depois tentou a broca de mineração. A ponta da broca se partiu e a picareta não deixou sequer uma marca. Hardman tentou o maçarico. O chão continuou liso. Eric segurava o Olho do Domongo, que apontava pra baixo, enquanto eu conferia a luz do bracelete no bolso. A Lebargan não precisava mais do próprio mapa.
 
-— Ok gênio — resmungou Kord olhando pra mim. — Qual é o seu plano?
+Guardei o bracelete. O’reilly se aproximou.
 
-Mas eu não precisei falar nada, foi Eric quem continuou:
+— Você prometeu que a gente ia pegar o gerbe e ir embora antes de começar tua guerra. Como vamos levar isso?
 
-— Invadimos a Lebargan e roubamos um gravitador. Armas gravitacionais podem erguer objetos extremamente pesados, e até mesmo separá-los em partes pequenas.
+Ninguém respondeu. Hardman guardou o maçarico. Kord olhou pra nave.
 
-— Não sonhem — resmungou Kord — Não vou ficar aqui para ser morto pela sua gentinha.
+— Precisamos de uma ferramenta que não dependa de cortar o material. Essa porra é mais resistente que diamante.
 
-— Vocês possuem gravitadores na Lebargan? — perguntou Hardman.
+— E tem alguma dessas escondida no teu bolso? — perguntou Kord.
 
-— O suficiente para encher a nave de gerbe em pouco tempo — assenti — Mas para isso precisamos nos preparar. Não temos como enfrentar a Lebargan. Então temos que estar um passo à frente — eu disse.
+Eric levantou a cabeça.
 
-— Então o que fazemos? — perguntou O’reilly. — Esperamos você e o Eric voltarem com os gravitadores? Assim que os Dales verem a Princesa do Inverno, eles imediatamente a destruirão. Para que não nos permita fugir.
+— Gravitadores. A gente usa na Lebargan pra levantar carga e separar estruturas pesadas. Dá pra arrancar placas desse chão se aplicarmos força gravitacional suficiente.
 
-— A nave vai ser levada para dentro de Aurora — respondi. — Os Dales preferem capturar naves do que destruí-las.
+— E onde arranjamos um? — Kord olhou pra ele. — Não me diga que...
 
-Hardman suspirou.
+— Vocês têm gravitadores na Lebargan? — perguntou Hardman.
 
-— Isso significa que teremos de ser capturados?
+— No arsenal um — respondi. — Tem o bastante pra tirar gerbe pra todo mundo. O problema é entrar lá e voltar.
 
-— Não todos. Apenas eu e Eric. Queremos que pareça que fomos capturados — corrigi. — Precisamos nos infiltrar sem que Jelles desconfie.
+— E se eles já souberem onde estamos? — perguntou O’reilly. — Podem cercar a gente aqui. O que vamos fazer com a Princesa?
 
-— Não gosto disso — falou Kord.
+— Vão recolher a Princesa pra dentro da Lebargan. Dales não costumam destruir uma nave que podem aproveitar.
 
-— E imagino que os Dales são bem receptivos com traidores. Devem receber você e Eric de braços abertos. Como tem certeza que não tentarão lhes matar? — perguntou O’reilly.
+Hardman olhou pro céu.
 
-— Eles não vão. Se você me trouxer como prisioneiro. Jelles irá adorar saber que ainda estou vivo — sorri.
+— Está propondo que sejamos capturados?
 
-— Se vocês acham que vou deixar ser capturado por uma nave pirata novamente, podem esquecer. Se não há como extrair essa merda, eu vou embora — Kord questionou.
+— Eu e Eric saímos quando eles chegarem. Ele se entrega comigo amarrado. Jelles vai querer saber por que tô vivo. Os outros ficam escondidos na Princesa até a nave ser recolhida.
 
-— Acho que podemos considerar o plano, Kord…
+— Não gosto nem um pouco disso — disse Kord.
 
-Mas O’reilly foi interrompido pelo amigo.
+— E se mandarem matar vocês antes de chegar ao capitão? — perguntou O’reilly.
 
-— EU PASSEI DEZ MOMENTOS PRESO. Dez momentos perdidos de minha vida. Não vou passar mais um ecton sequer. Sou um homem livre, finalmente — resmungou Kord.
+— Jelles vai querer me ver. E Eric ainda tem o olho. Se não nos levarem vivos, perdem a chance de descobrir o que aconteceu comigo e como chegamos aqui. Não é garantia, mas conheço esses desgraçados. Se quiserem matar a gente, vamos ter de improvisar.
 
-— Livre e sem dinheiro — falei — está pisando no maior tesouro da galáxia. Se abandonar aqui, outro irá encontrá-lo. E saberão que você foi o primeiro a pisar, e que foi embora sem nem sequer se aproveitar dele.
+— Não vou entrar noutra nave pirata amarrado. Se não tem como tirar essa merda, vou embora — disse Kord.
 
-— Que se foda, Jasmey Badrock. Você nos trouxe até aqui, nos manipulou para conseguir sua vingança e agora quer nos condenar prisioneiros novamente.
+— Escuta o resto do plano, irmão.
 
-— Está muito sensível, amigo Kord — falei, mas Kord rapidamente ergueu uma arma para mim.
+Kord virou pro O’reilly.
 
-— NÃO SOU SEU AMIGO!
+— EU PASSEI DEZ MOMENTOS PRESO! Dez momentos! Não vou voltar pra uma prisão nem por um ecton. Finalmente sou livre.
 
-— Ei — disse O’reilly — isso não é necessário.
+— A gente tem uma coisa que os Dales não esperam. Lembra por que Hardman guardou o tersário?
 
-Sem hesitar, fiz o mesmo e apontei a arma para Kord.
+— E se essa coisa matar a gente antes? Tu nos trouxe até aqui pra tua vingança e agora quer arriscar todo mundo de novo.
 
-— Antes de você disparar, eu garanto que estará morto — falei.
+— Escuta, amigo. A gente pode...
+
+— NÃO SOU TEU AMIGO, BADROCK!
+
+Ele ergueu a arma.
+
+— Kord, abaixa isso — disse O’reilly.
+
+Saquei a minha.
+
+— Não aponta essa porra pra mim.
 
 — CHEGA! — gritou Buni.
 
-Me virei para ele, erguendo uma sobrancelha. Nunca o vi gritar desse jeito. Na verdade, nunca o vi gritar.
+Virei a cabeça. O grandalhão tava com os punhos fechados. Nunca tinha ouvido Buni falar tão alto.
 
-— Não quero meus amigos brigando. Eu quero o tesouro. Porque com o tesouro posso encontrar Madame… e me casar com ela.
+— Eu não quero vocês brigando! Quero que a gente saia daqui junto. E quero levar o tesouro pra encontrar a Madame. Quero casar com ela.
 
-Kord olhou para ele, então se virou para Vivian que assentiu para ele. Após hesitar, nervoso, ele abaixou a arma.
+Vivian se aproximou do Kord e tocou o cano da arma, indicando o chão. Ele olhou pra ela, depois pro Buni. Baixou a pistola.
 
-— Que se foda. Vamos todos morrer nessa merda mesmo — resmungou Kord, guardando a arma, como eu fiz, com sarcasmo.
+— Tá. Mas se essa merda der errado, a gente vai embora. Com vocês ou sem vocês.
 
-O’reilly então olhou para o bracelete.
+Guardei minha arma.
 
-— É possível ver nessa coisa onde a Lebargan está?
+O’reilly apontou pro meu bolso.
 
-Balancei a cabeça.
+— Esse bracelete diz onde a Lebargan tá?
 
-— Só Jelles sabe exatamente onde estamos. Não conseguimos saber onde a Lebargan está.
+Neguei com a cabeça.
 
-Todos ficaram em silêncio por um momento.
+— Ela recebe a nossa posição. Não manda a dela de volta.
 
-No horizonte, o brilho da anã branca sumiu de repente, sem transição, como se alguém apagasse as luzes, e a noite caiu de uma vez: a atmosfera rarefeita não tinha crepúsculo para amortecer a queda.
+Hardman pediu que voltássemos pra discutir o resto do plano dentro da nave, onde não precisaríamos gastar ar do traje.
 
-— A Lebargan pode chegar a qualquer momento. E quando ela chegar, saberemos. Mas por enquanto, melhor voltarmos à nave — murmurei.
+O brilho da anã branca desapareceu atrás da curvatura do planeta. A atmosfera era tão rarefeita que mal houve transição entre dia e noite.
 
-A noite foi longa. O interior da Princesa do Inverno estava mais silencioso do que o normal. O grupo já se recolhera, e eu aproveitava o raro momento de paz no canto da cabine, observando as luzes dos controles piscarem no escuro. Estávamos atentos a qualquer sinal da Lebargan. Num planeta plano como aquele, o ataque viria de cima, então mantínhamos os escudos ligados.
+— Vamos. Antes que apareçam por aqui.
 
-Então Eric puxou uma cadeira e sentou ao meu lado, cruzando os braços, com muito a dizer e nenhuma vontade de começar.
+Na Princesa, conferimos a contenção do tersário e deixamos os comandos de abertura acessíveis ao Hardman. Combinamos que Eric procuraria uma oportunidade de retornar à nave depois de nos separarem. Se não conseguisse, os outros esperariam a revista e fariam a distração sozinhos. O’reilly insistiu em saber onde iríamos depois de liberar o bicho. Desenhei a passagem da doca ao arsenal num dos visores. A ideia era voltar pelo mesmo caminho, pegar a Princesa ou uma das subnaves e fugir. Não dava pra saber quais passagens estariam bloqueadas quando chegássemos lá. Ele não gostou dessa parte. Ficamos com os escudos ativos e revezamos a vigia. Eu tava sentado diante do painel quando Eric puxou uma cadeira.
 
-— Não vai dormir? — perguntei, sem desviar os olhos do painel.
+Ele abriu o registro dos motores e ficou olhando a última manobra de pouso.
 
-— Não hoje.
+— Não vai dormir?
 
-Ficamos em silêncio por um tempo. O tipo de silêncio desconfortável, cheio de palavras não ditas, mas que um dos dois teria que quebrar eventualmente.
+— Ainda não.
 
-Então, do nada, ele riu.
+Eric ampliou a leitura da gravidade. Apontou pro momento em que tínhamos desligado a correção óptica.
 
-— O que foi?
+— Essa nave respondeu melhor do que eu esperava. Queria ter feito o pouso.
 
-Ele balançou a cabeça, meio descrente.
+— Eu sei.
 
-— Você é insuportável, Badrock. O que você fez na nave... mudou tudo.
+Ele riu pelo nariz.
 
-Virei para encará-lo, confuso.
+— Você é insuportável, Badrock. Até quando não faz nada, dá trabalho. O que fez na Lebargan mudou tudo.
 
-— E desde quando você admite que eu faço alguma coisa certa?
+Virei a cadeira pra ele.
 
-— Eu não disse que foi certo. Só disse que mudou tudo.
+— Desde quando admite que faço alguma coisa certa?
 
-Levantei uma sobrancelha.
+— Não disse que foi certo. Disse que mudou tudo.
 
-— E o que mudou exatamente?
+— O quê?
 
-Ele bufou e se inclinou para trás, passando a mão no rosto.
+Eric fechou o registro de voo.
 
-— Depois que você… desafiou Jelles… e supostamente sumiu… — Ele fez um gesto vago, sugerindo morreu, mas sem querer dizer a palavra. — A nave se dividiu. Muitos te conheciam, e sua lealdade… Jovens se inspiravam em você lá dentro. Mas todos tinham medo. Ninguém era louco de se colocar diretamente contra Jelles.
+— Depois daquela luta com Jelles, a nave se dividiu.
 
-Cruzei os braços, pensando no que ele disse.
+— Muita gente gostava de você, principalmente os mais novos. Mas ninguém tinha coragem de falar contra Jelles. Depois que você sumiu, começaram a falar. A Unidale ficou cheia de discussões.
 
-— Por que alguém iria querer se colocar contra Jelles? Todos lá comem e bebem do melhor, têm a vida que sempre quiseram — questionei-o.
+Cruzei os braços.
 
-Eric respirou fundo, reunindo paciência para me explicar o óbvio.
+— Por que iam querer derrubar o capitão? Comem bem, bebem do melhor, têm uma nave que ninguém consegue tomar.
 
-— Jasmey, você é um cabeça-dura mesmo. Quando é que vai perceber que a luta não é pelo que elas têm, e sim pelo que elas acreditam?
+— Você ainda não entendeu, né?
 
-Soltei uma risada curta, sarcástica.
+— Não é pelo que recebem, Badrock. É por terem que obedecer a um sujeito que pode mandar matar qualquer um deles.
 
-— Ah, claro. Porque todos os Dales têm um pôster meu colado na parede do dormitório, defendem meu nome na Unidale e acreditam em mim, não é?
+— Tá. E todo mundo tem um retrato meu no quarto agora?
 
-Eric balançou a cabeça.
+Eric me encarou.
 
-— Você era um exemplo pra tripulação. Não era só o queridinho do Jelles, Jasmey… era o queridinho dos Dales.
+— Alguns devem ter. Sempre teve gente com péssimo gosto naquela nave.
 
-Fiquei em silêncio.
+Ele ficou sério de novo.
 
-— Você não percebeu porque nunca precisou perceber. Enquanto você subia na hierarquia, os outros te observavam. Você era um dos nossos, um dos que tinham sangue Dale de verdade. Lutava, bebia, sobrevivia. Os mais novos viam em você algo que Jelles nunca foi. Você acha que ele nos selecionou para os nove porque acreditava que éramos bons? Ele seleciona aqueles que podem algum dia tomar sua liderança. O maior medo de Jelles é perder o poder.
+— Você não era só o preferido do Jelles. Era um dos Dales que o pessoal mais admirava.
 
-Fiquei esperando ele continuar.
+Fiquei quieto.
 
-— Os Dales seguem Jelles porque a capitã o incumbiu de liderar em sua ausência, e ninguém teve coragem de confrontá-la: todos sabemos a força dela e como se tornou nossa líder. Jelles não ganhou a liderança. Ele governa pelo medo, não pela devoção. E você, Jasmey, era um dos poucos que tinham essa devoção.
+— Você pegava as melhores missões, pilotava as melhores naves e voltava vivo. Os moleques da Ala 66 ouviam as histórias antes mesmo de poder sair de lá. Acha que Jelles escolheu os Nove só porque éramos bons? Ele quer manter por perto quem poderia tomar o lugar dele.
 
-— Devoção? — repeti, com desdém. — Eu era só um pirata como os outros.
+— E você?
 
-Eric bufou.
+— Eu queria pilotar as naves que você pegava. Nunca quis ser capitão da Lebargan. Jelles governa porque Nastácia deixou a nave nas mãos dele. O pessoal respeita a capitã. Tem medo dele.
 
-— Nenhum pirata desafiou Jelles na frente de todo mundo como você fez. Você foi o primeiro a olhar nos olhos dele e dizer “não”.
+— E acha que me respeitam?
 
-De repente, minha boca ficou seca.
+— Mais do que você imagina.
 
-— A Lebargan sempre esteve prestes a pegar fogo, mas ninguém teve a coragem de acender a primeira faísca.
+— Nenhum dos nossos tinha encarado Jelles e dito não daquele jeito. Você fez isso na frente de todo mundo.
 
-— Que surpresa. — Suspirei, balançando a cabeça. — A tripulação inteira é um bando de cachorros assustados esperando alguém dar um osso pra eles rosnarem.
+Olhei pro bracelete sobre o painel.
 
-Eric me olhou de canto de olho.
+— A Lebargan tava cheia de gente esperando que alguém desse o primeiro passo. Você deu.
 
-— Nem todo mundo.
+— E o resto ficou olhando enquanto ele arrancava meu braço.
 
-— Ah, então temos uns gatos corajosos?
+Eric não respondeu de imediato.
 
-— Não seja obtuso. Olha eu aqui. E tem a Amanda também.
+— Nem todos ficaram satisfeitos com o que aconteceu.
 
-Meu olhar voltou para ele.
+— Quem?
+
+— Eu, pra começar. E Amanda.
+
+Virei pra ele.
 
 — Amanda?
 
-Ele sorriu, mas foi um sorriso estranho, misto de orgulho e preocupação.
+Eric baixou um pouco a voz.
 
-— Ela ficou realmente mal quando soube que tinha morrido. Quero só ver a cara dela quando te ver novamente. Jasmey Badrock. O pirata que enfrentou Jelles e morreu... — Ele me olhou nos olhos. — E que voltou dos mortos… como um necromante. Espere até eu te contar do Genrir…
+— Ficou mal pra caralho quando soube da tua morte. Quero ver a cara dela quando te encontrar. Jasmey Badrock, o Dale que morreu e voltou. Parecendo um necromante. E o Genrir...
 
-— O que tem o caolho?
+— Que tem o caolho?
 
-— Ele falava de você direto. E acredite se quiser, não falava mal. Ele dizia que suspeitava que você tinha sido mais uma das vítimas de Jelles. Errado ele não estava.
+— Falava de você direto. Achava que Jelles tinha feito a mesma coisa com você que fez com outros. Não era o único desconfiado.
 
-Fiquei em silêncio por um momento.
+Olhei pro visor. Tava escuro lá fora.
 
-— A máscara de Jelles está caindo, Badrock.
+— O Jelles tá perdendo o controle, Badrock.
 
-Não que eu não gostasse de ser uma lenda, porque, claro, eu gostava, mas alguma coisa nisso me incomodava.
+Sempre gostei de ouvir meu nome na boca dos outros. Mas ouvir aquilo do Eric me incomodou mais do que esperava.
 
-— E como estava Vek? Quando você saiu.
+— E o Vek? Como tava?
 
-Eric olhou para o vidro, hesitando antes de falar:
+Eric apoiou os cotovelos nos joelhos.
 
-— Não sei. Não o via muito. Apenas nas reuniões dos nove. A última vez que o vi, foi pouco antes de fugir. Estava se preparando para uma missão com Vlad.
+— Não sei. Só via ele nas reuniões dos Nove. Na última, tava se preparando pra uma missão com Vlad.
 
-Voltamos ao silêncio. Mas dessa vez, não era desconfortável. Eu me espreguiçei e apoiei a cabeça na cadeira.
+Ficamos quietos. Apoiei a cabeça na cadeira.
 
-— Isso quer dizer que quando eu aparecer lá dentro, vai ser um inferno.
+— Vai ser um inferno quando eu aparecer lá.
 
-Eric sorriu de volta.
+Eric sorriu.
 
-— Exatamente.
+— É o que espero.
 
-— Quer saber como eu roubei o olho do Jelles? — Eric perguntou, do nada.
+— Quer saber como tirei o olho do Jelles?
 
 — Não.
 
-Ele me olhou com uma pena sincera, dessas que ofendem.
+Ele se inclinou.
 
-— Tudo bem. Vou contar mesmo assim.
+— Vou contar.
 
 — Eu disse que não.
 
-— Você disse com a boca. — Ele se inclinou, as mãos soltas entre os joelhos, os dedos longos, a munhequeira larga. — Jelles carrega o olho no bolso de dentro do casaco. Casaco preto, luvas, aquela braçadeira vermelha piscando. O homem sente uma mosca pousar nele. Então eu não tentei a mosca. Esbarrei nele num corredor estreito, perto da torre dos escudos, e pedi desculpas.
+— O Jelles carregava o olho no bolso de dentro do casaco. O homem percebe qualquer movimento estranho perto dele. Então esbarrei nele no corredor junto à torre dos escudos e pedi desculpa.
 
-— Ele deixou você pedir desculpas?
+— E ele deixou?
 
-— Três vezes. A primeira, pra ele olhar pra minha cara. A segunda, pra ele olhar pra minha mão direita, que eu mexia de propósito. — Eric gesticulava enquanto falava, e eu, que nunca consegui resistir a uma boa história, acompanhava a mão direita dele, exatamente como Jelles acompanhou. — A terceira, pro olho passar da esquerda pro bolso.
+— Três vezes. A primeira pra olhar pra minha cara. A segunda pra olhar pra mão direita, que eu mexia de propósito. A terceira foi enquanto a esquerda fazia o trabalho.
 
 — E aí?
 
-— Aí eu já tinha dobrado duas curvas quando ele percebeu. O que importa é que a esquerda faz o trabalho enquanto você olha a direita.
+— Quando percebeu, eu já tava duas curvas adiante. Enquanto você olha pra direita, a esquerda faz o serviço.
 
-Levei a mão à cabeça. Meu cabelo. Mais nada.
+Passei a mão na cabeça. Cadê o chapéu?
 
-— E é assim que se rouba um olho — disse Eric, girando o meu chapéu branco no dedo.
+Eric girava meu chapéu branco no dedo.
 
 — Devolve.
 
-— Estou devolvendo. — Ele pôs o chapéu na minha cabeça e ajeitou a aba com dois dedos, com um carinho que me ofendeu mais do que o roubo.
+— Calma, capitão.
 
-— Encosta de novo e eu corto essa mão.
+Ele colocou o chapéu na minha cabeça e ajeitou a aba.
+
+— Encosta de novo e eu corto tua mão.
 
 — Qual?
 
-Fiquei sem resposta. Isso não me acontece com frequência. Perdi esse chapéu duas vezes na vida, e as duas foram para o Eric.
+Olhei pras mãos do desgraçado. Não consegui responder. Duas vezes tinha perdido o chapéu, e nas duas o Eric tava envolvido.
 
-Ficamos ali por um tempo. Nenhum dos dois admitiria, mas era bom estar, depois de tudo, do mesmo lado.
+Ficamos ali até o fim do turno dele. Tinha sido bom conversar com alguém que conhecia a Lebargan antes de tudo dar errado.
 
-O tremor da explosão no chão me arrancou do sono logo pela manhã. Meus olhos se abriram instintivamente, e o primeiro brilho que vi foi o bracelete de Eric piscando em vermelho, como uma contagem regressiva para o desastre.
+Acordei com uma explosão do lado de fora. O alarme do escudo disparou e vi a luz do bracelete piscando em vermelho. Um disparo tinha atingido o campo de proteção. O segundo passou tão perto da nave que senti o banco vibrar.
 
-Levantei-me de um salto.
+Levantei de um salto.
 
-— Eles chegaram, escondam-se! — ordenei, sem tempo para explicações.
+— Chegaram! Pro plano!
 
-Kord me lançou um olhar carregado, mas não questionou. Em poucos segundos, ele pegou uma corrente e prendeu meus braços, apertando firme o suficiente para parecer convincente.
+Kord pegou a corrente que tínhamos separado. Vesti o traje antes de ele prender meus pulsos. Deixou folga suficiente pra eu me mover, mas apertou o bastante pra ninguém achar que tava ali por vontade própria. Hardman foi com Vivian e Buni pros compartimentos que tínhamos escolhido. O’reilly conferiu o rádio.
 
-— Não se acostume. — Ele rosnou enquanto ajustava os nós metálicos.
+— Não se acostuma — disse Kord, apertando a corrente.
 
-Sorri de canto. Respirei fundo e saí da nave.
+Eric saiu primeiro, levando o olho guardado e fazendo sinal pra mim. Passei pela câmara logo atrás dele.
 
-Corri para o lado de fora e a vi. A Lebargan dominava o céu acima de nós, imensa, monstruosa, inevitável. Sua silhueta consumia a luz, um buraco negro artificial pairando no espaço, absorvendo tudo ao seu redor, inclusive o destino de quem ousava desafiá-la. Suas torres de armamento já apontavam para nós.
+A sombra da Lebargan cobria uma parte imensa do céu. As torres de armamento já estavam voltadas pra Princesa. Parei alguns passos adiante da rampa.
 
-No centro daquela imensidão, Eric estava parado, de mãos erguidas, fingindo se render. Ele acenava de forma exagerada, para garantir que cada maldito Dale a bordo da Lebargan pudesse vê-lo.
+Eric ergueu as mãos, apontou pra mim e fez sinal de rendição. A torre mais próxima deixou de acompanhar a Princesa e passou a apontar pra onde estávamos.
 
-Uma nave menor desacoplou da Lebargan, flutuando suavemente enquanto descia em nossa direção.
+Uma nave menor se desprendeu da Lebargan e começou a descer.
 
-— Jelles, estou indo... — murmurei para mim mesmo.
+— Tô indo, Jelles.
 
-A nave tocou o solo com um baque metálico. Em sua lateral lia-se Orbe Azul. A sua rampa se abriu e de dentro dela, três figuras surgiram. Eram Vek, Samara e Vlad.
+A nave pousou. Orbe Azul, dizia o casco. A rampa se abriu e saíram Vek, Samara e Vlad.
 
-Vek foi o primeiro a me ver. Seu corpo ficou rígido, seu olhar vacilou por um instante. Mas não houve um grito de alívio ou surpresa genuína, apenas um fechamento rápido da expressão.
+Vek me reconheceu antes de chegar perto. Parou por um instante. Eu quase sorri. O sujeito voltou a andar com a cara fechada.
 
-Samara, por outro lado, manteve a cara de poucos amigos, os olhos correndo entre mim e Eric tentando entender o que diabos estava acontecendo.
+Samara olhou pros meus pulsos, depois pro Eric. Vlad ergueu a arma.
 
-E então, Vlad ergueu a arma para nos matar ali mesmo.
+Vi o dedo dele se aproximar do gatilho.
 
-Eric nem pestanejou:
+Eric se meteu na frente.
 
-— Ei, ei, calma aí cara. Que falta de boas maneiras, Vlad. E eu achando que ia ter um jantar de boas-vindas.
+— Calma, Vlad. Se matar a gente aqui, como vai explicar pro capitão que o morto voltou?
 
-Vek segurou o braço de Vlad antes que ele pudesse atirar.
+Vek segurou o braço do Vlad.
 
-— Calma aí. O Capitão vai querer ver os traidores.
+— O capitão vai querer ver os traidores. Levem os dois.
 
-Traidores. A palavra carregava um peso familiar.
+Traidores. Tinha ouvido aquela palavra muitas vezes na Lebargan. Era diferente ouvir da boca do Vek.
 
-Os três nos cercaram e empurraram para dentro da Orbe Azul. Samara arrancou o chapéu da minha mochila e o jogou num caixote de confiscos, junto com nossas armas. A decolagem foi rápida, mais rápida do que eu lembrava, e em poucos ectons, já éramos engolidos pelo espaço sideral. A anã branca ficou para trás, e acima de nós, a silhueta da Lebargan crescia como um eclipse negro, bloqueando qualquer outra visão.
+Samara tomou nossas armas, o bracelete e a bolsa do Eric. Arrancou meu chapéu da mochila e jogou tudo num caixote de confiscos. Não deu atenção ao pequeno saco onde guardava o presente do Sr. Peron. Nos empurraram pra Orbe Azul e a rampa fechou. A decolagem foi rápida. Olhei pro painel de aproximação e reconheci a rota que nos levava de volta à Lebargan.
 
-Por um instante, me permiti sentir algo próximo de nostalgia.
+Por um instante, quase tive a sensação de estar voltando de uma missão.
 
-Não via a nave havia muito tempo, mas ela ainda era a mesma. Imponente. Oculta. Uma fortaleza invisível, uma fera silenciosa no vácuo. Fria como o próprio vácuo: sem calor para trair, sem luz para refletir.
+A nave aparecia pouco a pouco conforme nos aproximávamos. Os sistemas de camuflagem ainda escondiam boa parte do casco. Conhecia aquela fortaleza de todos os ângulos e, mesmo assim, não conseguia deixar de olhar.
 
-As velas solares absorviam a radiação do espaço, dando à nave energia quase inesgotável. O holograma do emblema pirata, o crânio ladeado por armas cruzadas, brilhava na proa como um desafio para o universo.
+As velas solares recebiam a radiação da anã branca. O holograma do crânio com armas cruzadas brilhou na proa assim que atravessamos a região de camuflagem.
 
-Quem servia a Jelles bebia do melhor rum, comia da melhor carne, se afundava nos melhores prazeres. A nave ainda era um paraíso para quem a habitava e um inferno para seus inimigos. Desta vez, eu estava deste lado.
+Lá dentro tinha necroriano, boa comida, as melhores naves que eu já pilotara e gente que eu conhecia desde moleque. Também tinha o Jelles.
 
-O interior da Orbe Azul ficou silencioso enquanto nos aproximávamos. Eu sentia os olhares pesados de Vek e Samara em mim, mas ninguém falava nada.
+Vek continuava quieto. Samara segurava a arma no colo. Eric acompanhava os controles da Orbe Azul com os olhos.
 
-Finalmente, cruzamos a barreira quântica da Lebargan. O escudo vermelho iluminou a cabine, prenunciando nossa chegada. E então a nave revelou-se completamente. Mesmo depois de todo esse tempo, a Lebargan ainda conseguia impressionar.
+Cruzamos a barreira quântica. A luz vermelha do escudo passou pelo vidro da cabine e a doca apareceu adiante.
 
-Me virei para Vek, forçando simpatia.
+Me virei pro Vek.
 
-— Vek meu amigo, sentiu saudade?
+— Sentiu saudade, irmão?
 
-Vek não respondeu.
+Ele não respondeu.
 
-— Você parece muito bem. Já se tornou o novo queridinho do Jelles — perguntei com sarcasmo exagerado.
+— Nem uma palavrinha? Achei que pelo menos fosse reclamar da adaga.
 
-O silêncio de Vek era quase cômico.
+Vek olhou pra mim. Não disse nada. Preferi calar a boca.
 
-Fomos levados direto para a doca da Lebargan, onde centenas de naves ficavam estacionadas como predadores à espera de presas. O solo metálico brilhava sob as luzes vermelhas de aterrissagem, mas algo mais chamou minha atenção: a Princesa do Inverno estava sendo trazida para dentro, puxada por um escudo gravitacional translúcido, como um peixe preso numa rede invisível. Nosso plano estava funcionando.
+A Orbe Azul pousou entre centenas de naves. Do outro lado da doca, um campo gravitacional puxava a Princesa do Inverno pra dentro da Lebargan. Consegui ver o casco prateado antes de Samara me empurrar pra rampa. Pelo menos a primeira parte do plano tinha funcionado.
 
-Eu cerrei os punhos. Eu estava de volta na Lebargan. Agora, era só esperar pela faísca.
-
+Respirei fundo. Tava de volta.
