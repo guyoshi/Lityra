@@ -1,428 +1,524 @@
-Após quase uma volta exaustiva, Hardman finalmente concluiu seu projeto. O rosto coberto de suor e fuligem, com um brilho de triunfo nos olhos. Trabalhara sem parar, soldando microcircuitos, recalibrando cristais de energia instáveis e programando sequências que faziam o dispositivo zumbir com uma promessa de poder invisível. Houve momentos em que o pequeno aparelho soltou faíscas ou superaqueceu a ponto de quase derreter, ameaçando entregar o plano. Hardman praguejava baixinho, mas, obcecado, sempre achava uma solução.
+Hardman levou quase uma volta pra terminar o aparelho. Quando finalmente anunciou que tava pronto, tinha fuligem até nas sobrancelhas. Passou esse tempo soldando microcircuitos, recalibrando cristais de energia e programando sequências que eu não fazia a menor ideia de pra que serviam. Umas duas vezes, o aparelho começou a soltar faísca. Em outra, Hardman precisou largá-lo depressa porque tava quente demais. Buni entrou na frente do painel pra esconder a fumaça de um guarda, e eu comecei a discutir com Kord sobre quem tinha deixado uma ferramenta fora do lugar. Pelo menos aquela discussão nem precisou ser ensaiada.
 
-Kord, O’reilly e Buni já sabiam do plano e estavam empolgados. O’reilly não parava de repetir que finalmente reencontraria a mãe. Sempre que dizia isso, prendia parte dos longos cabelos loiro-escuros num rabo de cavalo e abria aquele sorriso encantador sob a barba vistosa. Dava vontade de acreditar que sairíamos vivos dali.
+Kord, O’reilly e Buni já sabiam do plano. O’reilly não parava de falar que ia reencontrar a mãe. Toda vez que tocava no assunto, prendia os cabelos loiro-escuros num rabo de cavalo e abria aquele sorriso no meio da barba. O sujeito já tava quase descrevendo a comida que ia encontrar em casa.
 
-Eu não dava descanso a Hardman, perguntando toda hora se o projeto ia bem. A certa altura, ele ameaçou atirá-lo nas fornalhas se eu perguntasse de novo. Hardman precisava construir tudo em segredo. Os piratas passavam, alguns lançando olhares curiosos para o canto onde ele se encolhia, mas eu, Kord, O’reilly e Buni ficávamos sempre à frente, distraindo a atenção com conversas altas e briguinhas simuladas, cobrindo o som dos ajustes do Temparalizador, que pulsava como um coração roubado.
+Eu passava pela bancada de Hardman a cada oportunidade.
 
-Quando Hardman terminou o dispositivo, chamado Temparalizador, combinamos de nos encontrar perto dos banheiros para discutir o plano. Eram os lugares mais sujos que eu já vira. Só se ia lá em absoluta necessidade. O’reilly “acidentalmente” quebrou os vasos sanitários, o que nos deu a desculpa perfeita para sermos os responsáveis pelo conserto. Com os banheiros interditados, tínhamos privacidade e tempo para conversar.
+— Tá quase?
 
-— E aí, Hardman, como está nosso aparelho de fuga, meu pequeno gênio?
+— Não.
 
-Hardman suspirou profundamente, virando-se lentamente para mim com aquela cara de poucos amigos.
+Na vez seguinte, recebi a mesma resposta. Na terceira, ele ergueu o aparelho na direção da fornalha.
 
-— Jasmey. Por favor. Dá pra por favor parar com essas piadinhas sobre eu ser pequeno? Minha estatura não é relevante para a complexidade do meu intelecto, e francamente, é exaustivo ter que repetir isso a cada meia volta.
+— Se perguntar mais uma vez, vou jogar isto lá dentro.
 
-— Ta, ta, prossiga, garoto de ouro — falei, sacudindo a mão, indiferente.
+Parei de perguntar por um bom tempo. Queria muito fugir, afinal. A gente se revezava na frente da bancada enquanto ele trabalhava, tapando a visão dos guardas com nossos próprios corpos. Buni era especialmente bom nisso. Numa dessas pausas, Hardman precisou de uma ferramenta que tinha caído entre dois painéis. Kord tentou passar a mão pela abertura, mas o braço nem entrava direito.
 
-Hardman bufou, irritado, mas enfim continuou.
+— Hardman, consegue passar por aí?
 
-— O plano é o seguinte — disse Hardman, martelando os ferros tortos dos vasos — alguns piratas estão voltando do saque em Korru. As portas e entradas precisam estar abertas quando eu ativar o Temparalizador. A bolha nos esconde até a garagem, mas há uma regra: fiquem DENTRO dela. Ninguém sai, ninguém toca em nada. Um toque, e tudo desmorona. Temos sessenta ectons para chegar à nave. Aí decolamos pelas portas abertas e seguimos para longe.
+Ele olhou pra abertura e depois pra mim.
+
+— Isto é uma passagem de cabos, Jasmey.
+
+— Não perguntei pra que servia.
+
+Kord deu uma risada. Hardman pegou uma haste fina da bancada, recuperou a ferramenta e colocou-a na minha mão.
+
+— Agora consegue passar alguns ectons sem falar?
+
+— Não sei. Nunca tentei.
+
+Ele arrancou a ferramenta da minha mão e voltou ao trabalho.
+
+Quando terminou o troço, que batizou de Temparalizador, combinamos de discutir o plano perto dos banheiros. Era o lugar mais sujo da nave, o que, considerando o resto da Fera Sideral, era uma puta conquista. O’reilly tinha quebrado os vasos sanitários de propósito, embora, diante dos guardas, tivesse jurado que fora um acidente. Agora éramos os encarregados de consertar a merda toda. Literalmente.
+
+— E aí, Hardman? Como tá nosso aparelho de fuga? Já terminou, meu pequeno gênio?
+
+Hardman baixou o martelo e se virou pra mim. O’reilly, que tava segurando uma peça de metal, olhou pro chão.
+
+— Jasmey. Por favor. Minha estatura não tem relação alguma com a minha capacidade intelectual. Pode parar de mencioná-la a cada oportunidade que encontra?
+
+— Tá, tá. Pode falar, garoto de ouro.
+
+Ele apertou os lábios e voltou a bater no ferro torto.
+
+— Alguns piratas estão voltando do saque em Korru. As portas e as entradas estarão abertas quando ativarmos o Temparalizador. A bolha se desloca junto com o aparelho. Tudo que estiver dentro dela acompanhará nosso ritmo de tempo. Se alguém sair do campo, ficará praticamente imóvel para nós. Se passarmos perto demais de um guarda e ele entrar na bolha, poderá nos ver e reagir. Evitem aproximar o campo de qualquer inimigo. Temos sessenta ectons para chegar à nave, decolar pelas portas abertas e nos afastar da Fera.
 
 — Em nossa língua, Hardman — pediu Kord.
 
-— Fiquem dentro da bolha. Não toquem em nada — disse Hardman, sem levantar os olhos do martelo.
+— Fiquem perto de mim. Não deixem ninguém mais entrar na bolha.
 
-— Certo, mas precisamos de comida e armas. Podemos ficar à deriva no espaço por muito tempo — falei.
+— Beleza. E as armas? E a comida? A gente pode passar um tempão no espaço sem achar lugar pra pousar.
 
-— Kord já cuidou disso — disse Hardman. — Ele foi designado para uma manutenção em uma das naves há duas voltas e levou algumas armas no saco de ferramentas. Quanto à comida, Buni roubou alguns pães no almoço de ontem. Estão bem embalados e guardados debaixo da nossa cama.
+— Kord cuidou das armas. Foi designado para a manutenção de uma nave há duas voltas e levou algumas no saco de ferramentas. Quanto à comida, Buni conseguiu roubar pães no almoço de ontem. Estão bem embalados, debaixo da nossa cama.
 
-— Então é por isso que estava sentindo aquele cheiro delicioso — falei.
+— Então era isso que eu tava sentindo à noite! Achei até que alguém tivesse arranjado coisa melhor pra comer.
 
-— É uma forma de disfarçar o seu mau cheiro na cama — brincou Hardman.
+— Também ajudam a disfarçar o cheiro que você deixa na cama.
 
-— Eu cheiro a homem, meu amigo — falei. — Então, quando formos notados, já estaremos longe, certo?
+— Eu cheiro a homem, meu amigo. E aí? Quando notarem que a gente sumiu, já estaremos longe?
 
-— É o que eu espero — disse Hardman. — Ficou alguma dúvida?
+— Essa é a intenção. Alguma dúvida?
 
-Todos balançaram suas cabeças e eu soltei um riso irônico, o qual foi desafiado por Hardman.
+Todo mundo balançou a cabeça. Eu ri pelo nariz.
 
-— Qual a graça?
+— Qual é a graça?
 
-— Antes de mais nada, você tinha me dito que não fugiria daqui, e que se eu quisesse que tentasse sozinho. O que lhe fez mudar de ideia? — indaguei.
+— Você me disse que, se quisesse fugir, que fosse sozinho. O que te fez mudar de ideia?
 
-Hardman apertou os olhos e então se virou para os colegas.
+Hardman olhou pros outros três.
 
-— Meus companheiros me convenceram. Depois que você chegou o ambiente aqui ficou um inferno, ninguém aguenta mais ficar com você… — ergui uma sobrancelha e Hardman logo continuou — é brincadeira, primeiro que eu não me arrisco até ter pelo menos 90% de certeza que meu plano dará certo. E no momento, eu tenho mais do que isso. Segundo que nem tudo se trata de um preço ou de risco. Há cicatrizes que só o futuro pode curar, e para isso, preciso sair daqui. E terceiro… temos um piloto.
+— Meus amigos me convenceram. E, desde que você chegou, a convivência aqui tornou-se insuportável.
 
-Sorri em resposta e Hardman então voltou ao trabalho, martelando mais uma vez o ferro torto.
+Ergui as sobrancelhas.
 
-Íamos fugir naquele mesmo dia, e eu estava esperando o sinal de Hardman quando alguns homens entraram na sala das máquinas e pararam diante de nós.
+— Foi uma piada, Jasmey. Primeiro, não me arriscaria sem pelo menos noventa por cento de certeza de que o plano funcionaria. Agora tenho essa confiança. Segundo, também tenho assuntos que preciso resolver quando estiver livre. Há coisas que não posso fazer daqui. E terceiro...
 
-— Jasmey, o capitão está requisitando você — disse um dos homens.
+Ele apontou o martelo pra mim.
 
-— Ah, cara, estou um pouco ocupado aqui agora, não vai rolar — respondi, lançando um olhar de relance para meus companheiros.
+— Temos um piloto.
 
-Os piratas não quiseram saber: me agarraram pelo braço, me acorrentaram e me tiraram do trabalho. Fui escoltado até a saída das máquinas e pelo corredor até os elevadores.
+Ajeitei os ombros. Finalmente um reconhecimento decente. Hardman voltou a martelar o ferro.
 
-No piso superior, segui até o convés e dei com Tzough montado em sua criatura, cercado por muitos homens, diante de uma mulher e um homem ajoelhados.
+A gente ia fugir naquela mesma volta. Tava esperando o sinal de Hardman quando uns homens entraram na sala das máquinas e pararam na nossa frente.
 
-— Muito bom, aí está ele — disse o capitão.
+— Jasmey. O capitão quer você.
 
-— O que está acontecendo? — perguntei.
+— Puta merda, agora? Tô meio ocupado, cara.
 
-— O que está acontecendo? — replicou o capitão. — Estou tendo alguns problemas ultimamente com minha tripulação.
+Não adiantou. Me agarraram, prenderam as correntes e me levaram pelos corredores até os elevadores. Olhei de relance pros meus colegas antes de sair. Hardman tinha escondido o aparelho.
 
-Olhei para a mulher e o homem e imediatamente os reconheci como Vivian, a garota muda, e Leitham, o homem de tranças, com quem eu passara algum tempo preso.
+No convés, encontrei Tzough montado na criatura, cercado de piratas. Um homem e uma mulher estavam ajoelhados diante dele.
 
-— Estes dois tentaram roubar uma das minhas naves. Eles orquestraram um plano de fuga. Poderia ser algo normal, já tive muitos rebeldes antes… mas percebi que a sua presença parece estimular os rebeldes. É como se você fosse uma inspiração para eles. E se você fica forte, o respeito que minha tripulação tem por mim diminui. É frustrante, não é?
+— Excelente! Aí está o homem que faltava.
 
-Olhei para Vivian, que encarava Tzough com um olhar desafiador, enquanto Leitham mantinha a cabeça baixa.
+— O que tá acontecendo?
 
-— Bem frustrante. Eu, em seu lugar proporia uma democracia. Mas como não sou você, se seus homens se rebelam ou não, isso é problema do capitão, não meu — respondi.
+— O que está acontecendo? Ora, Jasmey, ando tendo certos problemas com a minha tripulação.
 
-— Meu problema não são meus homens, Jasmey. Meu problema é você. A sua presença na minha nave está tornando minha liderança… um pouco… desafiante.
+Olhei pros dois ajoelhados. Eram Vivian e Leitham, os sujeitos que tinha conhecido na prisão.
 
-— E por isso me trouxe aqui na frente de todos? Para me matar e mostrar a todos quem é o verdadeiro líder? Já passei por isso antes — falei.
+— Estes dois tentaram roubar uma de minhas naves. Nada de muito original. Já tive incontáveis rebeldes por aqui. Mas, curiosamente, desde que você chegou, os homens parecem ter recuperado uma coragem que eu julgava extinta. Inspirador, não acha?
 
-— Te matar? Por que faria isso? Você é um homem talentoso. Lutou muito bem durante a abordagem que tivemos. Na verdade, eu trouxe você aqui para que assista à execução desses dois amotinados. Quero que veja com seus próprios olhos o que acontece com quem me desafia. E espero que isso o estimule a acabar com essa fé que todos têm em você. Qualquer um que ousar me desafiar… servirá de lanche para o meu querido Obscuro.
+Tzough passeou o olhar pelos piratas ao redor.
 
-A criatura que Tzough montava urrou enquanto ele descia e caminhava na minha direção, parando bem perto de mim.
+— E quanto mais coragem lhes sobra, menos respeito demonstram pelo capitão. Que situação desagradável.
 
-— Deixe-os em paz, Tzough. Prenda-os, eles vão aprender. Eu aprendi — pedi.
+Vivian encarava Tzough. As mãos dela tavam apertadas uma contra a outra, no colo. Leitham mantinha a cabeça baixa. Um dos piratas puxou outro pelo braço quando o sujeito tentou sair da roda. Ninguém queria chamar a atenção do capitão. Tzough viu o movimento e fez sinal para os dois se aproximarem. Os desgraçados obedeceram sem dizer uma palavra.
 
-— Não existe paz no inferno, Jasmey — disse Tzough, erguendo o braço. Naquele momento, a criatura correu na direção dos dois e abocanhou Leitham, engolindo-o vivo enquanto ele gritava. Leitham jurava ter perseguido a Lebargan e vivido para contar. Agora era só um barulho de mastigação e um mentiroso a menos. Desperdício. E, por um segundo que eu jamais admitiria, o homem também. Encarei Tzough com extrema fúria e, então, senti uma mão atrás de mim. Virei-me e vi que era O’reilly.
+— Bastante. Se fosse eu, botava os homens pra decidir as coisas junto comigo. Mas o problema é teu, capitão. Não meu.
 
-— Vamos, meu amigo — disse O’reilly. Atrás dele estavam Hardman, Buni e Kord.
+— Meu problema não são meus homens. É você, Jasmey. Sua presença tem tornado meu trabalho particularmente... trabalhoso.
 
-O Temparalizador, um rádio desengonçado nas mãos de Hardman, piscava com uma luz azulada intensa. Em um ecton, o caos da Fera Sideral se dissolveu em um silêncio abafado e etéreo. Minha respiração soava alta, e o ar dentro da bolha semitransparente que nos envolvia parecia ter uma densidade diferente. Lá fora, os piratas de Tzough, no auge de sua fúria, estavam congelados como esculturas grotescas de carne e ódio. Um chicote pendia no ar, a centímetros da pele de um escravo. O grito de um trabalhador, com a boca aberta, estava suspenso no tempo, uma imagem muda e macabra.
+— E me trouxe na frente de todo mundo pra me matar? Pra mostrar quem manda? Já vi esse espetáculo antes.
 
-— O que está acontecendo? — indaguei, confuso.
+— Matá-lo? Mas por quê? Lutou tão bem na nossa última abordagem! Não desperdiçaria um homem tão talentoso.
 
-— Já ativamos a permissão de saída pela barreira quântica, então ande logo, temos pouco tempo — apressou-me Hardman notando que Kord estava distraído com algo — Ta olhando para a garota por quê?
+Ele fez um gesto amplo na direção dos dois prisioneiros.
 
-Olhei para Tzough e depois para a criatura, que estava com a boca aberta prestes a devorar Vivian.
+— Trouxe-o para assistir. Quero que você e todos os seus admiradores vejam o que acontece com quem me desafia. Quem ainda quiser seguir seu exemplo terá a honra de conhecer o apetite do meu querido Obscuro.
 
-— Tão linda para ter um destino desses — lamentou Kord.
+A criatura urrou. Tzough desceu dela e veio até mim.
 
-— Antes ela do que a gente — respondeu Hardman.
+— Deixa os dois em paz, Tzough. Prende eles. Vão aprender. Eu aprendi.
 
-Mas ao olhar para Vivian e depois para os meus colegas, um peso enorme tomou conta da minha consciência. Estávamos nos afastando, mas então parei e balancei a cabeça, pensando no que fazer. Peguei o Temparalizador das mãos de Hardman, que tentou segurá-lo enquanto eu corria para longe. Quando saíram da bolha, Hardman e os outros três ficaram paralisados no ar.
+— Meu caro, já lhe dei tantas oportunidades de aprender.
 
-Corri até Vivian e me abaixei perto dela, a bolha se expandindo ao meu redor. Toquei-a, e a bolha imediatamente a cobriu. Ela estava encolhida, com as mãos na cabeça, esperando ser devorada.
+Tzough pousou a mão na cabeça do Obscuro. Leitham levantou os olhos. O capitão esperou que o homem percebesse o que ia acontecer antes de afastar a mão da criatura.
 
-— Ei. Tá tudo bem. Vamos embora.
+Tzough ergueu o braço. Obscuro avançou e abocanhou Leitham. Ouvi o grito do homem antes de a criatura engoli-lo. Tinha dividido uma cela com aquele sujeito. Nem sabia de onde tinha tirado a história da Lebargan dourada. Olhei pro capitão e fechei a mão de metal. Foi então que senti alguém me tocar por trás.
 
-Vivian abriu os olhos e olhou para mim, confusa, levantando-se lentamente. Ela se assustou ao ver a boca aberta da criatura logo acima de nós.
+— Vamos, irmão. Agora — disse O’reilly.
 
-— Você está oficialmente dentro de um plano de fuga. Então é melhor corrermos — falei.
+Hardman, Buni e Kord tavam junto dele.
 
-Olhei uma última vez para o capitão e vi uma curiosa arma em sua cintura. Eu sabia o que era aquilo. Um paralisador quântico. Iria ser muito útil. Apanhei-a e saí. Vivian, ainda sem entender completamente o que estava acontecendo, apenas me seguiu.
+O Temparalizador parecia um rádio meio torto nas mãos de Hardman, com uma luz azul piscando. Num ecton, o barulho da Fera sumiu. Minha respiração ficou alta demais. O ar dentro da bolha semitransparente parecia diferente. Lá fora, Tzough tava parado com o braço erguido. Um chicote permanecia no ar, a poucos centímetros das costas de um trabalhador. O homem tinha a boca aberta, mas não saía som nenhum.
 
-— Fique sempre perto da gente — disse, voltando para os meus colegas e tocando cada um, fazendo com que a bolha se espalhasse ao redor de todos nós.
+— Que porra é essa?
 
-— Seu traidor, desgraçado! — gritou Hardman, ainda no impulso de tentar pegar o Temparalizador. Ao perceber que eu não estava mais ali, ele se virou, confuso, e me viu ao lado de Vivian, tentando entender como nós fomos parar ali.
+— Já liberamos a passagem pela barreira quântica. Precisamos chegar à nave antes de a energia acabar. Kord! O que está olhando?
 
-— Estão todos prontos? — perguntei, devolvendo o aparelho a Hardman.
+Segui o olhar dele. Obscuro tava com a boca aberta, prestes a devorar Vivian.
 
-O soco que levei de Kord em seguida foi suficiente para me enfurecer.
+— A coitada vai morrer, Hardman.
 
-— Que porra pensa que está fazendo? — perguntou, olhando para Vivian — quem é ela?
+— Se ficarmos aqui, morreremos todos!
 
-— Uma colega. Que vai ir com a gente — falei, só não revidando porque não tínhamos tempo. Mas aquele soco não iria ficar assim.
+Olhei pra Vivian, pros meus colegas e pro aparelho nas mãos de Hardman. Merda. Arranquei o Temparalizador da mão dele.
 
-— Não temos mais espaço — disse O’reilly.
+— Que porra tu tá fazendo, Badrock? — Kord ergueu o punho.
 
-— Ah, vamos assim mesmo, temos pouco tempo — disse Hardman, olhando para os números no Temparalizador.
+Hardman tentou recuperar o aparelho, mas recuei depressa. O punho do Kord parou no ar. Hardman ficou com a mão estendida, Buni com a boca aberta e O’reilly com um pé fora do chão. A bolha tinha vindo comigo.
 
-Imediatamente, começamos a correr o mais rápido que podíamos, subindo as escadas em direção à proa, desviando dos piratas pelo caminho.
+Contornei os piratas, mantendo a borda do campo longe deles. Cheguei pelo lado de Vivian, com cuidado pra não incluir a cabeça do Obscuro nem os homens que a guardavam. Assim que ela ficou dentro da bolha, vi seus ombros tremerem. Se abaixou ainda mais quando me viu.
 
-— Não encostem em ninguém! — reforçou Hardman.
+— Ei. Sou eu. Vamos embora.
 
-Mas nem seus avisos impediram que, acidentalmente, esbarrássemos em um dos piratas guardas na escada. Assim que nos viu, ele tomou um susto tão grande que tropeçou no corrimão e caiu até o convés inferior, provavelmente para a morte.
+Vivian abriu os olhos. Olhou pra mim, depois pra boca da criatura parada bem acima da cabeça dela. Levantou tão depressa que quase esbarrou em mim.
 
-Chegamos ao hall de saída. As portas, gigantescas e pesadas, já estavam escancaradas, uma visão que me fez soltar um riso rouco.
+— Acabou de entrar num plano de fuga, tá? Fica perto de mim e corre.
 
-— Ok, portas abertas, como isso está tão fácil? — questionei, surpreso.
+Olhei uma última vez pro capitão e reparei na arma presa à sua cintura. Um paralisador quântico. Passei pelo lado do capitão, mantendo a borda da bolha junto à arma, cujo cabo sobressaía do coldre. Puxei o paralisador pra dentro sem deixar que o Tzough entrasse no campo. Corri. Vivian veio logo atrás, olhando de um lado pro outro.
 
-— Eu cuidei disso — respondeu Kord, bem-humorado. — A fiação do sistema das portas do hall atravessa as máquinas.
+— Não se afasta!
 
-— Nada mal! — respondi.
+Voltei por onde tinha vindo. Assim que os quatro entraram de novo na bolha, Hardman fechou a mão no vazio, Buni terminou de abrir a boca e o Kord completou o movimento que tinha começado antes de eu sair.
 
-Então, apressamos o passo em direção às naves. O’reilly nos guiou até a nave onde havia escondido as armas. Ao nosso redor, os piratas guardas estavam paralisados, alguns com as armas erguidas, outros no meio de um bocejo. Pareciam estátuas vivas, prontas para desabar.
+O soco me acertou em cheio.
 
-— Assim que chegarmos à nave, o Temparalizador irá se expandir. Sua expansão irá diminuir seu tempo de eficiência. Teremos apenas alguns poucos ectons para escapar — explicou Hardman.
+— PORRA, KORD!
 
-No momento em que ele terminou de falar, eu senti o ar mudando, a temperatura oscilando. A sensação de paralisia no mundo exterior enfraqueceu, e um zumbido distante começou a preencher o silêncio. Então o Temparalizador se desativou, fazendo o mundo explodir em som e movimento. Piratas que antes eram estátuas se lançaram sobre nós, suas armas ecoando pelo hall.
+— NÃO VAI FUGIR SOZINHO, FILHO DA... — Kord parou ao ver Vivian. — Ué. De onde veio ela?
 
-— Ih, merda! — exclamou Kord.
+Hardman olhou pra Vivian, pro lugar onde eu tinha estado e pro aparelho na minha mão.
 
-Nesse instante, próximo a um dos piratas armados, agi por instinto. Atirei-me sobre ele, arrebatando sua arma e disparei contra três piratas antes que pudessem reagir.
+— Jasmey! Você saiu do campo conosco do lado de fora?
 
-— CORRAM! — gritou Hardman. Seguimos correndo para a nave que O’reilly indicou, desviando dos tiros inimigos. As portas da nave estavam abertas, então, ao entrarmos, me posicionei atrás da parede de metal, disparando contra qualquer inimigo que tentasse se aproximar. De repente, alguém apareceu ao meu lado, arma em punho. Virei-me rapidamente, mas vi que ela também mirava nos inimigos lá fora.
+— Saí e voltei. Tá todo mundo aqui, não tá?
 
-— Olá, Jasmey — disse-me Alekta.
+Devolvi o aparelho a Hardman.
 
-— O quê? O que está fazendo aqui? — perguntei, surpreso.
+— Uma colega. Vai com a gente.
 
-— É por isso que eu disse que não tínhamos mais espaço — disse O’reilly.
+Não revidei porque tava sem tempo. Mas anotei mentalmente aquele soco.
 
-— Hardman não te contou? Fui eu quem facilitou a nave para que fugíssemos. Ah, claro que ele não te contou, senão você não toparia fugir comigo — explicou ela, sarcástica.
+— Não temos mais espaço, Jasmey — disse O’reilly.
 
-— Claro que não toparia — retorqui, mantendo-me atrás da cobertura — DÁ PRA FECHAR A PORRA DA NOSSA COMPORTA? — gritei para alguém lá dentro.
+— Discutiremos isso depois! Andem! — Hardman olhava os números do aparelho. — Perdemos tempo. Ainda temos de chegar à garagem.
 
-Ouvi os motores da nave rugindo e a comporta de saída da Fera Sideral se abrindo enquanto nos movíamos em direção a ela. A primeira comporta da nossa nave começou a se fechar e Alekta se virou para entrar. Nesse momento, fiz algo impulsivo. Arranquei a arma de sua mão e a empurrei para fora da nave. Ela caiu dois metros abaixo, praguejando e xingando, batendo as costas no chão da Fera.
+Saímos correndo em direção à popa. Subimos as escadas, desviando dos piratas parados pelo caminho.
 
-— Estou apenas sendo leal à minha tripulação, Alekta. Além disso, um colega disse que não há espaço o suficiente. Não é nada pessoal — falei antes da porta se fechar completamente, enquanto ela gritava, furiosa. Corri para dentro da nave antes que a segunda comporta se fechasse, e por fim, decolamos para fora da Fera Sideral.
+— Não encostem em ninguém!
 
-Percorri o corredor central até chegar ao comando. Hardman estava à frente do painel de navegação. Kord e Buni estavam à direita, afivelados nos assentos, e Vivian e O’reilly, à esquerda.
+Alguém esbarrou num guarda na escada. O sujeito voltou a se mexer quando entrou no campo, arregalou os olhos ao nos ver e tropeçou no corrimão. Caiu em direção ao convés inferior.
 
-— Ahm, cadê a Alekta? — perguntou Hardman.
+Chegamos ao hall de saída. As portas enormes estavam escancaradas. Soltei o ar pela boca, aliviado.
 
-— Nossa heroína ficou para trás para nos salvar — menti. — Vou sentir falta dela.
+— Como diabos vocês conseguiram abrir essas portas?
 
-— Ela era uma boa pirata — comentou Buni, pensativo.
+— A fiação do hall passa pelas máquinas — disse Kord. — Deixei tudo preparado.
 
-Nos voltamos para a frente, encarando a barreira quântica. Se a saída de espaçonaves estivesse desativada, seríamos vaporizados. Fechamos os olhos ao nos aproximarmos e... então ouvi gritos e risadas alegres de alívio dos meus companheiros. Hardman virou a nave, configurando nossa próxima direção.
+— Nada mal, careca.
 
-— Sabe pilotar uma nave? — perguntei a ele.
+O’reilly nos guiou até a nave onde Kord tinha escondido as armas. Passamos por guardas imóveis, uns com armas na mão, outros no meio de um bocejo. Buni quase esbarrou num deles e fez um esforço danado pra se espremer entre o sujeito e uma coluna. Vivian percebeu que ele tava ficando pra trás, puxou a manga dele e indicou uma passagem mais larga. Buni conseguiu alcançar a gente.
 
-— Já pilotei algumas na vida. E sei como os motores funcionam — respondeu — Agora só precisamos desaparecer.
+— Quando alcançarmos a nave, precisarei aumentar o raio do campo. Isso vai consumir mais energia. Teremos poucos ectons para decolar.
 
-Enquanto Hardman focava nos comandos, Vivian fez um som com a boca e apontou para o vidro lateral, onde ao olhar através dele, avistamos duas naves menores se aproximando.
+Antes de chegarmos à nave, o indicador começou a piscar depressa. Tínhamos gasto parte do tempo resgatando Vivian. Assim que Hardman terminou de falar, senti a temperatura mudar. O silêncio começou a desaparecer. Primeiro um zumbido, depois o barulho das máquinas e, por fim, os gritos dos guardas. O aparelho apagou. Os piratas que a gente tinha acabado de atravessar começaram a correr na nossa direção.
 
-— Parece que temos companhia — disse Kord — esses desgraçados.
+— IH, MERDA! — gritou Kord.
 
-— Merda! Precisamos nos virar contra elas, se não as derrubarmos, elas nos derrubarão! — falou Hardman.
+Me joguei em cima do guarda mais próximo, tomei a arma dele e disparei contra três piratas antes que conseguissem reagir.
 
-— Se atacarmos, perderemos tempo. A Fera tem muito poder de fogo, quanto mais tempo demorarmos, mais risco corremos — falei.
+— CORRAM!
 
-— Odeio dizer isso, mas o cabeludo tem razão — declarou O’reilly.
+Fomos até a nave indicada por O’reilly, desviando dos tiros. A porta tava aberta. Assim que entrei, me protegi atrás da parede metálica e comecei a atirar em quem se aproximava. Alguém parou do meu lado e também começou a disparar. Virei a cabeça.
 
-— Não, ele não tem. Precisamos derrubar aquelas duas antes que seja tarde — disse Hardman começando a virar a nave.
+— Oi, Jasmey — disse Alekta.
 
-Imediatamente, o empurrei para o lado e assumi o controle.
+— QUE PORRA VOCÊ TÁ FAZENDO AQUI?
 
-— Você pode ter pilotado algumas dezenas de naves. Mas eu já fui capitão em centenas delas — falei tornando a virar a nave em direção ao espaço.
+— Foi por isso que eu disse que não tinha mais espaço — gritou O’reilly, lá de dentro.
 
-Vivian parecia aflita, as duas mãos no rosto.
+— O Hardman não contou? Fui eu que arranjei essa nave. Ele deve ter imaginado que você não ia querer vir se soubesse.
 
-— Acalme-se, vai dar tudo certo — disse Kord tentando a tranquilizar — Sabe o que faz?
+— E NÃO IA MESMO! — Disparei de novo. — DÁ PRA FECHAR ESSA PORRA DE COMPORTA?
 
-Ele olhou para mim, buscando confiança, e eu assenti.
+Os motores ligaram e a nave começou a se mover na direção da saída da Fera. A primeira comporta começou a fechar. Alekta se virou pra entrar. Arranquei a arma da mão dela e a empurrei pra fora. Caiu uns dois metros abaixo, de costas no piso da Fera, berrando e me xingando.
 
-Então sentimos um tremor. Um dos tiros das naves inimigas nos acertou.
+— Tô só sendo leal à minha tripulação, Alekta! E disseram que não tinha espaço! Nada pessoal!
 
-— JASMEY, precisamos atacar! — insistiu Hardman.
+A comporta fechou antes que pudesse ouvir a resposta inteira. Corri pro interior da nave e atravessei a segunda comporta. Finalmente, a gente decolou.
 
-— NÃO, NÃO... VAMOS MORRER! — gritou Buni em desespero.
+Corri pelo corredor central até a cabine. Hardman tava no painel de navegação. Kord e Buni estavam afivelados à direita, Vivian e O’reilly à esquerda.
 
-— Um momento! — eu disse, colocando um headset enquanto ajustava os switches no painel de navegação.
+— Onde está Alekta? — perguntou Hardman.
 
-— JASMEY! — gritou Hardman, enquanto a nave tremia novamente e os inimigos se aproximavam cada vez mais.
+— Nossa heroína ficou pra trás pra salvar a gente. Vou sentir saudade.
 
-Hardman segurou meu braço e tentou me puxar, mas naquele instante, seu corpo foi arrastado para trás, enquanto a gravidade à nossa frente se distorcia, as estrelas se apertavam num cone à frente, e tudo tremia enquanto nos deslocávamos pelo espaço-tempo.
+— Poxa... Ela era uma boa pirata — disse Buni.
 
-Hardman caiu no chão, arrastou-se até um banco e afivelou o cinto. Eu estava concentrado no controle, monitorando o calor e o radar de astros. Era essencial que não houvesse nenhum corpo celeste no caminho: a uma velocidade tão alta, qualquer colisão, por menor que fosse, faria a nave explodir com tanta intensidade que sistemas próximos veriam o clarão no céu.
+Olhei pra frente. A barreira quântica tava cada vez mais perto. Se a autorização de saída tivesse sido desativada, a gente ia morrer antes de alcançar o espaço. Segurei na lateral do assento de Hardman. Fechei os olhos no último instante. Aí ouvi Buni gritar e Kord gargalhar. Tínhamos passado. Hardman virou a nave e começou a definir a próxima direção.
 
-Quando a nave parou de acelerar e o espaço-tempo ao redor era apenas dobrado, respirei fundo e relaxei. Buni, O’reilly e Kord fizeram o mesmo. Pela janela, as estrelas da frente tinham um azul quase imperceptível e as de trás, um tom a mais de vermelho, o tipo de detalhe que só nota quem passa a vida pilotando.
+— Você sabe pilotar?
 
-Pela janela, as estrelas à frente se pintavam de azul e as de trás, de vermelho. Ninguém comentou.
+— Já pilotei algumas naves. Conheço o funcionamento dos motores. Agora precisamos desaparecer.
 
-— Haha, conseguimos! — falou Hardman. — Seu filho da puta, você conseguiu!
+Vivian soltou um som e apontou pro vidro lateral. Quando olhei, vi duas naves menores vindo atrás da gente.
 
-— Eu ouvi mesmo você falar um palavrão, Hardman? — perguntou Kord rindo.
+— Olha os desgraçados vindo aí — disse Kord.
 
-— Está andando tempo demais com o cabeludo — disse O’reilly.
+— Precisamos virar e derrubá-los antes que nos atinjam! — Hardman começou a mexer nos controles.
 
-Buni riu e me levantei do comando, olhando para todos. Hardman estava emocionado, as mãos no rosto. Todos pareciam muito aliviados.
+— Se virar, perde tempo! A Fera tem poder de fogo pra estourar a gente. Quanto mais rápido sair daqui, melhor.
 
-— Sete momentos — disse O’reilly —, foram sete momentos infernais dentro daquela nave.
+— Dessa vez o cabeludo tem razão, Hardman — disse O’reilly.
 
-— Dez momentos lá dentro, e eu não acredito que conseguimos — falou Kord, respirando fundo.
+— Se continuarmos de costas para aquelas naves, não chegaremos longe.
 
-— Até quando a dobra aguenta? — perguntou Buni, ainda agarrado ao cinto.
+Empurrei Hardman pro lado e sentei no comando.
 
-— Até a energia acabar, ou até uma estrela entortar a bolha. Pela Síntese, perto de um sol a dobra só segura se for desacelerando — respondeu Hardman.
+— Pode até ter pilotado umas dezenas de naves, meu amigo, mas já comandei centenas. Deixa comigo.
 
-— Jasmey, dá pra você prestar atenção em aonde estamos indo — disse Hardman preocupado — antes de mais nada precisamos aterrissar em um planeta para que eu possa remover o rastreador. Alekta tinha bloqueado os efeitos do rastreador, mas é temporário.
+Vivian segurava o rosto com as duas mãos.
 
-— Não seja rabugento, Hardman, sorria, está livre novamente — falei.
+— Calma, garota. — Kord olhou pra mim. — Tu sabe mesmo o que tá fazendo?
 
-— Não vou discutir com você. Por sua culpa, quase que o plano dá todo errado — disse Hardman.
+Assenti sem tirar os olhos do painel.
 
-— E por minha culpa, estamos todos salvos. E ainda salvamos a vida da garota… Vivian — falei, sorrindo para ela, que retribuiu o sorriso aliviado.
+Um tiro acertou a nave. O assento tremeu debaixo de mim.
 
-Kord desafivelou o cinto e caminhou lentamente até ela.
+— JASMEY, PRECISAMOS REAGIR!
 
-— Bom. Ele realmente salvou a vida dela — disse Kord, parando em frente a Vivian de braços abertos. — Olá, eu me chamo Kord. Você é a Vivian, não é?
+— A GENTE VAI MORRER! — gritou Buni.
 
-Vivian não respondeu, parecia assustada. Percebi isso e caminhei até ela.
+— UM MOMENTO, PORRA!
 
-— Ela não fala... — disse aos colegas, então me dirigi a ela — Ei, pode ficar tranquila. Aqui todos somos amigos. Ninguém vai te machucar.
+Coloquei o headset e comecei a mexer nos interruptores do painel.
 
-Vivian fez um gesto com a mão, mas eu não entendi.
+— JASMEY!
 
-— Não — disse Kord, aproximando-se dela — não somos piratas. Quer dizer, não dos malvados.
+Outro disparo. As duas naves tavam chegando cada vez mais perto.
 
-Vivian fez mais um gesto, e Kord assentiu.
+Hardman agarrou meu braço. Naquele instante, a gravidade à frente se distorceu e as estrelas se concentraram num cone. A nave começou a vibrar. Hardman foi puxado pra trás.
 
-— Pode ficar tranquila. Vamos cuidar uns dos outros — ele disse, pegando nas mãos dela.
+Caiu no chão, se arrastou até um assento e afivelou o cinto. Mantive os olhos no painel, conferindo o calor dos motores e o radar de astros. Precisava ter certeza de que o trajeto tava livre. Uma colisão em dobra podia destruir a nave e produzir um clarão visível até de sistemas próximos.
 
-— O quê? Ela fala pelas mãos? E você entende isso? — perguntei, surpreso.
+Quando a aceleração terminou e a bolha se estabilizou, tirei uma das mãos do painel. As estrelas à frente tinham adquirido um azul quase imperceptível. As de trás, um tom mais vermelho. Buni ainda agarrava o cinto com tanta força que dava pra ver os dedos brancos.
 
-— Sinais universais. Não acredito que os Dales não aprendiam isso — disse Kord, surpreso.
+Esperei alguns ectons, conferi o radar mais uma vez e olhei pros meus companheiros. Nenhuma das duas naves tinha nos seguido.
 
-— Não precisávamos aprender idioma algum. Tínhamos um tradutor — respondi.
+— CONSEGUIU! Seu filho da puta, você conseguiu! — Hardman ria.
 
-— Quando a preguiça e a tecnologia andam de mãos dadas — disse Hardman.
+— Ouvi você falar filho da puta, Hardman? — Kord começou a rir.
 
-— Além disso, caso um de nós perdesse a habilidade de se comunicar, imediatamente éramos retirados — expliquei.
+— Tá convivendo demais com o cabeludo — disse O’reilly.
 
-— Boa solução — riu Kord — menos gente, mais recursos. Por que você não simplesmente arranca a língua do seu ex-capitão.
+Buni soltou uma gargalhada. Me levantei e abri os braços. Hardman tava com as mãos no rosto. Olhei de um pro outro. Finalmente tinha uma plateia à altura.
 
-— Vou arrancar muito mais do que a língua dele quando o encontrar — brandi. — Quando retirarmos este rastreador, poderemos ir à Aurora. Vou garantir que ele descubra o caminho para lá e estarei esperando por lá — afirmei.
+— Sete momentos — disse O’reilly. — Sete momentos naquela merda.
 
-Hardman e os outros se entreolharam e pigarrearam. Eu não estava gostando daquela reação.
+— Dez, irmão. Passei dez momentos lá dentro. Nem acredito que acabou.
 
-— Então, Jasmey… nós concordamos que fugiríamos juntos, mas ninguém disse nada sobre ir atrás da Aurora.
+— E a nave vai continuar assim até quando? — perguntou Buni.
 
-— Você ficou maluco? Quer ir pra Aurora e ainda levar a Lebargan até nós? Acabamos de fugir de uma nave pirata, por que iríamos em direção a outra? Além disso, eu preciso ver minha mãe — disse O’reilly.
+— Até a energia acabar ou a gravidade de uma estrela deformar a bolha. Pela Síntese, só podemos manter a dobra perto de uma estrela se desacelerarmos.
 
-— E eu preciso voltar para meu planeta — disse Kord.
+Hardman olhou pra cadeira do comando, que eu tinha acabado de deixar vazia.
 
-Olhei para os três com as sobrancelhas erguidas e me virei para Buni.
+— Jasmey, pode prestar atenção na direção em que estamos indo? Temos de pousar em algum planeta para retirar o rastreador. Alekta bloqueou temporariamente o sinal, mas o efeito não dura para sempre.
 
-— E você, o que quer? Se deitar com uma mulher num bordel?
+— Sorria, Hardman! Tá livre!
 
-Buni olhou desajeitado para Hardman, depois para mim, e assentiu.
+— Não vou discutir. Por sua causa, quase perdemos a oportunidade de fugir.
 
-— Qualé? — falei. — Vocês estão de brincadeira. Querem que eu deixe cada um de vocês em cada canto da galáxia?
+— E por minha causa tamo vivos. E salvamos a Vivian.
 
-— Você nos deixar? — riu Kord — E quem disse que a nave é sua para “nos deixar” e levá-la consigo. Vamos encontrar um lugar seguro, retirar o rastreador, vender a nave e distribuir o dinheiro entre nós. O que você vai fazer com a porra da sua parte é problema seu.
+Sorri pra ela. Vivian retribuiu com um sorriso pequeno, ainda segurando o cinto.
 
-Levantei-me, irritado, e apontei minha arma para ele. Hardman imediatamente ergueu as mãos no ar, e O’Reilly apontou sua arma para mim. Vivian colocou a mão na boca, assustada.
+Kord soltou o cinto e se aproximou dela, devagar.
 
-— Isso não é um negócio — ameacei.
+— É, ele salvou a vida dela. Oi, garota. Sou o Kord. Vivian, né?
 
-— O que é? Está revoltadinho é? Porque foi agredido na escolinha dos Dales e agora quer bater no seu ex professor? — zombou Kord se aproximando de mim, o peito erguido.
+Ela olhou pra mão que ele tinha estendido e depois pra minha cara. Parecia não saber se podia confiar na gente.
 
-— Repita o que você falou, seu saco de merda — falei em tom de ameaça.
+— Ela não fala, cara.
 
-— Ei, ei, calma — disse Hardman. — Acabamos de fugir do inferno e já querem se matar? Somos seis e temos uma nave. Cada um tem seus planos, mas a gente decide junto. Por enquanto.
+Me aproximei.
 
-Olhei para os outros dois, de braços cruzados, esperando suas reações.
+— Ei, fica tranquila. Ninguém aqui vai te machucar.
 
-— E como vamos fazer isso? — perguntou Buni.
+Vivian fez uns gestos com as mãos. Olhei pro Kord.
 
-— Tem uma forma justa — disse Hardman. Pegou um papel, escreveu algo e o rasgou em pedaços. — Cada pedaço leva a inicial de um de nós. Sorteamos um, e o sorteado diz o que fazemos primeiro.
+— Não, não somos piratas — respondeu ele. — Quer dizer... não desses que fazem mal a todo mundo.
 
-— Que se dane essa merda. No primeiro lugar em que pisar, vou atrás de uma nave e parto sozinho atrás da Aurora — bradei.
+Ela fez mais alguns sinais, ainda meio encolhida no assento.
 
-— Claro, já que sabe bem como encontrar a Aurora sozinho e sem uma nave — disse-me o Hardman, aquele sacana.
+— Pode ficar tranquila. Tá todo mundo tentando sair vivo daqui.
 
-— Olha, eu não quero fazer parte desses joguinhos. Eu preciso matar o Jelles. Tenho irmãos naquela nave que podem ser mortos a qualquer momento por ele. Tenho mais a perder do que vocês.
+Kord ofereceu a mão outra vez. Dessa vez, ela aceitou.
 
-Hardman olhou para mim, e os demais fizeram o mesmo, despreocupados. Ele me ignorou e embaralhou os papéis na mão.
+— Pera aí. Tu entende o que ela tá dizendo com as mãos?
 
-— Inferno! — resmunguei.
+— Sinais universais, ué. Não ensinaram isso pros Dales?
 
-— Ótimo, quem vai sortear? — perguntou Hardman, a mão aberta com os papéis amassados sobre a palma.
+— Tinha tradutor pra tudo. Pra que ia aprender?
 
-— Eu começo! — disse Kord — se eu me tirar, vamos para meu planeta natal. Conheço quem compraria essa nave por um bom valor.
+— Um exemplo admirável de como a tecnologia pode estimular a preguiça — comentou Hardman.
 
-— Vai nos deixar Kord? — disse Buni sentimental.
+— E se um Dale perdesse a capacidade de se comunicar, podiam retirar ele logo.
 
-Kord olhou para Buni e sorriu.
+Kord fechou a cara.
 
-— Meu amigo, nunca vou deixá-los.
+— Belo sistema. Por que não arranca a língua do teu ex-capitão pra ver se ele gosta?
 
-Kord então estendeu sua mão para apanhar o papel e puxou um deles, o desembrulhando. Olhei pelo canto dos olhos, irritado.
+— Vou arrancar muito mais que a língua. A gente tira o rastreador, vai pra Aurora e eu dou um jeito de fazer o Jelles ir até lá. Vou tá esperando por ele.
 
-— B? Buni, parece que vamos atrás de seus planos primeiro — disse Kord.
+Hardman olhou pra Kord. O’reilly desviou os olhos. Aquela cara não me agradou nem um pouco.
 
-Buni bateu palmas, animado enquanto eu bufei, irritado.
+— Jasmey, combinamos que fugiríamos juntos. Não combinamos que iríamos à Aurora.
 
-— Ok — disse Hardman — então Buni... o que vai ser?
+— A gente acabou de fugir de uma nave pirata e você quer botar outra atrás da gente? — O’reilly sacudiu a cabeça. — Irmão, eu quero ver minha mãe.
 
-— Um bordel... com garotas — disse ele, animado.
+— E eu quero voltar pra Sajir — disse Kord.
 
-Todos se olharam naquele momento constrangedor.
+Olhei pros três. Depois virei pro Buni.
 
-— Ok, vamos até... um bordel... Buni quer se deitar com algumas garotas — falou Hardman, sem jeito.
+— E você? Quer ir pra um bordel?
 
-— Um bordel… estamos falando sério? Homens estão em riscos e o gordo quer ir pra um bordel?
+Buni olhou pro Hardman. Depois assentiu, meio sem jeito.
 
-— Não fale assim de meu amigo — brandiu O’reilly.
+— Qualé, gente! Vou ter que deixar cada um num canto da galáxia?
 
-— Eu nunca me deitei com uma garota antes — disse Buni.
+— Deixar a gente? — Kord riu. — Desde quando essa nave é tua? A gente acha um lugar seguro, arranca o rastreador, vende a nave e divide o dinheiro. Depois você faz o que quiser com a tua parte.
 
-Respirei fundo e balancei a cabeça. Tudo bem, pensando bem, a ideia não era tão ruim assim.
+Me levantei e apontei a arma pra ele. O’reilly sacou a própria arma e apontou pra mim. Hardman ergueu as mãos. Vivian se encolheu no assento, com a mão na boca.
 
-— Eu conheço um ótimo lugar, e a julgar pelas constelações no céu, não estamos muito longe de lá.
+— Isso não é um negócio, porra.
 
-Olhei para Buni e forcei um sorriso. O homem batia palmas, feliz, com um grande sorriso no rosto. Vivian fez uma careta, enquanto O’reilly também forçava um sorriso.
+— Não? Teu capitão te chutou pra fora da nave e tu quer voltar lá pra acertar as contas? — Kord veio até mim, com o peito estufado.
 
-— E que lugar é esse? — perguntou Kord.
+— Repete, seu saco de merda.
 
-— Sumatram — respondi com os olhos apertados.
+— CHEGA! Acabamos de fugir daquele inferno e vocês já querem se matar? Somos seis pessoas e temos uma nave. Cada um tem seus motivos. A decisão é de todos, pelo menos por enquanto.
 
-— Sumatram? — perguntou Hardman. — Já ouvi falar desse lugar. Nada bom, é claro.
+Olhei pro O’reilly, que continuava com a arma apontada. Baixei a minha. Não ia conseguir chegar à Aurora se acabasse comprando briga com todos aqueles sujeitos. Principalmente com Hardman.
 
-— Você? Eu duvido muito — falei.
+— Mas como a gente vai decidir? — perguntou Buni.
 
-— E onde fica Sumatram? — perguntou O’reilly.
+— Por sorteio. — Hardman pegou um pedaço de papel e escreveu nele. Rasgou-o em seis partes, dobrou cada uma e mostrou os papéis. — Uma inicial para cada um. Quem for sorteado escolhe o primeiro destino.
 
-— Braço de Demeroso, zona Lambda, 15ª estrela do terceiro tráfego.
+— Que se dane. No primeiro planeta em que pousar, vou arranjar outra nave e ir pra Aurora sozinho.
 
-Imediatamente acessei o sistema da nave à procura do planeta e então vimos no visor no vidro uma animação do percurso que ainda nos restava.
+— Claro. Principalmente porque conhece a localização da Aurora e tem dinheiro para comprar uma nave.
 
-— 10 parsecs daqui? — indagou Hardman, preocupado. Ele olhou para o painel central e constatou algo. — Só temos energia o suficiente para 12 parsecs. Precisaremos recarregar o combustível.
+— Não tô a fim desses joguinhos, Hardman. Preciso matar o Jelles. Tenho irmãos naquela nave que podem morrer a qualquer momento. Tenho mais a perder que vocês.
 
-— Ótimo, Sumatram é um ótimo ponto para reabastecer — afirmei — pode colocar a nave com destino à Sumatram.
+Hardman ficou me olhando por um instante. Depois voltou a embaralhar os papéis. Nenhum dos outros tomou meu partido.
 
-— Então vamos para Sumatram — disse O’Reilly.
+— Inferno.
 
-Hardman ergueu a sobrancelha e eu segui até o controle, configurando as coordenadas de nosso destino enquanto todos os outros voltavam a se sentar.
+— Quem quer tirar o papel?
 
-Após programar a rota, me sentei ao lado de Buni.
+— Eu! Se tirar o meu, vamos pra Sajir. Conheço uns caras que pagariam bem por essa nave.
 
-— Tenho certeza que você vai gostar Sumatram — falei.
+— Você vai embora, Kord? — Buni perguntou.
 
-— Tem certeza? — perguntou ele. — E se as mulheres lá não gostarem de mim?
+Kord olhou pra ele e sorriu.
 
-— Ahm, não rola esse tipo de coisa por lá. Afinal, vamos… pagar pelo serviço. Com alguma coisa, é claro. Aliás, temos alguma moeda de troca aqui? — perguntei.
+— Vou deixar vocês nada, irmão.
 
-— Trouxe alguns minerais das máquinas — respondeu O’reilly. — Estão no baú na entrada.
+Kord pegou um papel e desdobrou com aqueles dedos enormes. Me inclinei um pouco pra enxergar a letra.
 
-— Ótimo, uma preocupação a menos — falei, virando-me novamente para Buni. — Mas me diga uma coisa… você mesmo nunca… — fiz um gesto com a mão para ver se ele entendia — nunca… fodeu?
+— B. É teu, Buni!
 
-Buni balançou a cabeça.
+Buni bateu palmas. Eu bufei.
 
-— Eu era bem novo quando fui levado para a Fera. Trabalhava com meu irmão mais velho numa fazenda isolada — disse Buni. Ele nunca fora de falar muito, então ouvir sua voz era uma raridade — Cuidávamos da plantação que nosso pai nos deixou antes de morrer. Até que nossa plantação foi atacada e fomos obrigados a fugir. Meu irmão era bonito, corajoso... já eu, nunca consegui enfrentar ninguém. Quando fomos capturados por Tzough, meu irmão resistiu e foi assassinado... já eu, não lutei... fui completamente covarde.
+— Pois bem, Buni. Qual é o seu destino? — perguntou Hardman.
 
-Buni já estava em lágrimas quando Kord passou o braço por ele.
+— Um bordel. Com garotas.
 
-— Aí cara, você não é covarde. É um dos caras mais incríveis que eu conheço. Lembra do que te falei sobre o mundo ser muito cinza. Você às vezes me lembra de que ainda há cores. Ainda há pessoas boas. Esses quatro momentos que passou na Fera, apenas serviram para te deixar ainda mais forte.
+Todo mundo ficou quieto. Hardman abriu a boca, olhou pra Vivian, depois pro Buni.
 
-— Tem que idade, Buni? — perguntei.
+— Certo. Um... estabelecimento. Buni gostaria de conhecer algumas moças.
 
-— 38 — respondeu ele.
+— Um bordel! O sujeito fala bordel! Tenho irmãos em perigo e o gordo quer ir pra um bordel?
 
-— 38? — indaguei — está brincando que passou 38 momentos sem nunca dar uma fodinha?
+— Não fala assim do meu amigo, Jasmey — disse O’reilly.
 
-Buni sacudiu a cabeça.
+— Nunca me deitei com uma garota antes — disse Buni, baixinho.
 
-— Aí, se não for para ajudar, cai fora — resmungou Kord.
+Respirei fundo. Olhei pro painel e pras estrelas. Pensando bem, talvez aquela não fosse a pior ideia do mundo.
 
-— Desculpe, mas o cara nunca... espero que não seja precoce na primeira vez — falei.
+— Conheço um lugar. E, pelas constelações, não deve estar muito longe daqui.
 
-Vivian soltou um risinho e Kord me empurrou. Me virei, agressivo para ele, e sustentei o olhar. O empurrão entrou na conta que eu mantinha de cabeça com Kord, já na terceira página.
+Buni bateu palmas outra vez. Vivian fez uma careta e desviou o olhar, enquanto O’reilly tentava sorrir.
 
-— Não toque em mim outra vez — ameacei.
+— Que lugar? — perguntou Kord.
 
-— Você está cheio de graça, não é irmão? — perguntou Kord.
+— Sumatram.
 
-— Yo-ho, pessoal. Vamos aproveitar a vida — disse O’reilly quebrando o gelo — Kord, como é mesmo aquela canção pirata que me ensinou? — A pergunta de O’reilly pareceu desconcentrar Kord, pois na mesma hora, suas expressões mudaram e ele começou a cantar.
+— Sumatram? Já ouvi falar. Não exatamente recomendações — disse Hardman.
 
-— CINCO HOMENS NO BAÚ DO DIABO NEGRO…
+— Você? O que você anda ouvindo sobre bordéis, Hardman?
 
-— Yo ho ho e um Necroriano — Buni o acompanhou.
+Ele fechou a cara.
 
-— Como você conhece essa canção? — perguntei.
+— E onde fica isso, irmão? — perguntou O’reilly.
 
-— Todos conhecem o hino pirata — riu Kord, antes que continuássemos a cantar. Hardman era o único que não se entreteve.
+— Braço de Demeroso, zona Lambda, décima quinta estrela do terceiro tráfego.
 
-O hino pirata, o hino que cantávamos sempre entre nós na Lebargan. Achava que apenas nós o conhecíamos.
+Procurei o planeta na Carta Estelar da nave. O percurso apareceu no visor.
+
+— Dez parsecs? — Hardman se inclinou pro painel. — Temos energia para doze. Precisaremos reabastecer.
+
+— Sumatram é ótimo pra isso. Pode botar o destino.
+
+— Então vamos pra Sumatram — disse O’reilly.
+
+Hardman ergueu as sobrancelhas. Voltei ao controle, configurei as coordenadas e esperei que o sistema confirmasse a rota.
+
+Quando terminei, me sentei do lado do Buni.
+
+— Vai gostar de Sumatram, cara.
+
+— Tem certeza? E se elas não gostarem de mim?
+
+— Bom, lá você paga pelo serviço. Se uma não quiser, conversa com outra. Não é tão complicado, cara. Aliás, temos alguma coisa pra pagar?
+
+— Trouxe uns minerais das máquinas. Tão no baú da entrada — respondeu O’reilly.
+
+— Beleza. E você nunca...?
+
+Fiz um gesto com as mãos. Buni me olhou sem entender.
+
+— Nunca fodeu?
+
+Ele balançou a cabeça.
+
+— Eu trabalhava numa fazenda com meu irmão mais velho. Era novo quando me levaram pra Fera. A plantação era do nosso pai, sabe? Ele deixou tudo pra gente quando morreu. Um dia atacaram a fazenda e a gente teve que fugir. Meu irmão era bonito, forte, corajoso. Ele sempre me defendia. Quando os homens de Tzough pegaram a gente, ele lutou. Eu não.
+
+Buni ficou olhando pras mãos.
+
+— Mataram meu irmão. Eu nem tentei ajudar. Fiquei parado. Fui um covarde.
+
+As lágrimas começaram a cair pelo rosto dele. Kord sentou mais perto e passou o braço pelos seus ombros.
+
+— Escuta aqui, irmão. Você não é covarde. Lembra daquela conversa que a gente teve nas máquinas? Aquele lugar era uma merda. Tudo cinza. Você era um dos poucos caras que ainda lembrava a gente de que existia coisa boa lá fora. Quatro momentos naquele inferno e você saiu de lá ainda sendo o Buni. Isso vale pra caralho.
+
+— Quantos momentos você tem, Buni?
+
+— Trinta e oito.
+
+— TRINTA E OITO? E nunca deu uma fodinha?
+
+Buni balançou a cabeça, limpando o rosto.
+
+— Ô, cabeludo. Se não for ajudar, vaza — disse Kord.
+
+— Tá, tá. Desculpa. Só espero que o cara não tenha pressa demais quando chegar lá.
+
+Vivian abaixou a cabeça e soltou um risinho que tentou esconder com a mão. Kord me empurrou. Virei pra ele. Mais um pra lista. Já tava ficando difícil lembrar de todos.
+
+— Não encosta em mim de novo.
+
+— Tá cheio de graça, né, irmão?
+
+— Yo-ho, meus amigos! A gente tá livre! — O’reilly bateu palmas uma vez. — Kord, lembra daquela canção que você me ensinou nas máquinas?
+
+Kord olhou pra ele. A cara de poucos amigos foi dando lugar a um sorriso.
+
+— CINCO HOMENS NO BAÚ DO DIABO NEGRO...
+
+— Yo ho ho e um Necroriano! — Buni entrou no refrão.
+
+— Pera aí. Como você conhece essa canção?
+
+— Todo pirata conhece esse hino, porra!
+
+Kord bateu a mão na própria perna pra marcar o ritmo e continuou cantando. O’reilly acompanhou. Hardman foi pro painel, aparentemente o único sujeito ali que não tinha a menor vontade de cantar.
+
+Era a mesma canção que a gente cantava na Lebargan. Passei a vida achando que era coisa nossa. Quando chegou o refrão, comecei a cantar com eles:
 
 “Eles beberam e deixaram tudo seco
 
@@ -486,115 +582,176 @@ A estrela negra que irá lhes levar
 
 Yo ho ho e um Necroriano”
 
-Depois da canção, comemos algumas das comidas horríveis que Kord tinha trazido para a nave e fomos dormir.
+Depois da canção, fomos catar o que Kord tinha trazido pra comer. Tinha uns pães amassados e comida que eu preferia não identificar. O’reilly encontrou um copo de metal no armário da nave e encheu de água pra mim. Bebi, larguei o copo na mesa e bati de leve na borda com a unha do dedo de metal.
 
-Adormeci e acordei com um susto quando senti minhas pernas sendo puxadas para fora da cama. Ao tocar o chão, levantei-me rapidamente, preparando os punhos para dar um soco no desgraçado que me puxara. Foi quando vi O’reilly e Buni rindo.
+Tlic.
 
-— O capitão Tzough está lhe convocando — disse O’reilly gargalhando.
+Hardman levantou a cabeça do painel.
 
-— Quais são os seus problemas? — falei, levantando-me irritado — Deixa vocês adormecerem para ver se não irão acordar sem um olho.
+— O que foi isso?
 
-— Pode tentar — disse Buni rindo em um canto.
+— Nada.
 
-— Você não, Buni. Se eu te fizer algo, vai chorar — respondi.
+Ele voltou a trabalhar. Bati de novo.
 
-O’reilly soltou um risinho e Buni fechou a cara. Passei por eles e segui para o comando.
+Tlic.
 
-Vivian estava sentada num canto, girando uma pequena esfera nas mãos. Hardman dormia no banco. As luzes estavam quase todas apagadas para que ele adormecesse confortavelmente.
+Buni riu. Olhei pra ele e pro Kord. Kord tava mastigando um pão, mas deu pra ver o sorriso.
 
-— Como está? — perguntei, sentando-me ao lado de Vivian.
+Tlic.
 
-Ela assentiu para mim, forçando um sorriso e abaixando as mãos.
+— Jasmey, pode parar com isso, por favor?
 
-— O que você está segurando? — perguntei.
+— Com o quê?
 
-Vivian levantou a mão, segurando a pequena esfera, e a encostou no coração.
+Hardman me encarou. Esperei que se virasse e bati outra vez.
 
-— Isso é importante para você? — perguntei.
+Tlic.
 
-Vivian assentiu e me mostrou o que aquela esfera era: um pequeno globo escuro simbolizando o espaço, com centenas de miniestrelas em seu interior.
+— PORRA, JASMEY! É tão difícil ficar cinco ectons sem fazer alguma coisa pra me irritar?
 
-— Você recebeu isso de alguém importante? — perguntei.
+Buni parou de rir. Kord abaixou o pão. O’reilly olhou pra mim e fez um gesto discreto com a mão, pedindo pra eu deixar o cara em paz. Vivian acompanhava a conversa, apertando os lábios.
 
-Vivian assentiu novamente e olhou para baixo. O assunto parecia ser sensível para ela.
+Empurrei o copo um pouquinho pro lado e esperei que ele se sentasse de novo. Ainda dava pra alcançar com a ponta do dedo.
 
-— Eu também recebi algo de alguém especial — disse a ela, mostrando-lhe o orbe que o Sr. Peron tinha me dado antes de morrer, e que eu guardara no bolso até aquele momento. — Um homem honrado que me ensinou muitos dos conceitos que tenho hoje.
+Tlic.
 
-Lembrei do Sr. Peron e de quando eu era apenas um aprendiz, recém-saído da ala dos jovens na Lebargan. Ele estava no auge da idade, um guerreiro extremamente habilidoso, um mestre. Ensinou-me a dançar com a espada e me acompanhou na primeira missão, no planeta Maron. Lembro das histórias que contava no refeitório e das piadas geniais. Sinto muita falta daquele homem.
+Hardman se levantou, veio até a mesa, pegou o copo e voltou pro painel com ele. Fiquei com a mão no ar.
 
-Senti a mão de Vivian encostar na minha. Assenti, apertando os lábios, e me levantei.
+— Ué. Eu ainda tava bebendo.
 
-— Viva o presente, minha querida. É a melhor forma de se viver — falei antes de me virar para buscar algo para comer.
+— Lamento profundamente.
 
-Foi então que ouvi um som estranho vindo do painel. Uma luz azulada surgiu debaixo dele, e Hardman imediatamente acordou, correndo até a cadeira do capitão.
+Estendi a mão, esperando que me devolvesse o copo. Hardman tomou um gole da minha água sem tirar os olhos do painel.
 
-— Lá está ele — disse Hardman, olhando pelo vidro à nossa frente, um pequeno ponto escuro no meio da estrela amarela para a qual nos dirigíamos.
+Olhei pro Buni. O desgraçado tava tentando não rir de novo. Dessa vez, não era de Hardman.
 
-Corri para olhar pelo vidro. A pequena Sumatram estava lá, a menos de alguns ectons de distância. Hardman acendeu as luzes e comecei a desligar alguns dos interruptores do motor de dobra.
+Terminei meu pão sem água e fui dormir.
 
-— Desacelerando a dobra antes que a gente vire poeira nos detritos do sistema — falei.
+Acordei com alguém puxando minhas pernas pra fora da cama. Bati no chão, me levantei de um pulo e fechei os punhos. O’reilly e Buni tavam se acabando de rir.
 
-— Sumatram não tem Cerca de Dobra — disse Hardman. — Mundo rico paga por uma. O ruído dela quebra a bolha na borda do sistema, e depois são três dias de impulso até o porto.
+— O capitão Tzough tá te chamando, irmão!
 
-— Por isso pirata ama Sumatram — respondi.
+— Seus filhos da puta! Deixa vocês dormirem pra ver se não acordam sem um olho.
 
-— Acorde os outros, Jasmey — pediu Hardman.
+— Pode tentar — disse Buni, rindo.
 
-— Ninguém está dormindo, Hardman — respondeu Kord logo atrás de nós, com O’reilly ao seu lado.
+— Vai ficar de guarda na próxima vez, Buni.
 
-— Ótimo, então vamos nos preparar para o pouso.
+O’reilly deu um risinho. Buni ainda tava rindo quando passei pelos dois. Fui pro comando.
 
-Vivian parecia desconfortável. Talvez não fosse acostumada com pousos.
+Vivian tava sentada num canto, girando uma pequena esfera entre os dedos. Hardman dormia no banco, com quase todas as luzes apagadas. O copo de metal tava no chão, junto ao assento dele.
 
-— Sumatram tem uma cartografia detalhada na Carta Estelar para entrada de naves — falei, buscando no sistema até o modelo tridimensional surgir em holograma sobre o painel. — Vamos para a cidade de Geores. Fica... exatamente aqui — marquei com a mão uma região perto de uma zona cinzenta no litoral. — Geores fica na faixa do crepúsculo. Ninguém sai dela.
+— Tudo bem? — perguntei, sentando do lado dela.
+
+Ela assentiu, deu um sorriso pequeno e baixou as mãos.
+
+— O que é isso aí?
+
+Vivian ergueu a esfera e encostou no peito.
+
+— É importante pra você?
+
+Ela assentiu e me mostrou o que tinha nas mãos. Um globo escuro, cheio de pequenas estrelas, como um pedaço do espaço que cabia na palma da mão.
+
+— Foi presente de alguém?
+
+Vivian assentiu mais uma vez e baixou os olhos. Não insisti.
+
+— Também ganhei uma coisa de alguém.
+
+Tirei do bolso o orbe que o Sr. Peron tinha me dado e mostrei pra ela.
+
+— Um velho amigo. Me ensinou um monte de coisa.
+
+Lembrei de quando tinha acabado de sair da Ala 66. O velho ainda tava no auge, era um guerreiro do caralho. Me ensinou a usar uma espada e me levou na primeira missão, em Maron. Quando a gente voltava, contava as histórias no refeitório. Tinha umas piadas tão boas que até os Dales que não gostavam dele paravam pra ouvir. Puta merda, como fazia falta.
+
+Senti a mão de Vivian tocar a minha. Olhei pra ela, assenti e guardei o orbe.
+
+— Valeu, Vivian.
+
+Me levantei pra procurar alguma coisa pra comer.
+
+Um som veio do painel. Uma luz azul acendeu embaixo dele. Hardman abriu os olhos e correu pra cadeira do comando.
+
+— Lá está Sumatram.
+
+No vidro à frente, vi um ponto escuro contra a estrela amarela.
+
+Corri pro painel. Sumatram tava a poucos ectons de distância. Hardman acendeu as luzes e comecei a desligar os interruptores do motor de dobra.
+
+— Desacelerando a dobra antes que a gente bata nos detritos do sistema.
+
+— Sumatram não tem Cerca de Dobra. Mundos ricos costumam instalar uma. O ruído da cerca desestabiliza a bolha na borda do sistema, e depois são três dias de propulsão convencional até o porto.
+
+— Por isso pirata gosta de Sumatram.
+
+— Acorde os outros, Jasmey.
+
+— Ninguém tá dormindo, Hardman — disse Kord, atrás da gente. O’reilly vinha com ele.
+
+— Ótimo. Preparem-se para o pouso.
+
+Vivian segurou o cinto com as duas mãos. Parecia nervosa. Fiz um gesto pra que ficasse sentada.
+
+— Sumatram tem uma cartografia boa na Carta Estelar.
+
+Procurei no sistema até aparecer o modelo tridimensional sobre o painel.
+
+— Vamos pra Geores. Aqui, ó. — Marquei um ponto no litoral, perto da zona cinzenta. — Fica na faixa do crepúsculo. Ninguém sai dela.
 
 — Por quê? — perguntou Kord.
 
-— Rotação síncrona por maré. O período de rotação é igual ao orbital, então o planeta mostra sempre a mesma face à estrela. Insolação permanente de um lado, escuridão permanente do outro, e só o terminador comporta vida — respondeu Hardman.
+— Rotação síncrona por maré. O período de rotação é igual ao orbital, portanto o planeta apresenta sempre a mesma face à estrela. Insolação permanente de um lado, escuridão permanente do outro. Apenas o terminador é habitável.
 
-— Em nossa língua, Hardman — pediu Kord.
+— Em nossa língua, Hardman.
 
 — O dia aqui não acaba. Nem a noite.
 
-— Não consigo acreditar que, depois de sete momentos no espaço, finalmente vou pisar em terra — disse O’reilly.
+— Sete momentos no espaço, irmãos. Finalmente vou pisar em terra de novo — disse O’reilly.
 
-— É, não vejo a hora de sentir o calor de uma estrela novamente em meus ombros — disse Kord — tocar meus pés na grama, mergulhar em um rio de água.
+— Quero sentir o sol nas costas, botar o pé na grama, entrar num rio. Nem lembro mais a última vez que fiz isso — disse Kord.
 
-— Nem me falem — respondi.
+— Nem me fala.
 
-Enquanto nos aproximávamos, ajustei detalhes da navegação: mesmo com naves inteligentes, variáveis como o movimento dos astros e a dilatação espaço-temporal precisam ser checadas para não desviarmos da rota.
+Ajustei a navegação. Mesmo com o sistema cuidando da rota, tinha que conferir o movimento dos astros e a dilatação espaço-temporal. Não ia desperdiçar a fuga batendo numa pedra a poucos ectons do destino.
 
-Quando Sumatram surgiu à nossa frente, um planeta alaranjado, com um hemisfério em brasa, outro na escuridão e um oceano imenso cortado por uma faixa de crepúsculo, meus olhos brilharam com as lembranças de uma fase da qual não me orgulho, mas também não me arrependo.
+Sumatram apareceu à frente. Um planeta laranja, com metade em brasa, metade mergulhada na escuridão e um oceano enorme atravessando a faixa de crepúsculo. Lembrei das vezes que tinha passado por ali, de umas coisas que tinha feito e de outras que, sinceramente, faria de novo.
 
-— Preparem-se para entrar na atmosfera — anunciei enquanto acionava os motores de desaceleração.
+— Preparem-se pra entrada na atmosfera.
 
-A nave começou sua descida atmosférica, atravessando as nuvens leitosas de Sumatram. O sol, parado no horizonte, banhava o céu num crepúsculo que em Sumatram não acabava nunca.
+Acionei os motores de desaceleração. Descemos pelas nuvens leitosas e o sol apareceu parado no horizonte, deixando o céu com aquela luz alaranjada que nunca mudava.
 
-— Kord, verifique no radar se estamos em uma zona de pouso segura — instruiu Hardman, enquanto analisava os últimos ajustes nos controles.
+— Kord, verifique se temos uma zona de pouso segura — pediu Hardman, ainda mexendo nos controles.
 
-— Superfície rica em silício e magnésio. Ar respirável. Zona de baixa densidade populacional. Nenhuma forma de vida detectada num raio de quinhentos metros — reportou Kord.
+Kord conferiu o radar.
 
-Ao finalmente emergirmos das nuvens, um campo dourado se estendia abaixo de nós, com plantas ondulantes balançando ao sabor do vento que corria da noite para o dia.
+— Superfície rica em silício e magnésio. Ar respirável. Pouca população por aqui. Nenhum sinal de vida num raio de quinhentos metros.
 
-— Os habitantes daqui estão acostumados com objetos interestelares? — questionou Hardman, enquanto eu preparava a nave para o pouso final.
+Saímos das nuvens. Lá embaixo, tinha um campo dourado, coberto de plantas que se dobravam com o vento vindo da zona escura na direção do dia.
 
-— Meu amigo, Sumatram é um nexo interestelar — respondi, enquanto a cidade de Geores surgia no horizonte, suas luzes cintilando contra o céu alaranjado.
+— Os habitantes estão acostumados a receber naves interestelares? — perguntou Hardman.
 
-Com um suave zumbido, os motores cessaram e a nave pousou delicadamente. Desliguei os propulsores com um giro firme da chave e a guardei no bolso. A gravidade local era um pouco mais leve do que eu estava habituado.
+— Meu amigo, Sumatram é um nexo interestelar.
 
-— Motores desligados — declarei, enquanto os ruídos dos gases de resfriamento preenchiam a cabine.
+Vi Geores surgir no horizonte. As luzes da cidade apareciam contra o céu laranja.
 
-— Análise sísmica não contém nenhuma ameaça — disse Kord, manipulando o radar com destreza.
+Reduzi a potência dos motores até a nave tocar o chão. Desliguei os propulsores, girei a chave e guardei no bolso. A gravidade local era um pouco mais leve que a da Lebargan.
 
-Quando o silêncio reinou, só o vento zunia ao redor. Hardman se espreguiçou e seguimos juntos para a saída, as comportas abrindo com um sibilo suave. A luz solar intensa nos fez proteger os olhos até nos acostumarmos.
+— Motores desligados.
 
-Buni respirou fundo, de olhos fechados, e deu os primeiros passos na superfície do planeta, antes de se ajoelhar e se deitar ao chão, sentindo a textura da terra sob seu corpo.
+— Análise sísmica limpa — informou Kord, depois de conferir o radar.
 
-O’reilly deu saltos no ar, eufórico, enquanto Kord apenas fechava os olhos e respirava fundo. Hardman também parecia encantado.
+Os gases de resfriamento foram parando de fazer barulho. Hardman se espreguiçou e seguimos pra saída. Quando as comportas abriram, protegi os olhos da luz.
 
-— Eu já tinha esquecido como é a sensação do vento batendo no rosto — murmurou Hardman.
+Buni respirou fundo e deu os primeiros passos pra fora. Ajoelhou, passou as mãos pela terra e acabou deitando no chão.
 
-— Estamos livres, porra! — berrou Kord antes de soltar um grito de pura comemoração.
+O’reilly começou a saltar e Kord fechou os olhos, respirando pelo nariz. Vivian ficou um instante na saída, segurando a própria esfera, antes de descer e se aproximar dos outros. Hardman saiu devagar, com o vento bagunçando o cabelo. Vi o Buni estender a mão e arrancar um punhado de grama. Ele ficou olhando pras raízes, cheirou a terra e começou a sorrir. Não tinha nada de especial naquele pedaço de chão, mas, pelo jeito, fazia quatro momentos que ele não tinha a oportunidade de fazer uma coisa tão simples.
 
-Fiquei de lado, observando-os desfrutarem da liberdade que lhes fora negada por tanto tempo.
+— Já tinha esquecido como era sentir o vento no rosto — disse ele.
 
+— A GENTE TÁ LIVRE, PORRA! — berrou Kord.
+
+O’reilly gritou junto. Buni começou a rir, ainda deitado no chão.
+
+Fiquei perto da nave, olhando praqueles sujeitos. Tinha passado tanto tempo pensando em matar o Jelles que, até aquele momento, nem tinha parado pra pensar no que significava pra eles estar ali.
