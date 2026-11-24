@@ -1,216 +1,223 @@
-Sentia falta das estrelas. Sentia falta do calor de um sol. E, principalmente, de uma boa comida e de uma bebida. Pelas minhas contas, eu me aproximava do fim do meu terceiro meado de momento naquele lugar ermo, e a solidão nunca tinha pesado tanto. Os desertos gelados de Dekraaz, com sua hostilidade implacável, eram o palco da minha travessia. Eu sobrevivia de plantas e de animais que conseguia abater, sem meios de fazer fogo: tudo cru e fresco. As plantas tinham gosto de urina, mas, em momentos de fome extrema, qualquer coisa vira tempero. Eu me adaptara até a passar quase 12 ectons sem respirar, para não gastar a máscara de filtro de gás, e improvisara uma mochila com as plantas locais e “garrafas” de barro para a água.
+Eu daria metade do que tinha na Lebargan por uma garrafa de necroriano e um prato de carne quente. Até o cereal do refeitório leste começou a me fazer falta. Pelas minhas contas, tava chegando ao fim do terceiro meado de momento naquele maldito planeta. Passei esse tempo atravessando os desertos de Dekraaz, comendo as plantas e os animais que conseguia matar. Tudo cru, porque não tinha como fazer fogo. As plantas tinham gosto de mijo, mas descobri que, quando você fica tempo suficiente sem comer, até o gosto de mijo melhora. Aprendi a ficar quase doze ectons sem respirar pra poupar o filtro molecular. Fiz uma mochila com as plantas da região e umas garrafas de barro pra carregar água. Perdi as duas primeiras tentando segurá-las com a mão de metal. Na terceira, aprendi a apoiar o fundo na palma em vez de apertar o gargalo. A Engenheira devia ter me dado um manual junto com aquela porra. Se alguém me visse naquelas condições, provavelmente me ofereceria comida em vez de pedir que contasse minhas aventuras.
 
-O lado ruim de estar em território desconhecido é que você não conhece merda nenhuma. As tempestades elétricas de Dekraaz eram terríveis. Eu caminhava calmamente quando, de repente, meu corpo se eletrizava, os pelos se arrepiavam, o ambiente inteiro pulsava de energia estática. Durante as tempestades, fechava os olhos e avançava às cegas, o mais rápido possível, para fugir da nuvem carregada. Pernas petrificadas, pescoço tenso: das sensações mais terríveis que já senti.
+O problema de andar por um planeta que você não conhece é que não sabe nem o que evitar. As tempestades elétricas de Dekraaz, por exemplo. Tava andando tranquilamente e, de repente, todos os pelos do meu corpo se arrepiavam. As pernas endureciam, o pescoço ficava tenso e eu sentia a eletricidade por toda parte. Fechava os olhos e corria na direção que achava mais segura, torcendo pra não enfiar a cabeça numa pedra enquanto fugia da nuvem carregada.
 
-A morte roçou em mim duas vezes. Na primeira, uma criatura selvagem me perfurou com uma das presas. Ferido, arrastei-me até um rio e escapei nadando e, recuperado, voltei e matei a fera. Na segunda, despenquei num buraco abissal de fundo impossível de discernir, e só não morri porque o braço de metal agarrou algo e me deixou escalar de volta.
+Quase morri outras duas vezes. Na primeira, um bicho me enfiou uma presa no corpo. Me arrastei até um rio e consegui fugir nadando. Depois que me recuperei, voltei e matei o desgraçado. Não precisava ter voltado, eu sei. Na segunda, caí num buraco tão fundo que não conseguia enxergar o chão. Agarrei alguma coisa com a mão de metal e consegui subir. Talvez fosse uma boa ideia agradecer à Engenheira quando voltasse a vê-la. Pelo menos já não precisava me preocupar em rasgar os dedos ao subir por uma parede de pedra.
 
-O tempo sozinho me deu longas reflexões sobre autoridade. Por que deixar uma só pessoa decidir tudo por nós, da ração diária às guerras? E por que as ordens dela seriam inquestionáveis? Uma nave sem líder firme viraria um caos, cada um se achando mais importante que o outro, até os conflitos mortais. Precisa existir um capitão, mas ele deve ser digno e realmente merecer liderar.
+Com tanto tempo sozinho, comecei a pensar na Lebargan. Se quisesse comer, precisava de autorização. Se quisesse dormir, também. Se um filho da puta resolvesse que a gente devia matar alguém, lá íamos nós. E, mesmo depois de tudo aquilo, eu não conseguia imaginar a nave funcionando sem um capitão. Bota o Genrir e eu pra decidir juntos quem vai fazer o quê e, antes de terminar a primeira volta, um de nós vai estar no chão. A Lebargan precisava de um capitão. Só não precisava daquele.
 
-Encostei a cabeça nas plantas luminosas do chão, que se desmancharam e subiram como um enxame de vagalumes. Girei o pequeno orbe que o Sr. Peron me entregara, a única lembrança que eu trouxera da Lebargan. Olhei pelas frestas do céu noturno, onde faixas de luz laranja rasgavam o manto de nuvens escuras, e ponderei como cruzar aquela barreira. Se a Engenheira tivesse me dado asas em vez de um braço robótico, talvez fossem mais úteis. Mas como escaparia da pressão da atmosfera? Lembrava dos estudos de antes de virar Dale: a zona onde a atmosfera afinava coincidia com o campo magnético do planeta, de temperaturas extremas onde nenhum ser vivo sobrevive sem equipamento. Aquela mulher maldita. Me reviveu só para eu morrer isolado num deserto. Na minha mente, a imagem se repetia: a espada cravada no peito de Jelles, e eu vendo nos olhos dele a vida se esvair. Era tão frequente que eu a sonhava, acordando ainda dentro da cena, gritando pela noite e tentando atingi-lo.
+Me deitei sobre umas plantas luminosas. Elas se desfizeram debaixo da minha cabeça e soltaram dezenas de pontinhos de luz. Tirei do bolso o orbe do Sr. Peron, a única lembrança que tinha trazido da Lebargan, e fiquei girando aquilo na mão. Pelas frestas entre as nuvens negras, dava pra ver a luz alaranjada da estrela. Como diabos ia atravessar aquela atmosfera? A Engenheira podia ter me dado umas asas junto com o braço. Pensando bem, de que adiantariam? Lembrava das aulas da Ala 66 sobre o campo magnético dos planetas e as temperaturas extremas da alta atmosfera. Sem equipamento, eu ia morrer antes de sair dali. Aquela mulher tinha me ressuscitado pra eu morrer de novo num deserto. E toda vez que fechava os olhos, imaginava minha espada entrando no peito do Jelles. Às vezes acordava no meio da noite, ainda tentando acertar o desgraçado.
 
-Mas sonhos são só sonhos. Minhas esperanças de deixar aquele lugar tinham se evaporado. Até que, num dia qualquer, sentado comendo a carne de uma presa, comecei a mexer na pistola e notei uma pequena elevação na lateral. Apertei, e um holograma surgiu diante de mim enquanto uma luz intensa disparava do objeto para o céu, sumindo entre as nuvens negras. Recuei, largando a pistola, enquanto a imagem se formava: um tipo de mapa.
+Num dia qualquer, enquanto comia a carne de um bicho que tinha abatido, fiquei examinando a pistola que a Engenheira me dera. Notei uma saliência na lateral e apertei. Uma luz fortíssima saiu da arma e atravessou as nuvens, enquanto um holograma começou a se formar na minha frente. Larguei a pistola.
 
-— Mas que diabos é isso? — murmurei.
+— Mas que diabos é isso?
 
-Era um holograma do planeta onde eu estava. Uma luz, provavelmente a que tinha acabado de disparar, partia do núcleo em direção ao espaço. A escala diminuiu, e vi-me percorrendo o cosmos até uma nave próxima. A imagem girou, e vi no horizonte a luz da minha pistola explodindo no vácuo. Então o holograma foi desbotando até apagar.
+Era o planeta onde eu tava. O holograma mostrou uma luz saindo do núcleo em direção ao espaço. A imagem foi diminuindo até que apareceu uma nave nas proximidades. Vi o feixe atravessar o céu e se espalhar no vácuo. Depois o holograma apagou.
 
-Fiquei ali no chão, tentando assimilar. Aquela arma tinha disparado um feixe para os céus. Um sinal de socorro? Alguém teria visto e estaria a caminho? Eu queria acreditar que sim. Mas isso significava esperar imóvel no deserto, e, se ninguém aparecesse, a fome me alcançaria. A água também escasseava: três garrafas, todas pela metade, e eu estava longe do rio que seguira até quase um meado de momento atrás.
+Fiquei sentado, olhando pra pistola. Aquilo era um sinal de socorro? A maldita mulher podia ter me explicado pra que servia antes de me mandar embora! Se alguém tivesse visto o sinal, talvez viesse até ali. Só tinha um problema: esperar no deserto significava consumir o resto da comida e da água. Das minhas seis garrafas, três tavam vazias e as outras pela metade. Já fazia quase um meado de momento que tinha deixado o rio pra trás.
 
-Hesitei alguns ectons e decidi buscar abrigo. Uma formação rochosa a sessenta ectons dali, com a ajuda do braço de metal, virou um abrigo onde acomodei meus pertences. O frio não era problema: as nuvens escuras retinham o calor, e os ventos fortes evitavam o superaquecimento.
+A uns sessenta ectons dali, encontrei uma formação rochosa. Usei o braço de metal pra improvisar um abrigo e guardei minhas coisas. O frio não chegava a ser um problema. As nuvens escuras retinham o calor, e o vento impedia que a temperatura subisse demais.
 
-Esperei, alternando entre a escuridão da noite e a penumbra do dia. No segundo sol, fui ao rio buscar água, o que me tomou o dia inteiro. No caminho, achei uma toca e capturei um inseto estranho e alongado, de textura áspera e pegajosa. Não era agradável, mas eu já tinha comido coisa pior. No fim do dia, enchi as seis garrafas que tinha e tomei um banho nas águas mornas. Foi quando uma luz forte no céu chamou minha atenção: um objeto caía, rasgando as nuvens. Levantei na hora, vesti-me às pressas e corri de volta ao abrigo. Nunca corri tanto na vida, mas aquela podia ser minha única chance de escapar.
+Passei a noite esperando. Na segunda manhã, resolvi voltar ao rio pra buscar água. Perdi praticamente o dia inteiro nisso. Achei uma toca no caminho e apanhei um inseto comprido, áspero e grudento. Já tinha comido coisa pior. Não lembrava exatamente o quê, mas com certeza já tinha. Quando cheguei ao rio, enchi as seis garrafas que tinha levado e aproveitei pra tomar um banho naquela água morna. Foi aí que vi um objeto luminoso atravessando as nuvens. Saí da água, enfiei a roupa de qualquer jeito e disparei de volta pro abrigo. Tive que parar por um instante pra enfiar a outra bota. Ia ser uma beleza finalmente ser resgatado e aparecer diante da tripulação com um pé descalço e a calça caindo.
 
-Enquanto corria, bebi uma garrafa inteira e terminei o inseto. No meio do caminho, o monstro me surpreendeu outra vez. Ouvi os passos pesados atrás de mim e, ao olhar, vi a mesma criatura que me assombrava desde que acordei do meu sono-morte. Eu já a enfrentara e quase morrera por ela pelo menos três vezes. Nessas ocasiões, me refugiava em lugares altos que ela não escalava, e ela desistia. Mas agora, sem refúgio à vista e com o caminho plano até o abrigo, não havia escapatória. Restava lutar.
+Virei uma das garrafas enquanto corria e terminei de comer o inseto. Ouvi passos pesados atrás de mim. Ah, não. A mesma criatura de olhos brancos que tinha me perseguido desde que acordei naquele planeta. Já tinha escapado dela pelo menos três vezes, subindo em lugares onde ela não conseguia me alcançar. Dessa vez, não tinha uma porra de árvore nem pedra alta por perto. Só um terreno plano até o abrigo. Parei de correr e saquei a espada.
 
-Fechei os olhos por um instante, virei de frente para a criatura de olhos brancos e tentáculos abertos, gritei e corri em sua direção, brandindo a espada. Acertei a face da besta, que desviou a boca, mas uma das patas me arremessou para trás e a espada voou longe. Ao me levantar, o monstro já avançava. Reagi com um soco, e o golpe do braço de metal bastou para fazê-lo urrar e cair ao meu lado. Achei a espada, mas a criatura já se lançava de novo e arranhou meu peito com uma presa.
+Fechei os olhos por um instante, virei pro bicho e corri na direção dele. Acertei a lâmina na cara da criatura. Ela desviou a boca, me acertou com uma pata e me mandou pro chão. A espada voou longe. Quando consegui me levantar, o desgraçado já vinha de novo. Dei um soco com a mão de metal e o bicho caiu urrando do meu lado. Corri pra pegar a espada, mas a criatura se levantou antes que eu conseguisse alcançá-la e uma das presas rasgou meu peito.
 
-O hálito fétido de carne em decomposição e a saliva espessa me cobriam o rosto. Agarrei uma das presas com o braço de metal e torci até ouvir algo se partir. A besta soltou um guincho agonizante, e o sangue quente espirrou na minha face. Aproveitei a fraqueza, rolei para o lado e recuperei a espada. Ergui-me, e o animal se virou para mim com os olhos brancos injetados de fúria.
+O bicho chegou tão perto que senti o bafo de carne podre e a saliva escorrendo pela minha cara. Agarrei uma das presas com a mão de metal e torci até ouvir o estalo. O sangue quente espirrou no meu rosto. Enquanto ele berrava, rolei pro lado e apanhei a espada. Quando me levantei, lá estavam aqueles olhos brancos outra vez.
 
-Era sobrevivência: ele ou eu. Corri contra a fera e, nos últimos metros, saltei direto para as fauces abertas. Com uma mão, enfiei a espada no céu da boca. Com a outra, protegida pelo braço de metal, segurei as presas para que não se fechassem sobre mim.
+Corri pra cima dele. Nos últimos metros, saltei na direção da boca aberta e enfiei a espada no céu da boca. Com o braço de metal, segurei as presas antes que fechassem em cima de mim.
 
-O berro do animal reverberou, de dor e derrota, e a besta tombou, exalando o último suspiro. Ofegante, tentei retirar a espada, firme no palato. Com um puxão decidido do braço de metal, liberei a lâmina.
+A criatura soltou um último berro e caiu. Fiquei preso à boca dela por alguns instantes, tentando puxar a espada. Tive que usar a mão de metal pra arrancar a lâmina de lá.
 
-Recuei, tropecei numa das presas caídas e caí, exausto. O cheiro pútrido da saliva impregnava cada poro, mas isso pouco importava. Eu tinha conquistado a fera. Estava no ápice da cadeia alimentar. Minha lâmina agora estava pronta para Jelles. Cada golpe naquele bicho era um treino para o dia em que eu cortaria a garganta do capitão. Ele não me esperava, mas eu o encontraria.
+Dei uns passos pra trás, tropecei na presa que tinha quebrado e caí sentado. Tava coberto de saliva, fedendo ainda mais do que antes do banho, e o peito sangrava. Mas o desgraçado finalmente tava morto. Queria que o pessoal da Lebargan tivesse visto aquilo. Jelles principalmente. Ainda não tinha acabado com ele. Cada volta que sobrevivia naquele planeta era mais uma volta que me aproximava da garganta daquele filho da puta.
 
-Levantei e retomei a corrida. Ao cair da noite, avistei a nave que tinha visto descer dos céus. Repousava no solo, cercada por homens de trajes pretos e vermelhos, armados com armamentos que eu reconhecia de longe: piratas. Qualquer dúvida sumiu quando um holograma de caveira surgiu acima da nave. Contei ao menos doze homens e uma figura que parecia prisioneira, amarrada a uma pedra. Uma fogueira iluminava o grupo, que assava carne entre conversas e risadas sonoras.
+Levantei e voltei a correr. Quando escureceu de vez, avistei a nave que tinha descido do céu. Tinha homens vestidos de preto e vermelho por perto, com armas que reconheceria de longe. Piratas. Um holograma de caveira acima da nave acabou com qualquer dúvida. Contei uns doze homens e uma pessoa amarrada a uma pedra. Os desgraçados tavam assando carne numa fogueira. Depois de tanto tempo comendo inseto cru, tive que fazer um esforço pra não sair correndo na direção do cheiro.
 
-Escalei umas pedras próximas e ganhei uma visão privilegiada do acampamento, de onde podia ouvir tudo. O prisioneiro tinha um saco cobrindo a cabeça.
+Subi numas pedras próximas. Dali dava pra ver o acampamento e ouvir a conversa dos sujeitos. A pessoa amarrada tinha um saco na cabeça.
 
-Enquanto isso, dois dos piratas se engalfinhavam por pedaços de carne, enquanto um terceiro aproveitava a distração para roubar justamente esses pedaços. “Que bando de desgraçados”, pensei, “sem honra, sem dignidade. Pelo menos os Dales brigavam por algo que valia a pena”.
+Dois dos piratas começaram a brigar por uns pedaços de carne. Enquanto os dois se empurravam, um terceiro pegou os pedaços e voltou pro lugar dele. Que falta de dignidade. Se eu tivesse ali, teria pegado a carne antes mesmo de os dois começarem a brigar.
 
-Percebi que falavam o idioma universal dos portos, então entendia tudo. As conversas eram dispersas: um lamentava que a mãe sentia sua falta, outro chorava por ter de matar o próprio irmão, um terceiro jurava ter sido engolido por um verme de lama e expelido vivo duas voltas depois, e mostrava a prova: da nuca aos calcanhares, a pele branca como barriga de peixe, onde o suco do bicho comera até a tatuagem. Ninguém discutia. Discutir é coisa de quem não tem uma cicatriz melhor. Minha atenção se fixou quando a conversa virou para o prisioneiro. Um deles se agachou diante da figura amarrada e disse, cruel:
+Falavam o idioma universal dos portos. Pelo menos não ia precisar de um tradutor. Um dos homens reclamava que a mãe sentia falta dele, outro chorava porque tinha sido obrigado a matar o próprio irmão. Um terceiro jurava ter sido engolido por um verme de lama e cagado duas voltas depois. Tinha até prova: da nuca aos calcanhares, a pele era branca feito barriga de peixe, onde o suco do bicho tinha comido até a tatuagem. Ninguém pareceu disposto a contestar o desgraçado. Eu já tava ficando com fome de novo quando um deles se agachou perto da pessoa amarrada.
 
-— Vai adorar essas terras, querida — provocou o homem — ficará aqui para sempre, devorada pelos selvagens locais, e seu nome será esquecido.
+— Vai adorar esse lugar, querida. Vai ficar aqui até os bichos comerem você. Ninguém nem vai lembrar teu nome.
 
-— Acho mais provável que esqueçam de você, homem — retrucou a voz do prisioneiro, ou melhor, da prisioneira — a mulher que quase conquistou a Fera Sideral. Difícil me apagarem da memória. Agora... um pirata qualquer, homem... da tripulação de Tzough... que não fez nada notável. Quem será lembrado?
+— Do meu? A mulher que quase tomou a Fera Sideral? — Era uma mulher debaixo do saco. — Acho mais fácil esquecerem o teu, homem. Um pirata qualquer do Tzough. Me diz aí, o que você fez de tão importante?
 
-O homem cuspiu na prisioneira e a chutou. Então começou a rir bobamente, os dentes podres.
+O sujeito cuspiu nela, chutou sua perna e começou a rir, mostrando os dentes podres.
 
-— Ao menos vou poder foder ainda por muitos momentos. Eu foderia com você, se não fosse tão repugnante — zombou o pirata.
+— Pelo menos ainda vou foder por muitos momentos. Fodia até contigo se não fosse tão nojenta.
 
-— Se ao menos seu pau levantasse por uma mulher — devolveu ela com um veneno na voz que me fez soltar um riso abafado. Essa mulher tinha garras. Gostei.
+— Primeiro vê se consegue fazer esse pau levantar.
 
-O homem chutou a mulher mais uma vez, e então um dos piratas se aproximou e o segurou.
+Tive que tapar a boca pra não rir alto. A mulher tava amarrada e ainda assim conseguia deixar o desgraçado puto.
 
-— Vai ficar aí perdendo tempo com uma mulher amarrada? Ou vai nos ajudar a investigar o que disparou aquele sinal? — indagou, puxando-o para longe.
+Ele chutou a mulher de novo. Outro pirata chegou e o puxou pelo ombro.
 
-Eles iam mesmo investigar a origem do sinal e deixar a nave praticamente desprotegida? Era a minha oportunidade. Só dois piratas tinham ficado de vigia. Desci cauteloso pelas pedras e me escondi atrás de um rochedo, de onde observei os guardas. Saquei a arma, que até então ficara inutilizada, e torci para não falhar justo agora. Um tiro silencioso escapou, e o primeiro pirata desabou, fulminado. O segundo, que eu tinha visto atrás da nave, sumira de vista. Deixei o esconderijo e avancei para o centro do acampamento, perto da fogueira.
+— Vai ficar perdendo tempo aí ou vem com a gente descobrir de onde saiu aquela luz?
 
-— É a minha deixa — murmurei, acelerando em direção à nave.
+Ótimo. Iam procurar a origem do sinal e deixar só dois homens de vigia. Desci pelas pedras e me escondi atrás de um rochedo. Saquei a arma, que até então não tinha conseguido usar direito. Torci pra não ter apertado o botão errado de novo. Disparei. O primeiro guarda caiu sem fazer barulho. O outro tinha sumido atrás da nave. Saí do esconderijo e passei perto da fogueira. Tinha carne ali, ao alcance da mão. Puta merda, que momento pra me lembrar da fome. Peguei um pedaço pequeno com a mão boa, enfiei na boca e continuei andando. Não ia morrer de barriga vazia se pudesse evitar.
 
-— Não vai conseguir fugir com ela — ecoou uma voz antes que eu alcançasse meu objetivo. Virei-me para encontrar a fonte da voz e deparei-me com a prisioneira.
+— Não vai conseguir sair daqui com essa nave.
 
-— Como é que é? — retruquei — Por que eu tentaria fugir nela?
+Parei. A mulher amarrada tava falando comigo.
 
-— Ouvi seus passos. São silenciosos, mas excessivamente cautelosos. Não veio aqui para me resgatar, então só pode estar aqui para roubar a nave.
+— E quem disse que eu vim roubar a nave?
 
-Com uma cara que prometia mais problemas do que soluções, aproximei-me e retirei o saco que cobria sua cabeça.
+— Ouvi teus passos. Você não veio me buscar, senão já tinha tirado essa porra da minha cabeça. Só pode ter vindo atrás da nave.
 
-A mulher diante de mim tinha cabelos ruivos ardentes cortados pelos ombros, sobrancelhas densas e um olhar que não prometia boas-vindas.
+Fui até ela e arranquei o saco.
 
-— E por que acha que não conseguiria fugir com ela? Você já tentou?
+Cabelos ruivos até os ombros, sobrancelhas grossas e uma cara de quem ia me dar trabalho.
 
-— Há mais dois homens armados lá dentro, guardando a entrada. Se tentar entrar, terá a cabeça estourada. Meu conselho? Desista enquanto pode.
+— E por que eu não conseguiria? Já tentou?
 
-— Essa nave é minha única chance de sair dessa merda — declarei.
+— Tem mais dois homens armados lá dentro, na entrada. Mete a cara ali e vai sair sem ela. Se quer um conselho, desiste.
 
-— Está tentando fugir do planeta ou da sua própria vida miserável? Sabe a quem essa nave pertence?
+— Aquela nave é minha única chance de sair dessa merda.
 
-— Dane-se a quem pertence. Assim que eu a tomar, será minha.
+— Tá fugindo do planeta ou da tua vida de merda? Sabe pelo menos de quem é a nave?
 
-— Por que os homens sempre se acham invencíveis? Pensam que podem tudo só porque têm força... até parece que a massa cerebral lhes desceu aos braços.
+— Não. Mas, quando eu sair daqui com ela, você vai saber de quem é.
 
-— Você deve ser realmente inteligente, então. Uma intelectual que acabou capturada. Isso tudo faz parte do seu plano, não é?
+— Vocês, homens, são todos iguais. Têm força no braço e acham que isso resolve tudo. Parece até que o cérebro desceu pros músculos.
 
-— Me solte. Eu sei como derrotar esses homens. E sei como entrar na nave sem sermos vistos. Há uma entrada secreta. Podemos surpreendê-los por trás e neutralizá-los.
+— E você deve ser um gênio. Foi por isso que te amarraram numa pedra?
 
-— Eu até poderia te soltar, mulher. Mas isso não faz parte dos meus interesses. Por que eu soltaria e fugiria com uma estranha que poderia me matar assim que saíssemos da atmosfera do planeta?
+— Me solta. Tem uma entrada que os guardas não vigiam. Sei como chegar lá e pegar os dois de surpresa.
 
-— Por que eu te mataria?
+— E depois? Te levo até o espaço e você me mata enquanto eu piloto? Não vejo muita vantagem nisso pra mim.
 
-— Por que não me mataria?
+— Por que eu ia te matar?
 
-— Porque você é gostoso — ela respondeu — e eu adoraria sair daqui ao lado de um homem, não de covardes que apenas obedecem ordens.
+— Por que não?
 
-Olhei para a prisioneira enquanto ela desviava o olhar, um risinho cínico nos lábios que insinuava mais do que eu queria admitir. “Gostoso”, é?
+— Porque você é gostoso. E, pelo menos, não tá usando a roupa daqueles covardes.
 
-— Eu não fodo com qualquer uma — declarei — não sou um prostituto. Quer comprar sua liberdade com sexo?
+Gostoso? Aquela mulher tinha acabado de tirar um saco da cabeça e eu tava coberto de baba de bicho. O que será que ia achar de mim depois de um banho?
 
-— Não, mas confesso que me libertar para poder fazer sexo com você é o que mais desejo agora — ela disse, mordendo os lábios.
+— Não fodo com qualquer uma, querida. Tá tentando comprar a liberdade?
 
-Olhei para seu rosto por alguns segundos, e então perguntei:
+— Não tô comprando nada. Mas, se me tirar daqui, vou ter um bom motivo pra querer você por perto.
 
-— Como podemos entrar na nave?
+Olhei pra nave. Depois olhei pra mulher.
 
-— Acho que primeiro você precisa me soltar. Depois, podemos planejar nossa fuga.
+— Tá. Onde fica essa entrada?
 
-Hesitei e olhei para a nave, verificando se algum dos piratas estava por perto. Caminhei até ela e me agachei para começar a soltar as cordas.
+— Primeiro as cordas, bonitão.
 
-— O que aconteceu com seu braço? — ela perguntou enquanto eu desatava os nós.
+Dei uma olhada ao redor antes de me agachar atrás dela. Comecei a desatar os nós.
 
-— Um desgraçado o arrancou de mim.
+— O que aconteceu com teu braço?
 
-— Isso é tão sexy. Um homem com um braço de metal. Sempre quis ter um desses na minha cama.
+— Um filho da puta arrancou.
 
-— Pode ficar quieta? — retruquei.
+— Um braço de metal. Até que ficou sexy.
 
-— Difícil, com um homem desses por trás.
+— Dá pra ficar quieta?
 
-Com um puxão mais forte, a corda se rompeu, afrouxando as demais voltas. Rapidamente desenrolei o restante e, assim que ela se viu livre, a mulher me lançou uma piscadela maliciosa e então disparou em fuga.
+— Difícil, com um homem desses atrás de mim.
 
-— Puta que pariu, desgraçada! — murmurei, um riso de descrença me escapando, antes de me lançar em perseguição. Essa mulher era inacreditável.
+Puxei a corda com a mão de metal e ela arrebentou. Soltei as outras voltas. A mulher se levantou, piscou pra mim e saiu correndo.
 
-Ela correu agilmente sobre as pedras, seguindo na direção norte. A persegui incansavelmente, sentindo o cansaço crescer.
+— PUTA QUE PARIU!
 
-— SUA MENTIROSA SEM VERGONHA! — gritei atrás dela.
+Por um instante, continuei agachado com um pedaço de corda na mão. Larguei aquilo e fui atrás dela.
 
-Ela não respondeu, apenas continuou correndo. Então, num impulso, saquei a arma da cintura e apontei para ela. Atirar poderia feri-la gravemente se eu errasse. Ah, que se dane, ela me fez de otário. Disparei e a vi cair ao chão com um grito. Ao me aproximar, percebi que o tiro a tinha acertado no braço.
+A ruiva pulava de uma pedra pra outra, seguindo pro norte. Eu já tava cansado antes mesmo de chegar àquele acampamento. Agora tinha que correr atrás de uma mulher que nem sabia como se chamava.
 
-— Filho da puta — ela grunhiu, contorcendo-se de dor.
+— VOLTA AQUI, SUA MENTIROSA!
 
-Me agachei à sua frente, encarando-a diretamente nos olhos.
+Continuou correndo. Saquei a arma e apontei na direção dela. Podia acertar num lugar que a matasse. Que se dane, a desgraçada tinha me feito de otário. Disparei. Ela caiu gritando e, quando cheguei perto, vi que o tiro tinha acertado o braço.
 
-— Você vai me ajudar a fugir deste lugar.
+— Filho da puta!
 
-— Não há fuga possível nesta nave. Ela obedece apenas ao seu capitão e vai para onde ele desejar.
+Me abaixei na frente dela.
 
-A ironia me escapou pelo canto da boca.
+— Agora você vai me explicar como é que a gente sai desse planeta.
 
-— Você mentiu para mim — acusei.
+— A nave só obedece ao capitão, idiota. Vai pra onde ele mandar. Não dá pra fugir com ela.
 
-— É o que fazemos para sobreviver. Não menti quando disse que é gostoso. Agora que estamos assim tão próximos, poderíamos foder. Eu juro que não ligo pro seu cheiro.
+Fiquei olhando pra mulher. Eu tinha até gostado daquele papo de entrada secreta.
 
-Inspirei fundo e me levantei, segurando-a firmemente pelo braço.
+— Você mentiu pra mim.
 
-— Não tem como sobreviver neste planeta — falei.
+— É o que a gente faz pra sobreviver. Mas a parte do gostoso era verdade. Mesmo com esse cheiro horrível.
 
-— E que escolha me resta? Se eu voltar para aquele inferno, serei morta. Você faz ideia de quanto tempo fui prisioneira?
+Me levantei, segurando-a pelo braço bom.
 
-Não a respondi. Estava com a cabeça cheia agora, irritado, cansado, faminto, a ponto de explodir.
+— Não vai sobreviver muito tempo aqui.
 
-— Sou prisioneira há três momentos. Todo esse tempo vivendo entre o lixo, torturada e humilhada. Eu só quero liberdade.
+— E se eu voltar pra aquela nave, vou morrer. Sabe quanto tempo passei presa lá?
 
-Virei-me para encará-la nos olhos novamente.
+Não respondi. Tava cansado, com fome e ainda tinha um corte no peito que não parava de arder. A mulher mal conseguia se apoiar no braço que eu tinha acabado de ferir. Não conseguia acreditar que alguém preferisse aquele planeta à possibilidade de sair dele.
 
-— Qual é o seu nome, mulher?
+— Três momentos. Três momentos vivendo no lixo, apanhando, sendo humilhada. Não vou voltar pra lá. Quero ser livre.
 
-— Alekta — ela respondeu. — E você?
+Olhei direito pra cara dela pela primeira vez desde que tinha dado o tiro.
 
-— Jasmey — falei, hesitante. — Eu também busco a liberdade, Alekta. E te garanto que não a encontrará aqui. Precisamos de um plano para escapar com essa nave. Deve haver uma maneira de controlá-la manualmente.
+— Qual é teu nome?
 
-— Há, sim. Mas seria necessário passar por todos os homens da garagem. E talvez, enfrentar o próprio capitão. Estaríamos mortos antes mesmo de assumir o controle.
+— Alekta. E o teu?
 
-— Quem é o capitão dessa nave?
+— Jasmey. Também quero minha liberdade, Alekta. E, se ficar aqui, vai morrer antes de conseguir aproveitar a tua. Não tem mesmo como assumir o controle daquela nave?
 
-Alekta desviou o olhar e sentou-se no chão com dificuldade, por causa do braço ferido.
+— Manualmente, talvez. Mas teria que passar pelos homens da garagem e, com azar, pelo próprio capitão. A gente não chegaria nem perto dos controles.
 
-— Quando disse que você não sabe com quem está lidando... eu falava sério. Essa nave pertence ao capitão Tzough.
+— Quem é o capitão?
 
-— Quem? — perguntei, surpreso. Nunca tinha ouvido falar desse nome.
+Ela se sentou no chão, tomando cuidado com o braço ferido.
 
-— Como assim, quem? Capitão Tzough. O Senhor dos Vórtices. Você está brincando que nunca ouviu falar dele?
+— Tzough. A nave é do capitão Tzough.
 
-— Não. Nunca! — admiti.
+— Quem?
 
-— De que parte da galáxia você é?
+— Tzough! O Senhor dos Vórtices. Tá de sacanagem comigo? Nunca ouviu falar dele?
 
-— Fui recrutado quando criança. Por piratas.
+— Não, mulher!
 
-Alekta me observou atentamente por alguns instantes antes de responder:
+— De que buraco da galáxia você saiu?
 
-— E foi exilado, lançado neste planeta, deixado para morrer.
+— Fui recrutado quando era moleque. Por piratas.
 
-— Houve várias vezes que poderia ter morrido, mas aqui estou. Se estou aqui, é porque tenho algo a concluir. E para isso, preciso sair deste planeta nessa nave, e você vai me ajudar.
+Ela me examinou por alguns instantes.
 
-— Que determinação! Primeiro que eu não volto para aquela nave. Segundo que você precisará de muito mais do que apenas determinação se for capturado por Tzough. Você seria levado à Fera Sideral, onde decidirão se você morre ou serve.
+— E teus piratas te jogaram aqui pra morrer, foi?
+
+— Tentaram. Como pode ver, não conseguiram. Já perdi tempo demais nesse planeta. Tenho uma coisa pra resolver e preciso daquela nave. Você vai me ajudar.
+
+— Ah, vai sonhando. Primeiro, eu não volto pra lá. Segundo, se o Tzough te pegar, você vai parar na Fera Sideral. Lá eles decidem se você serve pra alguma coisa ou se morre.
 
 — Fera? Que fera?
 
-— É o nome da nave dele, idiota. A Fera Sideral, uma das naves mais temidas que existe.
+— A nave dele, idiota. A Fera Sideral. Uma das mais temidas da galáxia.
 
-— Temida? Temida por quê? — indaguei.
+— E o que tem de tão temível nessa nave?
 
-— Porque ela é imensa e poderosa. Grande o suficiente para manter qualquer outro pirata à distância — respondeu Alekta.
+— É enorme. Tem poder de fogo pra manter qualquer outro pirata longe dela.
 
-A ideia começou a tomar forma em minha mente: se fosse capturado pelos piratas e conseguisse tomar controle da nave, ela se tornaria uma arma poderosa contra a Lebargan. Poderia usá-la para invadir e finalmente enfrentar Jelles. Talvez não fosse um plano tão ruim.
+Poder de fogo. Uma nave capaz de enfrentar outros piratas. Será que dava pra enfrentar a Lebargan com uma dessas? Eu não tinha nem nave pra sair daquele planeta, mas já tava imaginando a cara do Jelles quando aparecesse com a Fera Sideral. Só precisava chegar até ela e dar um jeito de tomá-la. Quanto ao resto, resolvia depois.
 
-— E então, vamos voltar para a nave? — perguntei.
+— E aí, vamos voltar pra nave?
 
-— Já te disse que não volto para lá — ela respondeu firmemente.
+— Você é surdo? Eu não volto pra lá.
 
-Olhei para Alekta e sorri, antes de começar a gritar loucamente.
+Olhei pra Alekta e sorri. Enchi os pulmões de ar e comecei a berrar.
 
-— O quê? — ela exclamou, surpresa com meu súbito surto — para com isso, para de gritar!
+— Que porra você tá fazendo? CALA A BOCA!
 
-Ignorando seu protesto, continuei até que Alekta se levantou abruptamente. Tentei segurá-la, mas ela se libertou com um ágil chute e escapou de meus braços. Não precisei fazer mais nada, pois ao nosso redor, os piratas já nos cercavam, suas armas apontadas em nossa direção.
+Continuei gritando. Ela se levantou, tentou me agarrar e, quando fui segurá-la, me acertou um chute e conseguiu se soltar. Não precisava mais gritar. Já tinha pirata surgindo por todos os lados, com as armas apontadas pra gente.
 
-— SEU DESGRAÇADO — Alekta vociferou, desferindo um chute devastador em minhas partes baixas, derrubando-me de dor imediata. Merda. Isso doeu. Homens sabem o quanto isso dói, a gente não faz essas putarias uns com os outros. Mas pra mulher, basta esbarrar nela, que já te acerta o saco.
+— SEU DESGRAÇADO!
 
-Enquanto lutava para recuperar o fôlego, senti as mãos dos piratas me algemando pelos braços e pernas, procedimento que também se aplicava a Alekta.
+Alekta me acertou outro chute, dessa vez bem no saco. Fui ao chão. Tinha passado um bom tempo imaginando o que diria quando encontrasse os primeiros piratas que me tirariam daquele planeta. Nenhuma das frases começava comigo encolhido no chão, tentando respirar.
 
-— EU VOU TE MATAR, JASMEY. TÁ ME OUVINDO? VOU TE MATAR! — Alekta gritava furiosa.
+Tava tentando voltar a respirar quando os piratas me algemaram pelos braços e pernas. Fizeram o mesmo com Alekta.
 
-— Se o fizer, esteja certa de que não voltarei dos mortos mais uma vez — respondi, enquanto era arrastado para a nave dos piratas.
+— EU VOU TE MATAR, JASMEY! TÁ ME OUVINDO? VOU TE MATAR!
 
-Eu precisava daquela nave. Aquele monstro de metal era meu bilhete de saída, meu atalho para a garganta de Jelles. Que se fodam os piratas de Tzough.
+— Pega a fila, querida.
 
+Um dos piratas me arrastou na direção da nave.
+
+Eu tinha conseguido o que queria. Mais ou menos. Tava preso, sem minhas armas e com uma vontade desgraçada de vomitar, mas finalmente ia sair daquele planeta. Se a Fera Sideral fosse tudo aquilo que a ruiva dizia, eu ainda ia ter muito prazer em conhecer o tal Tzough.
