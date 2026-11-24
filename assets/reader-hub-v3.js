@@ -65,11 +65,19 @@
                 </div>
                 <small id="readerProfileNameStatus" class="reader-profile-name-status" aria-live="polite"></small>
               </label>
+              <label class="field reader-profile-name-field">
+                <span>Seu e-mail (usado para entrar)</span>
+                <div class="reader-profile-name-row">
+                  <input id="readerProfileEmail" type="email" inputmode="email" maxlength="120" autocomplete="email" placeholder="seu@email.com">
+                  <button id="readerProfileEmailSave" type="button">Salvar e-mail</button>
+                </div>
+                <small id="readerProfileEmailStatus" class="reader-profile-name-status" aria-live="polite"></small>
+              </label>
               <div class="reader-access-card">
                 <div class="reader-access-copy">
-                  <span>Código de acesso</span>
+                  <span>Código de acesso (sua senha)</span>
                   <strong id="readerAccessCode">Gerando…</strong>
-                  <small>Use este código para entrar no seu perfil em outro aparelho. Não compartilhe publicamente.</small>
+                  <small>Use o e-mail e este código para entrar no seu perfil em outro aparelho. Não compartilhe com ninguém. Se perder, use “Esqueci o código” na tela de entrada.</small>
                 </div>
                 <div class="reader-access-actions">
                   <button id="readerAccessCopy" type="button">Copiar código</button>
@@ -130,6 +138,27 @@
           prompt("Copie seu código de acesso:",code);
         }
       });
+    }
+
+    const emailInput=document.getElementById("readerProfileEmail");
+    const emailSave=document.getElementById("readerProfileEmailSave");
+    const emailStatus=document.getElementById("readerProfileEmailStatus");
+    if(emailSave && !emailSave.dataset.wired){
+      emailSave.dataset.wired="1";
+      emailSave.addEventListener("click",async()=>{
+        const v=emailInput?.value.trim()||"";
+        if(!v){emailInput?.focus();return;}
+        emailSave.disabled=true;
+        if(emailStatus){emailStatus.textContent="Salvando…";emailStatus.classList.remove("error");}
+        try{
+          await window.Comments?.saveReaderEmail?.(v);
+          if(emailStatus)emailStatus.textContent="E-mail atualizado.";
+          setTimeout(()=>{if(emailStatus)emailStatus.textContent="";},1800);
+        }catch(e){
+          if(emailStatus){emailStatus.textContent=e?.message||"Não foi possível salvar o e-mail.";emailStatus.classList.add("error");}
+        }finally{emailSave.disabled=false;}
+      });
+      emailInput?.addEventListener("keydown",e=>{if(e.key==="Enter")emailSave.click();});
     }
 
     const nameInput=document.getElementById("readerProfileName");
@@ -411,6 +440,8 @@
     }
     const nameInput=document.getElementById("readerProfileName");
     if(nameInput && document.activeElement!==nameInput)nameInput.value=window.Comments?.getUserName?.()||"";
+    const emailEl=document.getElementById("readerProfileEmail");
+    if(emailEl && document.activeElement!==emailEl)emailEl.value=window.Comments?.getReaderEmail?.()||"";
     const codeEl=document.getElementById("readerAccessCode");
     if(codeEl) codeEl.textContent=window.Comments?.getAccessCode?.()||"Indisponível";
 

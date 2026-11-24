@@ -2,6 +2,12 @@
 const Comments = (() => {
   const NAME_KEY="jesed:username", USER_KEY="jesed:readerId", ACCESS_KEY="jesed:readerAccessCode";
   const CODEHASH_KEY="jesed:readerCodeHash";
+  const EMAIL_KEY="jesed:readerEmail";
+  const CODE_RENEWED_KEY="jesed:codeRenewedNotice";
+  const EMAIL_RE=/^[^\s@]+@[^\s@]+\.[^\s@]{2,}$/;
+  const normEmail=v=>String(v||"").trim().toLowerCase();
+  const validEmail=v=>{const e=normEmail(v);return e.length<=120&&EMAIL_RE.test(e);};
+  const readerEmail=()=>normEmail(localStorage.getItem(EMAIL_KEY)||"");
   const SEEN_ANNOUNCE_KEY="jesed:lastSeenAnnouncement";
   const PROFILE_COLLECTION="readerProfiles";
   const ACCESS_CODES_COLLECTION="readerAccessCodes";
@@ -52,6 +58,7 @@ const Comments = (() => {
     localStorage.removeItem(USER_KEY);
     localStorage.removeItem(ACCESS_KEY);
     localStorage.removeItem(CODEHASH_KEY);
+    localStorage.removeItem(EMAIL_KEY);
     localStorage.removeItem(SEEN_ANNOUNCE_KEY);
   }
 
@@ -114,9 +121,11 @@ const Comments = (() => {
       }
       const data=doc.data()||{};
       if(data.deleted===true){
+        if(data.replacedBy){try{localStorage.setItem(CODE_RENEWED_KEY,"1");}catch(_){}}
         resetDeletedReaderProfile();
         return;
       }
+      if(data.email&&data.email!==readerEmail())try{localStorage.setItem(EMAIL_KEY,normEmail(data.email));}catch(_){}
       const next=accessStateFromProfile(data);
       const previous=readerProfileState;
       readerProfileState=next;
@@ -140,10 +149,13 @@ const Comments = (() => {
     try{
       const doc=await db.collection(PROFILE_COLLECTION).doc(codeHash).get();
       if(!doc.exists || doc.data()?.deleted===true){
+        if(doc.exists&&doc.data()?.replacedBy){try{localStorage.setItem(CODE_RENEWED_KEY,"1");}catch(_){}}
         resetDeletedReaderProfile({reload:false});
         return true;
       }
-      readerProfileState=accessStateFromProfile(doc.data()||{});
+      const vd=doc.data()||{};
+      if(vd.email)try{localStorage.setItem(EMAIL_KEY,normEmail(vd.email));}catch(_){}
+      readerProfileState=accessStateFromProfile(vd);
     }catch(e){
       // Falha de rede não deve expulsar um leitor válido.
       console.warn("Não foi possível validar a identidade do leitor:",e);
@@ -439,6 +451,7 @@ const Comments = (() => {
           profileHash:codeHash,
           readerId:String(readerId),
           accessCode:formatAccessCode(code),
+          ...(readerEmail()?{email:readerEmail()}:{}),
           updatedAt:Date.now()
         },{merge:true});
         try{localStorage.setItem(CODE_SYNCED_KEY,codeHash);}catch(_){}
@@ -497,9 +510,17 @@ const Comments = (() => {
       name:name(),
       updatedAt:Date.now()
     };
+    const existingEmail=normEmail(profileDoc?.data()?.email||"");
+    if(existingEmail){
+      try{localStorage.setItem(EMAIL_KEY,existingEmail);}catch(_){}
+    }else if(validEmail(readerEmail())){
+      // Perfil novo, ou antigo que acabou de informar o e-mail.
+      payload.email=readerEmail();
+    }
     if(!exists){
       const firstBook=String(initialBookId||"").trim();
       if(!firstBook)throw new Error("Escolha o primeiro livro antes de criar o perfil.");
+      if(!payload.email)throw new Error("Informe um e-mail válido para criar o perfil.");
       payload.createdAt=Date.now();
       payload.initialBookId=firstBook;
       payload.allowedBooks=[firstBook];
@@ -523,7 +544,76 @@ const Comments = (() => {
     }
     if(readerProfileState)dispatchReaderAccessState();
     startReaderAccessWatch();
+    // Perfis antigos (criados sem e-mail) precisam informá-lo uma vez.
+    if(exists&&!existingEmail&&!payload.email)setTimeout(()=>promptLegacyEmail(),400);
     return code;
+  }
+
+  // ---------------- E-mail do leitor ----------------
+  async function saveReaderEmail(rawEmail){
+    const email=normEmail(rawEmail);
+    if(!validEmail(email))throw new Error("Digite um e-mail válido.");
+    if(!enabled||!db)throw new Error("Sem conexão com o servidor agora. Tente novamente.");
+    const codeHash=String(localStorage.getItem(CODEHASH_KEY)||"")||await sha256(normalizeAccessCode(accessCode()));
+    if(!codeHash)throw new Error("Perfil não encontrado neste aparelho.");
+    const ref=db.collection(PROFILE_COLLECTION).doc(codeHash);
+    const snap=await ref.get();
+    if(!snap.exists||snap.data()?.deleted)throw new Error("Este perfil não está mais ativo.");
+    await ref.set({email,updatedAt:Date.now()},{merge:true});
+    localStorage.setItem(EMAIL_KEY,email);
+    await syncAccessCodeRecord(codeHash,normalizeAccessCode(accessCode()),snap.data().readerId);
+    document.dispatchEvent(new CustomEvent("beta:profile-email",{detail:{email}}));
+    return email;
+  }
+  function getReaderEmail(){return readerEmail();}
+
+  function promptLegacyEmail(){
+    if(admin()||!name()||readerEmail())return;
+    let el=document.getElementById("legacyEmailSheet");
+    if(el){el.hidden=false;return;}
+    el=document.createElement("div");
+    el.id="legacyEmailSheet";
+    el.className="sheet";
+    el.innerHTML='<div class="sheet-card">'
+      +'<div class="reader-onboarding-kicker">Lityra</div>'
+      +'<h2>Informe seu e-mail</h2>'
+      +'<p class="sheet-hint">A partir de agora o acesso ao Lityra passa a ser feito com <strong>e-mail + código de acesso</strong> (o código é a sua senha). Seu progresso, comentários e preferências continuam exatamente os mesmos.</p>'
+      +'<p class="sheet-hint">Se um dia perder o código, é só tocar em “Esqueci o código” na tela de entrada: enviamos um código novo para este e-mail.</p>'
+      +'<label class="field"><span>Seu e-mail</span><input id="legacyEmailInput" type="email" inputmode="email" autocomplete="email" placeholder="seu@email.com" maxlength="120"></label>'
+      +'<p id="legacyEmailStatus" class="reader-code-status" aria-live="polite"></p>'
+      +'<div class="sheet-actions"><button id="legacyEmailSave" class="btn-primary" type="button">Salvar e continuar</button></div>'
+      +'</div>';
+    document.body.appendChild(el);
+    const input=el.querySelector("#legacyEmailInput"),status=el.querySelector("#legacyEmailStatus"),save=el.querySelector("#legacyEmailSave");
+    const go=async()=>{
+      const v=input.value.trim();
+      if(!validEmail(v)){status.textContent="Digite um e-mail válido.";status.classList.add("error");input.focus();return;}
+      save.disabled=true;status.textContent="Salvando…";status.classList.remove("error");
+      try{
+        await saveReaderEmail(v);
+        status.textContent="Pronto! Daqui em diante você entra com e-mail e código.";
+        setTimeout(()=>{el.hidden=true;},1200);
+      }catch(e){
+        status.textContent=e?.message||"Não foi possível salvar o e-mail.";status.classList.add("error");save.disabled=false;
+      }
+    };
+    save.addEventListener("click",go);
+    input.addEventListener("keydown",e=>{if(e.key==="Enter")go();});
+    setTimeout(()=>input.focus(),50);
+  }
+
+  // ---------------- "Esqueci o código" ----------------
+  async function requestCodeReset(rawEmail){
+    const email=normEmail(rawEmail);
+    if(!validEmail(email))throw new Error("Digite um e-mail válido.");
+    if(!window.firebase?.functions)throw new Error("O envio de código por e-mail está indisponível neste momento.");
+    const fn=firebase.app().functions("us-central1").httpsCallable("requestAccessCodeReset");
+    try{await fn({email});}
+    catch(e){
+      if(String(e?.code||"").includes("resource-exhausted"))throw new Error("Já enviamos um código há pouco. Aguarde alguns minutos e confira também o spam.");
+      throw new Error("Não foi possível enviar agora. Tente novamente em instantes.");
+    }
+    return true;
   }
 
   // ---------------- Acesso a livros ----------------
@@ -773,16 +863,27 @@ const Comments = (() => {
     }
   }
 
-  async function loginWithCode(rawCode){
+  async function loginWithCode(rawCode,rawEmail){
     if(!enabled||!db) throw new Error("O login por código está indisponível neste momento.");
     const clean=normalizeAccessCode(rawCode);
     if(clean.length<4) throw new Error("Confira o código digitado.");
     const codeHash=await sha256(clean);
     const doc=await db.collection(PROFILE_COLLECTION).doc(codeHash).get();
-    if(!doc.exists) throw new Error("Código não encontrado.");
+    const BAD="E-mail ou código incorretos.";
+    if(!doc.exists) throw new Error(BAD);
     const profile=doc.data()||{};
-    if(profile.deleted) throw new Error("Este código foi removido pelo autor. Crie um novo perfil para continuar.");
+    if(profile.deleted) throw new Error(profile.replacedBy?"Este código foi substituído por um novo. Use o código mais recente enviado ao seu e-mail.":"Este código foi removido pelo autor. Crie um novo perfil para continuar.");
     if(!profile.readerId||!profile.name) throw new Error("Este perfil está incompleto.");
+    // Perfis com e-mail: entram com e-mail + código. Perfis antigos (sem
+    // e-mail) continuam entrando só com o código até informarem o e-mail.
+    const typed=normEmail(rawEmail);
+    if(profile.email){
+      if(!typed) throw new Error("Informe o e-mail do seu perfil junto com o código.");
+      if(typed!==normEmail(profile.email)) throw new Error(BAD);
+      localStorage.setItem(EMAIL_KEY,normEmail(profile.email));
+    }else{
+      localStorage.removeItem(EMAIL_KEY);
+    }
     localStorage.setItem(USER_KEY,String(profile.readerId));
     localStorage.setItem(NAME_KEY,String(profile.name));
     localStorage.setItem(ACCESS_KEY,formatAccessCode(clean));
@@ -916,6 +1017,13 @@ const Comments = (() => {
     const go=async()=>{
       const v=input.value.trim();
       if(!v)return input.focus();
+      const emailEl=document.getElementById("nameEmailInput");
+      const emailV=normEmail(emailEl?.value||"");
+      if(!validEmail(emailV)){
+        bookPicker?.querySelector(".initial-book-status.error")?.remove();
+        bookPicker?.insertAdjacentHTML("beforeend",'<p class="initial-book-status error">Digite um e-mail válido para criar o perfil.</p>');
+        return emailEl?.focus();
+      }
       const initialBook=bookPicker?.querySelector('input[name="initialBook"]:checked')?.value||"";
       if(!initialBook){
         bookPicker?.querySelector("input")?.focus();
@@ -923,6 +1031,7 @@ const Comments = (() => {
       }
       save.disabled=true;
       localStorage.setItem(NAME_KEY,v);
+      localStorage.setItem(EMAIL_KEY,emailV);
       if(!localStorage.getItem(SEEN_ANNOUNCE_KEY))localStorage.setItem(SEEN_ANNOUNCE_KEY,String(Date.now()));
       try{
         const code=await ensureAccessProfile(initialBook);
@@ -932,6 +1041,7 @@ const Comments = (() => {
         localStorage.removeItem(USER_KEY);
         localStorage.removeItem(ACCESS_KEY);
         localStorage.removeItem(CODEHASH_KEY);
+        localStorage.removeItem(EMAIL_KEY);
         console.warn("Não foi possível registrar o código de acesso:",e);
         const previous=bookPicker?.querySelector(".initial-book-status.error");
         if(previous)previous.remove();
@@ -968,7 +1078,7 @@ const Comments = (() => {
       codeLogin.disabled=true;
       if(codeStatus){codeStatus.textContent="Entrando…";codeStatus.classList.remove("error");}
       try{
-        const profile=await loginWithCode(codeInput.value);
+        const profile=await loginWithCode(codeInput.value,document.getElementById("nameCodeEmail")?.value||"");
         sessionStorage.removeItem(PROFILE_FLOW_KEY);
         if(codeStatus)codeStatus.textContent="Perfil encontrado: "+profile.name;
         location.reload();
@@ -979,6 +1089,41 @@ const Comments = (() => {
       }
     });
     codeInput?.addEventListener("keydown",e=>{if(e.key==="Enter")codeLogin?.click();});
+
+    // "Esqueci o código": envia um código novo para o e-mail do perfil.
+    const forgotBtn=document.getElementById("nameCodeForgot"),forgotBox=document.getElementById("nameForgotBox");
+    const forgotEmail=document.getElementById("nameForgotEmail"),forgotSend=document.getElementById("nameForgotSend");
+    const forgotBack=document.getElementById("nameForgotBack"),forgotStatus=document.getElementById("nameForgotStatus");
+    const codeFields=document.getElementById("nameCodeFields");
+    forgotBtn?.addEventListener("click",()=>{
+      if(codeFields)codeFields.hidden=true;
+      if(forgotBox)forgotBox.hidden=false;
+      if(forgotEmail){forgotEmail.value=document.getElementById("nameCodeEmail")?.value||"";setTimeout(()=>forgotEmail.focus(),0);}
+    });
+    forgotBack?.addEventListener("click",()=>{
+      if(forgotBox)forgotBox.hidden=true;
+      if(codeFields)codeFields.hidden=false;
+      if(forgotStatus){forgotStatus.textContent="";forgotStatus.classList.remove("error");}
+    });
+    forgotSend?.addEventListener("click",async()=>{
+      if(!validEmail(forgotEmail?.value)){
+        if(forgotStatus){forgotStatus.textContent="Digite um e-mail válido.";forgotStatus.classList.add("error");}
+        return forgotEmail?.focus();
+      }
+      forgotSend.disabled=true;
+      if(forgotStatus){forgotStatus.textContent="Enviando…";forgotStatus.classList.remove("error");}
+      try{
+        await requestCodeReset(forgotEmail.value);
+        if(forgotStatus)forgotStatus.textContent="Se existir um perfil com este e-mail, enviamos um código novo agora. Confira a caixa de entrada e o spam, depois volte e entre com e-mail + código novo.";
+      }catch(e){
+        if(forgotStatus){forgotStatus.textContent=e.message||"Não foi possível enviar agora.";forgotStatus.classList.add("error");}
+      }finally{forgotSend.disabled=false;}
+    });
+    if(localStorage.getItem(CODE_RENEWED_KEY)&&!name()){
+      localStorage.removeItem(CODE_RENEWED_KEY);
+      showCode();
+      if(codeStatus)codeStatus.textContent="Seu código foi renovado. Entre com seu e-mail e o novo código enviado por e-mail.";
+    }
   }
 
   const ADMIN_EMAIL_KEY="jesed:lastAdminEmail";
@@ -1130,6 +1275,7 @@ const Comments = (() => {
       +'<button id="readerSwitchLogout" class="profile-action-btn danger-soft" type="button"><strong>Sair deste perfil</strong><span id="readerSwitchLogoutHint">O perfil e o progresso continuam guardados pelo código</span></button>'
       +'</div>'
       +'<div id="readerSwitchCodeBox" class="reader-code-login profile-inline-login" hidden>'
+      +'<label class="field"><span>E-mail</span><input id="readerSwitchEmail" type="email" inputmode="email" autocomplete="email" placeholder="seu@email.com (perfis antigos: deixe vazio)" maxlength="120"></label>'
       +'<label class="field"><span>Código de acesso</span><input id="readerSwitchCode" type="text" inputmode="text" autocomplete="off" autocapitalize="characters" spellcheck="false" placeholder="ex.: DE2E40" maxlength="24"></label>'
       +'<p id="readerSwitchStatus" class="reader-code-status" aria-live="polite"></p>'
       +'<div class="sheet-actions"><button id="readerSwitchSubmit" class="btn-primary" type="button">Entrar</button><button id="readerSwitchCodeBack" class="btn-ghost" type="button">Voltar</button></div>'
@@ -1151,6 +1297,7 @@ const Comments = (() => {
 
     const clearStatus=()=>{
       if(input)input.value="";
+      const em=el.querySelector("#readerSwitchEmail");if(em)em.value="";
       if(status){status.textContent="";status.classList.remove("error");}
       if(submit)submit.disabled=false;
     };
@@ -1184,7 +1331,7 @@ const Comments = (() => {
       status.classList.remove("error");
       try{
         const wasAdmin=admin();
-        const profile=await loginWithCode(code);
+        const profile=await loginWithCode(code,el.querySelector("#readerSwitchEmail")?.value||"");
         if(wasAdmin&&auth){
           status.textContent="Entrando como "+profile.name+"…";
           await auth.signOut();
@@ -1778,7 +1925,7 @@ const Comments = (() => {
 
   return {
     init,attachChapter,isEnabled:()=>enabled,isAdmin:admin,getAdminId:()=>adminUser?.uid||"",getUserName:name,getUserId:uid,getAccessCode:accessCode,
-    loginWithCode,ensureAccessProfile,updateReaderName,hashText,forceResync,
+    loginWithCode,ensureAccessProfile,updateReaderName,hashText,forceResync,saveReaderEmail,getReaderEmail,requestCodeReset,promptLegacyEmail,
     getDb:()=>db,getCachedComments:book=>(cCache[book]||[]),reply,edit,saveText,del,resolve,seen,unseen,markAllSeen,
     sendAnnouncement,getAllowedBooks,getReaderAccessState,listReaderProfiles,setAllowedBooks,approveReaderProfile,setReaderAccess,rotateReaderAccessCode,deleteReaderProfile
   };

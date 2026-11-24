@@ -17,6 +17,13 @@ service cloud.firestore {
         );
     }
 
+    function validReaderEmail(value) {
+      return value is string
+        && value.size() >= 5
+        && value.size() <= 120
+        && value.matches('^[^@\\s]+@[^@\\s]+\\.[^@\\s]{2,}$');
+    }
+
     function isProfileHash(value) {
       return value.matches('^[0-9a-f]{64}$');
     }
@@ -187,8 +194,12 @@ service cloud.firestore {
       allow create: if isProfileHash(profileHash)
         && request.resource.data.keys().hasOnly([
           'readerId','name','createdAt','updatedAt','allowedBooks','initialBookId',
-          'approvalStatus','accessEnabled'
+          'approvalStatus','accessEnabled','email'
         ])
+        && (
+          !request.resource.data.keys().hasAny(['email'])
+          || validReaderEmail(request.resource.data.email)
+        )
         && request.resource.data.readerId is string
         && request.resource.data.readerId.size() >= 16
         && request.resource.data.readerId.size() <= 80
@@ -221,14 +232,18 @@ service cloud.firestore {
       // Admin libera livros ou transforma o perfil numa lápide de exclusão.
       allow update: if isAdmin();
 
-      // O próprio app do leitor pode atualizar apenas nome + timestamp.
+      // O próprio app do leitor pode atualizar apenas nome, e-mail + timestamp.
       // readerId, livros liberados e livro inicial permanecem imutáveis.
       allow update: if isProfileHash(profileHash)
         && resource.data.get('deleted', false) != true
         && request.resource.data.readerId == resource.data.readerId
         && request.resource.data.get('createdAt', null) == resource.data.get('createdAt', null)
         && request.resource.data.diff(resource.data).affectedKeys()
-          .hasOnly(['name','updatedAt'])
+          .hasOnly(['name','updatedAt','email'])
+        && (
+          !request.resource.data.keys().hasAny(['email'])
+          || validReaderEmail(request.resource.data.email)
+        )
         && request.resource.data.name is string
         && request.resource.data.name.size() >= 1
         && request.resource.data.name.size() <= 40
@@ -245,7 +260,8 @@ service cloud.firestore {
     // ---------------------------------------------------------
     function validAccessCodeRecord(profileHash, data) {
       return isProfileHash(profileHash)
-        && data.keys().hasOnly(['profileHash','readerId','accessCode','updatedAt'])
+        && data.keys().hasOnly(['profileHash','readerId','accessCode','updatedAt','email'])
+        && (!data.keys().hasAny(['email']) || validReaderEmail(data.email))
         && data.profileHash == profileHash
         && data.readerId is string
         && data.readerId.size() >= 16

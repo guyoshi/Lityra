@@ -128,3 +128,12 @@ O login tem recuperação de senha por e-mail. Uma conta autenticada que não po
 - **Token para publicação:** no repositório de origem, configurar secret `LITYRA_SYNC_TOKEN` com permissão `Contents: Read and write` ao repositório `guyoshi/Lityra`. Por compatibilidade, o workflow continua a aceitar `EDITORLIVROAPP_SYNC_TOKEN` quando o novo não existir.
 
 **Importante:** o identificador de projeto Firebase legado `editorlivroapeditorlivroappp` faz parte das configurações existentes de autenticação e Firestore. A troca de nome do repositório **não** exige renomear nem apagar esse projeto, pois isso quebraria o acesso administrativo e os comentários.
+
+
+## Login por e-mail + código (novembro/2026)
+
+- Perfis novos: nome + **e-mail** no cadastro; entram com e-mail + código (o código é a senha). O e-mail fica no perfil (Firestore) e aparece na central do leitor.
+- Perfis antigos (sem e-mail): continuam entrando só com o código; ao abrirem o app é pedido o e-mail uma vez.
+- "Esqueci o código": a Cloud Function `requestAccessCodeReset` (pasta `functions/`) gera um código novo, migra os dados ligados ao hash do código (o `readerId` interno nunca muda) e grava um e-mail na coleção `mail`.
+
+Publicação (nesta ordem): 1) publicar `firestore.rules`; 2) instalar a extensão **Trigger Email from Firestore** (coleção `mail`) com um SMTP; 3) `firebase deploy --only functions` (plano Blaze); 4) publicar o site.
