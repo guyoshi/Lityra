@@ -1,310 +1,367 @@
-A experiência da morte, para muitos, é um portal para o desconhecido. Para mim, foi um vácuo, um lapso onde não havia nada além da negação da própria existência. E então a porra da consciência decidiu se manifestar de novo, trazendo uma realidade surreal que eu não tinha pedido.
+Morri. Não vi estrela nenhuma, não ouvi voz de divindade, não encontrei o Sr. Peron. Não lembro de ter visto nem a escuridão. Pra ver escuridão, você precisa estar vivo, pelo menos o suficiente pra abrir os olhos. E, por alguma razão, foi justamente o que acabei fazendo.
 
-A transição da escuridão para a luz foi abrupta. Um trio de luzeiros flutuantes turvava minha vista, e meu corpo, cativo de uma letargia profunda, mal obedecia. Algo estranho cobria meu rosto, e, quando tentei tirá-lo, um peso anormal, metálico e frio, prendeu meu movimento.
+Três luzes se mexiam acima de mim. Tentei levantar a cabeça, mas tinha alguma coisa presa ao rosto e meu corpo mal obedecia. Levei uma das mãos até lá. Pesava pra caralho. Desde quando uma mão pesava tanto?
 
-Sentei, e meus olhos foram se adaptando. Duas silhuetas ganharam contorno. Quando levei a mão ao rosto, uma dor lancinante me fez olhar para a origem dela, e veio o choque: um braço não de carne, mas de metal, refletindo a luz.
+Consegui me sentar. Duas formas apareceram por trás das luzes e, quando tentei tirar o que tava no meu rosto, senti uma dor que me fez olhar pro braço. Tinha metal onde devia ter pele. Tentei mexer os dedos, devagar, e os cinco dedos de metal se fecharam. Abri a mão e fiquei olhando as juntas. Tinha certeza de que tinha visto meu braço cair no rio. Lembrava até da espada do Jelles. Não conseguia entender como aquela coisa tava presa ao meu corpo.
 
-— Que porra é essa? — minha voz ecoou, entre horror e fascínio, enquanto eu encarava as criaturas à minha frente: dekraazianos, com suas “lanternas” vermelhas apontadas para mim. A câmara era uma casca claustrofóbica de material alienígena, cheia de facas, panos escuros e objetos curiosos.
+— Que PORRA é essa?
 
-A dor pulsava no braço perdido, e, ao tentar aliviá-la, minha mão achou uma máscara acoplada ao meu rosto, conexão vital que, ao ser interrompida, quase me custou o sopro da vida. Reestabeleci-a depressa.
+Os dekraazianos continuaram apontando aquelas lanternas vermelhas pra mim. Olhei em volta. Tava numa espécie de câmara, cheia de facas, panos escuros e outros objetos que eu não sabia se serviam pra salvar alguém ou terminar de matar.
 
-— O que vocês fizeram comigo? — indaguei, ainda atônito, aos seres que me encaravam impassíveis.
+O braço doía, inclusive a parte que eu lembrava ter perdido. Levei a mão boa até a máscara e tirei aquilo do rosto. Descobri imediatamente pra que servia: quase fiquei sem ar. Botei de volta.
 
-Foi então que uma voz se infiltrou em minha consciência, não através do ar, mas diretamente em minha mente. “Nós te salvamos”, ela disse.
+— O que vocês fizeram comigo?
 
-Busquei pela origem dessa voz misteriosa.
+“Nós te salvamos.”
 
-— Como? Qual de vocês disse isso? — perguntei.
+A voz veio de dentro da minha cabeça. Olhei pras criaturas. Nenhuma delas tinha se mexido.
 
-“Eles não conseguem te entender, e nem você a eles. Não está mais com seu tradutor. E é bom manter o seu filtro molecular no rosto. Sem ele, você não respira”, a voz ressoou em minha mente.
+— Quem falou isso?
 
-— Onde está você? De onde vem essa voz? Que tipo de tecnologia é essa? Colocaram a porra de um chip em meu cérebro?
+“Eles não compreendem você, nem você a eles. Está sem o tradutor. E mantenha o filtro molecular no rosto, por favor. Sem ele, você não respira.”
 
-“Nem tudo é tecnologia. Existem coisas que estão muito além de sua imaginação. Mas no momento, acho importante você saber o que aconteceu. Você morreu. E nós lhe trouxemos de volta. Até reconstruímos seu braço. De nada.”
+— Onde você tá? Enfiaram a porra de um chip na minha cabeça?
 
-— Me trouxeram de volta? E por que fizeram isso? E quem é você?
+“Nem tudo se resume a tecnologia, homem. Há coisas que você ainda não consegue imaginar. Por enquanto, basta saber que morreu e nós o trouxemos de volta. Até reconstruímos seu braço. De nada, aliás.”
 
-“Aprecie o mistério, homem. Me chamam de A Engenheira. Chique o nome, não é? Aliás, como se chama mesmo?”
+— Pera aí. Eu MORRI? E quem diabos é você?
 
-— Jasmey — respondi — ainda não me respondeu. Por que me trouxe de volta?
+“Chamam-me de Engenheira. Um belo nome, não acha? Aliás, qual é o seu?”
 
-“Ah, eu não achei justo você ser traído pelos seus daquele jeito. Mas ao contrário dos seus companheiros, você escolheu um caminho de consciência. Então eu decidi lhe dar mais uma chance. Seu corpo estava congelado em metano líquido. Foi muito difícil te tirar de lá.”
+— Jasmey. E por que me trouxe de volta?
 
-Saber que a Engenheira me observava e que minhas ações justificaram minha salvação pesou. “Ótimo”, pensei, “agora tenho uma cientista me julgando. Como se já não bastasse o inferno que vivi na Lebargan.” Ter sido salvo por um “caminho de consciência” era quase tão estranho quanto o meu novo braço de metal.
+“Não achei justo o que fizeram com você. Ao contrário de seus companheiros, decidiu contrariar aquilo que lhe ensinaram. Escolheu agir de acordo com a própria consciência. Achei que merecia outra oportunidade. Seu corpo estava congelado em metano líquido, sabia? Deu bastante trabalho tirá-lo de lá.”
 
-— Quis me dar mais uma chance? Você estava me espionando?
+Olhei de novo pro braço. A última coisa que lembrava era do Jelles na beira do precipício. Tentei fechar a mão de metal e consegui. Aqueles dedos eram meus agora. Que merda.
 
-“Desde que chegaram. Estive olhando vocês todos. Aqueles homens acabaram com centenas de inocentes. Muitas vidas foram perdidas. Mas você lutou até a morte pelo que achou certo, contrariando todos os seus ensinamentos.”
+— Você tava me espionando?
 
-— E onde é que você está agora? Por que não aparece para conversar pessoalmente ao invés de ficar nesse lance de voz na minha cabeça.
+“Desde que chegaram. Vi o que fizeram com centenas de inocentes. Também vi você lutar até a morte para impedir seus próprios companheiros.”
 
-O silêncio tomou conta de tudo, exceto pelos trovões distantes. A voz da Engenheira não respondeu.
+— E onde você tá agora? Não dá pra falar comigo pessoalmente? É meio estranho conversar com alguém que tá dentro da minha cabeça.
 
-— E agora se calou. Que legal! — resmunguei.
+Esperei. Só ouvi os trovões lá fora.
 
-Pus as pernas para fora da pedra onde estava deitado e senti alguns fios se soltarem de mim. No peito despido ainda havia agulhas com fios longos, que arranquei antes de me levantar, cambaleando. Os seres recuaram, mas me ofereceram um agasalho em sinal de gratidão.
+— Ótimo. Agora não fala mais.
 
-— Valeu! — respondi, enquanto colocava o casaco de couro preto, um objeto curiosamente familiar em um cenário tão alienígena — onde conseguiram isso?
+Pus as pernas pra fora da pedra onde tava deitado. Tinha agulhas espetadas no peito, com fios que iam até uns aparelhos. Arranquei aquilo antes de levantar. Minhas pernas quase desistiram da ideia, mas consegui ficar em pé. Os dekraazianos recuaram e um deles me estendeu um agasalho.
 
-As criaturas se olharam e soltaram mais um som estranho.
+— Valeu. — Vesti o casaco de couro preto. Era estranhamente familiar. — Onde arranjaram isso?
 
-— Ah, esquece — respondi caminhando em direção a elas — me dão licença.
+Os três se olharam e fizeram aquele barulho que eu não entendia mais. Passei a mão pelo bolso interno do casaco e encontrei o saquinho do Sr. Peron. Tirei o orbe e girei o vidro na mão boa. Nem o rio tinha conseguido quebrar aquela coisa. Guardei de novo.
 
-Passei pelos dekraazianos e, atravessando um túnel escuro, cheguei ao mundo exterior: um jardim iluminado por flora azul luminescente que transformava a noite num espetáculo. Quando eu passava, as flores soltavam um pólen que se espalhava como vagalumes. O contraste com o chão negro era de conto de fadas. Sim, eu sei o que são contos de fadas. Mas depois de momentos viajando o espaço, descobrimos que fadas não são só um conto.
+— É, tinha esquecido. Dá licença.
 
-Os céus continuavam tão escuros quanto na minha chegada, só que mais silenciosos. Os trovões soavam distantes, e por algumas frestas dava para ver a luz do sol cruzando as nuvens laranjas.
+Passei por eles e atravessei um túnel escuro. Do lado de fora, encontrei um jardim de plantas azuis que brilhavam sozinhas. A cada passo, as flores soltavam um pólen luminoso que ficava suspenso no ar. O chão era preto, então dava pra acompanhar cada pontinho de luz. Parecia coisa de conto de fadas. E digo isso sabendo que já encontraram fadas por aí. Algumas nem eram lá muito agradáveis.
 
-Segui pelas flores até uma descida para um pequeno vale. Sons atrás de mim me fizeram virar: os três dekraazianos saltavam e “acenavam” com as lanternas.
+O céu continuava escuro. Os trovões estavam mais distantes e, entre as nuvens laranja, dava pra ver um pouco da luz da estrela.
 
-— Esqueçam. Eu não vou voltar — lhes respondi — maldito planeta. Maldita vida. Maldito Jelles.
+Atravessei o jardim e comecei a descer pra um vale. Os dekraazianos saíram atrás de mim, pulando e agitando as luzes vermelhas.
 
-As criaturas estavam cada vez mais agitadas.
+— Não vou voltar lá pra dentro. Não adianta. Maldito planeta. Maldito Jelles.
 
-— EU JÁ DISSE QUE…
+Começaram a se agitar ainda mais.
 
-Percebi que a atenção deles não era mais para mim, mas para algo imenso à minha direita. A silhueta me gelou o sangue. Corri sem arma nenhuma, procurando refúgio entre umas plantas peludas altas.
+— EU JÁ DISSE QUE...
 
-Meus pés molharam: era um pântano. Continuei correndo, torcendo para a criatura não ter audição, os passos denunciando minha posição. Uma armadilha natural se enrolou nos meus pés e me jogou na água fria. Ao emergir, ouvi o ruído da criatura por perto, vi agitação no mato e, sem pensar, submergi por completo.
+Aí percebi que nenhum deles tava olhando pra mim. Virei pra direita e vi uma criatura enorme. Saí correndo. Não tinha arma, bracelete, porra nenhuma. Só aquele braço que eu mal sabia usar.
 
-Adrenalina, a merda de um sentimento desesperador que eu odeio. Ok, serei mais específico: odeio estar diante de um caçador sem arma nenhuma nas mãos. Quando a cabeça da criatura entrou na água ao meu lado, o susto foi enorme, mas não o bastante para me mover. Abri os olhos e vi as presas e o olho completamente branco do animal revirando a água. Então ele subiu, e suas patas se afastaram. Esperei, botei a cabeça para fora e puxei o ar com força. Passei a mão nos cabelos, me levantei e relaxei os músculos tensos, quando a voz da Engenheira me surpreendeu depois de sua súbita ausência.
+Entrei no meio de umas plantas peludas e afundei o pé na água. Era um pântano. Continuei correndo, fazendo um barulho que devia dar pra ouvir do outro lado do planeta. Alguma coisa se enrolou no meu tornozelo e me jogou de cara na água fria. Levantei a cabeça, ouvi o bicho se aproximar e mergulhei de novo.
 
-“Fui ao banheiro, e então podemos continuar?”
+Adoro sentir adrenalina. Só não gosto muito quando sou a comida. Fiquei debaixo d'água, tentando não me mexer. A cabeça da criatura entrou bem do meu lado. Abri os olhos e vi um olho branco e umas presas que eu não queria conhecer de perto. Ela remexeu a água, ergueu a cabeça e se afastou. Esperei mais um pouco antes de sair. Tava puxando o ar pela máscara e tirando as plantas do cabelo quando ouvi aquela voz de novo.
 
-— O quê? Você foi onde? — indaguei.
+“Pronto. Fui ao banheiro. Onde estávamos?”
 
-“Está parecendo cansado, o que houve… não me diga que está sentindo seu coração parar?”
+— Você foi ONDE?
 
-— Nada demais, eu só quase fui comido por uma besta enquanto você satisfazia suas necessidades.
+“Nossa, você está ofegante. Não me diga que o coração parou outra vez.”
 
-“Ah, me desculpe, não dava pra falar enquanto você ouvia meus “plucs”. Mas vamos ao que interessa… ah, olha só, acho que você está bem perto de mim. Continua seguindo o pântano para o norte, que você encontrará minha casa. Aí podemos conversar melhor.”
+— Não, imagina. Só quase virei comida enquanto você tava cagando.
 
-— Certo, e para onde fica o norte?
+“Perdão. Imagine o constrangimento se você ouvisse os plucs. Ah, mas está bem perto de mim! Siga pelo pântano em direção ao norte. Encontrará minha casa. Conversamos lá.”
 
-“Ai minha Estrela! Vocês são totalmente dependentes da tecnologia e não sabem como identificar coisas óbvias. Olhe para cima!” Obedeci, mas não vi nada demais. “Consegue enxergar onde o sol está? Estamos de manhã, Jasmey, o sol neste planeta nasce no oeste. Acho que você consegue usar a cabeça agora e deduzir onde é o norte, não?”
+— Certo. E pra que lado fica o norte?
 
-— Era tão mais simples quando eu tinha a porra do bracelete.
+“Minha Estrela, como vocês dependem dessas geringonças! Olhe para o céu.”
 
-“Como é? Eu não ouvi a última parte, desculpe”
+Olhei. Continuava sendo um céu cheio de nuvens.
 
-— Nada, eu já entendi — respondi.
+“Está vendo a luz da estrela? É manhã, Jasmey, e neste planeta ela nasce no oeste. Deixo o restante por sua conta.”
 
-“Ok, então te vejo logo mais.”
+— Era tão mais fácil com a porra do bracelete.
 
-Virei, e o sol às minhas costas desenhou minha sombra. A esquerda era meu norte. A vegetação alienígena roçava na pele, e se eu tivesse um lança-chamas incineraria a vegetação irritante e a criatura que me perseguiu.
+“Perdão, não entendi a última parte.”
 
-Depois de uns 400 ectons, uma formação residencial emergiu, adornada por cristais que cintilavam sob uma luz roxa misteriosa. A entrada era uma fenda convidativa, e avancei com os sentidos aguçados.
+— Nada. Já sei onde é.
 
-Era ali que meu “salvador” vivia. Desci com cuidado, olhando ao redor em busca de ameaça ou armadilha. Mesmo que ele estivesse falando a verdade, podia ter me trazido até ali por alguma razão.
+Olhei pro lado errado antes de me dar conta de que tinha que virar.
 
-Lá dentro, uma vibração súbita me fez virar, pronto para o confronto. Uma criaturinha de oito patas passou por mim, mais assustada que ameaçadora, e sumiu nas sombras.
+“Até logo, então.”
 
-Segui pelo corredor de iluminação arroxeada e fraca, o piso reagindo à pressão com padrões coloridos a cada passo.
+Virei de costas pra luz. Norte à esquerda. Fácil pra caralho quando alguém te dava a resposta. As plantas continuavam roçando nas minhas pernas. Daria um bom necroriano por um lança-chamas naquele momento.
 
-No fim do corredor, uns degraus em espiral subiam até um salão alto de tirar o fôlego: cápsulas com formas de vida variadas, algumas imersas em líquido roxo, outras desmembradas em mesas de dissecação, instrumentos cirúrgicos e artefatos flutuantes, uma beleza macabra sob a luz bioluminescente das paredes.
+Depois de uns quatrocentos ectons, avistei uma construção entre as rochas, com cristais que brilhavam numa luz roxa. A entrada parecia uma fenda na pedra. Parei pra escutar antes de entrar.
+
+Era ali que morava a criatura que tinha me trazido de volta? Desci devagar. Salvar minha vida não significava que eu devia confiar nela. Já tinha acreditado demais em gente que dizia querer meu bem.
+
+Alguma coisa vibrou atrás de mim. Me virei, erguendo o punho de metal, e um bichinho de oito patas passou correndo. Pelo jeito, tinha tomado um susto maior que o meu.
+
+Continuei pelo corredor, iluminado por uma luz roxa fraquinha. A cada passo meu, o piso mudava de cor. Dei mais um passo de propósito. Bonito. Pena que não servia pra sair do planeta.
+
+Subi uns degraus em espiral e cheguei a um salão enorme. Tinha cápsulas cheias de criaturas mergulhadas num líquido roxo, outras abertas em cima de mesas, órgãos separados em recipientes e instrumentos que flutuavam sem apoio. As paredes brilhavam. Olhei bem pras cápsulas. Por um momento, me perguntei se não tinha passado algum tempo dentro de uma delas.
 
 — Mas que porra de lugar é esse? — murmurei.
 
-— Fascinado por minha galeria? — a voz feminina quebrou o silêncio, vinda de uma figura imponente adiante. Virei e vi uma mulher de presença marcante e rara. Os cabelos, brancos como a neve mais pura, caíam sobre o corpo, e as pernas lisas me causavam um formigamento no ventre. Em circunstâncias menos macabras, eu a convidaria para dormir comigo. Me distraí tanto que nem a respondi.
+— Interessante, não?
 
-— Se distraiu com algo? — Ela me sondou, um meio-sorriso brincando em seus lábios.
+Me virei e vi uma mulher de cabelos brancos e compridos, ondulados, caindo sobre uma roupa clara com detalhes roxos. Tinha uns óculos de lentes roxas e umas pernas que conseguiram me fazer esquecer por alguns ectons que eu tava rodeado de cadáveres.
 
-— Ah, sim. Absorvido pela visão... da sua coletânea peculiar — falei, desviando o olhar para os corpos nas cápsulas.
+— Perdeu a fala, Jasmey?
 
-— Essa é a minha obra de vidas — ela declarou.
+— Não, não. Tava admirando... a coleção.
 
-— Obra de vidas? O que isso significa? E onde está a pessoa que falava comigo na minha cabeça?
+— A obra de várias vidas.
 
-Ela se aproximou, a distância entre nós diminuindo até que suas mãos alcançaram a máscara em meu rosto.
+— Várias vidas? E cadê a pessoa que tava falando comigo?
 
-— O ar aqui é respirável. Fui eu quem falou contigo, Jasmey. Bem-vindo ao meu santuário de estudos. Sou conhecida como A Engenheira, dedicada à engenharia biológica ao longo de uma extensa vida de descobertas.
+Ela veio até mim e levou as mãos à minha máscara. Dei um passo pra trás.
 
-— Você é… espera aí, você é uma engenheira biológica? Isso tudo aqui, são parte do seu estudo? Você mata criaturas e depois as estuda? Tipo uma taxidermista espacial chique?
+— Pode respirar aqui, querido.
 
-— Não sou a ceifadora da vida, mas uma estudiosa da morte. Meu propósito é entender, não destruir. Foi com meu conhecimento sobre a morte que consegui te trazer de volta à vida.
+Deixei que retirasse a máscara. Enchi os pulmões devagar. Finalmente conseguia respirar sem aquela coisa na cara.
 
-Isso me deixou desconfortável e ao mesmo tempo intrigado. Como uma garota de aparência tão jovem tinha tal conhecimento? Segurei o riso e me aproximei de uma mesa cheia de órgãos e membros de criaturas. Parte dela virou uma cadeira, convidando-me a sentar.
+— Era eu quem falava com você. Bem-vindo ao meu laboratório. Dediquei boa parte da minha existência à engenharia biológica.
 
-— Perdoe-me, meus móveis se adaptam às necessidades presentes. Imagino que esteja cansado. Sente-se.
+— Ah, então é uma engenheira biológica. Você mata os bichos e estuda depois? Tipo uma taxidermista espacial?
 
-— Prefiro ficar de pé, obrigado — menti, embora o cansaço pesasse nos ossos. — Uma jovem com gostos tão... peculiares. Como se considera tão habilidosa na engenharia biológica sendo tão nova?
+— Não tenho interesse em matar. Tenho interesse em descobrir o que acontece quando a vida termina. Foi estudando a morte que aprendi a trazer homens como você de volta.
+
+Olhei pra mulher, depois pras cápsulas. Não parecia velha o suficiente pra saber tudo aquilo. Me aproximei de uma mesa cheia de partes de criaturas e, antes que pudesse me apoiar nela, uma parte do móvel se transformou numa cadeira.
+
+— Perdoe-me. Meus móveis se ajustam conforme a necessidade. Sente-se. Deve estar exausto.
+
+— Tô bem assim, obrigado.
+
+Tava doendo até pra ficar em pé, mas, porra, não queria sentar na mesma mesa que tinha um pedaço de bicho aberto.
+
+— E como é que uma mulher tão nova aprende tudo isso?
 
 Ela riu.
 
-— “Jovem”? Aprecio o elogio. Mas, veja bem, minha existência se estende por quase duas eras.
+— Nova? Que gentileza. Tenho quase duas eras de existência.
 
-Perguntei, cético:
+Olhei de novo. Ela tava falando sério?
 
-— Quase duas eras, é? E como seu corpo sobreviveu a todo esse tempo? E continua... ahm... tão bem conservado?
+— Duas eras? E como é que você conseguiu ficar tão... bem conservada?
 
-— Ah, obrigada! — ela achou graça. — Como já disse, sou conhecida como A Engenheira por uma razão. Uso meu conhecimento para curar, para regenerar. Mais um dom do que uma habilidade.
+— Obrigada, querido. Regeneração. Uso o que aprendi para curar e restaurar tecidos, inclusive os meus. É mais um dom do que uma habilidade.
 
-— Está me dizendo que você pode curar seres biológicos e rejuvenescê-los?
+— Então você consegue curar e rejuvenescer criaturas?
 
-— Você está aqui, não está? Até bem pouco tempo, estava mortinho — ela retorquiu com um toque de humor.
+— Você está aí de pé, não está? E até pouco tempo atrás estava mortinho.
 
-Um latejar no braço me trouxe de volta à realidade. Olhei para a mulher.
+Meu braço voltou a latejar. Erguer aquele negócio ainda era esquisito.
 
-— Foi você quem me deu isso?
+— Foi você que botou isso em mim?
 
 Ela ergueu o queixo, orgulhosa.
 
-— Optei por ele assim, em vez de reconstruir o original. Será muito mais útil, pode confiar. Confesso que sempre quis um para mim, mas meus trabalhos exigem uma delicadeza que um braço metálico não proporcionaria. Para um pirata audaz, sempre à beira de uma nova aventura, é perfeito — a Engenheira foi até uma poltrona e se sentou.
+— Sim. Preferi este modelo a reconstruir o original. Será muito mais útil para você. Sempre tive vontade de ter um, confesso, mas meus procedimentos exigem uma delicadeza que o metal não oferece. Para um pirata que vive se metendo em encrenca, pareceu-me adequado.
 
-— Certo… então você já estudou muitas formas biológicas.
+Ela foi se sentar numa poltrona. Fiquei olhando pro braço. Podia ter perguntado antes, né? Bom, eu tava morto.
 
-— Explorei variadas existências pelo cosmos. Mas, lamentavelmente, estamos confinados a esta galáxia. Já imaginou as formas de vida aguardando descoberta nas outras?
+— Então você já estudou um monte de criaturas?
 
-— Não me interessa o que há fora dessa galáxia. É nela que eu vivo — falei, analisando uns itens na mesa ao lado.
+— Muitas. E, apesar disso, estamos limitados a esta galáxia. Imagine quantas formas de vida ainda existem nas outras.
 
-— A vida inteligente nesta galáxia segue um de três padrões: os hermetarianos, que florescem ao calor das estrelas. Os actoneses, de longe os mais complexos e capazes de auto-regeneração, a forma mais fantástica para se fazer uma cirurgia celular, e os humanídeos, mais parecidos conosco.
+— Se um dia eu tiver uma nave que chegue lá, talvez me interesse. Por enquanto, nem deste planeta eu consigo sair.
 
-Ela pausou, refletindo.
+Comecei a mexer nuns objetos sobre a mesa.
 
-— O curioso é que as formas de vida que prosperam e chegam à exploração espacial sempre são desses três grupos, evoluídas em partes diferentes da galáxia, mas com as mesmas características de origem, como se o DNA tivesse sido pré-programado. Chamo esse programador de “Entidade Cósmica”.
+— A vida inteligente na nossa galáxia segue três padrões principais: os hermetarianos, que prosperam ao calor das estrelas, os actoneses, que são muito mais complexos e capazes de se regenerar, e os humanídeos, mais parecidos conosco. Os actoneses, por sinal, são extraordinários para a cirurgia celular.
 
-Eu manipulava um cubo metálico cinzento sobre a mesa quando a terminologia dela capturou minha atenção.
+Ela se inclinou na poltrona, animada com o próprio assunto.
 
-— Entidade cósmica? Tipo um deus manipulador da realidade?
+— O fascinante é que as espécies que prosperam e chegam à exploração espacial pertencem sempre a um desses grupos. Evoluíram em regiões distintas, mas compartilham características de origem. É como se o DNA tivesse sido programado de antemão. Chamo o programador de Entidade Cósmica.
 
-— Vocês, da Lebargan, não acreditam em divindades? — ela retorquiu.
+Tava virando um cubo metálico na mão quando ouvi aquele nome. Tentei apoiá-lo entre o polegar e o indicador de metal, mas apertei com força demais. O cubo caiu na mesa com um estalo. A Engenheira estendeu a mão, virou o objeto e me entregou outra vez, sem interromper a explicação. Fiquei um tempo tentando acertar a pressão dos dedos.
 
-— Na Lebargan acreditamos apenas em nós. A vida é o que é. Depois que acaba, ela só não é mais.
+— Entidade Cósmica? Tipo um deus que faz o que quiser com a realidade?
 
-— E então você se dissolve de volta ao cosmos? É uma bela forma de ver. Mas, após observar tantas coincidências, começo a questionar a aleatoriedade da entropia.
+— Os Dales não acreditam em divindades?
 
-— O que sabe sobre o centro da galáxia? A Lebargan nunca explorou aquelas zonas — perguntei. A Engenheira me encarou, uma sombra de temor atravessando seu olhar.
+— Na Lebargan, a gente acredita na gente mesmo. Você tá vivo, depois morre e pronto. Pelo menos era o que eu achava até acordar na sua mesa.
 
-— Não sei — respondeu ela, sombria. — Nunca me aproximei tanto do centro.
+— E se dissolve de volta no cosmos? É uma bela maneira de pensar. No entanto, há tantas coincidências que começo a questionar a aleatoriedade da entropia.
 
-— Ninguém ultrapassa a sétima escala. Algo impede os aventureiros de voltar. Alegam que a radiação do buraco negro central é letal, mas suspeito que haja mais nisso.
+— E o centro da galáxia? Sabe alguma coisa de lá? A Lebargan nunca foi muito longe naquela direção.
 
-— Há rumores de uma força nas escalas menores, a antivida, oposta a qualquer forma de vida conhecida. Talvez por isso nenhuma vida inteligente prospere perto do núcleo. Se aceitar um conselho, nunca se aventure além da sétima escala.
+Ela parou de sorrir.
 
-— Manterei isso em mente — respondi, embora essa história de antivida não me fosse convidativa.
+— Não. Nunca cheguei tão perto do centro.
 
-— E o que você realmente conhece do universo, Jasmey? — questionou a Engenheira, os olhos de um roxo hipnotizante fixos em mim. — O universo é mais perigoso do que curioso, e nós somos meramente frágeis diante dessa vastidão.
+— Ninguém passa da sétima escala e volta pra contar. Dizem que é a radiação do buraco negro. Acho que tem mais coisa aí.
 
-— Certo — respondi, ainda cativado por seus olhos.
+— Há rumores de uma força nas escalas menores. Chamam-na de antivida, pois se opõe a todas as formas de vida conhecidas. Talvez seja por isso que nenhuma espécie inteligente prospere perto do núcleo. Se aceita um conselho, não ultrapasse a sétima escala.
 
-Ela voltou-se para uma mesa onde uma criatura jazia. Foi então que me ocorreu perguntar:
+— Tá bom. Vou lembrar.
 
-— A Aurora está nas escalas menores, Engenheira?
+— O que realmente conhece do universo, Jasmey? — Ela me encarou por cima das lentes roxas. — Quanto mais o estudo, mais descubro o quanto somos frágeis diante dele.
 
-Ela virou-se, e seu olhar confirmou que ela sabia do que eu falava.
+— Uhum.
 
-— Aurora? Quer saber se é real e se sei como chegar lá? Infelizmente, não tenho respostas. Mas você tinha um artefato que poderia guiá-lo, não é?
+Ela voltou pra mesa onde tinha uma criatura deitada. Lembrei de uma coisa.
 
-— O Olho do Domongo. Era você que Jelles procurava. Você pode usar o Olho para encontrar a Aurora.
+— A Aurora fica nessas escalas menores?
 
-— Se o código genético do olho servir como um mapa, então sim.
+Ela se virou.
 
-Sorri com ironia. Ela sabia como chegar à Aurora e estava me contando isso. Por quê?
+— Aurora? Não sei se é real nem onde se encontra. Mas você tinha um artefato que poderia levá-lo até lá, não tinha?
 
-— Código genético? Então era atrás de você que ele estava. Jelles deve ter capturado alguns Dekraazianos para obter essa informação.
+— O Olho do Domongo. Você consegue fazer aquela coisa mostrar o caminho?
 
-— Ensinei-lhes muito do que sei. São reservados e preferem morrer a revelar seus segredos.
+— Se o caminho estiver codificado na estrutura genética do olho, consigo.
 
-— Podem se calar, mas conheço Jelles. Ele vai extrair essa informação de algum modo.
+Deixei o cubo na mesa. O pai do Als-keb tinha me falado de uma tecnologia biológica lá na montanha. Será que era ela que o Jelles queria encontrar?
 
-— Então como Jelles soube que o Olho é um mapa e que os Dekraazianos poderiam interpretá-lo?
+— Código genético? Porra. Será que o Jelles ficou sabendo disso por algum dekraaziano?
 
-— Não sei o que acontece nas estrelas, mas te asseguro, a informação não vazou daqui — afirmou a Engenheira. — As fontes dele devem vir de fora. Eu não sou a única que manipula genética.
+— Ensinei-lhes boa parte do que sei. São reservados. Muitos prefeririam morrer a revelar o que aprenderam.
 
-— E sabendo que o líder de uma legião poderosa está no seu encalço, você escolheu se esconder nesta caverna?
+— Conheço o Jelles. Se ele quiser saber, vai encontrar um jeito.
 
-— Não temo o perigo, Jasmey. Compreendo a mente humana, movida por objetivos pessoais. Posso ser fonte de informação, mas também uma arma. Mas não te trouxe aqui para discutir meu destino.
+— Mas de onde veio a informação de que o olho era um mapa? E de que os dekraazianos sabiam interpretá-lo?
 
-— Então me chamou para ajudar a escapar deste planeta, certo? — questionei, esperançoso.
+— Isso eu não sei. Só o Jelles sabe de onde tirou essa informação.
 
-— Não há saída daqui, querido. Não há naves, a não ser que alguém venha resgatá-lo. Preciso da sua ajuda com algo mais urgente. Vê aquele ser ali? — ela apontou para uma criatura na mesa ao lado. Era um ser marrom, de duas patas traseiras, com espinhos eriçados no dorso. — Preciso realizar um procedimento celular nele, mas ele se agita muito. Pode segurá-lo para mim?
+— As fontes dele devem estar fora daqui. Não sou a única pessoa capaz de manipular genética, Jasmey.
 
-— Como é? Me trouxe aqui só para segurar o bicho? — perguntei, perplexo.
+— E se for você que aquele desgraçado tá procurando? Vai ficar nessa caverna?
 
-— Exatamente. É um cara forte, e os Úrgalos também são, por mais que não pareçam.
+— Não tenho medo dele, querido. Posso ser uma fonte de informação, mas também posso ser uma arma. Compreendo muito bem o que move homens como ele. Mas não foi para discutir meu destino que o chamei.
 
-— E que procedimento é esse? — perguntei.
+— Ah, então é pra me ajudar a sair desse planeta!
 
-— O mesmo que fiz com você: trazê-lo de volta à vida. O coitadinho morreu há menos de uma hora. Esta espécie pode ser revivida nesse intervalo. Depois disso, os danos são irreversíveis.
+— Não há naves aqui. Só poderá sair se alguém vier buscá-lo. Na verdade, preciso de sua ajuda. Vê aquele animal?
 
-Balancei a cabeça negativamente, achando graça.
+Apontou para uma criatura de cor marrom, com duas patas traseiras e o dorso coberto de espinhos. Tava esticada sobre a mesa, sem se mexer.
 
-— Eu não tenho tempo pra isso, Engenheira. Preciso sair deste planeta e ir atrás do Jelles. Tenho algo pessoal a resolver com ele.
+— Preciso realizar um procedimento celular e ele costuma se agitar bastante. Pode segurá-lo para mim?
 
-— Não, você vai ajudar com a cirurgia — ela insistiu. Juraria que vi faíscas elétricas se emaranhando nos cabelos dela, que flutuavam levemente.
+— Você me trouxe até aqui pra segurar um bicho?
 
-— Está bem... quanto tempo isso leva?
+— Exatamente. Você é forte. Os úrgalos também, acredite.
 
-— Alguns ectons — ela respondeu, indicando onde segurar. — Aplique pressão aqui e aqui. Ele não deve se mover até estar curado por completo.
+— E o que vai fazer com ele?
 
-— Consigo. Só queria ter certeza de que você não me pediria mais favores depois.
+— O mesmo que fiz com você. O pobre animal morreu há menos de uma hora. Ainda consigo reanimá-lo. Depois desse intervalo, os danos tornam-se irreversíveis para a espécie.
 
-— Favores? Eu te trouxe de volta à vida, ingrato! — respondeu ela, ofendida.
+Olhei pro bicho. Tava bem quietinho pra alguém que precisava ser segurado.
 
-— E eu não te pedi pra fazer isso — retruquei.
+— Engenheira, eu preciso sair daqui. Tenho umas contas pra acertar com o Jelles.
 
-— Você é sempre ingrato assim? — ela perguntou, preparando-se. — Agora segure firme.
+— Primeiro, vai me ajudar com a cirurgia.
 
-Ela levantou um bisturi, pôs óculos especiais que brilharam roxos e começou a incisão. O líquido azul escorreu do ser e, com um gesto da mão direita, flutuou no ar enquanto ela operava com precisão cirúrgica, a esquerda mexendo dentro da criatura.
+Juro que vi os cabelos dela se erguerem um pouquinho, com umas faíscas passando entre os fios.
 
-— Posso te perguntar o que está fazendo? — indaguei.
+— Tá bom. Quanto tempo?
 
-— Reanimando células e reconstruindo moléculas. É complexo, principalmente quando microrganismos já começaram a degradá-las. Mas, como disse, ainda não é tarde demais.
+— Alguns ectons. Pressione aqui e aqui. Não deixe o animal se mover até que eu termine.
 
-— Aaah — respondi, fingindo compreensão.
+— Isso eu consigo. Só não vai me pedir mais favor depois.
 
-A Engenheira moveu a mão no ar, e o animal se mexeu. Não sabia se era bruxaria dela ou instinto dele despertando, mas pressionei o corpo contra a mesa.
+— Favor? EU O TROUXE DE VOLTA À VIDA, INGRATO!
 
-Então ela manipulou o líquido azul de volta ao corpo do animal. A cor dele, antes verde-musgo, foi virando um verde-grama vibrante. O animal despertou com guinchos agudos, tentando se libertar. Eu fazia força para mantê-lo no lugar, o que não era difícil com o braço de metal, enquanto o outro sofria com arranhões e beliscões.
+— Mas eu não pedi!
 
-— E então? — perguntei, lutando para controlar a criatura.
+— Sempre tão agradável, você? Segure o animal, Jasmey.
 
-— Ainda não — respondeu ela, com as mãos dentro do ser agitado. — Estou ajustando as conexões neurais.
+Ela colocou os óculos de lentes roxas e fez um corte com o bisturi. Um líquido azul saiu da criatura. Quando a Engenheira ergueu a mão direita, o líquido subiu e ficou flutuando. Enquanto isso, a esquerda mexia nas entranhas do animal. Olhei pro meu braço. Não tava tão curioso pra saber como tinha sido a minha cirurgia.
 
-Ela fechou os olhos, e seus globos oculares se moveram freneticamente sob as pálpebras. O animal guinchava, sofrendo, até que, com um suspiro profundo, parou. A Engenheira abriu os olhos, ofegante, exausta. Passou a mão sobre o corpo do animal e, diante dos meus olhos, o corte se fechou e as duas metades se uniram.
+— O que você tá fazendo agora?
 
-Ouvi um guincho agudo, mas suave, vindo da criatura.
+— Reanimando células e reconstruindo moléculas. A dificuldade aumenta quando os microrganismos começam a degradá-las. Felizmente, chegamos a tempo.
 
-— Já pode soltá-lo — disse ela.
+— Claro. Faz sentido.
 
-Hesitei, soltei o animal e recuei. Ele se levantou devagar sobre as duas patas, com dificuldade.
+Ela me olhou por cima dos óculos.
 
-— Ele precisa reaprender a andar. As células novas ainda não estão sincronizadas com as antigas, e, infelizmente, algumas memórias se perderam. Mas, no geral, ele ainda é o mesmo — ela explicou, acariciando o animal, que se virou para ela com um guincho delicado.
+— Quer que eu explique?
 
-— Isso é incrível — falei, impressionado — você consegue controlar a morte.
+— Não precisa. Pode continuar.
 
-— Não, Jasmey, não controlo a morte. Apenas posso adiá-la ou revertê-la sob as circunstâncias corretas e com tempo adequado. Nada neste mundo evita o fim de uma vida. Tenho muitas eras de experiência, mas até minha mente fica sobrecarregada e às vezes precisa esquecer algumas coisas para não colapsar.
+Eu mal tinha entendido em que parte da criatura devia pôr a mão.
 
-— Isso não deixa de ser foda, mulher — falei — podia me ajudar a matar o Jelles.
+Ela mexeu a mão e o animal deu um tranco. Apertei o corpo dele contra a mesa. Até pouco tempo atrás, eu devia ter estado exatamente na mesma situação. Esperava ter dado menos trabalho.
 
-— O quê? Não, querido, eu não tiro vidas. De ninguém. A menos que seja absolutamente necessário.
+O líquido azul voltou pro corpo da criatura. As partes da pele que tinham adquirido uma cor verde-musgo foram ficando de um verde mais vivo e o desgraçado começou a guinchar e se debater. Com a mão de metal, até que era fácil segurar. A outra começou a levar arranhões e beliscões. Tive vontade de perguntar por que ela não tinha trocado os dois braços logo de uma vez.
 
-Sorri para mim mesmo. Agora que eu tinha feito o que ela pediu, era minha vez de pedir algo.
+— Já acabou?
 
-— Olha... Engenheira. Agora que terminamos... há alguma nave perdida por aqui, alguma maneira de sair deste lugar? Ou um homem das máquinas capaz de construir uma?
+— Ainda não. Estou ajustando as conexões neurais.
 
-— Já lhe disse, Jasmey: sua saída depende da chegada de alguém. E já faz tempo que ninguém se perde por aqui. Mas quem sabe você não é um homem de sorte.
+Ela fechou os olhos e vi os globos oculares se mexerem por baixo das pálpebras. O úrgalo continuou guinchando e se debatendo. Senti as garras arranharem a mesa até que, de repente, ele parou. Quando a Engenheira abriu os olhos, tava ofegante. Passou a mão sobre o corte e vi as duas bordas da pele se unirem. Fiquei olhando. Nem sinal da incisão.
 
-— Ok — respondi, virando-me para olhar as outras mesas, enquanto minha visão se detinha em um objeto curioso, porém valioso, entre os instrumentos da Engenheira.
+O animal soltou um guincho baixinho.
 
-— Deixe-me lembrá-lo de algo sobre a Aurora, Jasmey — disse-me a Engenheira — há uma razão pela qual muitas histórias permanecem como mitos. Não é o que as histórias contam que deve temer. É o que elas não contam.
+— Pode soltar agora.
 
-— Vou anotar isso... quando tiver papel e caneta. Agora, senhora, peço licença, vou continuar meu caminho — falei, assentindo para ela e seguindo para a saída.
+Afrouxei a mão de metal devagar. O bicho se levantou sobre as duas patas, cambaleando.
 
-— Nanana, devolve o que está em seu bolso — disse-me a Engenheira, no momento em que minha mão alcançava o bolso para guardar o que havia pegado na mesa.
+— Terá de reaprender a andar. As células novas ainda não estão sincronizadas com as antigas. Algumas memórias se perderam, infelizmente. Mas continua sendo o mesmo animal.
 
-— O quê? — indaguei, inocentemente.
+Ela acariciou a criatura, que se virou pra mão dela e guinchou.
 
-— Isso é uma dissolutora plasmática. Sim, é valiosa, mas sem ela não consigo introduzir informação nos núcleos celulares. Mesmo que a venda, não terá utilidade para você nem para ninguém. Só eu sei usá-la.
+— Caralho. Você consegue controlar a morte.
 
-Fiz uma careta e abaixei a cabeça, pensativo, antes de tirar a mão do bolso com o objeto dourado e atirá-lo de volta à mesa.
+— Não, Jasmey. Posso adiá-la ou revertê-la em certas circunstâncias, dentro de um intervalo de tempo adequado. Não posso impedir que a vida termine. Até minha própria memória tem limites. Às vezes preciso esquecer certas coisas para não sobrecarregar a mente.
 
-— Pegue isso. Talvez lhe seja mais útil — disse-me a Engenheira. Quando me virei, vi três objetos voando em minha direção, que rapidamente apanhei — Belos reflexos.
+— Continua sendo do caralho. Podia me ajudar a matar o Jelles.
 
-Uma arma com dois canos longos, uma espada tipo cutelo e uma adaga de lâmina curva.
+— Não, querido. Não tiro vidas, a menos que seja absolutamente necessário.
 
-— É, acho que isso vai me ser útil — falei, guardando os equipamentos na cintura. A adaga de lâmina curva se acomodou com uma curva só dela e quase me capou antes da porta. Saí andando de lado, com a dignidade de quem sabe que está sendo observado.
+Olhei pro animal. Pelo menos agora tinha pago minha dívida com a mulher. Ou parte dela, vai saber quanto cobrava por ressuscitar piratas.
 
-— Espero que encontre seu caminho, capitão — disse-me a Engenheira.
+— Escuta. Não tem uma nave perdida por aí? Alguém que entenda de máquinas e consiga construir uma?
 
-— Capitão? — perguntei, rindo, dando uma última olhada para trás antes de seguir. Capitão Jasmey. Não soava tão mal.
+— Como já lhe disse, só sairá se alguém vier buscá-lo. Faz tempo que ninguém se perde por aqui. Talvez tenha sorte.
 
+— Ótimo.
+
+Me afastei da mesa e vi um objeto dourado entre os instrumentos dela. Parecia caro. Passei mais perto.
+
+— Quanto à Aurora, Jasmey, lembre-se de que as histórias não contam tudo. Muitas vezes, é justamente o que deixam de contar que deveria preocupá-lo.
+
+— Vou guardar isso. Bom, muito obrigado pela hospitalidade. Tenho que ir andando.
+
+— Nada disso. Devolva o que está colocando no bolso.
+
+— Eu?
+
+— Sim, você. É uma dissolutora plasmática. Valiosa, sem dúvida. Preciso dela para introduzir informação nos núcleos celulares. E, caso pretenda vendê-la, saiba que ninguém além de mim saberia usá-la.
+
+Tirei a mão do bolso com a dissolutora e coloquei de volta na mesa. Tinha durado pouco a minha carreira de ladrão de laboratório.
+
+— Tome. Isto talvez lhe sirva melhor.
+
+Me virei e apanhei três objetos que ela jogou na minha direção.
+
+— Belos reflexos.
+
+Ajeitei os ombros. Pelo menos alguém naquele planeta reconhecia um talento quando via.
+
+Uma arma de dois canos longos, uma espada parecida com um cutelo e uma adaga de lâmina curva.
+
+— Aí, sim. Isso eu sei usar.
+
+— Não se trata apenas de uma arma. Há outros recursos no equipamento. Examine-o com cuidado antes de apertar qualquer comando.
+
+Assenti, já mais interessado na adaga.
+
+Acomodei as armas na cintura. Tentei girar a adaga entre os dedos de metal, como fazia antes, mas a lâmina escapou e quase me capou antes mesmo de chegar à porta. Dei uma ajeitada nela sem olhar pra trás. Depois do elogio, não ia dar à mulher o prazer de me ver perder outra parte do corpo.
+
+— Espero que encontre seu caminho, capitão.
+
+— Capitão?
+
+Olhei pra trás, sorrindo. Capitão Jasmey. Até que soava bem.
