@@ -80,7 +80,11 @@ Dei um tapa de leve no ombro dele. Não sabia o que responder à parte do Sacerd
 
 — Pra mim é cantar — disse Kord. — Se não tiver uma canção na cabeça, começo a pensar em coisa que não quero.
 
-— Eu até cantaria junto, mas vocês iam pedir pra eu voltar a falar. E os jogos, O’reilly? Aprendeu tudo no mercado?
+— Eu até cantaria junto, mas vocês iam pedir pra eu voltar a falar.
+
+Lembrei do tabuleiro da Quinn e do que O’reilly tinha contado sobre os jogos no mercado.
+
+— E aquela história de ganhar de um Noxiliano? Aprendeu a jogar no cargueiro?
 
 Ele riu.
 
@@ -104,11 +108,13 @@ Buni trouxe o pano, mas não parava de rir. Vivian tomou o pano da mão dele e e
 
 Quando terminou, Buni ergueu com uma mão a caixa de ferramentas que três de nós tínhamos arrastado pra cabine. Pôs no lugar sem nem interromper a conversa com Vivian. Fiquei olhando pra caixa. O sujeito nunca parecia perceber a força que tinha. Vivian pediu que afastasse a caixa um pouco mais. Buni obedeceu. O’reilly chegou a se levantar pra ajudar, mas voltou a sentar quando viu que não precisava. Buni tinha arranhado os dedos numa das bordas da caixa. Vivian pegou a mão dele e a cobriu com as duas dela. Quando o grandalhão voltou pra mesa, nem procurou o pano que tinha deixado junto à pia. Vivian se sentou, com uma expressão cansada. Achei que o Buni tinha exagerado na hora de pedir desculpa.
 
-— Vocês conseguem se divertir com qualquer coisa — disse Hardman, voltando a examinar o bracelete.
+Hardman voltou a examinar o bracelete. O’reilly ainda tava contando ao Buni como tinha aprendido a jogar no cargueiro. Olhei pras mãos do engenheiro e lembrei do que ele tinha me dito na sala das máquinas da Fera.
 
-O sorriso dele durou pouco. Eric ficou acompanhando a ponta da ferramenta enquanto o engenheiro falava.
+— E o teu pai, Hardman? Você falou dele quando disse que conhecia a Aurora. Inventou essa parte também?
 
-— Jasmey, sobre a Aurora... Eu nunca estive lá. Mas não inventei tudo. Tenho motivos para acreditar que meu pai a conheceu.
+Hardman largou a ferramenta por um instante. Eric acompanhou o movimento.
+
+— Eu nunca estive lá, Jasmey. Mas não inventei tudo. Tenho motivos para acreditar que meu pai a conheceu.
 
 Eric ergueu a sobrancelha. Não interrompeu.
 
@@ -268,11 +274,15 @@ Hardman assentiu.
 
 Ficamos um tempo acompanhando os indicadores. Tirei o orbe do bolso e fiquei passando o polegar sobre o vidro. Hardman tava concentrado nas leituras. Quando virou a cadeira pra mim, guardei o presente do velho.
 
-— Como foi crescer na Lebargan, Jasmey?
+— Sempre carrega esse orbe consigo? — Hardman olhou pro meu bolso.
+
+— Presente do Sr. Peron. Um velho Dale que me ensinou um monte de coisa.
+
+— Foi na Lebargan que ele o ensinou?
 
 Olhei pro braço de metal. O sujeito tinha me contado a história dele. Não me custava contar parte da minha.
 
-— Cresci na Ala 66 com centenas de crianças. A gente estudava, treinava e fazia o que mandavam. Perdi vários irmãos nos testes. Num duelo, matei um deles. Era ele ou eu, pelo menos foi o que me ensinaram. Se você chorasse, mandavam continuar. Se não conseguisse, tiravam você do grupo. O resto da nave era um lugar que a gente só conhecia de ouvir falar. Quando saí de lá e vi as estrelas pela primeira vez, pensei que finalmente era livre.
+— Foi. Conheci o velho quando saí da Ala 66. Cresci lá com centenas de crianças. A gente estudava, treinava e fazia o que mandavam. Perdi vários irmãos nos testes. Num duelo, matei um deles. Era ele ou eu, pelo menos foi o que me ensinaram. Se você chorasse, mandavam continuar. Se não conseguisse, tiravam você do grupo. O resto da nave era um lugar que a gente só conhecia de ouvir falar. Quando saí de lá e vi as estrelas pela primeira vez, pensei que finalmente era livre.
 
 Hardman ficou quieto, esperando que eu continuasse.
 
@@ -294,7 +304,7 @@ Olhei pra mão de metal.
 
 Hardman verificou os indicadores mais uma vez.
 
-— Já pensou em outra maneira de resolver o que tem com Jelles?
+— E quando encontrar Jelles? Se conseguir matá-lo, o que pretende fazer com os outros Dales?
 
 Olhei pro vidro.
 
