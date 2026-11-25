@@ -10,11 +10,11 @@ Hardman apontou para um indicador vermelho.
 
 — Falha no sistema de dobra.
 
-— Tá vendo, Kord? Até a nave concorda comigo sobre as baratas do mar.
+— Merda. Tava indo tudo tão bem.
 
-— Quando encontrar uma, vou comer na tua frente.
+Buni olhou pros indicadores.
 
-— A gente consegue sair daqui sem a dobra? — perguntou Buni.
+— A gente consegue sair daqui sem a dobra?
 
 Eric consultou a Carta.
 
