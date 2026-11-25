@@ -206,9 +206,9 @@ Eric virou a cabeça, surpreso.
 
 O’reilly olhou pro feixe, depois pra Vivian.
 
-— Então é só seguir o feixe?
+— Então é só seguir o feixe? Já temos um caminho pra Aurora?
 
-— Temos? Não era o que tavam dizendo mais cedo.
+— Temos. E agora? Ainda vão querer me largar num canto da galáxia?
 
 — Mais cedo não tinha tesouro nenhum, Badrock — disse Kord. — Com gerbe suficiente, dá pra comprar uma nave, voltar pra casa e viver sem ter que servir a filho da puta nenhum.
 
