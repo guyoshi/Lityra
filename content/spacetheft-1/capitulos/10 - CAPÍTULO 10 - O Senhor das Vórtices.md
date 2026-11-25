@@ -4,7 +4,7 @@
 
 — Aquele jeito de falar com Tzough. Não é um homem que você queira ter como inimigo.
 
-— Então aquele é o tal Senhor dos Vórtices?
+— É por isso que chamam esse desgraçado de Senhor dos Vórtices? Todo mundo aqui tem medo dele?
 
 — Tá vendo o Ederos ali? — Ela apontou com a cabeça pra outra cela. — Podia sair dali se quisesse. Tem gente que prefere ficar atrás das grades a andar por esta nave. O pessoal tem mais medo do Tzough do que de morrer.
 
@@ -404,7 +404,7 @@ Olhei pra barra de ouro. Depois pro velho.
 
 — Esta lente me permite ver através da pele, observar seus batimentos, notar quando tenta me enganar. Sei que não construiu aquele dispositivo. Não é o que me interessa, por ora. Poucos escapam vivos da Fera.
 
-— Já tentaram tomar tua nave, capitão?
+— E com essa lente aí, já conseguiram enganar o senhor? Tentar tomar tua nave?
 
 — Muitas vezes, meu caro! Ah, o último... Serold, o caolho. Espalhou a história de que eu escondia ouro aqui. Antes que pudesse organizar seu motim, abri-lhe o ventre e fiz os outros beberem de seu sangue. Depois, levei os traidores à prancha.
 
