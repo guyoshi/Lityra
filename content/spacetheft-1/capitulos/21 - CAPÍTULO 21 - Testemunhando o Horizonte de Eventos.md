@@ -296,9 +296,7 @@ Vivian me cutucou e apontou pro chão. As sombras dos Dales acompanhavam os movi
 
 — Deveria ter imaginado que o gerbe seria suficiente para fazê-lo voltar.
 
-— Veio lutar comigo, capitão?
-
-— Desta vez tá todo mundo olhando. Vamos descobrir se merece mesmo o cargo.
+— Veio lutar comigo, capitão? Tem um monte de Dale aqui. Por que não mostra pra eles o que sabe fazer?
 
 Jelles olhou pro solo.
 
@@ -332,11 +330,15 @@ Olhei pro Hardman e pra Amanda.
 
 Ele olhou pro planeta.
 
-— Não precisaremos mais recorrer à alteração molecular de atmosferas. Uma arma dessas faria o trabalho de toda uma frota.
+— Com uma arma dessas, não precisaremos mais alterar a atmosfera de um planeta para subjugar sua população.
 
-Ouvi a respiração do Hardman no rádio. O sujeito tinha parado de falar.
+A voz de Hardman veio pelo rádio.
 
-— O gás serviu durante muito tempo. Os planetas atingidos não ofereciam mais resistência. Mas não me interessa governar mundos vazios quando posso fazer com que se rendam.
+— Alterar a atmosfera? Foi isso que fizeram em Kaséia?
+
+Jelles olhou na direção dele.
+
+— Não guardo o nome de todos os planetas. O gás serviu durante muito tempo. Os planetas atingidos não ofereciam mais resistência. Mas não me interessa governar mundos vazios quando posso fazer com que se rendam.
 
 Hardman deu um passo pra trás. Eu sabia no que tava pensando. Não tinha como fingir que não sabia mais.
 
@@ -374,9 +376,7 @@ Lembrei do Vek tentando me matar, do Dock com a espada e da Saezi estendida naqu
 
 Apontei a pistola.
 
-— E lá no asteroide?
-
-— Olha só, Dales. O capitão não desceu nem pra ver o que vai fazer com vocês.
+— No asteroide também não precisou, né? Olha só, Dales. O capitão não desceu nem pra ver o que vai fazer com vocês.
 
 Disparei. O projétil passou pela imagem de Jelles e acertou o chão atrás dele. Dois Dales olharam pro ponto do impacto, depois pro capitão.
 
