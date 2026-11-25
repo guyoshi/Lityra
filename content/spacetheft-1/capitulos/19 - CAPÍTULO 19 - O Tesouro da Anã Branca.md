@@ -122,7 +122,7 @@ Senti a atração aumentar à medida que descíamos. Os estabilizadores começar
 
 — Além do gerbe? Espero que um lugar firme pra pousar.
 
-— Ou alguma coisa que não quer ser encontrada — disse O’reilly.
+O’reilly se inclinou pra ver melhor. Tinha os olhos fixos na superfície.
 
 — E se for água? A gente não tá vendo onda nenhuma.
 
@@ -404,7 +404,9 @@ Eric sorriu.
 
 — É o que espero.
 
-— Quer saber como tirei o olho do Jelles?
+Eric olhou pra bolsa onde guardava o olho.
+
+— Por falar em inferno, quer saber como tirei o olho do Jelles?
 
 — Não.
 
