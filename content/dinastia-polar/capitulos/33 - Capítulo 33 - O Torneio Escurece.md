@@ -44,7 +44,7 @@ Yamara revirou os olhos, sem irritação nenhuma por trás. Karev sorriu, mastig
 
 Karev riu de verdade, um riso curto que sacudiu os ombros, e por um instante pareceu mais jovem do que qualquer relatório sobre ele conseguiria descrever.
 
-— E a tarrak? — perguntou, mudando de assunto sem transição, como quem já sabia a resposta e só queria ouvi-la de novo.
+— E a tarrak? — perguntou Karev, lembrando a baia que Yamara acabara de mencionar. A resposta provavelmente continuava a mesma, mas queria ouvi-la.
 
 — Vai parir enquanto você estiver bancando o herói aqui, com toda certeza. — Yamara balançou a cabeça. — Ela sempre escolhe a pior hora possível.
 
@@ -198,9 +198,9 @@ Selina não respondeu de imediato. Sentou-se ao lado dele, devagar, sentindo o c
 
 — Pode. — Dareth concordou, sem convicção nenhuma na voz. — Qualquer uma dessas coisas explica.
 
-Ficaram calados por um instante, o barulho distante do acampamento preenchendo o espaço entre eles.
+Ficaram calados por um instante, o barulho distante do acampamento preenchendo o espaço entre eles. Selina reparou no curativo novo de Dareth e na maneira como ele mantinha um ombro mais baixo.
 
-— Você está bem? — Selina perguntou, finalmente, mudando de assunto sem aviso.
+— Você está bem? — perguntou.
 
 — Estou na final.
 
@@ -238,7 +238,7 @@ Então o viu.
 
 Ele andava normalmente, carregando alguns utensílios, como qualquer trabalhador encerrando um turno comprido. Nada na postura sugeria fuga, nem cuidado excessivo, nem que soubesse estar sendo observado.
 
-Selina o seguiu a distância segura. Ele atravessou uma passagem de serviço que a maioria dos visitantes nem sabia que existia, desceu um pequeno lance de degraus, entrou numa área de depósito e saiu pouco depois. Quando reapareceu, uma das coisas que carregava ao entrar já não estava com ele.
+Selina o seguiu a distância segura. Ele atravessou uma passagem de serviço que a maioria dos visitantes nem sabia que existia, desceu um pequeno lance de degraus e entrou numa área de depósito. Saiu pouco depois, com menos utensílios, e tomou um corredor que levava ainda mais para dentro da estrutura. Selina esperou até perder de vista os passos dele.
 
 Esperou o homem se afastar. Poderia ter chamado um guarda, mas não tinha acusação a apresentar, e a abordagem avisaria quem quer que estivesse envolvido. Entrou no depósito sem tocar nas caixas.
 
@@ -254,7 +254,7 @@ Selina ainda estava longe de ter provas. Havia a piora inexplicável de Karev, a
 
 Não conseguia mais ignorar aquilo.
 
-O local onde o homem descartara o invólucro não parecia ser o fim de nada. Além do depósito havia uma área mais profunda de serviço, corredores que Selina nunca vira sendo usados. Notou marcas recentes no chão, como se caixas tivessem sido arrastadas ali havia pouco. Uma porta mal fechada deixava escapar uma fresta de luz que não deveria estar acesa àquela hora.
+O local onde o homem descartara o invólucro não parecia ser o fim de nada. O corredor pelo qual ele desaparecera continuava além do depósito, até uma área de serviço que Selina nunca vira sendo usada. Notou marcas recentes no chão, como se caixas tivessem sido arrastadas ali havia pouco. Uma porta mal fechada deixava escapar uma fresta de luz que não deveria estar acesa àquela hora.
 
 Seguiu adiante, o coração mais rápido do que gostaria de admitir. Não havia ninguém por perto, nenhum funcionário, nenhum guarda de rotina, só o eco dos próprios passos contra a pedra.
 
@@ -302,6 +302,14 @@ Saelira demorou um instante antes de responder.
 
 — Eu o conheço há tempo suficiente para saber que ele não sabe vencer em silêncio.
 
+— E se o campeão Polar perder?
+
+— Mudamos a data. As licenças e os contratos continuam válidos, mas ninguém se move sem uma abertura legítima. Não vou tentar isso com todos os portões fechados.
+
+— Minha gente não vai aceitar esperar para sempre.
+
+— Nem a minha aceitará perder tudo porque você tem pressa.
+
 — "Determinadas pessoas" — Saelira repetiu, um leve tom de ironia na voz. — Você fala de gente como se fossem caixas sem etiqueta. Dizer um nome não pioraria nossa situação.
 
 — Nomear é desnecessário entre nós dois. Você sabe quem eu preciso, mesmo sem eu dizer.
@@ -312,7 +320,7 @@ Saelira demorou um instante antes de responder.
 
 Selina ouviu sem se mover, tentando entender o suficiente sem perder palavra.
 
-— Os Quendrar estão criando um problema que não precisávamos — Saelira comentou, num tom quase casual, mudando de assunto sem aviso.
+— Então cuide do que é seu — Saelira respondeu. — Os Quendrar estão criando um problema que não precisávamos.
 
 — A arena já forneceu explicação suficiente para o público. Isso passa.
 
@@ -342,7 +350,17 @@ Selina sentiu o corpo esfriar. Os dois falavam de acessos, pessoas posicionadas 
 
 — Gradual — Alveris confirmou. — Eu não quero Kaeliran destruída, Saelira. Quero que a cidade continue de pé e precise de mim para isso.
 
-— E o que muda primeiro, na prática?
+— Você confia demais nos homens que colocou nos acessos.
+
+— Confio no que eles têm a perder. E no fato de que nenhum de nós sustenta a cidade sozinho depois de uma mudança dessas.
+
+— Não é a mesma coisa que controlar o que vão fazer.
+
+Alveris demorou a responder.
+
+— É por isso que estabelecemos limites.
+
+— As famílias que me seguem não vão esperar anos por uma mudança que ninguém vê. O que você pretende fazer primeiro?
 
 — O que ninguém nota. Não soldados, não bandeiras novas. Papel.
 
@@ -364,11 +382,19 @@ Alveris não respondeu de imediato. Quando respondeu, a voz tinha um cuidado nov
 
 — Eu quero o fim de uma ordem que trata os Buldar como mão de obra emprestada há gerações demais. Se isso também significa posição, ótimo. Não vou fingir que é só isso.
 
-A conversa, então, chegou a Vetarius diretamente.
+Saelira voltou ao que parecia incomodá-la desde o começo.
 
-— Ele não vai simplesmente entregar o poder — disse Saelira. — Você sabe disso.
+— E você acha que uma vitória Polar vai enfraquecer Vetarius? Ele vai sair mais forte disso tudo.
 
-— Vou isolar Vetarius na Câmara, reduzir o apoio e formar outra maioria. Prefiro que abdique. Se recusar, há deposição e exílio.
+— Por enquanto, vai — Alveris respondeu. — É por isso que não pretendo enfrentá-lo no dia da festa. Deixe-o comemorar. Vai abrir armazéns, assumir despesas, prometer obras. Quando o entusiasmo acabar, os contratos e as dívidas ainda estarão lá. A Câmara vai precisar escolher quem consegue manter tudo funcionando.
+
+— Você quer esperar que ele descubra sozinho que depende de você.
+
+— Quero que todos descubram ao mesmo tempo.
+
+— E se ele não entregar o poder depois?
+
+— Vou isolá-lo na Câmara, reduzir o apoio e formar outra maioria. Prefiro que abdique. Se recusar, há deposição e exílio.
 
 — E se ele não aceitar nenhuma dessas opções?
 

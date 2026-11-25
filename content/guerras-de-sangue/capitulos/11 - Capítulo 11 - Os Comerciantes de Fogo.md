@@ -439,7 +439,9 @@ Rendar ergueu a voz antes que alguém disparasse.
 
 Os Tondrar pararam primeiro. Depois os Buldar. Por último, os Glydar. Não como um exército único. Ainda não. Havia distância entre eles, desconfiança, ódio velho e contas abertas. As lanças Tondrar apontavam um pouco para todos. Os Buldar mantinham formação suficiente para proteger Nynestra de qualquer lado. Os Glydar observavam cada pedra como se procurassem água onde não havia.
 
-Mas os quatro povos estavam ali. Tavra baixou o tubo um dedo quando viu que nenhum deles avançava.
+Mas os quatro povos estavam ali. Rendar gastara os cinco dias desde a Boca Seca acertando o encontro por mensageiros de carga e guias. Nynestra, Torgun e Ossar tinham aceitado trazer representantes por caminhos separados. Nenhum prometera uma guerra. Haviam prometido estar diante dos Vendrar à mesma hora. Por enquanto, bastava.
+
+Tavra baixou o tubo um dedo quando viu que nenhum deles avançava.
 
 — Pelas cinzas…
 

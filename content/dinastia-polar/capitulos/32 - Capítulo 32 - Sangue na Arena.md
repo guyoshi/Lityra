@@ -10,13 +10,13 @@ Dareth ouviu, mas não respondeu.
 
 Cheirava a terra seca, couro oleado e suor. Dareth respirou fundo para se acostumar ao peso da armadura e acompanhou os funcionários que preparavam o sorteio.
 
-Funcionários Braedar já esperavam no centro da arena, ao lado de um mecanismo pensado para parecer simples e à prova de trapaça ao mesmo tempo: peças idênticas, do tamanho de um punho fechado, cada uma marcada por um símbolo diferente, guardadas em três recipientes lacrados com cera. Representantes de várias dinastias se aproximaram para conferir os lacres. Nareva Mardrar examinou um dos selos de perto, sem pressa. Um homem Lusdar fez o mesmo com outro. Ninguém pareceu satisfeito só de ver. Todos tocaram, viraram, checaram.
+Funcionários Braedar já esperavam no centro da arena com a urna do sorteio. As dez peças tinham o mesmo formato e estavam marcadas, cada uma, com o símbolo de uma dinastia. A urna fora preparada e lacrada pela Administração antes de o público entrar. Representantes de várias dinastias se aproximaram para conferir a cera e a identificação do recipiente. Nareva Mardrar examinou o selo de perto, sem pressa. Um homem Lusdar fez o mesmo. O lacre estava inteiro. A preparação das peças, porém, não era algo que Dareth tivesse acompanhado.
 
 Selina estava lá também, entre os representantes, no papel que assumira desde que Vetarius ficara em Kaeliran. Dareth não olhou muito na direção dela. Não precisava. Sabia onde ela estava parada, como sabia, sem olhar, onde ficava a espada na bainha.
 
 Averna Braedar observava o mecanismo de perto, sem tocar em nada, deixando o trabalho para quem entendia de selos e lacres. Jovar Leidar, ao lado dela, mantinha os braços cruzados e o rosto fechado, expressão que Dareth aprendera a associar com desconfiança permanente, não com aquele sorteio. Nenhum dos dois trocou palavra. A guerra recente entre as duas dinastias estava fresca o bastante para que qualquer proximidade parecesse um gesto político maior do que qualquer um deles queria fazer ali.
 
-O sorteio começou sem cerimônia excessiva. Um funcionário retirava uma peça de cada recipiente, lia o símbolo em voz alta, um segundo confirmava, e o nome correspondente subia por um mastro pequeno ao lado do estandarte principal da dinastia. Devagar. O público em silêncio relativo, tentando ler os símbolos à distância antes do anúncio oficial.
+O sorteio começou sem cerimônia excessiva. Um funcionário retirava uma peça da urna, lia o símbolo em voz alta, e um segundo confirmava antes de colocá-la no espaço da chave correspondente. Primeiro viriam três nomes, depois outros três, por fim os quatro restantes. O nome de cada campeão subia por um mastro pequeno ao lado do estandarte principal da dinastia. O público fazia silêncio relativo, tentando ler os símbolos à distância antes do anúncio oficial.
 
 Antes do primeiro nome sair, já havia tensão suficiente para preencher a arena inteira.
 

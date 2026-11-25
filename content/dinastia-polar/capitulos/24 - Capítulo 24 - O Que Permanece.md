@@ -356,9 +356,17 @@ Isso pareceu piorar tudo: não havia desrespeito formal para punir, só uma resp
 
 — Você assumiu um compromisso diante de toda Kaeliran! A Dinastia inteira se preparou para acompanhá-lo! — Vetarius avançou um passo. — Não vou permitir que abandone essa responsabilidade pela morte de um Nular condenado por furto!
 
-Dareth não respondeu. Só ficou mais duro, o silêncio dele carregando mais peso do que qualquer réplica.
+— Furto foi o que ele fez — Dareth respondeu. — Para matá-lo, disseram que ele ameaçava a cidade inteira.
 
-— Se tentar atravessar os portões amanhã, eu mando a Guarda detê-lo — Vetarius disse, e não era ameaça vazia.
+Vetarius apertou o copo.
+
+— Foi decisão do tribunal da Raiz.
+
+— E o senhor deixou que fosse.
+
+Vetarius ficou em silêncio por um instante, sem baixar os olhos.
+
+— Se tentar atravessar os portões amanhã, eu mando a Guarda detê-lo — disse, e não era ameaça vazia.
 
 — E depois? — Dareth perguntou.
 

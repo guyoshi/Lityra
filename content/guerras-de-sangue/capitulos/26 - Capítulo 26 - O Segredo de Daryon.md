@@ -214,7 +214,7 @@ Ylvena ficou em silêncio. A raiva diminuiu por um instante ao ouvir que Daryon 
 
 — Você se importa comigo — disse Ylvena.
 
-Daryon olhou para o chão.
+Daryon olhou para o chão. Ylvena não esperou que ele respondesse.
 
 — O bastante para me esconder, mas não para ficar comigo. Eu te amei, Daryon. E, quando percebi que só tinha olhos para Alyra, tentei ser útil. Foi o que me restou.
 
@@ -246,11 +246,13 @@ A frase saiu baixa. Mais baixa do que as outras. Justamente por isso, pareceu ma
 
 Kaelina sentiu o mundo inclinar.
 
-— Você pôs Beijo-da-Noite na taça de Alyra — disse Daryon. — Uma dose para adoecer primeiro, para que ninguém desconfiasse de veneno. Se ela bebesse tudo, morreria. Mas foi Orionus quem bebeu.
+— Você pôs Beijo-da-Noite na taça de Alyra — disse Daryon. — Não diga que foi por mim.
 
-— Eu sei quem bebeu — respondeu Ylvena, seca.
+— Eu queria que ela adoecesse antes. Ninguém ia desconfiar de veneno até ser tarde demais.
 
-— Era Alyra que você queria matar. Não ele.
+— Você queria Alyra morta. Mas foi Orionus quem bebeu.
+
+— Eu sei quem morreu, Daryon.
 
 O ar saiu dos pulmões de Kaelina. Ylvena baixou os olhos por um instante, e talvez ali houvesse alguma coisa parecida com tristeza. Mas, se havia, era velha demais para pedir perdão. Então ela ergueu o rosto, e a tristeza desapareceu.
 
@@ -264,15 +266,17 @@ Daryon apertou a mandíbula.
 
 Daryon olhou para a mesa, para a lamparina, para as paredes que o escondiam junto com ela. Quando falou, havia no rosto dele algo tão gasto que Kaelina quase não reconheceu o conselheiro de Alyra.
 
-— Eu destruí registros para que não a condenassem — disse Daryon. — Fiz uma costureira jurar que viu o que nunca viu. Alterei os horários. Coloquei você no Corredor dos Mantos quando ninguém podia confirmar onde estava.
+— Foi você quem fez os registros mentirem — disse Ylvena. — Mudou os horários. Arranjou uma costureira para jurar que me viu no Corredor dos Mantos.
 
-Ylvena não o interrompeu.
+— Eu estava tentando impedir que te condenassem.
 
-— A erva-de-jijo foi outro desvio — continuou ele. — Sabia que não iam encontrar Beijo-da-Noite onde mandei procurar. Entreguei ao Conselho outro veneno, outros horários, outra testemunha. Depois de tanta coisa errada, ninguém conseguia provar nada.
+— E a erva-de-jijo? Também era para me salvar?
 
-— E mesmo assim me expulsaram.
+— Era para tirarem os olhos do Beijo-da-Noite. Se procurassem o veneno certo, voltariam à taça.
 
-— Porque eu já não podia mexer em mais nada sem que descobrissem minha mão.
+— Você lhes deu outro veneno, outra testemunha, outros horários. E mesmo assim me expulsaram.
+
+— Se eu mexesse em mais um registro, iam descobrir que era minha mão.
 
 Kaelina apertou os dedos contra a pedra até sentir a dor subir pelo pulso ferido.
 
@@ -300,25 +304,27 @@ Daryon virou-se. Havia ódio no rosto dele agora, mas não apenas contra ela. Co
 
 Kaelina estava entendendo agora. A Lei do Portão. A morte durante a tentativa de paz. O último pedaço de caminho que ainda segurava Kaendar longe da guerra.
 
-— Se Alyra descobrisse que os Tondrar não mataram os garotos, iria desconfiar — disse ele. — Iria chegar até você.
+— Se Alyra descobrisse que os Tondrar não mataram os garotos, acabaria chegando até você — disse ele.
 
-— Você matou Yvenn porque sabia o que aconteceria depois. Sem trégua, Alyra teria a guerra que queria. Foi pelo mesmo motivo que matei os rapazes.
+— Até nós dois.
 
-Daryon não tentou negar.
+Daryon desviou os olhos.
 
-— Sim.
+— Aquela trégua não podia acontecer. Os Tondrar iam negar a acusação. Iam pedir provas.
 
-Kaelina levou a mão à boca. Não para impedir grito. Para impedir vômito. Daryon continuou, e agora parecia falar menos com Ylvena do que com uma ferida que o acompanhava desde então.
+— Então envenenou Yvenn diante de todos.
 
-— Não contei a Alyra — disse Daryon. — Ela não teria aceitado saber dos garotos. Precisava acreditar que os Tondrar tinham começado tudo.
+— Sim — disse Daryon.
 
-— Então fez a trégua acabar — respondeu Ylvena.
+Kaelina levou a mão à boca. Não para impedir um grito. Para impedir o vômito.
 
-— Envenenei Yvenn. Sabia que, se morresse durante a trégua, ninguém no Conselho teria coragem de insistir na paz. Alyra nem precisaria mandar fazer aquilo.
+— Alyra nunca soube dos garotos — continuou Daryon. — Se soubesse, podia me entregar junto com você.
+
+— Você fez o Conselho desistir da paz — disse Ylvena. — E ela ganhou a guerra que queria.
 
 Daryon se apoiou na borda da mesa.
 
-— Dei a ela a guerra que ela queria, sem que precisasse pedir.
+— E agora não pode descobrir como tudo começou.
 
 
 

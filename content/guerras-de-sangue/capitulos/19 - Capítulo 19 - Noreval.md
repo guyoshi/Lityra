@@ -80,7 +80,7 @@ Kaelina ergueu os olhos.
 
 — Daryon?
 
-— Se se lembra, minha soberana, dois ciclos atrás ele era menor em posição, ainda não fazia parte do Conselho, mas já servia em funções de estratégia interna e revisão de depoimentos.
+— Assinou como revisor dos depoimentos. Ainda não ocupava uma cadeira no Conselho, mas já podia alterar o que chegava à Mesa.
 
 Kaelina sentou-se e leu.
 

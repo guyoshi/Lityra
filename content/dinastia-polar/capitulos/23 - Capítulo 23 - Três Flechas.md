@@ -264,6 +264,8 @@ Em Vardeno, o silêncio de Maruva virou outra coisa. Gente que não conhecia Kal
 
 — Ele interferiu numa investigação em curso — dizia agora, para as oficinas, para os ferreiros parados nas portas, para os comerciantes que largavam o balcão para ver passar. — Desafiou a autoridade que mantém esta cidade em ordem. Colocou a própria vontade acima da lei que protege a todos vocês.
 
+Elis percebeu que Hadris já não falava tanto de uma caixa. Falava de toda a cidade, como se Kalan tivesse tentado fazer mal a cada pessoa ali. Era o mesmo irmão que deixava a própria comida para ela, só que ninguém naquela rua o conhecia.
+
 Aqui, alguns gritavam.
 
 — Ladrão!
@@ -287,6 +289,8 @@ Para elas aquilo era um acontecimento. Um dia diferente. Não o último dia de a
 Hadris, mais perto agora da subida para o Pátio, mudou de novo o discurso, a voz assumindo outro peso.
 
 — Ele desafiou a Raiz. Retirou o que estava sob a guarda da Permanência. Mentiu. Ocultou. Recusou-se a devolver o que não era seu. Decidiu que sabia melhor do que a cidade, melhor do que a lei, melhor do que a própria Raiz.
+
+Não disse que Kalan procurara os registros porque quatro rapazes tinham espancado Orel. Não contou que confessara sozinho para tentar proteger a irmã e os amigos. Quem só ouvisse aquela parte do cortejo podia pensar que tudo começara com um ataque à Raiz.
 
 A multidão ali reagiu diferente: não com objetos nem gritos soltos, mas com uma aprovação mais fria e organizada, cabeças balançando em concordância silenciosa.
 

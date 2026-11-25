@@ -534,6 +534,22 @@ Hadris deixou o silêncio se assentar antes de responder.
 
 — Mostra um incidente isolado. Este tribunal julga um furto, não a conduta de indivíduos que não estão sendo julgados hoje.
 
+— Se fosse apenas um furto, estaríamos discutindo a devolução dos registros e a punição pelo que foi levado — Selina respondeu. — O senhor está pedindo que matem Kalan. É isso que precisa justificar.
+
+Hadris pousou a mão sobre o pergaminho.
+
+— Não estamos pedindo a pena máxima pelo valor de uma caixa. Ele retirou justamente os registros necessários para esclarecer uma agressão, ocultou o que fez e impediu que a Raiz conduzisse a apuração. Até agora não restituiu os documentos.
+
+— Não há prova de que alterou um único nome, de que usou os papéis para se apropriar de nada ou de que pretendia atacar a autoridade da Raiz. Ele queria impedir que culpassem Orel.
+
+— A intenção que declara não elimina o efeito. Se qualquer pessoa puder retirar os registros de que discorda, o que resta para quem precisa provar seus direitos?
+
+Selina olhou para Teral. Era ali que a acusação dava o salto. Hadris partira de um furto confessado, passara pela demora em recuperar a caixa e chegara a uma ameaça contra toda Kaeliran. As etapas estavam nos papéis. O tamanho da ameaça era uma interpretação.
+
+— O tribunal pode punir o que ele fez sem fingir que ele tentou derrubar a cidade — disse.
+
+Teral não respondeu. Fez uma anotação e deixou que a audiência prosseguisse.
+
 Dareth podia estar certo sobre tudo que testemunhara, mas não presenciara o furto. Hadris sabia disso e só precisava apontar.
 
 Selina jogou então a última carta política que tinha.
@@ -588,9 +604,15 @@ Um silêncio diferente. Por um instante, breve, frágil, pareceu que talvez algu
 
 Teral continuou.
 
-— Contra o acusado Kalan, porém, permanecem provados o furto confessado, a retirada indevida de registros pertencentes à Raiz, a interferência deliberada em investigação em curso e a ocultação subsequente, cujas consequências este tribunal considera graves o bastante para constituir ameaça à ordem e à autoridade da cidade, nos termos do Julgamento da Raiz.
+— Contra o acusado Kalan, porém, permanecem provados o furto confessado, a retirada indevida de registros pertencentes à Raiz, a interferência deliberada em investigação em curso e a ocultação subsequente.
 
-Fez uma pausa breve, quase administrativa, como quem lê a última linha de um documento que já sabia de cor.
+Fez uma pausa. Selina soube que a lista dos atos terminara. O que vinha a seguir era a decisão sobre o significado deles.
+
+— Este tribunal considera que a retirada e a ocultação dos registros, nas circunstâncias apuradas, não constituem somente ofensa contra bens da Permanência. Constituem ameaça à autoridade que garante esses registros a toda a cidade. É sob esse enquadramento agravado que se profere a sentença.
+
+— Ameaça à cidade? — Selina não conseguiu impedir que a pergunta saísse baixa, embora soubesse que Teral podia ouvi-la.
+
+Ele não olhou para ela. O Sumo Vigia tampouco se moveu.
 
 — Este tribunal sentencia Kalan à execução pública. A data será marcada e comunicada.
 

@@ -58,11 +58,13 @@ Rendar apertou a lâmina. Não cortou fundo. Só o bastante para uma linha quent
 
 O oficial ergueu a mão. Dois guardas protestaram ao mesmo tempo, um mais velho dizendo que era loucura, outro lembrando que Cal Kadrir mandara fechar o cais. O oficial não desviou os olhos de Kaelina. Talvez tenha pensado em Orionus, em Alyra, ou apenas na lâmina e em quantas mães do Anel Baixo perguntariam, no dia seguinte, por que ele deixou uma filha da Raiz morrer para obedecer a uma tranca.
 
-— Correntes — ordenou ele.
+— Correntes da grade do cais — ordenou ele. — Avisem o Anel Médio. As passagens internas continuam trancadas. Ninguém abandona as posições altas.
+
+Um dos guardas pareceu querer lembrar a ordem de Kaelina. O oficial já a ouvira. Se a deixasse morrer ali, não haveria tempo de discutir se cumprira o dever. Apostava que os homens das passagens internas ainda conseguiriam prender a força invasora antes que alcançasse a fortaleza.
 
 Kaelina sentiu o corpo murchar por dentro. As correntes do cais começaram a se mover. Madeira pesada gemeu contra ferro molhado. A grade principal subiu palmo a palmo, lenta demais para a esperança e rápida demais para o medo. Os soldados Polar recuaram sem baixar totalmente as armas. Ainda pensavam. Ainda mediam. Os homens estavam presos entre duas formas de traição, sem escolha limpa.
 
-Rendar passou com Kaelina antes que o portão terminasse de subir por completo. Os homens dele vieram atrás, Glydar primeiro, baixos e rápidos, depois Vendrar mais pesados, com metal e tubos de fogo presos às costas. Tavra entrou entre eles com a tranquilidade de quem chegava a um banquete desagradável. Quando viu Kaelina, sorriu. O sorriso foi pequeno, íntimo, quase privado.
+Rendar passou com Kaelina antes que o portão terminasse de subir por completo. Os homens dele vieram atrás, Glydar primeiro, baixos e rápidos, depois Vendrar mais pesados, com metal e tubos de fogo presos às costas. Dois Glydar correram para o torno da grade e tomaram as correntes, impedindo que os guardas a baixassem quando viram quantos invasores ainda saíam dos barcos. A aposta do oficial durara menos do que o abrir de uma porta. Tavra entrou entre eles com a tranquilidade de quem chegava a um banquete desagradável. Quando viu Kaelina, sorriu. O sorriso foi pequeno, íntimo, quase privado.
 
 Kaelina sustentou o olhar dela pelo tempo que pôde. O pescoço ainda ardia.
 
@@ -90,7 +92,7 @@ Outro invasor avançou contra um Polar desarmado. Sem afastar Kaelina do própri
 
 Alguns homens olharam para ele como se aquela ordem não lhes pertencesse. Um Glydar já puxava a arma de outro soldado Polar. Um Vendrar cuspiu no chão, impaciente. Rendar manteve a faca junto ao pescoço de Kaelina e falou sem tirar os olhos dos guardas do cais.
 
-— Prendam. Se vocês começarem uma chacina aqui, chamarão a atenção. Interroguem-nos, conheçam cada segredo dessa cidade.
+— Prendam. A cidade já sabe que estamos aqui. Se perdermos tempo matando homens rendidos, ficaremos presos neste cais enquanto as passagens internas se fecham. Precisamos de quem saiba abrir caminho, não de mais mortos.
 
 Os soldados Polar foram empurrados contra a parede, amarrados com cordas de carga, desarmados e vigiados por Glydar que conheciam nós melhores do que muitos soldados conheciam lâminas. Kaelina viu o oficial do cais ajoelhar-se sem baixar a cabeça. Ele a olhou uma vez, mas Kaelina não conseguiu olhar de volta. Rendar a puxou.
 

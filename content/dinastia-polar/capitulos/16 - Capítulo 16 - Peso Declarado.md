@@ -8,7 +8,7 @@ Entre dois pátios, sob o vão de madeira que sustentava a cobertura de um galp�
 
 Selina olhou novamente para as carroças que partiam. Mesmo que encontrasse uma caixa irregular, ainda precisaria descobrir quem a autorizara a sair, por onde passara e quem recebera o conteúdo.
 
-— Por que existe tanta coisa entrando, se o torneio nem vai acontecer aqui? — perguntou, mais para testar a resposta de Corven do que porque não soubesse a lógica geral.
+— Essa quantidade toda é por causa do Torneio? — perguntou, olhando a fila de carroças que ainda esperava descarga. — Parece carga suficiente pra equipar uma cidade inteira.
 
 — Porque não é só Dareth que vai viajar, senhora. — Corven apontou para os pátios. — Precisa levar guardas, cozinheiros, tratadores, curadores, mensageiros, escribas... sem contar os animais e as carroças. Estamos preparando uma cidade pequena. Não dá pra fazer isso na véspera.
 
@@ -26,7 +26,9 @@ Havia couro, carne conservada e gordura de terras que Selina reconheceu como Que
 
 Dos Mardrar não vinha praticamente mercadoria alguma. Selina percebeu isso por um funcionário mencionando, entre uma anotação e outra, que determinado lote estava garantido por uma Casa de Garantia, pago em merais antes mesmo de sair do pátio de origem. Os Mardrar não precisavam descarregar caixas para participar dos negócios do cais. Naquele lote, a presença deles estava nos valores de uma garantia.
 
-— Para onde vai tudo isso, no fim? — perguntou Selina, já sabendo que a resposta confirmaria a escala.
+Selina viu duas carroças da mesma remessa tomarem saídas diferentes, uma na direção das oficinas, outra rumo aos depósitos oficiais.
+
+— E quem recebe tudo isso, depois que sai daqui?
 
 — Pra cidade inteira. — Corven quase riu, como se a pergunta fosse ingênua. — Vardeno recebe material de oficina, madeira, ferragem, corda. Selyra recebe couro, arreio, equipamento de animal. Cozinha e depósito recebem grão e carne. Curador recebe material Lusdar. Outros depósitos recebem peça que depois vai se juntar em lote de viagem.
 

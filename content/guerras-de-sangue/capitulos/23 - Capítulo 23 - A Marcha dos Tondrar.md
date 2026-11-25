@@ -112,17 +112,21 @@ Kaelina levantou levemente a cabeça, para ouvir melhor.
 
 — Cerco? — perguntou Kharvok.
 
-— Kaendar está com falta de água e mantimentos. Vamos fechar as rotas e esperar.
+— Vamos fechar as rotas e obrigar Kaendar a olhar para os portões — disse Rendar.
 
-— Esperar? Até quando? Está falando da fortaleza dos Polar — interpôs Nynestra. — O plano não era esse. Devíamos enfraquecê-los mais. Deixá-los sem opção. Um cerco agora é suicídio.
+— Esperar? Até quando? Está falando da fortaleza dos Polar — interpôs Nynestra. — O plano era desgastá-los nas bordas. Cercar agora é suicídio.
 
-— Não com esses homens — disse Rendar, acenando a cabeça para os homens atrás de si —, eu vi do que são capazes. Estão todos cansados de esperar. Temos o fogo dos Vendrar. O rio dos Glydar. E com vocês, as terras dos Buldar e Tondrar.
+— Vi o que conseguem fazer juntos — disse Rendar, indicando os homens que o acompanhavam. — E vi o que acontece quando esperamos: os Polar tomam os barcos, compram passagem com os Urtistar e escolhem onde vamos lutar. Temos o fogo dos Vendrar e o rio dos Glydar. Talvez não tenhamos outra ocasião em que essas forças estejam no mesmo lugar.
 
-— E como pretende alimentar esses homens durante o cerco? — perguntou Nynestra. — Homens precisam de alimento pra aguentarem dias. Kaendar pode não ter alimento o suficiente para os anéis baixos, mas tem para seus homens de espadas. E enquanto definhamos no calor exterior, eles bebem água, esperam o inimigo ficar fraco, atiram flechas em nossos homens.
+— E como pretende alimentar esses homens durante um cerco? — perguntou Nynestra. — Kaendar pode estar racionando nos anéis baixos, mas ainda tem depósitos e guardas atrás de pedra. Nós perderíamos comida, animais e homens a cada dia. Não trouxe grão para esperar uma rendição por fome.
 
 Rendar não respondeu de imediato. Ao redor, homens de clãs inimigos por gerações esperavam para saber como ele alimentaria o cerco.
 
-— Não vamos cercar Kaendar como homens famintos diante de uma porta — disse Rendar, abaixando-se para pegar um galho fino do chão. Traçou uma linha na terra úmida, depois um círculo torto.
+— Não trouxe três mil homens para esperar uma estação — disse Rendar, abaixando-se para pegar um galho fino do chão. Traçou uma linha na terra úmida, depois um círculo torto.
+
+— Hadrun preparou cargas para a marcha e para a retirada. Quando acabarem, não teremos como sustentar todos aqui. Preciso que Kaendar acredite num cerco longo antes de descobrir quanto tempo realmente temos.
+
+Nynestra avaliou o desenho. A proposta já não era o desgaste que haviam aprovado nas Casas de Terra. Era uma aposta nas fraquezas que a campanha abrira, feita antes que os Polar recuperassem os depósitos e o controle do rio.
 
 — Kaendar espera exército quando vê bandeira. Espera ataque quando vê fogo, negociação quando vê refém, fome quando vê cerco. Então não daremos uma coisa só para ela entender.
 
@@ -176,21 +180,19 @@ Rendar voltou ao desenho.
 
 — Apenas os Buldar respondem a mim.
 
-— Tondrar, Vendrar e Glydar respondem a você do mesmo modo. Porque sem você, eles morrem de fome.
+— Cada povo mantém seus chefes. Mas a distribuição de comida e água passa pela tua contagem. Sem os Buldar, ninguém sustenta a marcha.
 
 Alguns Tondrar resmungaram. Nynestra não sorriu, mas Kaelina viu algo duro atravessar seu rosto. Hadrun tossiu atrás dela, segurando o peito com a mão fechada.
 
 — E se a marcha atrasar?
 
-Rendar olhou para ele.
-
-— Não pode.
+— Não podemos desperdiçar muitas noites — respondeu Rendar.
 
 — Toda marcha atrasa — respondeu Hadrun. — Homem tropeça. Animal cansa. Ferido sangra. Barriga reclama. Água termina antes da coragem. Se teu plano depende de todos virarem pedra, já morreu.
 
 Rendar aceitou a correção sem demonstrar incômodo.
 
-— Por isso os Buldar ficam no centro. Vocês seguram ritmo. Não deixem os homens correrem quando sentirem cheiro de muralha.
+— Cada grupo terá um ponto de espera. Quem não encontrar o próprio guia não avança sozinho nem sai procurando outra coluna. Os Buldar seguram o ritmo e os atrasados alcançam a próxima parada. Se perdermos a ocasião, recuamos para as reservas, não corremos contra a muralha.
 
 — Correr para muralha é pedir que flecha escolha primeiro — murmurou Hadrun.
 
@@ -352,17 +354,19 @@ A frase veio sem dureza, e por isso pesou mais.
 
 Nynestra ficou quieta.
 
-— O que acha que Rendar está planejando?
+— E quando os portões caírem? Acha que Rendar vai saber parar?
 
-— Acho que… ele era um homem antes. Um caçador Fendelar, marido e pai. Gente assim costuma ter peso nos tornozelos. Casa, voz de mulher, criança chamando, panela esperando, erro pequeno para corrigir no dia seguinte. Mas isso foi tirado dele. E por isso, não sei o que o segura no chão. É difícil saber.
+Hadrun olhou para o Fendelar, afastado dos outros.
+
+— Não sei. Ele sabe levar homens até uma cidade. Não sei se sabe voltar para casa depois da vitória. Nem tem casa para onde voltar.
 
 Nynestra acompanhou o olhar dele.
 
-— Ele conseguiu unir clãs que se odeiam há séculos. Sendo o último do povo dele. Sem cidade. Sem família viva, sem conselho, sem anel, sem nada. Ele não tem ninguém, não ama ninguém. Ninguém além dos mortos que ele perdeu.
+— Sem Rendar, esses clãs não estariam aqui. Ele conseguiu juntar gente que mal aceita dividir uma estrada.
 
-Hadrun tossiu uma vez, menor, mais amarga.
+Hadrun tossiu, escondendo a boca no pano.
 
-— É isso que o torna perigoso. Um homem que ama apenas os mortos pode gastar todos os vivos tentando alcançá-los. E, ainda assim, nunca vai alcançá-los.
+— Eu sei. E ninguém vai devolver a mulher e as crianças dele. Tenho medo de que ele continue lutando mesmo quando os nossos já tiverem conseguido o que vieram buscar.
 
 A frase ficou entre os dois. Ao redor, o acampamento respirava baixo. Um Tondrar partiu tubérculo de Nhar com os dentes. Um Buldar amarrou melhor a carga de pão de campo. Um Vendrar cobriu um tubo escuro com mais uma camada de pano. Ninguém parecia ouvir.
 

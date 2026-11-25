@@ -141,7 +141,8 @@
       "manifest": "data/a-uniao-2.json",
       "signupAvailable": false,
       "series": "A União",
-      "order": 2
+      "order": 2,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/a-uniao/chamas-da-noite/"
     },
     {
       "id": "a-uniao-3",
@@ -150,7 +151,8 @@
       "manifest": "data/a-uniao-3.json",
       "signupAvailable": false,
       "series": "A União",
-      "order": 3
+      "order": 3,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/a-uniao/nova-era/"
     },
     {
       "id": "a-uniao-4",
@@ -159,7 +161,8 @@
       "manifest": "data/a-uniao-4.json",
       "signupAvailable": false,
       "series": "A União",
-      "order": 4
+      "order": 4,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/a-uniao/livro-4/"
     },
     {
       "id": "coracao-de-poeira",
@@ -177,7 +180,8 @@
       "manifest": "data/diario-sobrenatural-4.json",
       "signupAvailable": false,
       "series": "Diário Sobrenatural",
-      "order": 4
+      "order": 4,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/diario-sobrenatural/a-convergencia-dos-profanos/"
     },
     {
       "id": "diario-sobrenatural-5",
@@ -186,7 +190,8 @@
       "manifest": "data/diario-sobrenatural-5.json",
       "signupAvailable": false,
       "series": "Diário Sobrenatural",
-      "order": 5
+      "order": 5,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/diario-sobrenatural/a-travessia-dos-evanescentes/"
     },
     {
       "id": "misterio-oculto-2",
@@ -195,7 +200,8 @@
       "manifest": "data/misterio-oculto-2.json",
       "signupAvailable": false,
       "series": "Mistério Oculto",
-      "order": 2
+      "order": 2,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/misterio-oculto/fabula-de-fogo/"
     },
     {
       "id": "misterio-oculto-3",
@@ -204,7 +210,8 @@
       "manifest": "data/misterio-oculto-3.json",
       "signupAvailable": false,
       "series": "Mistério Oculto",
-      "order": 3
+      "order": 3,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/misterio-oculto/cidade-crepusculo/"
     },
     {
       "id": "misterio-oculto-4",
@@ -213,7 +220,8 @@
       "manifest": "data/misterio-oculto-4.json",
       "signupAvailable": false,
       "series": "Mistério Oculto",
-      "order": 4
+      "order": 4,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/misterio-oculto/trilhos-do-tempo/"
     },
     {
       "id": "misterio-oculto-5",
@@ -222,7 +230,8 @@
       "manifest": "data/misterio-oculto-5.json",
       "signupAvailable": false,
       "series": "Mistério Oculto",
-      "order": 5
+      "order": 5,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/misterio-oculto/destino-disruptivo/"
     },
     {
       "id": "spacetheft-3",
@@ -231,7 +240,8 @@
       "manifest": "data/spacetheft-3.json",
       "signupAvailable": false,
       "series": "Spacetheft",
-      "order": 3
+      "order": 3,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/spacetheft/livro-3/"
     },
     {
       "id": "spacetheft-4",
@@ -240,7 +250,8 @@
       "manifest": "data/spacetheft-4.json",
       "signupAvailable": false,
       "series": "Spacetheft",
-      "order": 4
+      "order": 4,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/spacetheft/livro-4/"
     },
     {
       "id": "spacetheft-5",
@@ -249,7 +260,8 @@
       "manifest": "data/spacetheft-5.json",
       "signupAvailable": false,
       "series": "Spacetheft",
-      "order": 5
+      "order": 5,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/spacetheft/livro-5/"
     },
     {
       "id": "spacetheft-6",
@@ -258,7 +270,8 @@
       "manifest": "data/spacetheft-6.json",
       "signupAvailable": false,
       "series": "Spacetheft",
-      "order": 6
+      "order": 6,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/spacetheft/livro-6/"
     },
     {
       "id": "viajantes-dimensionais-3",
@@ -267,7 +280,8 @@
       "manifest": "data/viajantes-dimensionais-3.json",
       "signupAvailable": false,
       "series": "Viajantes Dimensionais",
-      "order": 3
+      "order": 3,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/o-observatorio-das-estrelas-ocultas/"
     },
     {
       "id": "viajantes-dimensionais-4",
@@ -276,7 +290,8 @@
       "manifest": "data/viajantes-dimensionais-4.json",
       "signupAvailable": false,
       "series": "Viajantes Dimensionais",
-      "order": 4
+      "order": 4,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/o-solsticio-arcano/"
     },
     {
       "id": "viajantes-dimensionais-5",
@@ -285,7 +300,8 @@
       "manifest": "data/viajantes-dimensionais-5.json",
       "signupAvailable": false,
       "series": "Viajantes Dimensionais",
-      "order": 5
+      "order": 5,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/livro-5/"
     },
     {
       "id": "viajantes-dimensionais-6",
@@ -294,7 +310,8 @@
       "manifest": "data/viajantes-dimensionais-6.json",
       "signupAvailable": false,
       "series": "Viajantes Dimensionais",
-      "order": 6
+      "order": 6,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/viajantes-dimensionais/livro-6/"
     },
     {
       "id": "edelin-lys-1",
@@ -303,7 +320,8 @@
       "manifest": "data/edelin-lys-1.json",
       "signupAvailable": false,
       "series": "Édelin Lys",
-      "order": 1
+      "order": 1,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/edelin-lys/promessas-do-mar/"
     },
     {
       "id": "edelin-lys-2",
@@ -312,7 +330,8 @@
       "manifest": "data/edelin-lys-2.json",
       "signupAvailable": false,
       "series": "Édelin Lys",
-      "order": 2
+      "order": 2,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/edelin-lys/memorias-do-fogo/"
     },
     {
       "id": "edelin-lys-3",
@@ -321,7 +340,8 @@
       "manifest": "data/edelin-lys-3.json",
       "signupAvailable": false,
       "series": "Édelin Lys",
-      "order": 3
+      "order": 3,
+      "artBase": "https://guyoshi.github.io/dimensoesinfinitassite/assets/books/edelin-lys/segredos-do-gelo/"
     }
   ]
 }

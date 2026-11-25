@@ -22,9 +22,9 @@ Kaeliran abriria os portões para receber as delegações das dez dinastias. Nã
 
 Vetarius prometeu uma comemoração inesquecível, e cumpriu com a energia que aplicava a tudo em que decidia acreditar por completo.
 
-Os portões passaram a funcionar em regime extraordinário. Os cais trabalhavam sem pausa, dia e noite, recebendo cargas que normalmente se distribuiriam ao longo de semanas. No baixo Rio Grande isso significava reorganizar rampas, amarras e janelas de descarga conforme a posição das duas luas e a subida da água, e naquela semana até esses turnos foram comprimidos para fazer caber mais carga. Alojamentos inteiros foram reorganizados às pressas para visitantes que ninguém esperava receber ao mesmo tempo. Armazéns normalmente reservados abriram-se temporariamente. Áreas que a cidade costumava manter fechadas ao público passaram a ter circulação excepcional, autorizada por decreto direto do soberano. As inspeções de identidade e carga foram simplificadas para evitar filas absurdas.
+Os portões passaram a funcionar em regime extraordinário. Os cais trabalhavam sem pausa, dia e noite, recebendo cargas que normalmente se distribuiriam ao longo de semanas. A Balança Azul não precisou reunir tudo a partir do anúncio. Havia meses que mantinha estoques destinados ao Torneio em armazéns de redistribuição, com autorizações que permitiam mudar o destino final depois de conhecidos os resultados. Bastou carimbar outro endereço em parte das guias. O restante veio nas caravanas que já retornariam do Altar, agora acompanhadas por convidados à cerimônia do campeão. No baixo Rio Grande isso significava reorganizar rampas, amarras e janelas de descarga conforme a posição das duas luas e a subida da água, e naquela semana até esses turnos foram comprimidos para fazer caber mais carga. Alojamentos inteiros foram reorganizados às pressas para visitantes que ninguém esperava receber ao mesmo tempo. Armazéns normalmente reservados abriram-se temporariamente. Áreas que a cidade costumava manter fechadas ao público passaram a ter circulação excepcional, autorizada por decreto direto do soberano. As inspeções de identidade e carga foram simplificadas para evitar filas absurdas.
 
-As exceções tinham vindo por decreto de Vetarius, não por decisão isolada dos funcionários.
+As exceções tinham vindo por decreto de Vetarius, não por decisão isolada dos funcionários. Nem todos os guardas gostaram. Os responsáveis por alguns postos pediram listas completas antes de liberar carroças, mas recebiam guias válidas, com selos reconhecidos por departamentos diferentes, e ordens para não bloquear os acessos durante a festa. Um guarda podia conferir o papel diante de si. Não podia seguir a carga pela cidade inteira.
 
 A viagem de volta levou dias, e Dareth atravessava o território Polar como campeão, não como o homem discreto que saíra dali semanas antes.
 
@@ -53,6 +53,12 @@ Um homem, no meio da multidão, olhou rápido demais para uma marca pintada na p
 Algumas pessoas não pareciam interessadas na festa. Elis reconheceu, em pelo menos dois rostos, a expressão exata que vira perto dos depósitos que ela e Tair tinham investigado.
 
 Elis trocou um olhar com Tair. Tinham visto armas escondidas na oficina, e agora as marcas se espalhavam pelas ruas.
+
+Não tinham ficado calados. Na manhã seguinte à descoberta, Tair escrevera o endereço e descrevera as caixas num aviso dirigido à Cadeira dos Caminhos e Estandartes. Entregara-o num posto de receção de pedidos. Elis fora com ele, mas não quis que assinassem seus nomes. Depois de Kalan, não confiava num papel que os identificasse como pessoas que tinham entrado numa casa alheia e mexido em documentos de carga.
+
+O funcionário aceitara o aviso, mas não o encaminhara à Guarda sem uma testemunha identificada ou uma inspeção formal. Dissera que o caso ficaria pendente até a conselheira voltar. Tair insistira uma vez. Elis o puxara pela manga antes que dissesse mais.
+
+Agora não havia sequer como saber se alguém tinha aberto aquele papel. A cidade estava cheia de estrangeiros e os homens que sabiam o caminho já não precisavam esconder que sabiam.
 
 Entre as provisões que subiam dos cais administrados pela Balança Azul naquela semana, junto de frutas conservadas, especiarias, presentes diplomáticos e barris variados, os últimos carregamentos de vinho para a celebração chegaram a Kaendar numa manhã qualquer, sem destaque entre o resto da logística.
 
@@ -150,7 +156,7 @@ Caeren tentou resistir, sem força real, levado pelos dois homens por um corredo
 
 Kerath não participava do jantar.
 
-Uma celebração que reunia representantes das dez dinastias dentro de Kaendar exigia que a Calandrir estivesse em outro lugar, circulando pela segurança externa, não sentada entre taças e discursos. Passou o restante da tarde conferindo acessos, coordenando a Guarda Soberana, resolvendo pequenos problemas criados pelo número absurdo de convidados.
+Uma celebração que reunia representantes das dez dinastias dentro de Kaendar exigia que a Calandrir estivesse em outro lugar, circulando pela segurança externa, não sentada entre taças e discursos. Exigira que os corredores internos continuassem protegidos por guardas Polar. Os serviços da festa, porém, receberam autorizações temporárias para atravessar alguns desses acessos, e cada nova leva de visitantes exigia que os nomes nas listas fossem atualizados. Kerath passou o restante da tarde conferindo as permissões que conseguia, coordenando a Guarda Soberana e resolvendo pequenos problemas criados pelo número absurdo de convidados. Ela não podia estar em todos os corredores.
 
 O salão principal de Kaendar recebeu a celebração no fim da tarde como o centro exato de Jesed que Vetarius sempre quisera provar que Kaeliran podia ser. As lamparinas já estavam acesas, mas pelas janelas altas ainda entrava a claridade cinzenta do lado de fora.
 
@@ -194,9 +200,7 @@ Ergueu a própria taça mais alto.
 
 O salão levantou as taças ao mesmo tempo. Dareth também, sem beber quase nada. Vetarius bebeu. Amaric bebeu. O Sumo Vigia bebeu. Alveris bebeu. Corven bebeu. O Conselho inteiro bebeu. Os representantes estrangeiros beberam, um por um, em volta das próprias mesas.
 
-Alveris observou Vetarius beber com uma satisfação discreta, quase invisível para quem não estivesse olhando exatamente aquele rosto.
-
-Olhou rapidamente na direção de Saelira. Ela não fez gesto nenhum de volta.
+Alveris observava o salão cheio. Vetarius erguera a taça diante de representantes que, até pouco tempo antes, mal aceitariam uma visita à mesma mesa. Uma satisfação discreta passou pelo rosto do homem da Balança. Olhou rapidamente na direção de Saelira. Ela não fez gesto nenhum de volta.
 
 O primeiro sinal veio de um conselheiro afastado da mesa central, cuja fala começou a se embaralhar no meio de uma frase sobre impostos. Alguém riu, achando que era só o vinho fazendo efeito além da conta, e Vetarius mandou o homem beber água antes de continuar.
 

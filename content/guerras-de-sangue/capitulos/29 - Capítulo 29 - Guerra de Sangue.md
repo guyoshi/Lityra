@@ -94,7 +94,7 @@ Rendar respirou com dificuldade. Os olhos estavam úmidos, mas nenhuma lágrima 
 
 Ele endureceu. Kaelina continuou antes que pudesse rejeitar a frase.
 
-— Alyra mandou matar os Fendelar para culpar os Tondrar e mostrar força. Daryon ajudou a preparar o ataque. Eles acharam que uma aldeia pequena não poderia se defender. Se matar a criança que ela carrega para puni-la, estará repetindo essa escolha.
+— Alyra mandou matar os Fendelar porque um emissário não voltou. Não tinha prova de que tivessem feito alguma coisa contra ele. Daryon ajudou a preparar o ataque. Eles acharam que uma aldeia pequena não poderia se defender. Se matar a criança que ela carrega para puni-la, estará repetindo essa escolha.
 
 Rendar olhou para a barriga de Alyra, escondida sob as placas frouxas da armadura.
 
@@ -498,7 +498,7 @@ O mundo ao redor pareceu diminuir. Até os homens no cais ficaram em silêncio, 
 
 — Não. A vadia queria matar nosso pai. Queria caos para nossa dinastia.
 
-— Ylvena colocou Beijo-da-Noite numa taça destinada a você. Uma dose pequena para parecer doença, forte o bastante para matar dentro da própria casa. Mas Orionus bebeu no seu lugar.
+— Ylvena colocou Beijo-da-Noite numa taça destinada a você. Queria que você adoecesse antes de morrer, para ninguém suspeitar de veneno. Mas Orionus bebeu no seu lugar.
 
 — Está mentindo.
 
@@ -518,7 +518,7 @@ Alyra observou o sangue seco nas roupas da irmã e falou entre os dentes.
 
 Kaelina percebeu o tom e não recuou.
 
-— Você nem mesmo entende isso, irmã. A devoção dele... nunca foi lealdade. Ele agia às suas costas desde o início e ainda assim te servia. Daryon se tornou quem era por causa da sua ambição e do seu veneno. Você fabricou provas, ordenou o massacre dos Fendelar e acaba de violar minha palavra diante do povo. Por sua culpa, a cidade queima, mentiras correm sobre nós e uma guerra começou depois de décadas de paz. Ninguém mais aceitará suas ordens.
+— Leal? Ele escondeu de você a mulher que matou nosso pai. Sabia que o talismã era uma mentira e deixou que isso virasse guerra. E você mandou destruir Velarim sem ter prova nenhuma contra os Fendelar. — Kaelina olhou para Rendar. — Dei a minha palavra por aquele homem. Você o matou. Não vai continuar usando a autoridade desta cidade para fazer isso.
 
 Alyra apertou os lábios.
 

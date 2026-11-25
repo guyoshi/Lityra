@@ -56,47 +56,51 @@ O homem soltou um riso curto.
 
 — Ainda bem que este formulário não pede o local de nascimento para decidir a filiação.
 
-A discussão atraiu gente suficiente para virar, por alguns minutos, um pequeno retrato de Jesed. Uma mulher Buldar foi a primeira a dizer que, nas terras dela, não haveria dúvida: Buldar era descendência. Um estrangeiro podia viver sob suas leis, trabalhar para uma Família de Terra e receber proteção sem adquirir o nome. Um Grastar, ouvindo de perto, concordou e acrescentou que, entre os seus, nem casamento, riqueza ou décadas de serviço transformavam estrangeiro em Grastar.
+A discussão parou a fila. O trabalhador que aguardava o documento ergueu a ficha.
 
-— Então vocês dois escolheram sangue — resumiu o Braedar.
+— Eu só preciso da autorização para dormir no setor onde trabalho — disse. — Se isso demorar, perco o turno da noite.
 
-— Continuidade — corrigiu a Buldar.
+O funcionário Braedar puxou a ficha para perto, riscou a marca errada e a devolveu ao auxiliar.
 
-Uma Cendar que carregava ferramentas presas ao cinto entrou na conversa sem ter sido chamada.
+— Então vamos resolver logo. Ele mora em Braivar, trabalha lá e responde às nossas rotas. Não tenho por que enviá-lo para o alojamento de outra dinastia só porque a mãe nasceu Lusdar.
 
-— Sangue ou confiança conquistada — explicou a Cendar. — Uma Casa também pode acolher alguém, depois de anos de trabalho e responsabilidade.
+O jovem Polar ainda olhava para o campo corrigido. Dareth acompanhou Selina até a mesa ao lado, onde os pedidos se acumulavam. Não era uma discussão sobre qual povo tinha razão. Uma marca errada podia deixar alguém sem alojamento, sem circulação ou sem autorização para trabalhar durante o Torneio.
 
-O Leidar ao lado dela levantou um dedo.
+Uma mulher Buldar contestava uma ficha que apresentava o ajudante da sua comitiva como membro da dinastia.
 
-— Um ciclo inteiro.
+— Ele trabalha para a minha Família de Terra. Isso não faz dele meu parente.
 
-— O quê?
+O auxiliar apontou a residência do homem nos campos Buldar. A mulher não mudou de expressão.
 
-— Para nós, pelo menos um ciclo inteiro na comunidade. Quero ver alguém durante fartura e escassez antes de dizer que pertence. Trabalho, temporadas, restrições, uma Casa Territorial disposta a acolher. Só residência não basta.
+— Pode morar, receber proteção e trabalhar nas nossas terras. Buldar é descendência.
 
-Um Vendrar, que até então apenas escutava, disse que aquilo parecia burocracia demais para uma coisa que uma oficina resolvia melhor.
+O representante Grastar da mesa seguinte devolveu um documento pelo mesmo motivo. Nem casamento, nem riqueza, nem anos de serviço mudavam a linhagem que seus registros reconheciam. Os dois funcionários discordavam sobre muitas coisas, mas não sobre aquilo.
 
-— Primeiro aprende um ofício. Depois arranja um mestre que responda pelo seu trabalho e assume o Primeiro Compromisso. Aí a gente conversa.
+Dareth viu então uma Cendar apresentar o reconhecimento de uma jovem acolhida por sua Casa. O escrevente apontou a ausência de parentesco.
 
-— Vocês transformam tudo em contrato — disse alguém.
+— A Casa responde por ela — explicou a Cendar, indicando o selo. — Faz anos. Não é sangue, é confiança conquistada.
 
-— E vocês transformam contrato em sangue.
+Um Leidar, que esperava atrás dela, examinou a data de admissão de outro requerente e fez o homem voltar à mesa.
 
-A resposta arrancou algumas risadas.
+— Ainda não completou um ciclo na comunidade.
 
-Os Lusdar aceitavam estrangeiros por residência e serviço, mas exigiam formação nas responsabilidades que consideravam básicas: higiene, substâncias, cuidado e limites do conhecimento. Os Mardrar queriam alguém disposto a responder publicamente pelo recém-chegado, pessoa, família, associação ou Casa de Garantia. Para eles, pertencimento começava quando uma palavra deixava de existir sozinha.
+— Mas já trabalho lá.
 
-Foi uma mulher Quendrar quem interrompeu a tentativa de transformar aquilo numa competição.
+— E vai continuar trabalhando. Só não vai receber reconhecimento antes de atravessar uma temporada inteira, da fartura até a escassez. Precisa de uma Casa Territorial que responda por você.
 
-— Ninguém precisa de autorização de outra pessoa para existir.
+Mais adiante, um mestre Vendrar reclamava porque a credencial do aprendiz trazia o ofício, mas não a confirmação do Primeiro Compromisso.
 
-O funcionário Polar ergueu os olhos.
+— Saber usar uma ferramenta não basta — disse, entregando a folha de volta. — Primeiro ele assume o trabalho diante de quem vai responder por ele.
 
-Ela explicou que estrangeiros podiam ser acolhidos por Casa ou comunidade, preservar nome e costumes e, depois de assumir obrigações locais, ser reconhecidos como Quendrar. O que importava era não continuar obedecendo politicamente a uma potência externa como se a nova comunidade fosse extensão da antiga.
+As mesas vizinhas tinham outras exigências. Um curador Lusdar precisou confirmar que o auxiliar estrangeiro completara a formação em higiene, substâncias e cuidado antes de receber acesso ao posto de atendimento. Um representante Mardrar não apresentou prova de linhagem, mas uma garantia assinada pela Casa que responderia pela pessoa registrada.
 
-O jovem Polar olhou para Selina, como se esperasse que ao menos a resposta dos próprios fosse simples.
+Diante da mesa Quendrar, uma mulher se recusou a apagar o nome antigo de uma família recém-acolhida. O escriba insistia em saber se ainda obedeciam a alguma autoridade de fora.
 
-Era.
+— Nome não é coleira — ela respondeu. — Eles podem guardar os costumes. O que não podem é continuar recebendo ordens de outro governo enquanto vivem conosco.
+
+O jovem Polar, que acompanhara parte da confusão carregando fichas de uma mesa para outra, voltou a encontrar Selina. Olhou para o campo de pertencimento do formulário que segurava.
+
+— E como registramos um dos nossos?
 
 — Ascendência Polar reconhecida — respondeu Selina. — E validação no registro.
 
@@ -336,7 +340,7 @@ Ao fim da primeira fase, restariam três campeões, e a final não seria compost
 
 A Cerimônia do Campeão, o funcionário acrescentou, não seria realizada no Altar. Aconteceria na capital da dinastia vencedora, para onde a comitiva do campeão se deslocaria depois do encerramento do Torneio.
 
-O sorteio dos confrontos ainda não acontecera. Aconteceria publicamente, dentro da arena, diante de todos. Ninguém ali, incluindo Dareth, sabia quem enfrentaria quem.
+As dez peças do sorteio seriam preparadas pela Administração e retiradas de uma única urna lacrada, diante de representantes das dinastias. As três primeiras formariam uma chave, as três seguintes outra, e as quatro restantes a última. Cada retirada seria anunciada em público, sem possibilidade de trocar uma peça depois de conhecida. Ninguém ali, incluindo Dareth, sabia quem enfrentaria quem.
 
 O segundo dia amanheceu com o acampamento já funcionando como uma pequena cidade multinacional.
 

@@ -144,7 +144,7 @@ Guardou o documento.
 
 Apresentou o disco pelo lado dos riscos e recebeu uma passagem que nenhum título seu teria obtido. Só depois de caminhar alguns passos dentro da muralha sentiu o tamanho daquilo: não enganara Kaeliran. Entrara pela parte da cidade que já obedecia a outra gente.
 
-Atrás dela, os portões terrestres começaram a fechar. A fila protestou. Um guarda repetiu a palavra segurança como se ela tivesse, por si só, a força de uma ordem legítima. Um dos homens que supervisionavam a operação disse ao outro que Alveris estava entre os mortos do banquete. O segundo perguntou quem assumiria o comando, não recebeu resposta e mandou continuar. Selina parou o bastante para ouvir. Depois seguiu.
+Atrás dela, os portões terrestres começaram a fechar. A fila protestou. Um guarda repetiu a palavra segurança como se ela tivesse, por si só, a força de uma ordem legítima. Um dos homens que supervisionavam a operação disse ao outro que Alveris estava entre os mortos do banquete. O segundo perguntou quem assumiria o comando e não recebeu resposta. Conferiu um papel dobrado que trazia junto ao cinto, apontou para o acesso à frente e mandou continuar. Não precisavam de uma nova ordem para executar aquela parte. Selina parou o bastante para ouvir. Depois seguiu.
 
 Numa rua de descida, dois guardas Polar retiraram uma barreira para permitir a passagem de estrangeiros armados. Um dos homens que entravam usava uma faixa Buldar no braço. Os outros levavam capas sem marca sobre peças de equipamento diferentes. O mais velho dos guardas apontou para a própria insígnia.
 

@@ -108,13 +108,13 @@ Caeren pareceu confuso, não por estupidez:  pela primeira vez um sistema em que
 
 — Então é injusto que alguém nasça aqui e nunca seja Polar.
 
-— Eu não disse isso.
+— Não é tão simples assim.
 
-— Mas não é? — insistiu Caeren, com a teimosia de adolescente que ainda não decidiu se discorda do pai ou só testa até onde a discordância aguenta.
+— Mas é injusto ou não é? — Caeren insistiu, pela primeira vez menos interessado em ganhar a discussão do que na resposta.
 
 Vetarius considerou a pergunta com mais seriedade do que o filho provavelmente esperava.
 
-— Se você acha que é errado, por que simplesmente não muda tudo quando for soberano? — continuou Caeren, antes que o pai respondesse, a pergunta anterior ainda pendurada no ar. — Você senta na cadeira. Você decide. Pronto.
+— Se você sabe que acontece isso, por que não muda? — continuou Caeren, antes que o pai respondesse. — Você é o soberano. Pode mandar. Pronto.
 
 — Eu posso assinar uma lei amanhã. Se ninguém obedecer depois que eu morrer, não mudei nada. — Vetarius apoiou os cotovelos na mesa. — Se eu apago a palavra Nular sem mexer no que sustenta a divisão, em um ciclo inventam outra palavra para a mesma coisa. Decreto é rápido. Mudança que dura, não.
 

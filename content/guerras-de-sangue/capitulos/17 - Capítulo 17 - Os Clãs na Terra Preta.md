@@ -154,6 +154,8 @@ Vieram vento e nuvens grossas. A Terra Preta mudou de cheiro, folhas viraram o d
 
 Os Buldar moveram o acampamento para uma parte alta sob guarda-chuvas-de-Veyra, árvores de tronco escuro que quebravam a chuva e escondiam fumaça. Em invasão real, recuariam para Maldrin-Alta, fortaleza de celeiros e pedra protegida por cátilos de guarda e armadilhas contra murrens. Aquele abrigo, perto das reservas de grão-de-Dorran, era apenas provisório.
 
+Hadrun não esperara a volta de Nynestra para preparar o que já tinha sido discutido nas Casas de Terra. Dividira os mantimentos em cargas de marcha e reserva, separara animais cansados dos que ainda puxariam carroças e mandara pequenos grupos conferir depósitos de passagem. Não eram provisões para manter um exército diante de Kaendar por uma estação. Eram o suficiente para deslocar homens, trazê-los de volta ou alimentá-los enquanto tomassem uma decisão. Se a aliança crescesse mais do que a comida, o plano teria de mudar.
+
 Os Tondrar odiaram lama, espera e dependência dos cestos Buldar. Os Buldar cavaram valas, suspenderam sacos, cobriram rodas, separaram raízes e reforçaram cordas. No segundo dia, alguns Tondrar já aceitavam caldo quente sem reclamar. Rendar permanecia nas bordas.
 
 Sob as árvores, Rendar mantinha o arco à mão por hábito. Com centenas de pessoas respirando juntas, o abrigo parecia barulhento demais para alguém de Mirval.
@@ -222,25 +224,21 @@ Rendar não respondeu.
 
 Hadrun olhou para os Buldar ao longe.
 
-— Nynestra não conta muito essa história. Não toda. Líder que mostra cicatriz demais faz os outros cutucarem.
+— Nynestra me contou do Acordo das Três Medidas — disse Rendar. — Do grão comprado a preço fixo, do sal retido quando as aldeias recusaram.
 
-Rendar esperou. Hadrun percebeu e continuou.
+Hadrun olhou para os Buldar ao longe.
 
-— Na era de Orionus, os Polar criaram o Acordo das Três Medidas. Nome limpo. Nome de escriba. Diziam que era para manter estabilidade durante uma seca ruim. Kaendar compraria grão Buldar por preço fixo. Três estações. Em troca, manteria passagem, sal e metal correndo. Parecia justo para quem lia sentado.
+— Contou o que aconteceu na casa da mãe dela?
 
-Ele cuspiu de lado.
+Rendar pousou a tigela.
 
-— Só que chuva não cai igual em todo campo. As grandes Famílias de Terra suportavam. Tinham celeiro fundo, semente guardada, gente devendo favor. Mas aldeia menor não tem gordura para perder. Quando algumas disseram que não podiam entregar sem comer a semente do próximo plantio, Orionus não mandou exército. Não precisava. Fechou passagem de sal. Atrasou ferramenta de ferro. Reteve uma peça de arado aqui, uma carga de lâmina ali, uma autorização de rota acolá... e pronto. Carne apodrece. Campo atrasa. Dívida cresce. Homem com fome assina qualquer coisa para ver filho mastigar.
+— Não.
 
-Rendar abaixou os olhos para o caldo.
-
-— Nynestra perdeu alguém?
-
-— Não como você pensa. Não uma filha numa lâmina. Não um marido numa emboscada. Perdeu outra coisa. A mãe dela era criança nessa época. De uma família menor, antes de subir por casamento e conta bem feita. Passou uma estação inteira vendo adultos esconderem fome para que os pequenos comessem. Uma irmã morreu com a boca manchada de farinha de semente. Semente que devia virar campo. A família sobreviveu. Subiu depois. Ficou poderosa. Mas há gente que sobe sem esquecer o gosto daquilo que mastigou no chão.
+— A mãe de Nynestra era criança naquela época. De uma família pequena, que só mais tarde subiu por casamento e conta bem feita. Passou uma estação vendo adultos dizerem que já tinham comido, só para sobrar alguma coisa aos pequenos. Uma irmã morreu com farinha de semente na boca. Semente que devia virar campo. A família sobreviveu. Ficou poderosa depois. Mas Nynestra cresceu ouvindo que a irmã da mãe tinha morrido porque Kaendar precisava de um acordo bonito no papel.
 
 Hadrun tocou a terra molhada.
 
-— Nynestra cresceu ouvindo duas versões. A dos Polar, que dizia que Orionus manteve Jesed de pé, e a da mãe, que dizia que ele comprou paz com a fome dos outros. Cresceu desconfiando da primeira e conhecendo bem a segunda. Ainda assim, tentou negociar antes de pensar em guerra.
+— Kaendar chamava aquilo de paz. A mãe dela chamava de fome. Nynestra cresceu ouvindo os dois nomes. Mesmo assim, tentou negociar antes de pensar em guerra.
 
 Ao longe, um trovão rolou baixo. Hadrun apoiou as costas no tronco.
 

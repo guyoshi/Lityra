@@ -104,9 +104,11 @@ O mensageiro hesitou.
 
 Varron praguejou.
 
-Quando chegaram à base das muralhas, encontraram quase toda a força de Kaendar concentrada ali. Homens ocupavam as escadas, galerias e plataformas. Arqueiros disparavam por cima das ameias. Guardas transportavam pedras, água fervente, lanças e feixes de flechas. As reservas do Anel Alto haviam sido chamadas, assim como ferreiros, trabalhadores das obras e qualquer homem capaz de sustentar um escudo.
+Quando chegaram à base das muralhas, encontraram quase toda a força disponível de Kaendar concentrada ali. Homens ocupavam as escadas, galerias e plataformas. Arqueiros disparavam por cima das ameias. Guardas transportavam pedras, água fervente, lanças e feixes de flechas. As reservas do Anel Alto haviam sido chamadas, assim como ferreiros, trabalhadores das obras e qualquer homem capaz de sustentar um escudo.
 
-A concentração explicava por que os invasores do cais avançavam tão depressa. Kaendar protegia o rosto enquanto sangrava pelas costas. Varron subiu numa plataforma de distribuição e ergueu a voz:
+Kadrir deixara homens nas passagens entre o cais e o Anel Médio. Kaelina vira parte deles resistir nas ruas. Mas os ataques de fogo obrigavam cada grupo a escolher entre segurar o inimigo e acudir as casas incendiadas. Reforços que deveriam chegar ao rio tinham sido desviados para a Garganta, onde os Tondrar atacavam os portões com madeira pesada. A segunda defesa não desaparecera. Estava sendo consumida por duas frentes ao mesmo tempo.
+
+A concentração explicava por que os invasores do cais ainda avançavam. Kaendar protegia o rosto enquanto sangrava pelas costas. Varron subiu numa plataforma de distribuição e ergueu a voz:
 
 — O cais foi arrombado! Metade dos homens da segunda galeria desce agora. Levem escudos e fechem as ruas entre o Cais dos Zírrios e o Anel Médio. Ninguém deixa os invasores alcançar a fortaleza!
 
@@ -476,7 +478,7 @@ Kaelina ergueu o rosto.
 
 — O que fazem aqui?
 
-— Urtistar falam mais do que imaginam quando acreditam que ninguém está ouvindo. Disseram que Kaendar seria cercada, que os clãs tinham colocado o medo de lado e que até o último Fendelar caminhava com eles. Pareceu um bom momento para lembrar a cidade de que existimos.
+— Urtistar falam mais do que imaginam quando acreditam que ninguém está ouvindo. Disseram que Kaendar seria cercada, que os clãs tinham colocado o medo de lado e que até o último Fendelar caminhava com eles. Seguimos pelas trilhas secas e ficamos nas elevações, esperando para ver quem ainda estaria de pé quando os portões abrissem. — Sarkan limpou o sangue da boca com o polegar. — Quando vi você sair sozinha e os Tondrar puxarem os arcos, achei que era agora ou nunca. Soberana morta não pode ouvir proposta de retorno.
 
 Varron apontou a espada para ele.
 
@@ -814,17 +816,21 @@ Alyra lembrava que Daryon sugerira atacar Velarim sem brasão, mas fora ela quem
 
 Atrás dele, Alyra apoiou um joelho no chão. Rendar não viu. Estava olhando para Daryon.
 
-— E por que implantar o talismã? Queria incriminar os Tondrar? Queria que os culpassem.
+— Em Velarim, os homens que vieram nos matar deixaram uma marca Tondrar — disse Rendar. — Também havia um talismã junto dos rapazes mortos, antes da Lei do Portão. Desde quando isso prova alguma coisa?
 
-— Eu queria encerrar o que Ylvena começou.
+Daryon baixou os olhos para o ferimento.
+
+— Nunca provou. Eu sabia quem deixou o primeiro.
+
+— Quem?
+
+— Ylvena. Foi ela quem matou os garotos e plantou o amuleto.
 
 — Ylvena? — perguntou Alyra. — O que essa mulher tem a ver com isso tudo?
 
-— Foi Ylvena quem matou os garotos e plantou o amuleto.
-
 No chão, Alyra parou de tentar se levantar. Daryon não olhou para ela. Olhar seria devolver a espada ao pescoço dela.
 
-— Eu sabia que Ylvena havia matado os rapazes. Escondi o que sabia e envenenei Yvenn para acabar com a trégua. Os Tondrar não começaram esta guerra. Eu ajudei a levar Alyra até ela.
+— Ela me contou quando voltou. Escondi o que sabia e envenenei Yvenn para acabar com a trégua. Os Tondrar não começaram esta guerra. Eu ajudei a levar Alyra até ela.
 
 Rendar avançou até ele. Daryon ergueu os olhos, ainda medindo quanto valia cada palavra que lhe restava.
 

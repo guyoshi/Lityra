@@ -184,15 +184,15 @@ Ele reconheceu a própria frase. O olhar estreitou pouco. Kaelina aproximou-se u
 
 Kaelina poderia acusá-lo de ter encontrado Sarkan e mencionar os pagamentos, o talismã e a promessa de reintegração. Mas ouvira apenas trechos da conversa. Daryon negaria o resto e exigiria provas que ela ainda não tinha. Preferiu testar outra suspeita.
 
-— Acho que já deve ter percebido, não é?
+— Não trouxe uma carta — disse Kaelina. — Trouxe uma notícia sobre Alyra.
 
-Daryon ficou quieto por um tempo, antes de questionar.
+Daryon estreitou os olhos.
 
-— Percebido o quê?
+— Que notícia?
 
-Kaelina inclinou a cabeça, observando cada detalhe do rosto dele.
+Kaelina observou as mãos dele sobre as rédeas.
 
-— Alyra está grávida.
+— Ela está grávida.
 
 Daryon demorou a respirar. Os dedos ficaram imóveis junto à rédea, e ele perdeu a cor. A reação durou pouco, mas Kaelina estava perto o bastante para perceber.
 
@@ -200,6 +200,6 @@ A surpresa dele confirmou que a notícia o atingira. Não confirmava quem era o 
 
 Daryon abriu a boca, mas nenhuma frase veio pronta. Kaelina sorriu sem alegria.
 
-— Decidi falar contigo porque… fiquei ansiosa para saber quem é o pai.
+— Ela não me contou quem é o pai — disse Kaelina. — Pensei que talvez você soubesse.
 
 Kaelina passou por ele e entrou pelo portão. Daryon permaneceu junto ao tarrak, imóvel.

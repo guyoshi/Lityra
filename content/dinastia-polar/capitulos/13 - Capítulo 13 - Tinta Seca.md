@@ -260,6 +260,16 @@ Kalan não teve resposta para aquilo, e o Sumo pareceu reconhecer o silêncio co
 
 Explicou o resto sem pressa, como quem lê um veredito que já conhecia de memória. Existia agora uma confissão registrada, e essa confissão mudava a natureza do caso inteiro. Kalan não seria julgado apenas pela agressão que envolvera a própria casa. Seria julgado por retirada ilegal de registros de uma Casa da Permanência, por furto dentro de suas dependências, por ocultação deliberada de provas, pelo desaparecimento contínuo do material roubado, por mentiras sustentadas durante toda a investigação, e por crimes contra a autoridade legítima da Raiz e contra a própria Permanência que a sustentava.
 
+— Mas eu só peguei os papéis porque iam atrás do Orel — Kalan disse. — Não fiz nada contra a Raiz.
+
+— É o tribunal que vai decidir o alcance do que você fez.
+
+— Eu já falei que fui eu. E que foi errado. Isso não basta?
+
+— Para assumir um furto, basta. Para decidir se foi apenas um furto, não.
+
+Kalan olhou para o registro aberto à frente do velho. Hadris passara dias perguntando pela caixa. O Sumo Vigia falava agora de outra coisa, muito maior do que as mãos de Kalan tinham carregado naquela manhã.
+
 Terminou de falar e ficou olhando para Kalan. Ele não conseguiu perguntar o que aconteceria se fosse condenado.
 
 O Sumo Vigia continuou olhando para ele por alguns segundos mais, e então falou de novo, no mesmo tom calmo e rouco, como se completasse uma frase que já tinha começado havia muito tempo.

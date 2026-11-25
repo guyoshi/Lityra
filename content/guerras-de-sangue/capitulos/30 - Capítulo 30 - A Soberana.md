@@ -52,15 +52,13 @@ Iressa olhou para Kaelina antes de continuar.
 
 Lurok olhou para a cadeira vazia de Daryon.
 
-— E... Alyra?
+— E Alyra? — perguntou Lurok. — O que podemos atribuir a ela sem confundir os crimes dela com os de Daryon?
 
 Iressa virou-se para ele.
 
-— Estava presente.
+— Não ouvimos que ela soubesse dos venenos. Mas estava presente quando Daryon confessou.
 
-— Perguntei se há consenso sobre a participação dela nisso tudo.
-
-— Sim — respondeu Kaelina. — Ela enviou os Homens das Areias para exterminar os Fendelar sem consultar o Conselho...
+— A responsabilidade dela não depende de saber tudo o que ele escondia — respondeu Kaelina. — Ela enviou os Homens das Areias para exterminar os Fendelar sem consultar o Conselho...
 
 Iressa bateu a palma sobre a mesa.
 
@@ -96,9 +94,9 @@ Kaelina olhou para o centro da Mesa, onde a Raiz entalhada acumulava sombra.
 
 Lurok soltou o ar.
 
-— Mas por que Ylvena matou os garotos, então? E por que ajudaria Daryon a matar Yvenn?
+— Espere — disse Lurok. — Se Ylvena queria Alyra morta, por que matou os garotos para provocar uma guerra que a favorecia?
 
-— Ylvena continuava amando Daryon. Achou que, se o ajudasse a dar poder a Alyra, ele não a abandonaria. Mas ele a escondeu de todo mundo.
+— Queria manter Daryon perto dela — respondeu Kaelina. — Disse que tentou ser útil quando percebeu que ele só tinha olhos para Alyra. Foi a explicação que deu. Não sei quanto acreditava nela.
 
 Thoren deixou a tábua escorregar sobre a mesa.
 
@@ -248,7 +246,7 @@ O nome da irmã pareceu maior quando escrito como problema. Kaelina não estava 
 
 Maelis começou a enumerar:
 
-— Participação no massacre de Velarim. Conspiração para fabricar provas contra os Tondrar. Uso de exilados em operação não autorizada. Participação na ocultação de informação do Conselho. Tentativa de tomar autoridade soberana sem consentimento da co-soberana. Responsabilidade política pela guerra. Assassinato do último Fendelar sob palavra de passagem. Ataque armado contra Kaelina Polar.
+— Participação no massacre de Velarim. Uso de uma acusação não comprovada para justificar ataques aos Tondrar. Emprego de exilados em operação não autorizada. Participação na ocultação de informação do Conselho. Tentativa de tomar autoridade soberana sem consentimento da co-soberana. Responsabilidade política pela guerra. Assassinato do último Fendelar sob palavra de passagem. Ataque armado contra Kaelina Polar.
 
 — E violação da Lei do Portão — acrescentou Seron. — Alyra repetiu o crime de Lirron.
 
@@ -382,7 +380,7 @@ Maelis marcou os votos.
 
 — Resultado: sete pela execução. Cinco pelo exílio.
 
-A decisão estava tomada. A Mesa da Raiz havia escolhido a morte de Alyra Polar. Por alguns instantes, ninguém falou. Maelis pôs a tábua de votos no centro. A decisão estava registrada. Agora alguém precisaria executá-la. Maelis colocou a tábua no centro.
+A decisão estava tomada. A Mesa da Raiz havia escolhido a morte de Alyra Polar. Por alguns instantes, ninguém falou. Maelis colocou a tábua no centro da Mesa. A decisão estava registrada. Agora alguém precisaria executá-la.
 
 — A decisão deve ser confirmada pela soberania para execução.
 
@@ -482,9 +480,9 @@ Maelis não tocou o estilete.
 
 — Está dissolvendo a Mesa?
 
-— Sim.
+— As cadeiras continuam aqui. Os votos, também. Mas não vão impedir minhas ordens.
 
-— Você não pode suspender a Mesa só porque perdeu uma votação.
+— Você não pode suspender a autoridade da Mesa só porque perdeu uma votação.
 
 — Não vou apagar a votação, Maelis. Registre os sete votos pela execução. E registre que não deixarei a sentença ser cumprida.
 
@@ -576,7 +574,19 @@ A resposta encerrou a discussão. Kaelina voltou-se para Odran.
 
 — Nenhuma expedição será enviada contra os Glydar, Buldar ou Vendrar antes de novas mensagens. Os Tondrar serão observados. Se cruzarem nossas fronteiras em formação de guerra, respondemos. Não antes.
 
-Odran assentiu.
+Odran assentiu. Iressa não recolheu as tábuas. Havia uma promessa que ainda não fora escrita.
+
+— E Nynestra? Você prometeu rever os acordos sobre os campos e levar as provas à Mesa. Acaba de tirar a autoridade da própria Mesa.
+
+— Não tirei dela os registros — respondeu Kaelina. — Maelis enviará cópias dos depoimentos sobre Daryon e dos anexos que conseguimos recuperar. O que ouvi de Ylvena seguirá identificado como meu testemunho, não como confissão registrada. A Mesa examinará os documentos diante de testemunhas Buldar, se Nynestra aceitar mandá-las. Os acordos de grão e passagem serão postos em revisão antes de fazermos outra cobrança.
+
+— Ela não vai acreditar na palavra de uma soberana que entrou com guardas na sala de votação — disse Iressa.
+
+Kaelina olhou para Kadrir junto à porta.
+
+— Não tenho como exigir que acredite. É por isso que receberá os documentos e poderá enviar gente dela para contestá-los. Não chamarei a promessa de cumprida antes que isso aconteça.
+
+Maelis fez uma marca numa tábua limpa, separada da sentença de Alyra.
 
 — E os Homens das Areias?
 
@@ -820,7 +830,9 @@ Durante muitos ciclos, passaria diante daquela galeria e lembraria o jovem estra
 
 Nos vinte ciclos do sol que se seguiram, Kaelina governou Kaendar sem dividir a soberania. Em cada manhã de ato público, o pintor de Kaendar passou a refazer a Ramagem num único rosto. Os primeiros anos foram de reconstrução.
 
-As casas queimadas ergueram-se novamente. O Cais dos Zírrios ganhou novas correntes, passagens e guardas. Iressa reorganizou os depósitos para que nenhum anel dependesse de uma única rota de alimento. Nalia refez parte dos acordos do rio, lentamente, sem esperar que os Glydar esquecessem aquilo que os Polar fizeram. Maelis preencheu tábuas suficientes para que ninguém pudesse dizer que a guerra começara por acaso.
+A reconstrução começou devagar. Nos primeiros tempos, Brokan mandou aproveitar ferragens das portas destruídas e armas que não voltariam às mãos de seus donos. Pedreiros reparavam primeiro as passagens que permitiam levar comida e água aos anéis. Casas ainda abertas ao vento esperaram enquanto o cais recebia madeira e os depósitos voltavam a ter teto. Kaelina ouviu reclamações de quem perdera tudo e não aceitava que uma corrente de portão fosse consertada antes de uma parede de casa. Não havia material nem mãos suficientes para todos ao mesmo tempo.
+
+Depois as casas queimadas ergueram-se novamente. O Cais dos Zírrios ganhou novas correntes, passagens e guardas. Iressa reorganizou os depósitos para que nenhum anel dependesse de uma única rota de alimento. Nalia refez parte dos acordos do rio, lentamente, sem esperar que os Glydar esquecessem aquilo que os Polar fizeram. Maelis preencheu tábuas suficientes para que ninguém pudesse dizer que a guerra começara por acaso.
 
 Em pouco tempo, o Conselho voltou a reunir-se, mas suas decisões já não dependiam dos votos. Kaelina exercia soberania absoluta. Havia quem chamasse aquilo de segurança, e quem se lembrasse dos guardas parados à porta da Mesa da Raiz.
 
@@ -830,7 +842,7 @@ Os exílios de Orionus foram revistos um por um. Alguns regressaram. Outros desc
 
 Os Buldar retomaram comércio depois de longas negociações. Nynestra jamais contou publicamente o que Kaelina lhe dissera diante do exército. Kaelina também não. Entre as duas permaneceu uma dívida sem amizade, feita de homens preservados, ameaças lembradas e campos que voltaram a alimentar uma cidade que ainda os tratava com cuidado arrogante.
 
-Não foram vinte ciclos de paz. Os Tondrar não esqueceram as mortes nem a quebra dos acordos. Outros conflitos surgiram. Os Glydar não voltaram a baixar a cabeça da mesma maneira. Os Polar não compravam mais dos Vendrar.
+Não foram vinte ciclos de paz. Os Tondrar não esqueceram as mortes nem a quebra dos acordos. Outros conflitos surgiram. Os Glydar não voltaram a baixar a cabeça da mesma maneira. Os Polar não compravam mais dos Vendrar. A falta do metal e dos mecanismos que antes vinham de Varkhama custou caro às oficinas de Brokan. Foi preciso conservar ferramentas por mais tempo, refazer peças usadas e encontrar outros caminhos de troca. Kaendar aprendeu a sustentar as próprias forjas sem fingir que isso substituía tudo que os Vendrar sabiam produzir.
 
 Mas acima de tudo, Kaendar cresceu. Novas casas ocuparam espaços além dos antigos anéis. As muralhas foram ampliadas. Os portões multiplicaram-se. Mercadores atravessaram a Garganta trazendo grão, sal, peixe, couro, metal e histórias. Crianças que haviam passado a noite da guerra escondidas sob mesas cresceram acreditando que Kaelina saíra sozinha diante de um exército e fizera milhares de homens recuarem apenas com a voz.
 

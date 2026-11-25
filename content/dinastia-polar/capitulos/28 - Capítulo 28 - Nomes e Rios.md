@@ -122,11 +122,15 @@ Notou várias cópias do mesmo carregamento, cada uma com números ligeiramente 
 
 Maren explicou, sem hesitar: uma cópia registrava a origem da carga, outra a passagem pelo canal, outra a chegada. Alimento podia ser consumido no caminho. O peso mudava com a umidade. Parte da carga podia ser redistribuída entre embarcações no meio do trajeto. Os Buldar mantinham registros descentralizados de propósito, sem confiar numa única cópia com toda a verdade.
 
-Selina anotou mentalmente a diferença: documentos divergentes não significavam, por si só, fraude.
+Selina anotou mentalmente a diferença: documentos divergentes não significavam, por si só, fraude. Era precisamente isso que a incomodava na história de Aleris. Se cada margem guardava sua própria versão de uma passagem, talvez a cópia que faltava em Kaeliran ainda existisse do outro lado do rio.
 
-A conversa mudou de assunto quase sem transição.
+— E quando alguém parte daqui para viver em outra dinastia? — perguntou, apontando para os registros. — Vocês continuam guardando o nome?
 
-— Você conhece algum Aleris? — Selina perguntou.
+— Guardamos o que saiu dos nossos livros. O que fazem com o nome depois é problema de quem recebe — respondeu Maren.
+
+Selina pensou no rapaz que desaparecera dos registros Buldar e surgira em Kaeliran como Nular.
+
+— Você conhece algum Aleris?
 
 Maren riu, sem malícia aparente.
 
@@ -214,11 +218,15 @@ E um estrangeiro qualquer comentou perto de Dareth:
 
 Dareth pensou nos nomes que Kaeliran dava a lugares e povos antigos. Lembrou-se de Selina, ainda à procura do processo entre Aleris e Alveris.
 
-Foi Maren quem enfim respondeu à pergunta que Dareth guardava desde o posto de fronteira.
+Um Buldar mais jovem, ainda inconformado com a discussão sobre as terras Glydar, sacudiu a cabeça.
 
-— O que significa "fazer uma Nynestra"? — perguntou.
+— Se a gente continuar cedendo assim, vão dizer que fizemos outra Nynestra.
 
-Maren explicou: Nynestra fora uma antiga Mão da Colheita, uma entre muitas ao longo dos séculos, famosa por um único episódio: chegara com forças Buldar durante a antiga guerra contra os Polar, quando Kaendar parecia prestes a cair, e ordenara a retirada.
+Dareth se lembrou do fiscal na fronteira, provocado com o mesmo nome. Maren estava perto, conferindo a troca de turnos dos carregadores, e ouviu quando ele perguntou:
+
+— Por que vocês dizem isso? O que Nynestra fez de tão errado?
+
+— Depende de quem você pergunta — respondeu Maren. — Ela foi Mão da Colheita durante a guerra contra os Polar. Chegou com forças Buldar quando Kaendar parecia prestes a cair e mandou todo mundo recuar.
 
 — Dizem que ela percebeu que não venceria? — Dareth perguntou, repetindo a versão que conhecia: que os inimigos tinham se dividido ao ver que a defesa Polar não seria rompida, e os Buldar se retiraram.
 

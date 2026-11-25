@@ -4,7 +4,7 @@ A lâmpada vacilava acima, cuspindo faíscas de vez em quando, como se estivesse
 
 O homem que chegou foi o primeiro a quebrar o silêncio. A voz grave parecia arranhar a garganta.
 
-— Sempre detestei essas salas de manutenção. Lugar fedido, estreito... parece caixão. — disse Fender passando os dedos pela barba áspera, os olhos fixos no chão. — Mas vocês insistem em se encontrar aqui.
+— Sempre detestei essas salas de manutenção. Lugar fedido, estreito... parece caixão. — disse Mavren passando os dedos pela barba áspera, os olhos fixos no chão. — Mas vocês insistem em se encontrar aqui.
 
 Taryn arqueou a sobrancelha, apoiando-se contra a parede.
 
@@ -12,7 +12,7 @@ Taryn arqueou a sobrancelha, apoiando-se contra a parede.
 
 — Prefiro não ter que falar disso. — o veterano respondeu seco. — O que vocês esperam conseguir?
 
-Elara inclinou-se sobre a mesa enferrujada, as mãos firmes. O olhar dela se fixou primeiro em Fender, depois em Kole.
+Elara inclinou-se sobre a mesa enferrujada, as mãos firmes. O olhar dela se fixou primeiro em Mavren, depois em Kole.
 
 — Esperamos sobreviver. E, se possível, dar um passo além disso.
 
@@ -20,7 +20,7 @@ Kole soltou uma risada curta, quase um soluço.
 
 — Sobreviver? Vocês falam como se ainda houvesse escolha. — Seus dedos tamborilavam sem parar, marcando um ritmo de ansiedade. — Desde que ela acordou, cada corredor da Lebargan parece ter olhos. Cada volta, alguém desaparece.
 
-Fender estreitou os olhos.
+Mavren estreitou os olhos.
 
 — “Ela”? Diga o nome.
 
@@ -28,7 +28,7 @@ O jovem engoliu em seco, mas não disse. Foi Taryn quem preencheu o silêncio.
 
 — A capitã… — A palavra saiu suave, quase reverente, mas carregada de veneno. — A galáxia inteira tremeu quando soube que estava de volta.
 
-Fender soltou um suspiro, recostando-se na cadeira.
+Mavren soltou um suspiro, recostando-se na cadeira.
 
 — E vocês acham que podem fazer frente a isso?
 
@@ -46,7 +46,7 @@ Taryn deu um passo à frente, firme.
 
 Um silêncio pesado caiu. A lâmpada oscilou mais uma vez, como um coração falhando.
 
-Fender pigarreou. 
+Mavren pigarreou. 
 
 — Escaparam. Isso é o que importa. Mas me digam: alguém viu mesmo o que aconteceu com Jelles?
 
@@ -54,11 +54,11 @@ Elara fechou os olhos por um instante, escolhendo bem as palavras.
 
 — Não vi. Mas ouvi. Dezenas de relatos. Vozes espalhadas por toda a Unidale.
 
-Fender franziu o cenho.
+Mavren franziu o cenho.
 
 — Vozes... rumores. — Fitou os outros com dureza. — Rumores não vencem guerras. Até onde sabemos ele ainda pode estar vivo. 
 
-— Vivo com a capitã no comando? Depois do que ele fez com a Lebargan? Eu duvido muito — disse Taryn — Além disso, às vezes, rumores movem mais que espadas. — Taryn rebateu. — Você deveria saber disso, Fender.
+— Vivo com a capitã no comando? Depois do que ele fez com a Lebargan? Eu duvido muito — disse Taryn — Além disso, às vezes, rumores movem mais que espadas. — Taryn rebateu. — Você deveria saber disso, Mavren.
 
 O veterano desviou o olhar.
 
@@ -66,7 +66,7 @@ O veterano desviou o olhar.
 
 — Por que ela não mandaria um dale? Em uma missão? — perguntou Elara. 
 
-— Um dale? — riu Fender — Estamos falando da capitã, não de Jelles. Ela é esperta. Conhece cada um de nós. Ela sabe o quão manipulador e influente Jasmey é, tal como sua capacidade de se livrar dos problemas. Se ela mandar alguém caçá-lo, será alguém que ela se certificasse que fizesse o trabalho, alguém que envie sua cabeça de volta como garantia. 
+— Um dale? — riu Mavren — Estamos falando da capitã, não de Jelles. Ela é esperta. Conhece cada um de nós. Ela sabe o quão manipulador e influente Jasmey é, tal como sua capacidade de se livrar dos problemas. Se ela mandar alguém caçá-lo, será alguém que ela se certificasse que fizesse o trabalho, alguém que envie sua cabeça de volta como garantia. 
 
 O assunto causou uma onda repentina de silêncio, como uma centelha proibida. Kole apertou os punhos, a respiração acelerada.
 
@@ -92,7 +92,7 @@ GarrasNegras: Mais um Dale que caiu. Amanhã já teremos outro igual.
 
 Espadadamorte: Ele está mais vivo do que todos nós.
 
-Fender o olhou com a sobrancelha erguida.
+Mavren o olhou com a sobrancelha erguida.
 
 — É melhor tomar cuidado. Não quer a capitã sabendo que está em um grupo que fala sobre um traidor.
 
@@ -106,7 +106,7 @@ Taryn suspirou:
 
 — Mas é entre os idiotas que os gênios se destacam. 
 
-Fender inclinou-se levemente para frente.
+Mavren inclinou-se levemente para frente.
 
 — Desde quando conseguem abrir esses canais sem serem rastreados?
 
@@ -114,13 +114,13 @@ Kole congelou, os olhos arregalados. Taryn hesitou antes de responder:
 
 — Temos formas... atalhos. Pequenos envios de dados codificados. Só o suficiente para... manter contato.
 
-— Contato com quem? — Fender franziu o cenho, a voz grave mas sem agressividade.
+— Contato com quem? — Mavren franziu o cenho, a voz grave mas sem agressividade.
 
 O silêncio foi resposta. Foi Elara quem quebrou, devagar:
 
 — Com ele. Enviamos a localização da Lebargan uma vez por hepton. 
 
-Fender tamborilou os dedos na mesa, pensativo. 
+Mavren tamborilou os dedos na mesa, pensativo. 
 
 — Vocês mandam a localização da nave direto dos braceletes. — Sua voz soava quase como uma constatação. — Isso é muito arriscado.
 
@@ -143,7 +143,7 @@ Elara cerrou os olhos, tentando manter o raciocínio frio.
 
 — Dizem que a capitã sabe ver a verdade nos olhos… não iria gostar de saber se os rumores são reais. 
 
-Fender se levantou, devagar, o peso das botas ressoando no chão. Seus olhos varreram cada rosto, como se medisse o quanto cada um estava disposto a ouvir.
+Mavren se levantou, devagar, o peso das botas ressoando no chão. Seus olhos varreram cada rosto, como se medisse o quanto cada um estava disposto a ouvir.
 
 — Vocês sabem o que isso significa.
 
@@ -163,7 +163,7 @@ A lâmpada piscou de novo, como um coração falhando. Kole deixou escapar um so
 
 — O que a gente faz, então? Espera pelo abate?
 
-Fender se inclinou sobre a mesa, aproximando-se de cada um com o olhar.
+Mavren se inclinou sobre a mesa, aproximando-se de cada um com o olhar.
 
 — Não. Fugimos.
 
@@ -180,7 +180,7 @@ Elara não piscou.
 
 — E não há! — Kole rebateu, a voz subindo. — Você já tentou passar por um corredor com os dois braços da Capitã? Eles olham para você como se já soubessem seus pecados.
 
-Fender apoiou as mãos pesadas na mesa, curvando-se para frente.
+Mavren apoiou as mãos pesadas na mesa, curvando-se para frente.
 
 — Há docas secretas de emergência. Pequenas, antigas, esquecidas. Naves para evacuação. Trabalhei com um Dale que cuidava delas, momentos atrás.
 
@@ -188,7 +188,7 @@ Taryn soltou um riso curto, descrente.
 
 — Momentos atrás. Pode ser que já nem existam.
 
-— Existem. — Fender respondeu sem hesitar. — O problema é chegar até lá antes que alguém nos veja.
+— Existem. — Mavren respondeu sem hesitar. — O problema é chegar até lá antes que alguém nos veja.
 
 Um silêncio tenso os envolveu. A lâmpada chiou de novo, lançando sombras que se arrastavam pelas paredes. Kole esfregou o rosto com as mãos, como quem tentava acordar de um pesadelo.
 
@@ -198,7 +198,7 @@ Elara inclinou a cabeça, estudando cada um.
 
 — E se ficarmos? O que acham que vai acontecer quando estivermos diante dela na sala de interrogatórios?
 
-Taryn não respondeu de imediato. O brilho nos olhos denunciava o dilema: a sobrevivência contra a lealdade, a dúvida contra o medo. Fender respirou fundo, os olhos fixos na lâmpada que piscava. Depois voltou-se lentamente para os outros.
+Taryn não respondeu de imediato. O brilho nos olhos denunciava o dilema: a sobrevivência contra a lealdade, a dúvida contra o medo. Mavren respirou fundo, os olhos fixos na lâmpada que piscava. Depois voltou-se lentamente para os outros.
 
 — Vocês acham que eu vim a esta reunião por acaso? — Sua voz era grave, mas calma. — Vim alertá-los. Eu sabia dos interrogatórios antes da notificação chegar.
 
@@ -206,13 +206,13 @@ Kole arregalou os olhos.
 
 — Como soube? 
 
-— Tenho minhas fontes — Fender confirmou, sem alterar o tom. — Normalmente, eu deixaria vocês perderem tempo com rumores. Mas desta vez é diferente. Ela está se movendo rápido demais. Parece que suspeita de algo. 
+— Tenho minhas fontes — Mavren confirmou, sem alterar o tom. — Normalmente, eu deixaria vocês perderem tempo com rumores. Mas desta vez é diferente. Ela está se movendo rápido demais. Parece que suspeita de algo. 
 
 O silêncio se estendeu, pesado. Taryn apertou os braços contra o corpo.
 
 — E mesmo assim, veio até aqui só para nos dizer que estamos condenados?
 
-Um esboço de sorriso amargo surgiu sob a barba grisalha de Fender.
+Um esboço de sorriso amargo surgiu sob a barba grisalha de Mavren.
 
 — Não. Vim porque também trouxe uma saída — e virou-se para a porta — Elenko, entre por favor. 
 
@@ -226,7 +226,7 @@ Kole recuou, assustado.
 
 — Quem... quem diabos é você?
 
-O estranho não respondeu de imediato. Foi Fender quem preencheu o silêncio.
+O estranho não respondeu de imediato. Foi Mavren quem preencheu o silêncio.
 
 — Elenko é mecânico de propulsores. Trabalha em silêncio desde antes de vocês chegarem. Ninguém presta atenção nele — e é justamente por isso que pode fazer o que nós não conseguimos. Elenko, explique como pode nos ajudar. 
 
@@ -254,7 +254,7 @@ Elara caminhava à frente, passos firmes, mas os olhos corriam de um lado a outr
 
 — Estamos na Neocoloris. É uma zona proibida. Se alguém nos vir aqui, estamos mortos.
 
-Fender respondeu com a calma irritante de quem já viveu perigos demais:
+Mavren respondeu com a calma irritante de quem já viveu perigos demais:
 
 — Se não fizermos nada, estaremos mortos antes de amanhã de qualquer forma.
 
@@ -282,7 +282,7 @@ Elen, a piloto designada pelo grupo, já estava dentro do cockpit, correndo os o
 
 — Funcionando. — anunciou, mesmo que a voz traísse dúvidas.
 
-O grupo se apressou. Kole e Taryn deslizaram para os bancos secundários, mexendo nos controles auxiliares. Elara entrou logo depois, a mão tremendo ao prender o cinto. Fender observava os arredores antes de embarcar, sempre desconfiado.
+O grupo se apressou. Kole e Taryn deslizaram para os bancos secundários, mexendo nos controles auxiliares. Elara entrou logo depois, a mão tremendo ao prender o cinto. Mavren observava os arredores antes de embarcar, sempre desconfiado.
 
 O motor gemeu ao despertar, vibrando como um animal velho arrancado do sono. Luzes começaram a se acender no painel, e por um momento, todos respiraram aliviados.
 
@@ -306,7 +306,7 @@ O silêncio se tornou insuportável, até que sua voz surgiu, lenta, cortante:
 
 — Pensaram que podiam sair da minha mesa de jogo?
 
-Elara fechou os olhos, como se tivesse levado um golpe. Taryn agarrou o braço de Kole, e ele tremia como uma criança. Fender apenas abaixou a cabeça.
+Elara fechou os olhos, como se tivesse levado um golpe. Taryn agarrou o braço de Kole, e ele tremia como uma criança. Mavren apenas abaixou a cabeça.
 
 — A parte mais doce da traição é assistir o momento em que percebem que nunca estiveram no controle — disse uma voz feminina, fria vinda de algum lugar, 
 
@@ -326,7 +326,7 @@ Elara engoliu em seco, sem conseguir encará-la.
 
 — Senhores. Qual é a segunda regra do código dos dales? — a mulher parou diante da nave, pousando a mão sobre o casco corroído como quem acaricia um brinquedo quebrado.
 
-Nenhum pareceu ter coragem de responder. Então Fender se virou e disse: 
+Nenhum pareceu ter coragem de responder. Então Mavren se virou e disse: 
 
 — Não existe uma nave, sem uma obediência ao seu capitão. 
 
@@ -334,7 +334,7 @@ A capitã esboçou um sorriso. Então disse:
 
 — A Lebargan não tem brechas. Ela tem olhos em todo lugar. Para que a ordem não seja violada. 
 
-Então virou-se, lentamente, até encontrar Fender.
+Então virou-se, lentamente, até encontrar Mavren.
 
 Ele não reagiu. Apenas manteve a cabeça baixa.
 

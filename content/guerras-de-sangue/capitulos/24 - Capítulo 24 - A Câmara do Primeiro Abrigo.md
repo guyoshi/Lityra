@@ -130,7 +130,7 @@ Ele ergueu o olhar, devagar.
 
 Alyra olhou para ele.
 
-— Os Urtistar estão do nosso lado. Eles aceitaram vigiar as passagens a oeste e pressionar as rotas que poderiam dar fôlego aos Cendar, caso também decidam se voltar contra nós — disse Alyra. — Nossas patrulhas foram distribuídas de Leralia a Kavilia. Nenhuma vila externa, nenhum celeiro de apoio, nenhum ponto de carga sairá do olhar de Kaendar. Varron receberá relatórios das bordas da Garganta Seca antes do próximo ciclo da lua maior. Vamos cortar as rotas. Se qualquer clã acredita que pode mover peças enquanto discutimos etiqueta, aprenderão que os Polar também sabem jogar na chuva.
+— Os homens de Kahul aceitaram vigiar as passagens a oeste e pressionar as rotas que poderiam dar fôlego aos Cendar, caso também decidam se voltar contra nós — disse Alyra. — Não são os sete capitães. São os homens e os caminhos que Kahul pode comprometer. Nossas patrulhas foram distribuídas de Leralia a Kavilia. Nenhuma vila externa, nenhum celeiro de apoio, nenhum ponto de carga sairá do olhar de Kaendar. Varron receberá relatórios das bordas da Garganta Seca antes do próximo ciclo da lua maior. Vamos cortar as rotas. Se qualquer clã acredita que pode mover peças enquanto discutimos etiqueta, aprenderão que os Polar também sabem jogar na chuva.
 
 Nalia não pareceu convencida.
 
@@ -162,7 +162,7 @@ Alyra olhou para ele. Thoren baixou os olhos depressa.
 
 A frase incomodou a sala de formas diferentes. Maelis das Contagens registrava com o rosto tenso. A ponta do estilete arranhava a tábua no ritmo de quem gostaria de escrever menos. Odran Porta-Baixa cochichava com Seron das Obras sobre acessos secundários, e o lugar vazio de Lurok parecia agora maior do que a presença dele teria sido. Daryon finalmente voltou aos Glydar.
 
-— Então os Urtistar estão do nosso lado. Interessante. Minha soberana não achou que seria interessante antes, partilhar com o conselho sobre seus métodos antes de firmar aliança com um clã assassino?
+— Então temos o acordo de um capitão Urtistar, não a garantia de um povo inteiro — disse Daryon. — Minha soberana não achou importante partilhar isso com o Conselho antes de pagar?
 
 Alyra olhou para ele. Alguns rostos se moveram.
 
@@ -179,6 +179,14 @@ O silêncio apertou.
 Kadrir deu meio passo, não ameaçador ainda, mas presente. Alyra ergueu a mão e o conteve.
 
 — O Conselho está dispensado. Brokan, quero as forjas até a noite. Nalia, traga-me todos os mapas de corrente entre a Margem dos Zírrios e o Cais dos Zírrios, e prepare o cais para receber o Terceiro Kae Lutharus quando ele voltar. Iressa, conte comida para cerco, não para marcha. Thoren, pare de olhar para o chão como se ele fosse responder por você. E Maelis, registre que as decisões desta reunião foram tomadas em defesa direta de Kaendar diante de ameaça externa coordenada. Quem quiser discutir palavra, discuta depois de vencer.
+
+Maelis não guardou o estilete.
+
+— Registrarei que são ordens de emergência da soberana Alyra, dadas na ausência de Kaelina e sem votação. Não posso registrá-las como decisão da Mesa.
+
+Alyra a encarou. Não tinha tempo para outra expulsão.
+
+— Então registre o que houve. E faça as ordens chegarem a quem precisa cumpri-las.
 
 Quando a sala começou a esvaziar, Daryon não saiu. Esperou os passos diminuírem, esperou Maelis recolher tábuas e passar por ele sem levantar o olhar, esperou Nalia dobrar os mapas com força contida. Kadrir continuou perto de Alyra, mas ela fez um gesto seco para que se afastasse.
 
@@ -300,7 +308,7 @@ Kaendar erguia-se atrás deles em camadas de pedra, madeira, sal e luz controlad
 
 Nalia do Rio já estava no cais quando Alyra chegou com Daryon, Kadrir e seis homens. A conselheira tinha o rosto virado para a corrente. Os detalhes de corda trançada nos punhos estavam úmidos.
 
-O barco vinha devagar, descendo pela escuridão como coisa abandonada. Não trazia remadores visíveis, lanterna de margem, nem chamada. Apenas panos grossos cobrindo a parte central, amarrados de forma apressada. A proa batia de leve na corrente, corrigindo-se em movimentos pequenos demais para parecer acaso.
+O barco vinha devagar, descendo pela escuridão como coisa abandonada. Não trazia remadores visíveis, lanterna de margem, nem chamada. Apenas panos grossos cobrindo a parte central, amarrados de forma apressada. A proa batia de leve na corrente, corrigindo-se em movimentos pequenos demais para parecer acaso. Nalia conhecia aquela dobra de água: barqueiros Glydar a usavam para deixar a própria corrente conduzir a proa até os ganchos do cais. Bastava largar um casco vazio no ponto certo, mais acima.
 
 — Onde estão os homens? — perguntou um guarda.
 
@@ -407,6 +415,12 @@ Havia também grupos sem fogo, manchas escuras demais contra a terra, tambores b
 O Primeiro Kae virou-se para um Segundo Kae que subira atrás dele, homem robusto chamado Brenor, com uma cicatriz antiga no queixo.
 
 — Feche todas as portas entre Anel Baixo e Médio. Deixe passagem apenas para água, areia, feridos e homens de Brokan. Quero arqueiros no alto da Garganta e lanças duplas no portão fluvial. Chame Seron para as juntas queimadas. Nalia deve garantir que nada passe do cais, se ainda estiver viva. Se não estiver, pegue qualquer pessoa que saiba diferenciar corrente de poça. E mande alguém buscar Varron.
+
+Brenor apontou para o rio em chamas.
+
+— Se mandarmos todos para a Garganta, o cais fica sem reserva.
+
+— Não retirem os guardas das passagens internas — disse Kadrir. — Se a grade do cais ceder, quero os invasores presos entre o rio e o Anel Médio. Não teremos outra muralha se perdermos as duas de uma vez.
 
 — E a soberana Kaelina?
 

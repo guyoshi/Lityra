@@ -230,9 +230,9 @@ Dareth olhou para a própria mão, os dedos que restavam fechando-se devagar em 
 
 Selina riu, um riso curto e genuíno que a pegou de surpresa mais do que a ele, e Dareth riu junto, baixo, o corpo inteiro relaxando por um instante raro. Ela não se lembrava de já tê-lo ouvido rir daquele jeito.
 
-Para manter o momento vivo mais um pouco, perguntou o que normalmente não perguntaria.
+Dareth ficou olhando para o oeste enquanto girava o cantil entre os dedos. Selina reconheceu a direção da propriedade onde ele vivia e lembrou que a casa fora da família dele muito antes da tragédia.
 
-— Por que continuou morando naquela propriedade, depois?
+— Você nunca pensou em sair daquela propriedade? — perguntou, com cuidado.
 
 Dareth não fingiu não entender a pergunta.
 

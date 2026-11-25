@@ -222,7 +222,7 @@ Ele pareceu surpreso com a concordância rápida, e os dois seguiram lado a lado
 
 Foi então que Elis parou.
 
-Havia uma marca na construção à frente. A mesma onde vira os homens da Balança descarregando objetos compridos, semanas antes, na noite em que Karesis a encontrara ali. A que sempre parecera vazia, usada só de dia, ou nem isso.
+Havia uma marca na construção à frente. A mesma onde vira os homens da Balança descarregando objetos compridos, semanas antes, na noite em que Karesis a encontrara ali. A construção tinha um acesso de serviço voltado para a passagem entre os armazéns, por onde carroças pequenas podiam encostar sem ocupar a rua principal. Sempre parecera vazia, usada só de dia, ou nem isso.
 
 — Tair.
 
@@ -240,7 +240,7 @@ Ele seguiu o olhar dela e viu o mesmo risco que já tinham aprendido a reconhece
 
 Ela já estava se aproximando da construção, os olhos fixos na fachada silenciosa. Sempre tinha parecido vazia. Ou só parecia.
 
-Não bateram. Ficaram parados, escutando, até os corações se acalmarem um pouco. Nada. Nenhum som vindo de dentro.
+Não bateram. Ficaram parados, escutando, até os corações se acalmarem um pouco. Nada. Nenhum som vindo de dentro. Elis observou a passagem de serviço. Os trabalhadores que vira descarregando ali semanas antes não estavam, e a carroça que costumava ocupar o espaço havia desaparecido. Se alguém voltasse, podiam ficar presos entre o muro e a porta.
 
 Elis contornou o prédio, avaliando cada janela e cada porta. Encontrou uma abertura lateral cuja madeira cedia havia anos, o ponto fraco que qualquer casa daquele bairro acabava tendo em algum lugar.
 
@@ -274,7 +274,7 @@ Elis lembrou, de repente, com clareza incômoda, da frase que ouvira semanas ant
 
 Tair não respondeu, mas o jeito como olhou para as caixas mudou completamente.
 
-Escolheram uma das caixas sem identificação da Balança, uma das maiores, num canto mais escuro. Não precisaram destruir nada: a tampa cedeu com um pouco de força, os pregos já soltos de tanto uso.
+Escolheram uma das caixas sem identificação da Balança, uma das maiores, num canto mais escuro. Não precisaram destruir nada: a tampa cedeu com um pouco de força. Os pregos já estavam soltos e havia marcas recentes de abertura na madeira. Aquilo não fora guardado para ficar esquecido por anos.
 
 Dentro, embrulhadas em pano oleado, havia armas desmontadas. Lâminas separadas dos cabos, pontas de lança soltas, mecanismos de encaixe que Elis não sabia nomear, mas reconhecia como partes de algo feito para matar, não para trabalhar.
 

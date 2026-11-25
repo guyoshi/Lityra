@@ -536,9 +536,9 @@ Acima delas, os tambores mudaram. Um ritmo baixo, seco, repetitivo. Não convida
 
 — Como sabe?
 
-Nynestra ainda a olhava com desprezo, embora menos do que antes.
+Nynestra continuou olhando para ela.
 
-— Vocês passam a vida cercados de guardas e nem procuram saber como os outros povos vivem. Depois estranham que não aceitem nossas ordens.
+— Batem assim quando morre alguém importante. Os mercadores Buldar aprendem a distinguir os toques antes de entrar na Boca Seca. Você nunca precisou aprender.
 
 Kaelina estava cansada das palavras afiadas de Nynestra, então ignorou e aproximou-se das barras de osso.
 
