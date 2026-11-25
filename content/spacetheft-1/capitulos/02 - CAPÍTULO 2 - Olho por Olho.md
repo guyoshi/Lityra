@@ -262,7 +262,7 @@ Alguns riram.
 
 — Isso é um mapa? — perguntou Eric. — E a gente segue pra onde? Pro lado que ele estiver olhando?
 
-— Não a um tesouro qualquer, mas ao Tesouro. Alguém aqui sabe o que é o gerbe?
+— Ainda precisamos descobrir como interpretar o olho, Eric. Mas, antes de discutirmos como chegar lá, quero que entendam o que estamos procurando. Alguém aqui sabe o que é o gerbe?
 
 — O gerbe? Dizem que é o mineral mais valioso da galáxia, que se formou lá no começo do universo — respondeu Samara.
 
