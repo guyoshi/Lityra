@@ -294,7 +294,7 @@ Passado um tempo, procurei Jelles com os olhos.
 
 Foi então que Nemes anunciou pelo rádio que tava mijando no coletor do traje e perguntou se devia despejar o conteúdo na mangueira. Olhei pra ele, pra mangueira, pro asteroide. Não era possível.
 
-— Ô, babaca! A gente veio buscar água nesse lugar e você tá MIJANDO NELE?
+— Ô, babaca! A gente veio buscar água e você quer jogar teu mijo no tanque?
 
 — Relaxa, Jasmey. Todo mundo na Lebargan bebe água reciclada do nosso mijo. É tudo purificado.
 
