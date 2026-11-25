@@ -476,6 +476,12 @@ Fiz um gesto com as mãos. Buni me olhou sem entender.
 
 Ele balançou a cabeça.
 
+— Quantos momentos tu tem, cara?
+
+— Trinta e oito.
+
+— TRINTA E OITO? Como conseguiu passar tanto tempo sem uma fodinha?
+
 — Eu trabalhava numa fazenda com meu irmão mais velho. Era novo quando me levaram pra Fera. A plantação era do nosso pai, sabe? Ele deixou tudo pra gente quando morreu. Um dia atacaram a fazenda e a gente teve que fugir. Meu irmão era bonito, forte, corajoso. Ele sempre me defendia. Quando os homens de Tzough pegaram a gente, ele lutou. Eu não.
 
 Buni ficou olhando pras mãos.
@@ -486,25 +492,19 @@ As lágrimas começaram a cair pelo rosto dele. Kord sentou mais perto e passou 
 
 — Escuta aqui, irmão. Você não é covarde. Lembra daquela conversa que a gente teve nas máquinas? Aquele lugar era uma merda. Tudo cinza. Você era um dos poucos caras que ainda lembrava a gente de que existia coisa boa lá fora. Quatro momentos naquele inferno e você saiu de lá ainda sendo o Buni. Isso vale pra caralho.
 
-— Quantos momentos você tem, Buni?
+Buni limpou o rosto. Estendi um pano pra ele.
 
-— Trinta e oito.
+— Bom, cara. Agora tá livre. Pode conhecer alguém, se quiser. Só não precisa ter pressa quando chegar lá.
 
-— TRINTA E OITO? E nunca deu uma fodinha?
+Buni sorriu de leve. Kord me deu um tapa no ombro.
 
-Buni balançou a cabeça, limpando o rosto.
+— Tá vendo? Até que tu sabe falar feito gente.
 
-— Ô, cabeludo. Se não for ajudar, vaza — disse Kord.
+— Não espalha.
 
-— Tá, tá. Desculpa. Só espero que o cara não tenha pressa demais quando chegar lá.
+O’reilly puxou a cadeira pra perto do Buni e começou a marcar um ritmo com o pé.
 
-Vivian abaixou a cabeça e soltou um risinho que tentou esconder com a mão. Kord me empurrou. Virei pra ele. Mais um pra lista. Já tava ficando difícil lembrar de todos.
-
-— Não encosta em mim de novo.
-
-— Tá cheio de graça, né, irmão?
-
-— Yo-ho, meus amigos! A gente tá livre! — O’reilly bateu palmas uma vez. — Kord, lembra daquela canção que você me ensinou nas máquinas?
+— Kord, lembra daquela canção que você me ensinou nas máquinas? Essa aqui ele gosta.
 
 Kord olhou pra ele. A cara de poucos amigos foi dando lugar a um sorriso.
 
