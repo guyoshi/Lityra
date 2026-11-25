@@ -170,7 +170,7 @@ Senti a boca secar. Lembrei do tanque, das explosões, da Saezi. Tentei encontra
 
 — Sabia que você teria de escolher. O que não esperava era que sacrificasse os seus homens. Sempre achei curioso o quanto gosta de ser admirado e o pouco que se importa com aqueles que o admiram.
 
-— Tudo aquilo... Pra quê? Pra descobrir se eu era um bom Dale? Trouxe a Lebargan até aqui atrás de gerbe. Essa nave já é a maior fortaleza da galáxia. Ainda não chega?
+— Tudo aquilo pra testar minha lealdade? Cinco Dales mortos por causa de uma brincadeira sua? — Olhei pro planeta nos monitores. — Foi a mesma merda em Dekraaz. Tudo pra chegar até aqui. Essa nave já é a maior fortaleza da galáxia. Pra que precisa de tanto gerbe?
 
 Jelles se afastou e olhou pro planeta nos monitores.
 
