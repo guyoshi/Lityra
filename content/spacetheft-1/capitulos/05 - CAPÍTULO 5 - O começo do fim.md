@@ -116,11 +116,11 @@ Ele riu de leve.
 
 — Dane-se.
 
-Já ia embora quando lembrei que Eric sabia da vida de todo mundo naquela nave.
+Já ia embora quando vi o símbolo do conselho no uniforme dele. A missão do asteroide ainda não saía da minha cabeça. Se alguém sabia quem tinha preparado aquela porra de missão, era o Eric.
 
 — Escuta, sabe quem fez a análise do asteroide de ontem?
 
-— Informação por informação.
+— Agora precisa de mim, né? E por que quer saber?
 
 — Acho que aquela missão foi uma armação.
 
@@ -250,11 +250,9 @@ Eric apareceu antes que eu respondesse.
 
 Amanda fechou os olhos por um instante.
 
-— E as namoradas, irmãzinha?
+— Eric, agora não — disse Amanda.
 
-— Melhores que os teus namorados.
-
-— Quanto à missão, teria feito o mesmo. Salvava o capitão. Claro, pra isso eu teria que receber uma missão dessas primeiro.
+— Tô do lado dele, irmãzinha. Eu também teria salvado o capitão. Claro, pra isso eu teria que receber uma missão dessas primeiro.
 
 — Você é um desgraçado, Eric. Falar é fácil quando não é você que tem que escolher.
 
@@ -476,7 +474,7 @@ Ouvi mais gritos do lado de fora. Não tínhamos muito tempo.
 
 — Você vai nos matar? — perguntou o pequeno.
 
-— Como você se chama?
+— Não. Como você se chama?
 
 — Sou Als-keb.
 
