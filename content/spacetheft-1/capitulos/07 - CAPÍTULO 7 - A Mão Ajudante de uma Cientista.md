@@ -170,13 +170,17 @@ Ela ergueu o queixo, orgulhosa.
 
 Ela foi se sentar numa poltrona. Fiquei olhando pro braço. Podia ter perguntado antes, né? Bom, eu tava morto.
 
-— Então você já estudou um monte de criaturas?
+Apontei pra uma das cápsulas. Dentro dela tinha uma criatura que eu não conseguia classificar nem pela quantidade de braços.
 
-— Muitas. E, apesar disso, estamos limitados a esta galáxia. Imagine quantas formas de vida ainda existem nas outras.
+— De onde você tirou esses bichos todos?
+
+— De muitos sistemas. E, apesar disso, estamos limitados a esta galáxia. Imagine quantas formas de vida ainda existem nas outras.
 
 — Se um dia eu tiver uma nave que chegue lá, talvez me interesse. Por enquanto, nem deste planeta eu consigo sair.
 
-Comecei a mexer nuns objetos sobre a mesa.
+Comecei a mexer nuns objetos sobre a mesa. Olhei de novo pras cápsulas.
+
+— Mas tem bicho aí que nem parece vivo. Como você sabe o que fazer com cada um?
 
 — A vida inteligente na nossa galáxia segue três padrões principais: os hermetarianos, que prosperam ao calor das estrelas, os actoneses, que são muito mais complexos e capazes de se regenerar, e os humanídeos, mais parecidos conosco. Os actoneses, por sinal, são extraordinários para a cirurgia celular.
 
@@ -194,7 +198,7 @@ Tava virando um cubo metálico na mão quando ouvi aquele nome. Tentei apoiá-lo
 
 — E se dissolve de volta no cosmos? É uma bela maneira de pensar. No entanto, há tantas coincidências que começo a questionar a aleatoriedade da entropia.
 
-— E o centro da galáxia? Sabe alguma coisa de lá? A Lebargan nunca foi muito longe naquela direção.
+— Se esse teu programador fez tanta criatura, por que a gente não encontra nenhuma perto do centro da galáxia? A Lebargan nunca foi muito longe naquela direção.
 
 Ela parou de sorrir.
 
@@ -210,7 +214,7 @@ Ela parou de sorrir.
 
 — Uhum.
 
-Ela voltou pra mesa onde tinha uma criatura deitada. Lembrei de uma coisa.
+Ela voltou pra mesa onde tinha uma criatura deitada. Fiquei pensando naquela região que nem a Lebargan se atrevia a visitar. O Jelles podia ter a porra de uma boa razão pra querer encontrar a Aurora.
 
 — A Aurora fica nessas escalas menores?
 
@@ -310,13 +314,29 @@ Afrouxei a mão de metal devagar. O bicho se levantou sobre as duas patas, camba
 
 — Terá de reaprender a andar. As células novas ainda não estão sincronizadas com as antigas. Algumas memórias se perderam, infelizmente. Mas continua sendo o mesmo animal.
 
+Olhei pros arranhões na minha mão boa e depois pro lugar onde ela tinha feito o corte no animal.
+
+— Pra fechar esses aqui também precisa abrir a minha mão?
+
+Ela riu.
+
+— Para fechar uma ferida pequena, basta orientar a regeneração das células. O princípio é o mesmo. Não preciso de um bisturi para isso.
+
+Estendi a mão.
+
+— Então faz aí.
+
+— Lave os arranhões, querido. Preciso descansar um pouco.
+
+Recolhi a mão. Pelo menos tinha dado pra tentar.
+
 Ela acariciou a criatura, que se virou pra mão dela e guinchou.
 
 — Caralho. Você consegue controlar a morte.
 
 — Não, Jasmey. Posso adiá-la ou revertê-la em certas circunstâncias, dentro de um intervalo de tempo adequado. Não posso impedir que a vida termine. Até minha própria memória tem limites. Às vezes preciso esquecer certas coisas para não sobrecarregar a mente.
 
-— Continua sendo do caralho. Podia me ajudar a matar o Jelles.
+— Continua sendo do caralho. Imagina o que você podia fazer com as células do Jelles.
 
 — Não, querido. Não tiro vidas, a menos que seja absolutamente necessário.
 
