@@ -160,7 +160,7 @@ Seguimos as indicações até passar diante de uma cúpula de vidro gigantesca, 
 
 O’reilly apontou pras saídas da cúpula. Buni olhou pra nave e depois pro chão.
 
-— Kord. Lembra-se do homem que acabamos de ver cair morto? — Hardman apontou os avisos holográficos acima de cada nave. — O mesmo sistema protege estas embarcações.
+— Jasmey. Lembra-se do homem que acabamos de ver cair morto? — Hardman apontou os avisos holográficos acima de cada nave. — O mesmo sistema protege estas embarcações.
 
 Kord encolheu os ombros, desviando o olhar da nave, e deu um suspiro.
 
