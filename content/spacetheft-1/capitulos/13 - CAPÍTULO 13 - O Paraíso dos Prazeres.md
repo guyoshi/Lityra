@@ -386,15 +386,15 @@ Entrei num corredor de pedra, gelado. Hardman tava alguns passos à frente. No f
 
 — É um templo dedicado aos luzitanos.
 
-— Luzitanos? — indaguei.
+— Luzitanos? Isso aí na parede é um deles?
 
-— Meu pai era religioso. Eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes. Ensinaram os demais povos e os espalharam pelas estrelas. Segundo nossa tradição, todos viemos de um mesmo lugar. Havia um vazio, a Besta, que quase engoliu tudo antes que eles conseguissem detê-la.
+— Aquilo representa a Besta. Meu pai era religioso. Eu também, até certo ponto. Acreditamos que os luzitanos foram os primeiros seres inteligentes. Ensinaram os demais povos e os espalharam pelas estrelas. Segundo nossa tradição, todos viemos de um mesmo lugar. Havia um vazio, a Besta, que quase engoliu tudo antes que eles conseguissem detê-la.
 
 Hardman passou a mão perto do desenho, sem tocar na parede.
 
 — O Livro da Verdade diz que a luz e a Besta se encontrarão novamente. Só uma prevalecerá. Não diz qual. Se perdermos, acaba a galáxia inteira.
 
-— A gente pega uma nave e vai pra outra galáxia.
+— Se a galáxia inteira tiver em perigo, a gente pega uma nave e vai pra outra.
 
 — Não é possível vencer a energia escura, Jasmey. Se a galáxia morrer, morremos com ela.
 
@@ -408,9 +408,9 @@ Hardman passou a mão perto do desenho, sem tocar na parede.
 
 — Então ainda quer encontrar os luzitanos?
 
-— Não me perguntou o que eu faria se meu nome tivesse saído no sorteio da nave.
+— Lembra do sorteio na nave? Se tivessem tirado meu nome, era por eles que eu iria procurar.
 
-— Iria atrás deles? Dos criadores?
+— E tem alguma ideia de onde esses sujeitos tão?
 
 Hardman assentiu e então se virou para as pessoas adorando a pequena luz no altar.
 
@@ -418,7 +418,7 @@ Hardman assentiu e então se virou para as pessoas adorando a pequena luz no alt
 
 — E se o livro tiver falando de outra coisa? Tipo, a luz é a parte boa da pessoa e as trevas são as merdas que ela faz. Essas histórias religiosas não costumam ser cheias de metáforas?
 
-— Os luzitanos existem, Jasmey. E, se eu fosse procurá-los, saberia por onde começar.
+— O fato de o livro conter metáforas não significa que os luzitanos não existam, Jasmey. E tenho algumas pistas de onde procurar.
 
 Ele ficou mais um instante olhando a luz do altar e voltou pro corredor. Não entendia como um sujeito que sabia explicar o funcionamento de uma nave em tantos detalhes conseguia acreditar naquelas histórias. Olhei outra vez pra figura escura na parede. Lembrei da Engenheira e daquilo que me dissera sobre a antivida nas escalas menores. Preferi guardar a pergunta pra depois.
 
