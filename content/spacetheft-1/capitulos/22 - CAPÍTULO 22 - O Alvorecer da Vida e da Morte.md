@@ -46,7 +46,7 @@ Olhei de novo pra ferida.
 
 — Hardman te deu oxigênio e estancou o sangue quando te trouxeram. Aí ela pôs as mãos sobre o corte. Fechou devagar, Jasmey. Eu vi.
 
-Vivian assentiu. Lembrei do animal no laboratório da Engenheira.
+Vivian assentiu. Lembrei da pele do úrgalo se fechando sob a mão da Engenheira. Olhei pras mãos da Vivian. Tava diante da mesma coisa outra vez.
 
 Ela tentou levantar da cadeira e teve de se apoiar na parede. Hardman a segurou pelo braço e mandou que voltasse a sentar.
 
@@ -58,7 +58,9 @@ Fiz o sinal de agradecimento que ela tinha me ensinado em Geores. Vivian sorriu 
 
 Hardman olhou pra nós dois e voltou ao painel.
 
-— E o buraco negro? — perguntei.
+Um alerta piscou no painel junto à cama. Lembrei da escuridão que tinha visto pelo capacete antes de apagar.
+
+— E o buraco negro?
 
 — Estamos nos afastando. Amanda conseguiu alinhar a Prosépina com a Princesa, e acoplamos as naves depois que Kord o recolheu. O motor da Princesa estava intacto. Acopladas, ela conseguiu auxiliar o motor avariado da Prosépina, que não tinha impulso suficiente para corrigir a rota sozinho. Aproveitamos a trajetória de saída e nos afastamos da região crítica. Por pouco. Não cruzamos o horizonte de eventos.
 
@@ -138,11 +140,13 @@ Quando cheguei ao comando, Amanda tava examinando uma imagem ampliada da Lebarga
 
 Olhei pra imagem da nave.
 
-— Jasmey. Toma a Lebargan.
+— Tem gente nossa lá dentro, Jasmey. Gente que arriscou a vida pra gente sair. O que vai acontecer com eles agora?
 
-Virei a cabeça.
+Virei a cabeça. Não tinha pensado nisso.
 
-— O Sr. Peron acreditava em você. Tem gente lá dentro que também acredita. Alguém precisa quebrar as correntes dos Dales.
+— O Jelles morreu. Podem escolher outro capitão.
+
+— E se escolherem outro igual a ele? — Amanda apontou pra nave. — Toma a Lebargan, Jasmey. O Sr. Peron acreditava em você. Tem gente lá dentro que também acredita. Alguém precisa quebrar as correntes dos Dales.
 
 Correntes. A palavra me trouxe de volta aquela mensagem em uns e zeros. DESACORRENTAR. Tinha recebido aquilo pouco depois de receber o presente do velho. Passei a mão pelo bolso.
 
@@ -222,7 +226,7 @@ Genrir se aproximou.
 
 Buni olhou pro chão. Vivian tocou o braço dele.
 
-— E a Madame? — perguntei.
+— Buni, e a Madame? Você não precisa desistir de ir atrás dela por nossa causa.
 
 — Ainda vou encontrar ela. Mas não quero abandonar vocês.
 
