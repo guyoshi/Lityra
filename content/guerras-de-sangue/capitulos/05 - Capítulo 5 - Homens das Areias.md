@@ -118,9 +118,21 @@ Alyra levantou-se e a cadeira raspou o chão.
 
 — Então respondemos.
 
-Daryon inclinou a cabeça como quem aceitava uma evidência.
+Daryon não se moveu.
 
-— Sim.
+— Os sete dias que Veyr deu aos Fendelar ainda não terminaram.
+
+— Sete dias para aceitar a oferta — disse Alyra. — Não para fazer um emissário desaparecer.
+
+— Não sabemos se foram eles.
+
+Alyra olhou para a porta por onde Veyr deveria ter entrado.
+
+— Enquanto esperamos, os outros clãs aprendem que podem fazer um Polar sumir e ainda receber tempo para pensar. Não vou lhes ensinar isso.
+
+Daryon inclinou a cabeça, deixando a decisão com ela.
+
+— Então respondemos.
 
 — Submetemos os Fendelar.
 

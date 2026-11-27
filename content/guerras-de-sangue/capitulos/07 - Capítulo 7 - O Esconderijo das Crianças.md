@@ -56,9 +56,9 @@ A entrada real da aldeia era uma subida escondida atrás de três troncos mortos
 
 Rendar subiu. Velarim não existia mais como aldeia.
 
-Velarim ainda tinha árvores, plataformas e casas suspensas, mas as defesas haviam sido abertas por dentro de sua lógica. Pontes falsas foram neutralizadas, armadilhas disparadas contra caminhos Fendelar, cordas de fuga cortadas e depósitos queimados para empurrar moradores a passagens específicas.
+Velarim ainda tinha árvores, plataformas e casas suspensas, mas as defesas haviam sido abertas por dentro de sua lógica. Havia pontes falsas rompidas sob peso de invasores, sangue junto a uma armadilha disparada e rastros que revelavam como outros homens tinham contornado o perigo depois de ver os primeiros cair. Cordas de fuga tinham sido cortadas e depósitos queimados para empurrar moradores a passagens onde os atacantes esperavam.
 
-Não fora caos. Os invasores tinham treinamento e informação suficiente para usar a própria aldeia contra seus moradores.
+Não fora caos. Os invasores tinham avançado com método, pagando com homens e aprendendo pelas rotas que as famílias usavam para fugir. Não precisavam conhecer todos os segredos de Mirval antes de entrar. Bastara descobrir uns poucos e impedir que as saídas restantes continuassem livres.
 
 Rendar atravessou a primeira plataforma com a faca na mão. Joren pendia entre duas cordas, o peito aberto por uma lança que não era Fendelar. Maira jazia junto à casa, os dedos ainda presos a uma pedra de fogo. No chão mais baixo havia dois invasores mortos, um atravessado por uma estaca Fendelar, o outro caído da ponte falsa, com o pescoço torcido. Não tinham a cabeça raspada nem a pintura Tondrar. Usavam couro seco ajustado para a mata, sem marca evidente de clã.
 

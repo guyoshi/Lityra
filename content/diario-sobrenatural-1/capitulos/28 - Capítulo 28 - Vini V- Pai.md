@@ -374,15 +374,15 @@ As lembranças voltaram, mais nítidas que nunca.
 
 Ela assentiu, como se confirmasse uma teoria.
 
-— Então é isso. A “força” de que a D. Maria Marques falou não nos afeta porque somos muito jovens. Só pega depois de certa idade.
+— Então é isso. A “força” de que a D. Maria Marques falou confunde mais fácil quem é mais velho. Me disseram que não é uma regra, mas parece que é mais difícil confundir os mais jovens.
 
 — Quer dizer que vocês não esquecem as coisas porque são novos?
 
-— A mente jovem é mais forte, menos suscetível à loucura. Vini, você tá na transição pra fase adulta. Por isso começou a ser afetado.
+— Mais ou menos. A mente jovem resiste melhor. Vini, você tá na transição pra fase adulta. Por isso começou a ser afetado.
 
 — Entendi. — Lembrei de outra coisa. — Mas isso se contradiz com uma parada. No dia em que fui pra casa, o Pepeu, primo do Mandioca, disse que eu tinha matado o Pézinho. O Caneca, que também tava lá, disse que não. Só que o Caneca já é maior de idade, e o Pepeu não.
 
-— Não sei explicar tudo — admitiu. — Mas, até agora, é a única teoria que faz sentido. E isso precisa acabar.
+— Não sei explicar tudo — admitiu. — Me disseram que idade não é regra. Mas, até agora, é a teoria que mais faz sentido. E isso precisa acabar.
 
 — Acabar como? Jennifer, meu pai morreu. Não tenho pra onde ir. Não tenho mais nada.
 
@@ -404,4 +404,4 @@ Ela puxou a mochila pra frente, abriu e fuçou lá dentro. Quando tirou a mão, 
 
 — Que droga é essa? — fiz uma careta.
 
-— A nossa primeira investida contra esses demônios desgraçados. Quer ir comigo até uma casa lá na colina fazer algumas perguntas?
+— Uma pista. Estava nas coisas da minha mãe, e alguém deixou lá de propósito. Quer ir comigo até uma casa lá na colina fazer algumas perguntas?

@@ -526,7 +526,7 @@ Kadrir sustentou seu olhar.
 
 Não perguntou quando ele decidira.
 
-— Alyra Polar perde, a partir deste momento, o título de soberana, o direito de dar ordens em nome de Kaendar, terras ligadas à Dinastia, proteção permanente dos guardas Polar e qualquer direito de retorno sem autorização da Mesa ou da soberania vigente — declarou Kaelina. — Será exilada com a criança por nascer assim que os curandeiros permitirem a viagem. A Ramagem lhe será lavada antes que deixe a fortaleza.
+— Alyra Polar perde, a partir deste momento, o título de soberana, o direito de dar ordens em nome de Kaendar, terras ligadas à Dinastia, proteção permanente dos guardas Polar e qualquer direito de retorno sem autorização da Mesa ou da soberania vigente — declarou Kaelina. — Será exilada com a criança por nascer depois que os curandeiros prepararem os curativos e a carroça de viagem. Não vou esperar que as feridas desapareçam. A Ramagem lhe será lavada antes que deixe a fortaleza.
 
 Seron apertou os lábios.
 
@@ -774,7 +774,9 @@ Alyra ficou em silêncio. Kaelina abriu a porta.
 
 — Saia.
 
-Kaelina saiu. Alyra deixou Kaendar três dias depois. Os curandeiros protestaram. A viagem abriria feridas, aumentaria o risco de febre e poderia comprometer a criança. Kaelina concedeu mais mantas, remédios, água, comida e uma carroça preparada para diminuir o impacto das pedras. Não concedeu mais tempo. A cidade foi avisada ao amanhecer.
+Kaelina saiu. Alyra deixou Kaendar três dias depois. Na ala de cura, guardas se revezavam para impedir a entrada de quem exigia que a sentença votada fosse cumprida. Cada dia que a irmã permanecesse ali aumentaria a quantidade de homens armados necessária para protegê-la da própria cidade.
+
+Os curandeiros protestaram. A viagem abriria feridas, aumentaria o risco de febre e poderia comprometer a criança. Kaelina concedeu mais mantas, remédios, água, comida e uma carroça preparada para diminuir o impacto das pedras. Exigiu que o escudeiro designado aprendesse a trocar as faixas e reconhecesse os sinais de febre. Ainda assim, nenhum curandeiro afirmou que a estrada seria segura. Kaelina não concedeu mais tempo. A cidade foi avisada ao amanhecer.
 
 Ninguém recebeu permissão para lançar pedras, tocar em Alyra ou atravessar a linha dos guardas. Varron colocou arqueiros nas passagens altas. Odran fechou ruas laterais para impedir tumulto. Iressa enviou duas caixas de alimentos que durariam até a primeira fronteira habitada. Brokan não enviou arma alguma. Cal Kadrir conduziu a escolta.
 
@@ -798,7 +800,7 @@ Quando chegou ao portão, ninguém a chamou. Kaelina observava de uma passagem a
 
 O portão abriu, e a carroça atravessou.
 
-Cal Kadrir e os guardas acompanharam-na até a fronteira das terras Polar. Voltariam depois. Alyra seguiria com um escudeiro, as provisões e a criança que ainda crescia dentro dela.
+Cal Kadrir e os guardas acompanharam-na até a fronteira das terras Polar. Voltariam depois. Alyra seguiria com um escudeiro, os curativos, as provisões e a criança que ainda crescia dentro dela. O rapaz conhecia postos de descanso e caminhos menos duros para a carroça. Não sabia, porém, que acolhida encontrariam fora das terras Polar. O exílio continuava sendo uma pena, não uma viagem protegida até um novo lar.
 
 Quando as folhas do portão começaram a fechar, Kaelina sentiu algo dentro do peito pedir que gritasse o nome da irmã.
 

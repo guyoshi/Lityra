@@ -10,7 +10,7 @@ O teto continuava de pé por causa de Maletar, embora não tivesse ficado de pé
 
 — Aqui não é Etérea.
 
-Mariv refez o nó. No segundo Sopro do Silêncio, uma das laterais afundara. Na terceira, a água finalmente escorreu para fora em vez de cair sobre eles.
+Mariv refez o nó. No segundo Sopro do Silêncio, uma das laterais afundara. No terceiro, a água finalmente escorreu para fora em vez de cair sobre eles.
 
 Naquela manhã, Maletar estava de pé diante deles, braços cruzados. Todos estavam acordados, esperando. Gabasteri, recostado contra uma das estacas do abrigo, tinha um meio sorriso no rosto.
 
@@ -26,9 +26,9 @@ Gabasteri descruzou os braços, erguendo uma sobrancelha.
 
 Maletar se aproximou da fogueira e estendeu as mãos sobre o calor fraco.
 
-— Vamos começar pelo que mata mais rápido — disse Maletar. — Abrigo, água, comida, fogo e vigia. O resto descobrimos quando falhar.
+— Vamos começar pelo que mata mais rápido. Abrigo, água, comida, fogo e vigia. O resto a gente resolve quando der problema.
 
-Maletar interrompeu a própria fala e se abaixou, pegando um cantil de couro escuro que estava pendurado em um tronco de apoio, perto das brasas. Remendado com couro grosso e raiz trançada, feito por ele mesmo. Bebeu um gole longo, olhando a chama.
+Maletar se abaixou para pegar um cantil de couro escuro que estava pendurado em um tronco de apoio, perto das brasas. Remendado com couro grosso e raiz trançada, feito por ele mesmo. Bebeu um gole longo, olhando a chama.
 
 Depois continuou:
 
@@ -40,11 +40,11 @@ Gabasteri pigarreou, recostando-se de novo contra o poste do abrigo, um sorriso 
 
 Maletar não se virou para ele. Apenas passou os olhos pelo grupo e concluiu:
 
-— Não quero impor nada a ninguém. Cada um escolhe no que tem mais jeito. E todos terão um segundo para apoiar quando o primeiro falhar.
+— Ninguém vai fazer tudo sozinho. Cada um escolhe o que sabe fazer melhor. E vai ter alguém pra ajudar se precisar.
 
 Ninguém falou. Então Jokara ergueu o queixo.
 
-— Eu posso pescar — disse, depressa demais. — E, como já estarei no rio, posso coletar água.
+— Eu posso pescar — disse, depressa demais. — E já aproveito pra buscar água.
 
 Maletar assentiu.
 
@@ -62,13 +62,13 @@ Mas Mariv se adiantou.
 
 Nestira falou depressa:
 
-— E eu cuidarei da comida. E do armazenamento. E do fogo. Caso precisemos de lenha, posso ir buscar.
+— E eu cuido da comida. E do armazenamento. E do fogo. Caso precisemos de lenha, posso ir buscar.
 
 — E eu a ajudo — disse Platisa.
 
 Maletar não insistiu, apenas moveu os olhos para Mariv.
 
-— Então será você o segundo na pesca. — E seguiu em frente.
+— Mariv, você pode ajudar com a água e a pesca. — Jokara não gostou, mas dessa vez ficou calada.
 
 Ele então olhou para os demais.
 
@@ -84,21 +84,21 @@ O menino examinou a lança e fez que sim com a cabeça.
 
 — Bom.
 
-Foi então que Gabasteri, recostado contra uma das estacas do abrigo, pigarreou.
+Gabasteri, ainda recostado na estaca, pigarreou.
 
-— Não acha arriscado mandar Jokara pescar? — disse, manso. — Não me entenda mal, mas… ela não tem o mesmo apoio para se mover na margem. Talvez alguém mais… adequado.
+— Não acha arriscado mandar Jokara pescar? — disse, manso. — Não me entenda mal, mas ela tem dificuldade pra se apoiar na margem. Talvez fosse melhor outra pessoa.
 
 Jokara ia responder, mas Mariv falou antes:
 
-— Jokara quer pescar. Deixe-a pescar. Se ela vai conseguir ou não, é responsabilidade dela.
+— Jokara quer pescar. Deixa ela pescar. Se ela vai conseguir ou não, é responsabilidade dela.
 
 Jokara olhou para Mariv, surpresa, e assentiu. Ninguém mais respondeu e Gabasteri soltou um riso seco.
 
-— Ótimo, se não teremos critérios, poderemos colocar Platisa na caça.
+— Ótimo. Então por que não mandamos Platisa caçar?
 
-Platisa empalideceu, apertando o zélon contra o peito e Nestira deu um passo à frente, cortando a sugestão.
+Platisa empalideceu e apertou o zélon contra o peito. Nestira deu um passo à frente.
 
-— Platisa não come carne. E não tem coração para matar um animal. Mas sabe lidar com plantas, com frutos. É cuidadosa. E pode nos ajudar com ervas, quando alguém se ferir.
+— Você sabe que Platisa não come carne. Não vai matar um bicho. Mas conhece as plantas, sabe quais frutos a gente pode comer e pode cuidar dos ferimentos.
 
 Platisa olhou para Nestira com os olhos úmidos.
 
@@ -106,11 +106,11 @@ Platisa olhou para Nestira com os olhos úmidos.
 
 Maletar assentiu.
 
-— Está decidido. Platisa cuidará da coleta de frutos e da saúde de todos. Ela já mostrou que entende bem de ervas e plantas.
+— Certo. Platisa ajuda a recolher frutos e cuida dos feridos. Já mostrou que entende de plantas.
 
 Gabasteri deu um riso abafado, mas calou-se quando Maletar se voltou para ele.
 
-— E você, Gabasteri? O que acha de caçar e patrulhar comigo? Como você deixou transparecer, é necessário alguém forte pra cuidar das tarefas mais pesadas.
+— E você, Gabasteri? Quer caçar e patrulhar comigo? Você mesmo disse que precisamos de gente forte.
 
 Gabasteri ergueu o queixo, mas não respondeu. Maletar continuou.
 
@@ -155,7 +155,7 @@ Ele se afastou sem acrescentar nada.
 
 Platisa ensinou a reconhecer os frutos de casca leitosa que queimavam a língua, as raízes capazes de sustentar uma pessoa por um sopro inteiro e as folhas que aliviavam a febre ou, queimadas, afastavam insetos. Raramente falava de tudo o que sabia.
 
-— NÃO TOQUE NESSA! — gritou Platisa certa vez, quando Jokara se abaixava diante de uma flor azulada, coberta de pelos prateados finos. O grito atravessou a clareira, onde os demais cuidavam de suas tarefas. Platisa avançou com a mão erguida:
+— Não toca nessa! — gritou Platisa certa vez, quando Jokara se abaixava diante de uma flor azulada, coberta de pelos prateados finos. O grito atravessou a clareira, onde os demais cuidavam de suas tarefas. Platisa avançou com a mão erguida:
 
 — É um Beijo-da-Noite. Os pelos soltam um pó que irrita pele, olhos e garganta. Se respirar muito, pode ficar sem forças ou pior. E não coloquem isso na boca. Ingerido é muito mais perigoso.
 
@@ -174,7 +174,7 @@ Naquela manhã, Jokara acordara mais cedo do que os outros. Os cortes do rosto j
 
 Seguiu por uma trilha estreita, aberta por eles em sopros anteriores, que serpenteava entre raízes e moitas baixas. O caminho até o rio era simples, mas ela preferiu dar uma volta mais larga, passando por uma clareira onde a luz se filtrava em fios esbranquiçados. Voltaria antes do Sopro Pleno. Só queria ficar um pouco sozinha.
 
-Alguma coisa se mexeu atrás de uma árvore. Achou que fosse bicho. Era Nestira, encostada no tronco, e Mariv junto dela, as mãos na cintura dela, beijando-a. Sem pressa nenhuma, como quem já tinha feito aquilo muitas vezes.
+Alguma coisa se mexeu atrás de uma árvore. Achou que fosse bicho. Era Nestira, encostada no tronco, e Mariv junto dela, as mãos na cintura da garota, beijando-a. Sem pressa nenhuma, como quem já tinha feito aquilo muitas vezes.
 
 Jokara recuou um passo. Ficou olhando mais tempo do que devia.
 
@@ -196,7 +196,7 @@ O rio corria rápido. Jokara enfiou a lança na água algumas vezes, sem acertar
 
 Mariv se instalou a alguns passos dela, atando o nó da linha com mãos pacientes.
 
-— A água está mais alta do que pensei — disse, olhando para a corrente. — Sabe… eu tava pensando em fazer uma rede… talvez nos poupe mais tempo, sabe…
+— A água subiu bastante — disse, olhando para a corrente. — Tava pensando em fazer uma rede. Talvez dê menos trabalho que a lança.
 
 Jokara não ergueu o rosto.
 
@@ -206,13 +206,13 @@ Mariv tentou de novo:
 
 — Não.
 
-— Mas ouvi falar que você pesca bem… — disse. Jokara, no entanto, o cortou de imediato.
+— A Nestira disse que você pesca bem…
 
-— Cale a boca e pesca, droga! Só… pesca…
+— Cala a boca e pesca, droga! Só… pesca…
 
 Ele baixou a cabeça.
 
-— Desculpa. Não quis — começou. — É melhor só pescarmos, então.
+— Tá bom. Desculpa.
 
 Jokara aguentou três lançadas. Na quarta, não aguentou mais.
 
@@ -220,7 +220,7 @@ Jokara aguentou três lançadas. Na quarta, não aguentou mais.
 
 Mariv a olhou, confuso.
 
-— De quem vo…
+— De quem?
 
 — Nestira — cortou Jokara.
 
@@ -230,15 +230,15 @@ Mariv abriu a boca, mas ela continuou:
 
 Mariv ficou vermelho.
 
-— Olha, eu não tô aqui pra controlar o que você e minha irmã façam. Se vocês se beijam, se… fazem outras coisas. Não é da minha conta. Mas saiba de uma coisa: se um sopro você fizer mal a ela… eu te mato.
+— Olha, não me interessa se vocês se beijam ou… fazem outras coisas. Mas se um sopro desses você fizer mal a ela, Mariv… eu te mato.
 
 Mariv não recuou. Ficou um instante olhando para ela. Então suspirou.
 
-— Desde o sopro em que te vi no riacho, quando reencontrou Nestira — começou ele — você me ataca. Acho que tem medo de que eu roube alguma coisa sua. — Deu um meio sorriso. — E eu entendo.
+— Desde aquele sopro no riacho você fica de cara fechada comigo. — Deu um meio sorriso. — Parece até que acha que eu vou tirar a Nestira de você.
 
 Jokara abriu a boca, mas ele continuou.
 
-— Sabia que eu já conhecia muita coisa sobre você antes mesmo de te ver no riacho? — disse, em tom calmo. — Nestira sempre falava de você. Falava muito de você. Dizia que você tentou avisar todo mundo, que era teimosa, que brigava com os Oradores. — Ele parou, pensou se devia continuar. — Ela nunca teve coragem de te falar, Jokara… mas ela sente culpa… pelo que houve com sua perna. Ela acredita, no fundo, que se tivesse escutado mais, se tivesse percebido o seu lado… talvez isso não tivesse acontecido.
+— A Nestira falava de você o tempo inteiro antes de a gente se encontrar. Que você era teimosa, que brigava com os Oradores, que tentou avisar todo mundo. — Ele hesitou. — Ela se culpa pelo que aconteceu com a sua perna. Acha que, se tivesse te ouvido de verdade, talvez pudesse ter evitado aquilo.
 
 Jokara sentiu a garganta apertar.
 
@@ -322,6 +322,6 @@ Mariv não respondeu de imediato.
 
 Jokara assentiu.
 
-Remexeram as lanças e voltaram à pesca, lado a lado.
+Mariv tornou a pegar a linha, e Jokara ergueu a lança. Voltaram à pesca, lado a lado.
 
 

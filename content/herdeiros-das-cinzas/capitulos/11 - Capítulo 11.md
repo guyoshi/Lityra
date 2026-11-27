@@ -4,7 +4,7 @@ Na manhã seguinte, Olhara arrancou a estaca com as duas mãos e quase caiu sent
 
 — Você puxou com força — disse Sefter.
 
-— A terra está mole. A madeira devia ter entrado mais fundo. Quem fez isso estava com pressa.
+— Essa terra tá mole. Deviam ter enterrado mais fundo. Quem fez isso tava com pressa.
 
 A tira amarela continuava amarrada à estaca, embora a tinta já tivesse manchado os dedos da velha. Etrinna se agachou ao lado de um dos pinhos, onde a corda deixara uma marca clara no musgo. Mais abaixo, o riacho corria entre pedras escuras. Do outro lado, a fumaça das oficinas ainda não tinha subido.
 
@@ -12,13 +12,13 @@ A tira amarela continuava amarrada à estaca, embora a tinta já tivesse manchad
 
 Sefter olhou para a irmã. Ela vestira a capa mais grossa e prendera o cabelo para trás, mas uma ponta da mecha branca escapava perto da orelha. Estava apoiada numa árvore, esperando que alguém lhe pedisse outra informação. A vontade dela de ajudar lhe parecia ótima enquanto o assunto era carregar água ou separar ferramentas. Quando havia homens estranhos marcando terreno, ele preferia que ela estivesse sentada perto do fogo.
 
-— Já explicou. Pode voltar.
+— Já mostrou onde estavam. Agora pode voltar pra casa.
 
-— Não expliquei a parte da linha que passa atrás das tendas.
+— Ainda não mostrei onde a linha passa atrás das tendas.
 
-— Eu vou olhar.
+— Eu vou lá ver.
 
-— De baixo não dá pra ver direito. As árvores ficam na frente.
+— De baixo não dá pra ver. As árvores ficam na frente.
 
 Etrinna se levantou, ainda examinando a terra.
 
@@ -26,7 +26,7 @@ Etrinna se levantou, ainda examinando a terra.
 
 Sefter soltou o ar pelo nariz.
 
-— Ela tem razão em muita coisa. Não precisa vir com a gente por causa disso.
+— Não precisa levar ela lá só porque conhece o caminho.
 
 — A gente não vai a lugar nenhum ainda — disse a líder. — Primeiro precisamos saber quem mandou fincar essas marcas.
 
@@ -36,13 +36,13 @@ Olhara virou a estaca. Na base havia três cortes paralelos e um pequeno quadrad
 
 — Pra fazer o quê? — perguntou Litara.
 
-— Pra dizer que um pedaço de chão virou outro pedaço de chão — respondeu Olhara.
+— Pra medir terra de oficina. Às vezes fincam as estacas de um lado e dizem que o outro também entrou na conta.
 
 Litara olhou para a árvore que tinha à frente.
 
-— Parece o mesmo chão pra mim.
+— Mas do outro lado ficam as tendas.
 
-— Pra mim também. É por isso que eu não gosto.
+— Pois é, menina. Por isso não gostei.
 
 Etrinna recolheu a tira amarela e dobrou-a duas vezes.
 
@@ -50,11 +50,11 @@ Etrinna recolheu a tira amarela e dobrou-a duas vezes.
 
 — Tenho.
 
-— Ótimo. Na oficina, pergunta de quem é essa marca. Se forem os homens que pagaram pela madeira do canal, quero ver o registro antes que venham cortar qualquer árvore.
+— Leva a marca na oficina e pergunta quem mandou medir. Se foi a gente do canal, o registro deve estar em Varkhama. Quero saber antes que comecem a derrubar árvore.
 
 — A gente pode perguntar aqui — disse Litara. — Eles vão voltar.
 
-— Podem voltar com mais dez homens e nenhuma vontade de conversar — respondeu Etrinna. — Prefiro ter um papel na mão.
+— E se voltarem com mais dez homens e não quiserem conversar? Prefiro que a gente chegue com o papel na mão.
 
 Olhara recolocou a estaca no buraco sem enterrá-la até o fim. Etrinna indicou que a deixasse daquele jeito, para que ninguém dissesse que as marcas tinham sido destruídas.
 
@@ -64,9 +64,9 @@ Sefter começou a entender por que Etrinna o olhava de lado.
 
 — Eu vou até Varkhama.
 
-— Eu sei — disse ela.
+— E leva o recibo. Sem ele não passa da barreira.
 
-— Sozinho.
+— Vou sozinho.
 
 Litara endireitou o corpo.
 
@@ -74,9 +74,9 @@ Litara endireitou o corpo.
 
 — Não.
 
-— Nem deixei você terminar de falar.
+— Nem falei o que ia fazer!
 
-— Você já terminou de pedir.
+— Eu sei. Você quer ir.
 
 Etrinna tomou o recibo da mão dele e o virou para conferir a marca da oficina.
 
@@ -84,11 +84,11 @@ Etrinna tomou o recibo da mão dele e o virou para conferir a marca da oficina.
 
 — Eu também conheço.
 
-— Você trabalha na estrada há dez ciclos e ainda chama o pinho partido de pinho torto. Ela sabe onde a água corre por baixo da raiz, onde sai depois da chuva e qual trilha chega ao alto. Não é a mesma coisa.
+— Você passa pela estrada todo dia, Sefter. Ela brinca naquela encosta desde pequena. Sabe onde a água passa depois da chuva e de onde dá pra ver as marcas.
 
 Litara ergueu a cabeça com a satisfação de quem tinha acabado de ganhar uma disputa sem sequer precisar correr.
 
-— E já tenho doze ciclos — acrescentou. — A Aldra diz que em Varkhama até os aprendizes começam nessa idade.
+— E já tenho doze ciclos. A Aldra diz que até aprendiz de oficina começa com essa idade.
 
 — A Aldra diz muita coisa.
 
@@ -100,11 +100,11 @@ Sefter olhou para a linha amarela entre as árvores. Se aquelas marcas realmente
 
 — Combinado — respondeu Etrinna.
 
-— Não sai perto de carroça.
+— Não chega perto de roda de carroça.
 
-— Combinado — repetiu Litara.
+— Tá bom.
 
-— Não entra em túnel, não conversa com guarda sozinha e não pega nada de ninguém.
+— Não entra em túnel, não fala com guarda sozinha e não pega nada de ninguém.
 
 Litara inclinou a cabeça.
 
@@ -114,11 +114,11 @@ Olhara soltou uma risada, curta e seca.
 
 — Respira pouco, menina. O ar da cidade vem caro.
 
-Etrinna devolveu a estaca à terra. Sefter sabia que a conversa terminara, porque a líder já se afastava para chamar duas pessoas que precisariam ficar de olho na linha durante a ausência deles.
+Etrinna chamou duas pessoas para vigiar a linha enquanto eles estivessem fora e encarregou outro trabalhador de terminar a roda com o ferro da véspera.
 
 Na cozinha, Nefestra preparava uma sacola com pão de grão-alto, carne seca e um odre pequeno. Hadrel estava ao lado do fogo, separando ervas em panos dobrados. Tinha passado a manhã ajudando uma mulher idosa a limpar a pele ferida pelo calor do caldeirão e ainda trazia uma mancha de água no ombro. Quando viu Litara com a capa de viagem, levantou os olhos.
 
-— Vai fugir de casa?
+— Vai fugir de casa com essa sacola?
 
 — Vou ver Varkhama.
 
@@ -126,35 +126,35 @@ Na cozinha, Nefestra preparava uma sacola com pão de grão-alto, carne seca e u
 
 — O Sefter acha que eu não sei andar em rua.
 
-— Ele já tentou andar sozinho numa rua cheia? — perguntou Hadrel.
+— E você sabe andar numa rua cheia?
 
-— Já — respondeu Sefter, entrando. — E voltou inteiro.
+— Sei — respondeu Litara, antes que Sefter entrasse. — O Sefter é que acha que não.
 
 Hadrel examinou a atadura da mão dele.
 
-— Não tão inteiro assim.
+— Olha a mão dele. Pelo menos já sabe o que não fazer.
 
 Nefestra segurou um sorriso enquanto fechava a sacola.
 
-— Ela não vai comer tudo no caminho — avisou. — E você não vai esquecer de dar água porque está ocupado discutindo com alguém.
+— Tem pão e água aí — disse Nefestra. — Não esquece de dar pra ela quando parar.
 
 — Eu não faço isso.
 
-— Na última viagem, você voltou com um odre cheio e a boca tão seca que mal conseguia falar.
+— Na última viagem voltou com o odre cheio e a boca tão seca que mal conseguia falar.
 
 — Era frio.
 
-— A água estava fria também.
+— E hoje tá frio também. Bebe mesmo assim.
 
 Hadrel aproximou a sacola para que Nefestra alcançasse o fecho e esperou sem tocar nela. Quando ela terminou, ele puxou a alça sobre o ombro de Litara, ajustando o couro para não raspar na gola.
 
-— Se encontrar alguém vendendo chá de casca clara, não compra o mais barato — disse. — Às vezes colocam o dobro de folha velha para parecer mais forte.
+— Se encontrar chá de casca clara, não compra o mais barato. Tem gente que mistura folha velha.
 
 — Você já caiu nessa? — perguntou Litara.
 
 — Eu já paguei caro para aprender a não cair.
 
-— Então pode me dar o dinheiro e eu aprendo mais depressa.
+— Me dá o dinheiro, então. Prometo não cair nessa.
 
 Hadrel riu e entregou-lhe uma pequena tira de tecido.
 
@@ -172,31 +172,31 @@ Litara prendeu a tira no cabelo e foi até uma panela que servia de espelho quan
 
 Sefter ficou observando Hadrel guardar as ervas na bolsa.
 
-— Você não vai com a gente?
+— Não vai precisar ir à cidade buscar mais folha?
 
-— Não. Olhara quer que eu veja as folhas que trouxeram do rio. Algumas estão estragadas.
+— Não hoje. A Olhara trouxe umas do rio. Vou ver quais ainda prestam.
 
-— E o que você faz se alguém da sua antiga Casa aparecer por lá?
+— E se algum dia encontrar alguém da sua antiga Casa por lá?
 
 Hadrel fechou a bolsa devagar.
 
-— Continuo cuidando das folhas.
+— Depende de quem encontrar.
 
 Nefestra lançou um olhar rápido para Sefter. Ele percebeu, mas já tinha feito a pergunta.
 
-— Minha Casa não está em Varkhama — acrescentou Hadrel, sem levantar a voz. — Pelo menos não a parte que ainda fala comigo.
+— A minha Casa não fica em Varkhama. Pelo menos não a parte que ainda fala comigo.
 
-— Ainda tem gente que fala?
+— Tem gente de lá que ainda fala com você?
 
-— Tem. Nem todo mundo me tirou da mesa no mesmo dia.
+— Tem. Nem todo mundo deixou de me chamar pra mesa.
 
-A resposta veio com um sorriso pequeno, mas Nefestra percebeu que o rapaz apertara a correia da bolsa duas vezes antes de soltá-la. Ela empurrou uma tigela de caldo em sua direção.
+Hadrel sorriu de leve e apertou a correia da bolsa. Nefestra empurrou uma tigela de caldo na direção dele.
 
-— Come primeiro. Depois você fica falando da sua mesa.
+— Come. Vai ficar a manhã inteira escolhendo folha sem ter comido.
 
-— Se for ordem sua, eu obedeço.
+— Tá bem.
 
-— É uma tigela, Hadrel. Não precisa fazer juramento.
+Ela aproximou a colher da tigela.
 
 Ele aceitou o caldo. Sefter não tinha vontade de continuar aquela conversa diante de Litara e Nefestra. Pegou o saco com o recibo, conferiu a faca curta na cintura e chamou a irmã.
 
@@ -206,35 +206,35 @@ Litara tentou contar quantas rodas via. Desistiu depois da sexta, porque algumas
 
 — Como sabem qual delas está quebrada? — perguntou.
 
-— Quando para de trabalhar — respondeu Sefter.
+— Quando para de bater — respondeu Sefter.
 
-— Isso eu sei. Quero saber antes.
+— Antes de parar, Sef! Como é que sabem?
 
 Ele olhou para os eixos, procurando uma resposta melhor.
 
-— O homem que cuida delas deve ouvir.
+— O homem que cuida delas deve conhecer o barulho.
 
 — Igual a Olhara?
 
-— Igual a alguém que passa o dia inteiro escutando roda.
+— É, deve ser igual.
 
 Litara abriu a boca para devolver uma provocação, mas ficou olhando para além do muro. A estrada saía do vale e subia uma encosta em vários níveis. Varkhama se espalhava por ela, com casas e oficinas sobrepostas, pontes passando entre telhados, torres de ventilação e plataformas sustentadas por pilares de pedra. Não havia uma linha única de muralha. Havia portões, muros acrescentados depois, passagens que terminavam em escadas e prédios que pareciam ter sido levantados por cima de outros. O metal das coberturas brilhava onde o sol tocava. Nos pátios de sombra, a fumaça se acumulava até encontrar as aberturas altas. Sobre a entrada de um edifício maior, o emblema Vendrar fora trabalhado em ferro escuro. Litara distinguiu primeiro a espada erguida acima da bigorna. Conforme a estrada se aproximava, percebeu também o martelo, a torquês e as correntes desenhadas nas laterais.
 
 Em um dos níveis superiores, uma corrente puxava enormes cestos de minério por cima de um vão. Em outro, uma fileira de caldeiras devolvia vapor por tubos inclinados para longe das janelas. A água que entrava limpa pelo canal saía por passagens separadas, uma usada para as rodas, outra para resfriar metal e outra para lavar os pátios. Algumas oficinas também recebiam água aquecida da própria encosta. Um homem abriu a tampa de um poço de pedra, deixou o vapor escapar e mergulhou uma peça presa por uma tenaz. Ao lado, uma mulher sacudiu os panos úmidos antes de estendê-los sobre um suporte morno, reclamando que os aprendizes ocupavam sempre o melhor lugar. Carroças ocupavam as vias mais largas. Pessoas passavam por pontes estreitas sem diminuir o passo, acostumadas ao ruído contínuo das oficinas.
 
-— Tudo isso é uma cidade? — perguntou Litara.
+— A cidade começa aqui ou lá na montanha?
 
-— É.
+— Já começou. Olha os telhados lá em cima.
 
-— E mora gente lá no alto também?
+— Tem gente morando até naquela altura?
 
-— Mora.
+— Tem. Muita gente trabalha lá também.
 
-— E lá dentro?
+— E naquele buraco?
 
-— Onde?
+— Que buraco?
 
-— Na parte que parece um buraco na montanha.
+— Ali na montanha, atrás da madeira.
 
 Sefter acompanhou o dedo dela. Uma abertura escura se abria na rocha acima das casas, com uma estrutura de madeira suspensa diante dela. Por um instante algo enorme se moveu no interior, uma asa recolhida ao longo de um corpo que a sombra não deixava ver por inteiro. Um homem no caminho ergueu os olhos, fez um gesto de afastamento com a mão e continuou andando.
 
@@ -246,7 +246,7 @@ Na primeira barreira havia duas filas, separadas por uma corda grossa. Uma levav
 
 Litara olhou para os dois homens e chegou mais perto do irmão. Sefter não precisava mandar que ela ficasse quieta. A cidade só tolerava gente como eles enquanto tivesse alguma utilidade para as oficinas.
 
-— Nome da Casa? — perguntou, quando Sefter chegou.
+— Nome da Casa? — perguntou o guarda quando chegou a vez de Sefter.
 
 — Não tenho Casa. Trabalho com transporte de carvão nas oficinas da descida.
 
@@ -276,7 +276,7 @@ Litara apertou a boca. Sefter passou a mão pela alça da sacola dela, sem puxá
 
 — Sem registro, paga entrada de acompanhamento. E fica nos caminhos de carga e de comércio baixo. Se ela passar para as ruas das Casas, eu recolho o disco e vocês dois ficam sob guarda até alguém decidir quem responde por vocês.
 
-Sefter contou as peças menores de metal que trazia. O pagamento que recuperaram pelos três barris viera em peças de ferro para a roda e os pinos. Das quatro peças pequenas recebidas antes, ele já gastara parte com as taxas da cidade. O guarda recebeu a quantia e colocou sobre a capa de Litara um pequeno disco de madeira com um número queimado. Fez uma marca correspondente na tábua, ao lado do recibo de Sefter, e só então liberou a passagem.
+Sefter contou as peças menores de metal que trazia. O restante do pagamento pelos barris viera em ferro para a roda, não em dinheiro. Tinha separado parte das quatro peças recebidas antes para as taxas da viagem. O guarda recebeu a quantia e prendeu à capa de Litara um disco de madeira com um número queimado. Fez uma marca ao lado do recibo de Sefter e liberou a passagem.
 
 — Não perde. Se sair sem devolver, fica devendo outro. E esse recibo só vale para hoje.
 
@@ -296,7 +296,7 @@ Uma mulher atrás deles baixou os olhos. O trabalhador com a criança finalmente
 
 Sefter olhou para trás. Um guarda já chamava a próxima pessoa.
 
-— Vamos andar.
+— Aqui, é melhor não perguntar isso em voz alta. Vamos.
 
 No mercado baixo, o barulho mudou. Ali não era apenas metal batendo em metal. Havia gente anunciando comida, água limpa, ferramentas, serviços de transporte, reparos e quartos para viajantes. Uma mulher vendia doce de flor em potes pequenos e discutia com um comprador que queria pagar depois. Um homem testava a dureza de facas diante de três aprendizes que fingiam não estar impressionados. Crianças carregavam cestos de barro e corriam por passagens laterais, desviando das rodas das carroças. Numa ponte, dois músicos tocavam instrumentos de corda enquanto um terceiro batia o pé para marcar o ritmo. Perto da escada, uma bica antiga estava fechada e outra, de cano recém-trocado, servia às barracas de comida. Uma vendedora reclamava de ter de dar a volta para buscar água. O rapaz que lavava tigelas respondeu que a bica velha esquentava demais os dedos, e ela mandou que parasse de reclamar e trouxesse logo o balde.
 
@@ -316,25 +316,25 @@ O rapaz se virou. Parecia ter passado a noite sem dormir. Havia uma marca roxa s
 
 — Não posso conversar — respondeu, olhando de relance para a oficina.
 
-— O que aconteceu?
+— Que papel é esse? O que fizeram com você?
 
 — Disseram que a diferença dos barris era minha.
 
 — Você contou certo.
 
-— Eu sei. Mas o encarregado disse que, se eu tivesse escrito a umidade, não teria faltado pagamento. Agora devo a oficina pela perda.
+— Se eu tivesse escrito que o carvão tava úmido, diz ele, não teria que pagar os barris. Agora botou a diferença na minha conta.
 
 Sefter olhou para o homem do papel. O sujeito observava a conversa, uma caneta presa atrás da orelha.
 
-— Isso não foi o que aconteceu — disse Sefter.
+— Mas você só escreveu o que entregaram.
 
 O rapaz deu um passo para trás.
 
 — Por favor, não piora.
 
-— Você pode pedir a Etrinna que vá lá explicar.
+— A Etrinna viu o registro. Posso falar com ela.
 
-— Já está escrito. Se eu sair, cobram de quem me pôs aqui.
+— Já tá escrito. Se eu sair, cobram de quem me pôs aqui.
 
 O homem da caneta aproximou-se.
 
@@ -344,7 +344,7 @@ O homem da caneta aproximou-se.
 
 — A conta diz que deve.
 
-— A conta foi feita por quem perdeu a discussão.
+— Quem fez a conta foi o homem que descontou nosso pagamento.
 
 O sujeito olhou para a placa de madeira na capa de Litara.
 
@@ -360,23 +360,23 @@ Litara acompanhou-o até a escada. Quando ficaram longe o bastante, perguntou:
 
 — Aquele rapaz ajudou vocês ontem?
 
-— Ajudou a oficina a contar direito.
+— Confirmou a conta dos barris. Foi por causa dele que pagaram o resto.
 
-— E agora está preso por ter contado?
+— E prenderam ele por isso?
 
 Sefter não respondeu de imediato.
 
-— Parece que sim.
+— Botaram a diferença na conta dele.
 
-— Isso é errado.
+— Mas ele nem fez nada errado!
 
-— É.
+— Eu sei, Li.
 
 — Você não vai fazer nada?
 
 Ele parou no meio da escada, deixando que uma mulher com dois cestos passasse por eles.
 
-— Vou fazer o que vim fazer. Depois vejo o resto.
+— Aqui não consigo tirar ele de lá. Se continuar discutindo, vão levar a gente também.
 
 Litara olhou para a porta da oficina, agora quase escondida pela multidão. Não gostou da resposta. Sefter percebeu, mas não encontrou outra que fosse verdadeira.
 
@@ -392,23 +392,19 @@ O escrivão ergueu os olhos para o recibo que Sefter lhe oferecia.
 
 — Sei. As estacas chegaram ontem perto da nossa casa. Quero saber de quem é a obra.
 
-— Casa? — repetiu o homem, olhando a roupa de Sefter. — Quem autorizou vocês a vir até esta mesa?
+— Casa? — repetiu o homem, olhando a roupa de Sefter. — De qual Casa?
 
-Sefter mostrou o disco numerado na capa de Litara e o recibo da oficina. O homem conferiu as marcas contra uma pequena tábua junto à janela. Só depois voltou ao desenho.
-
-— Onde a gente mora — respondeu Sefter.
-
-O escrivão pegou o recibo entre dois dedos.
+— Do lugar onde a gente mora — respondeu Sefter. Mostrou o disco numerado na capa de Litara e o recibo da oficina. O homem conferiu as marcas contra uma pequena tábua junto à janela.
 
 — Vocês moram em terreno de oficina?
 
 — Num bosque acima do riacho. Há tendas lá há muito tempo.
 
-— Há tendas em todo lugar onde ninguém trabalha o chão direito.
+— Tenda não é título de posse.
 
 Litara apoiou os cotovelos na mesa.
 
-— O chão está cheio de árvores. A gente não pode trabalhar em cima delas.
+— Tem um monte de gente morando ali. Não é só chão vazio.
 
 O escrivão não sorriu.
 
@@ -418,21 +414,21 @@ Sefter puxou-a suavemente pela capa.
 
 — Ela viu os homens medindo. Sabe onde puseram as estacas.
 
-— A menina viu. Ótimo. Quem vai assinar pela observação?
+— E quem assina pela observação da menina?
 
 — Eu.
 
 O homem voltou a olhar o recibo.
 
-— Isso só garante que você transportou carga. Sua mão não responde por terra. Precisa de oficina reconhecida, Família ou testemunha registrada.
+— Seu registro é de transporte. Não vale para contestação de terra. Precisa de oficina reconhecida, Família ou testemunha registrada.
 
 Sefter sentiu a palma ferida latejar dentro do pano.
 
 — A gente só quer olhar o desenho.
 
-— Consultar é uma taxa. Contestação é outra.
+— Consulta tem taxa. Contestação também.
 
-Ele mostrou as duas quantias numa tábua de preços. Sefter calculou que, se pagasse a primeira, sobraria pouco dinheiro para comida na volta. Se pagasse a segunda, não teria como voltar com o recibo e ainda devolver a placa de Litara. Tirou as peças menores da bolsa e as deixou sobre a mesa.
+Ele mostrou as duas quantias numa tábua de preços. Sefter calculou que, se pagasse a primeira, sobraria pouco para comida na volta. A segunda nem cabia no que trazia. Tirou as peças menores da bolsa e as deixou sobre a mesa.
 
 — A consulta.
 
@@ -448,13 +444,13 @@ Ela passou o dedo sobre o couro, parando antes de tocar a tinta.
 
 O aprendiz olhou para ela.
 
-— O mapa está certo.
+— É o desenho aprovado.
 
 — Ele passava aí quando a água vinha pelo canal velho. Agora passa do outro lado das raízes.
 
-— Quem disse?
+— Como você sabe que mudou?
 
-— Eu vi. Eu ando ali.
+— Porque a gente passa ali todo dia. Dá pra ver de cima da pedra.
 
 O rapaz olhou para o escrivão.
 
@@ -462,17 +458,17 @@ O rapaz olhou para o escrivão.
 
 O escrivão se aproximou com a impaciência de quem já tinha ouvido reclamações demais naquele dia.
 
-— O desenho foi aprovado.
+— O desenho já foi aprovado.
 
-— Mas a árvore está do lado errado — insistiu Litara. — Olha aqui. Tem um pinho partido antes da água. Depois vem a pedra grande. No desenho, a água passa antes da pedra. Se você usar essa linha, vai marcar tudo errado.
+— Mas o pinho partido tá do lado errado. Olha. Depois dele vem a pedra grande e depois a água. A água no desenho tá antes da pedra. Se marcarem assim, vão pegar as nossas tendas.
 
 Sefter olhou de novo. A linha amarela deixava a margem exatamente onde estavam as primeiras tendas. Com a curva corrigida, ela não alcançaria a clareira. O erro parecia pequeno no couro. No terreno, alcançava quase toda a área onde dormiam.
 
 — Se a gente trouxer alguém que conheça a margem, vocês mudam? — perguntou.
 
-— Se a pessoa tiver nome reconhecido e pagar a contestação — respondeu o escrivão.
+— Se tiver nome reconhecido e pagar a contestação.
 
-— Olhara conhece. É Vendrar.
+— A Olhara conhece aquela margem. Nasceu entre os Vendrar.
 
 — Tem registro de Casa?
 
@@ -482,13 +478,13 @@ Sefter olhou de novo. A linha amarela deixava a margem exatamente onde estavam a
 
 Sefter dobrou a própria mão sobre o recibo.
 
-— E enquanto isso? Vão cortar a floresta?
+— E enquanto isso? Já podem começar a cortar?
 
 O escrivão apontou para a data marcada no canto do mapa.
 
 — O prazo de retirada começa quando as estacas estiverem completas. A equipe terminou a marcação esta manhã.
 
-— Quanto tempo?
+— Quanto tempo a gente tem?
 
 — Seis dias.
 
@@ -498,11 +494,11 @@ Litara desceu do degrau. Por um instante, pareceu que ia protestar. Em vez disso
 
 O escrivão virou a folha para mostrar uma coluna de condições.
 
-— Podem trabalhar na abertura do canal e descontar o uso do terreno na Conta Pendente. Quem assinar fica com alojamento e alimentação de obra.
+— Podem trabalhar na abertura do canal e descontar o uso do terreno na Conta Pendente. Quem assinar recebe alojamento e alimentação da obra.
 
 — E se não assinar?
 
-— A equipe retira os abrigos. Não posso fazer o trabalho do fiscal por ele.
+— A equipe retira os abrigos. O fiscal cuida disso.
 
 Sefter encarou o papel. A conta que o homem oferecia parecia simples, escrita numa coluna estreita. Comida, alojamento, ferramentas, transporte e juros. Cada parcela reduzia um valor e acrescentava outro.
 
@@ -514,7 +510,7 @@ Lembrou do pesador com o papel apertado contra o peito.
 
 Ele olhou a bolsa quase vazia.
 
-— Então anota o número e a marca da oficina.
+— Então me dá pelo menos o número e a marca da oficina.
 
 O aprendiz fez isso numa tira pequena de madeira, contra a vontade visível do escrivão. Sefter guardou a tira junto do recibo. Litara ficou olhando o mapa até o funcionário recolhê-lo. Quando a folha desapareceu na prateleira, a garota acompanhou Sefter para fora sem pedir mais nada.
 
@@ -526,7 +522,7 @@ No pátio, precisaram parar para uma carroça de minério atravessar a passagem.
 
 — Você me puxa antes de eu sair.
 
-— Melhor assim do que depois.
+— A roda passou perto demais, Li.
 
 Litara esfregou o braço e se afastou meio passo. A irritação durou pouco, mas o silêncio que veio depois permaneceu por toda a descida do pátio.
 
@@ -558,23 +554,23 @@ Sefter tirou o que restava da bolsa. Não chegava a uma medida inteira, depois d
 
 O homem recolheu a bandeja um pouco para perto de si.
 
-— Se não vai comprar, não põe a mão.
+— Se não vai comprar, não mexe.
 
 — Eu não pus — respondeu Litara.
 
-— Gente sem marca costuma dizer isso depois que some coisa. Melhor ir andando.
+— Gente sem marca costuma falar isso depois que some coisa. Anda.
 
 A garota ficou com o rosto vermelho. Sefter viu a mão dela fechar sobre a própria sacola, mas ela não respondeu ao homem. Estava tentando se comportar como ele mandara desde o início da viagem.
 
 — Ela só olhou — disse Sefter.
 
-— E eu só falei.
+— E eu mandei andar.
 
 — Você podia falar com mais respeito.
 
 O vendedor encostou a caixa na borda da mesa.
 
-— Quer respeito? Compra alguma coisa. Seu passe vai até o portão baixo, não até a minha paciência.
+— Quer que eu te atenda melhor? Compra alguma coisa. Esse passe não te dá direito de ficar me dando ordem.
 
 Dois aprendizes do outro lado da banca riram. Litara se virou para a rua.
 
@@ -584,7 +580,7 @@ Ele acompanhou a irmã por alguns passos. A raiva demorou mais a passar do que o
 
 Uma carroça estreita precisou parar diante da banca. O vendedor se afastou para conferir a passagem, segurando a caixa de peças com uma mão. Na pressa, deixou a bandeja sobre a borda de uma tábua, perto do caminho. Sefter viu o risco verde da pedra de mel uma última vez.
 
-Não pensou em plano. Voltou dois passos sob o pretexto de desviar da carroça, estendeu a mão boa e pegou a pedra entre os dedos. O objeto era menor do que parecia. Antes que alguém se virasse, já estava dentro da dobra da luva.
+Sefter voltou dois passos para deixar a carroça passar. Estendeu a mão boa e pegou a pedra entre os dedos. Antes que alguém se virasse, já estava dentro da dobra da luva.
 
 Litara o esperava perto da esquina. Quando ele chegou, a menina olhou para a mão fechada.
 
@@ -594,13 +590,13 @@ Litara o esperava perto da esquina. Quando ele chegou, a menina olhou para a mã
 
 Ela continuou olhando. Sefter conhecia aquele jeito desde que ela aprendera a pedir coisas sem falar.
 
-— Não faz essa cara.
+— Não olha assim pra mim.
 
-— Que cara?
+— Você pegou alguma coisa.
 
-— A de quem já sabe.
+Ele fechou a mão com mais força.
 
-— Você pegou.
+— Foi a pedra?
 
 Ele ficou calado.
 
@@ -608,7 +604,7 @@ Ele ficou calado.
 
 — Ele não ia sentir falta de uma pedra.
 
-— Isso não foi o que eu perguntei.
+— Sefter, você pegou a pedra?
 
 Sefter olhou para trás. O vendedor atendia outra pessoa.
 
@@ -616,13 +612,13 @@ Sefter olhou para trás. O vendedor atendia outra pessoa.
 
 A menina encarou o chão. O pequeno disco de madeira preso à capa balançou quando ela mudou de peso de uma bota para a outra.
 
-— Você disse que eu não podia pegar nada.
+— Você ficou falando pra eu não pegar nada de ninguém.
 
-— Disse.
+Sefter abriu a boca para responder.
 
-— E pegou você.
+— E aí foi lá e pegou você.
 
-— Peguei.
+Ele baixou os olhos.
 
 Litara ergueu os olhos, agora mais magoada que surpresa.
 
@@ -632,19 +628,21 @@ Sefter abriu a mão. A pedra estava aquecida por seu corpo, e o risco verde pare
 
 — Eu queria que você tivesse uma coisa bonita.
 
-— Eu já tenho.
+— Não precisava.
 
-Ela apontou para a tira de tecido no cabelo, o presente de Hadrel e Nefestra.
+Litara apontou para a tira de tecido no cabelo, o presente de Hadrel e Nefestra.
 
-Sefter olhou para a trança, depois para a pedra. Pensou em devolvê-la, mas o vendedor ainda estava perto demais e os guardas da esquina prestavam atenção em quem voltava pelo caminho contrário. Se o homem apontasse para os dois discos de madeira e dissesse que tinham roubado, ninguém se daria ao trabalho de escutar Litara. Poderiam ser levados junto com os que esperavam na cerca, e ele não tinha uma Casa a quem pedir que os soltasse. Guardou a pedra na mão fechada, sem encontrar uma saída melhor.
+— Olha. Eu já ganhei uma coisa bonita hoje.
 
-— Então a gente leva e não faz de novo — disse, guardando a pedra. — Eu não devia ter pegado.
+Sefter olhou para a trança, depois para a pedra. Pensou em devolvê-la, mas o vendedor ainda estava perto e os guardas da esquina olhavam quem voltava pelo caminho contrário. Se o homem apontasse para o disco de Litara e dissesse que tinham roubado, ninguém se daria ao trabalho de escutá-la. Poderiam ser levados junto com os que esperavam na cerca, e ele não tinha uma Casa a quem pedir que os soltasse.
+
+— Não dá pra voltar agora. Desculpa, Li. Eu não devia ter pegado.
 
 Litara pareceu querer discutir mais. No fim, apenas estendeu a mão.
 
 — Deixa eu ver.
 
-Ele lhe entregou a pedra. Ela passou o polegar sobre o risco verde e a guardou na bolsa, entre o pão que sobrara e a tira de couro usada para amarrar ferramentas.
+Ele lhe entregou a pedra. Ela passou o polegar sobre o risco verde e guardou-a entre as dobras do pano que embrulhava o pão.
 
 Saíram da rua dos artesãos sem comprar mais nada. No caminho até a barreira, Litara começou a falar de coisas que vira na cidade, mas a voz não tinha o entusiasmo da subida. Sefter respondeu ao que podia e deixou o resto passar. Sabia que ela ainda pensava na pedra. Ele também.
 
@@ -656,7 +654,7 @@ Sefter entregou o próprio recibo. O homem o examinou, contou as marcas e olhou 
 
 — O que levam?
 
-— Pão, roupa e papel de registro.
+— Pão, roupa e o número do registro.
 
 — Mostra.
 
@@ -666,19 +664,19 @@ O guarda abriu a sacola com a ponta de um bastão. Litara ficou tão imóvel que
 
 — Chá para viagem — respondeu Sefter.
 
-O guarda cheirou o saquinho, fez uma careta e devolveu tudo. Não encontrou a pedra, que estava entre as dobras de pão. Deixou-os passar sem outra pergunta.
+O guarda cheirou o saquinho, fez uma careta e devolveu tudo. Remexera o pão sem abrir o pano onde a pedra estava. Deixou-os passar.
 
 Só quando atravessaram a primeira ponte fora da cidade Litara soltou o ar.
 
-— Foi uma péssima ideia — disse.
+— Ele quase achou, Sef.
 
-— Foi.
+— Eu vi.
 
-— Nunca mais faz isso.
+— Não faz isso de novo. Nem se for pra mim.
 
-— Vou tentar.
+— Tá bom.
 
-— Não. Promete.
+— Promete.
 
 Sefter olhou para ela, caminhando ao seu lado com a sacola apertada contra o corpo. Lembrou de quantas promessas fizera quando tinha a idade dela e de como ainda carregava uma que não conseguira cumprir.
 
@@ -688,11 +686,11 @@ Litara lhe ofereceu a mão por um instante. Não era mais pequena o bastante par
 
 Quando a floresta apareceu de novo, o vento trouxe cheiro de folhas molhadas e lenha. O caminho de pedras se estreitou entre os pinhos. Ali o ruído das oficinas desapareceu depressa, e Litara começou a falar mais. Contou que tinha visto um homem com um chapéu cheio de ferramentas, uma criança tentando ensinar um tarrak a dar a pata e uma vendedora que medira um tecido duas vezes porque não confiava no próprio braço.
 
-— Você viu a coisa voando na caverna? — perguntou.
+— E aquela coisa na caverna? Você viu voar?
 
-— Vi alguma coisa se mexer.
+— Vi alguma coisa se mexer. Parecia uma asa.
 
-— Era grande.
+— Era enorme.
 
 — Era.
 
@@ -702,13 +700,13 @@ Quando a floresta apareceu de novo, o vento trouxe cheiro de folhas molhadas e l
 
 Litara riu. Sefter se pegou rindo também, apesar do peso da sacola e da preocupação com as estacas. Na última descida, ela tirou a pedra da bolsa e examinou de novo.
 
-— Tem um furinho — disse.
+— Acho que dá pra passar um fio aqui.
 
-— Pra passar corda.
+— No buraco da pedra?
 
-— A gente tem corda sobrando.
+— É. A gente tem corda sobrando?
 
-— Tem, se a Nefestra não usou toda nas contas.
+— Tem. Se a Nefestra não usou tudo pra amarrar as contas.
 
 Litara guardou a pedra com cuidado. Quando avistaram a primeira fumaça entre os pinhos, acelerou o passo e chamou por Aldra. Sefter a viu correr entre as árvores, mais à vontade ali do que em qualquer rua da cidade. O próprio corpo relaxou ao reconhecer a clareira, embora soubesse que ainda não tinham resolvido nada.
 
@@ -722,25 +720,25 @@ Ele contou o que encontraram. Espalhou no chão um desenho improvisado da margem
 
 — Seis dias — acrescentou Sefter. — Depois disso, derrubam os abrigos ou fazem a gente assinar trabalho pela terra.
 
-Etrinna ficou olhando o mapa improvisado. Ninguém ao redor pareceu precisar que ela explicasse o que significava. Uma mulher deixou a tigela de lado. O homem que consertava a roda ergueu a cabeça.
+Etrinna ficou olhando o mapa improvisado. Uma mulher deixou a tigela de lado. O homem que consertava a roda ergueu a cabeça.
 
-— Você consegue assinar a contestação? — perguntou Etrinna a Olhara.
+— Seu nome ainda vale pra contestar na cidade, Olhara?
 
 A velha levou algum tempo para responder.
 
-— Consigo assinar meu nome. Não sei se vão querer ouvir uma mulher que já não trabalha na cidade.
+— Consigo assinar. Se eles ainda aceitam meu registro, não sei. Faz tempo que não trabalho lá.
 
 — A gente precisa tentar.
 
-— Precisa. Mas não adianta ir lá só pra pedir favor. Preciso mostrar o chão, o canal velho e o novo. Se houver registro das obras antigas, quero ver também.
+— Preciso mostrar o canal velho e o novo. Se ainda tiverem o registro da obra antiga, quero ver também.
 
-Etrinna começou a distribuir tarefas. Mandou que dois homens marcassem a margem verdadeira com pedras pequenas, sem arrancar as estacas oficiais. Pediu a Aldra que preparasse uma tábua limpa para desenharem o curso da água. Nefestra anotaria os nomes de quem tinha visto a mudança. Sefter voltaria com Olhara, caso fosse preciso, mas primeiro cuidaria da mão e do reparo da roda. O prazo era curto demais para perder um dia discutindo a ordem das coisas.
+Etrinna mandou dois homens marcar a margem verdadeira com pedras pequenas, sem arrancar as estacas oficiais. Aldra prepararia uma tábua limpa para o desenho do curso da água. Nefestra anotaria quem tinha visto a mudança. Sefter voltaria com Olhara se fosse preciso. Antes disso, ajudaria o homem que já estava terminando o reparo da roda.
 
 Litara ficou ajudando a pôr as pedras no lugar até Nefestra chamá-la para jantar. Quando chegaram à cobertura, Hadrel estava terminando de lavar uma tigela. Tinha uma pequena mancha de caldo na gola e os cabelos desgrenhados, como se tivesse passado boa parte da tarde perto do fogo.
 
-— Trouxeram Varkhama inteira na bolsa? — perguntou.
+— Trouxeram a cidade toda na bolsa?
 
-— Não coube — respondeu Litara. — Mas eu trouxe uma coisa.
+— Não coube. Mas olha o que eu trouxe.
 
 Ela tirou a pedra e a mostrou, mantendo-a sobre a palma da mão. A luz da fogueira atravessou o risco verde e fez a peça parecer mais clara.
 
@@ -752,7 +750,7 @@ Litara olhou para Sefter, que entrava atrás delas.
 
 — No mercado — respondeu.
 
-Hadrel percebeu o silêncio que veio depois. Não perguntou o preço nem o nome do vendedor. Pegou um fio de couro que sobrara de um fecho, passou-o pelo furo da pedra e testou o nó.
+Hadrel olhou de Litara para Sefter. Nenhum dos dois acrescentou nada. Ele pegou um fio de couro que sobrara de um fecho e passou pelo furo da pedra.
 
 — Quer usar no pescoço?
 
@@ -766,17 +764,17 @@ Hadrel inclinou a própria cabeça para olhar.
 
 Ela se endireitou, rindo. A pedra continuou um pouco de lado. Nefestra ajeitou o cordão com a mão e deu um beijo rápido na testa da prima, gesto que a garota aceitou com uma careta para não parecer pequena demais.
 
-— Não conta à Aldra que fui eu que arrumei — disse Nefestra.
+— Se a Aldra vir, vai querer um também — disse Nefestra.
 
-— Ela ia pedir um também.
+— Vou falar que o Hadrel que fez.
 
-— E você ia dizer pra ela procurar no mercado, né? — comentou Sefter.
+— Aí ela vai pedir pra ele trazer pedra do mercado — comentou Sefter.
 
 Litara o encarou por um instante. Depois sorriu só com um canto da boca.
 
-— Eu ia dizer pra pedir ao Hadrel.
+— Ela pode pedir. Eu não vou pegar pra ela.
 
-Ele riu. Sefter não.
+Litara voltou a mexer no colar. Sefter afastou os olhos.
 
 O jantar foi feito perto do fogo comum, porque a chuva começava a cair em fios finos e Etrinna preferiu manter as pessoas juntas enquanto decidiam o que fazer se a obra avançasse. Um rapaz trouxe lenha seca. Uma mulher repartiu peixe e pão, e alguém deixou um lugar para Olhara perto da parte mais quente. As crianças, que tinham passado o dia ouvindo falar de estacas e canais sem entender direito, começaram a pedir histórias.
 
@@ -788,11 +786,11 @@ Hadrel estava guardando as ervas quando Aldra o alcançou.
 
 — E ontem você mudou o final.
 
-— Foi porque ontem a sombra estava de mau humor.
+— Ontem a sombra tava de mau humor.
 
 Litara se sentou ao lado de Nefestra, segurando a pedra nova sob a roupa. Sefter ficou do outro lado do fogo, onde podia ver Etrinna conversando em voz baixa com Olhara. A líder tinha trazido o recibo da oficina e o colocara junto do desenho da margem. Mesmo enquanto ouvia as crianças, continuava olhando para os dois papéis.
 
-— Tá bom — disse Hadrel. — Mas hoje eu conto a parte que vocês nunca deixam chegar ao fim.
+— Hoje vai a dos sete portões — disse Hadrel. — Vocês nunca me deixam chegar até o fim.
 
 — Porque é chata — respondeu Aldra.
 
@@ -804,7 +802,7 @@ Litara se sentou ao lado de Nefestra, segurando a pedra nova sob a roupa. Sefter
 
 — Era muito comprida.
 
-— Eram sete irmãos. Se eu contasse só três, os outros iam reclamar.
+— Eram sete irmãos, Li. Se eu pulasse quatro, os outros iam reclamar.
 
 Houve risos. Hadrel sentou num banco baixo, perto o bastante para que as crianças ouvissem sem precisar se apertar em volta dele.
 
@@ -824,11 +822,11 @@ As crianças riram. Litara puxou a manga de Nefestra.
 
 — O Hadrel sabe — respondeu ela.
 
-— Eu sei — disse ele, ouvindo. — Mas se eu contar uma história que faça sentido, vocês vão começar a pedir as contas no fim.
+— Sei. Também nunca vi homem carregar carroça nas costas. Mas é minha história, deixa eu terminar.
 
 Olhara resmungou que deviam pedir mesmo. Hadrel levou a mão ao peito, ofendido, e acrescentou um portão à história só para que a velha precisasse contar outra vez. Etrinna, que raramente ria alto diante de todos, soltou uma gargalhada quando o carregador resolveu vender a carroça ao próprio guarda para pagar a taxa de entrada.
 
-Nefestra se virou na direção de Hadrel. O fogo iluminava a ponta do nariz e a mancha clara perto do queixo dele. Não havia nada de especial no modo como contava, além de prestar atenção a quem o ouvia. Se uma criança interrompia, ele a deixava participar. Se Olhara corrigia uma palavra, ele incorporava a correção. Quando alguém saía para buscar água, esperava que voltasse antes de chegar à parte mais engraçada.
+Nefestra se virou na direção de Hadrel. O fogo iluminava a ponta do nariz e a mancha clara junto do queixo. Quando uma criança interrompia, ele a deixava participar. Quando Olhara corrigia uma palavra, incorporava a correção. Nefestra gostou de vê-lo esperar que um menino voltasse com água antes de contar a parte mais engraçada.
 
 Ela percebeu que estava sorrindo havia tempo demais quando Sefter a chamou para ver um risco no mapa. Levantou-se com alguma relutância, acomodou o livro contra o corpo e foi até ele.
 
@@ -836,17 +834,17 @@ Ela percebeu que estava sorrindo havia tempo demais quando Sefter a chamou para 
 
 Nefestra acompanhou o traço. A mão que tinha fez duas marcas pequenas ao lado da linha, indicando a distância que precisariam conferir pela manhã.
 
-— A Olhara pode reconhecer o trabalho antigo pelo tipo de pedra — disse. — Só falta alguém na cidade aceitar que um registro pode estar errado.
+— A Olhara vai saber que pedra usaram na obra velha. Tomara que ainda tenha o registro.
 
 Sefter olhou para a fogueira, onde Hadrel acabava de imitar o guarda do quinto portão com uma voz tão fina que Litara se dobrou de rir.
 
-— Ele parece gostar de contar história sobre gente que perde o nome.
+— Engraçado ele contar logo uma história de gente que perde o nome.
 
 Nefestra fechou o livro.
 
-— Ele gosta de fazer criança rir.
+— Foi a Aldra que pediu história.
 
-— E você gosta de ouvir.
+— E você não perdeu uma palavra.
 
 Ela o olhou, sem desviar.
 
@@ -878,7 +876,7 @@ Aldra fez uma careta.
 
 Nefestra riu e encostou a cabeça por um instante no ombro dele, apenas o suficiente para descansar enquanto os outros discutiam qual final seria melhor. Hadrel não se mexeu. Continuou ouvindo as crianças e passou a ponta do cobertor sobre os joelhos dela quando percebeu que o tecido escorregara.
 
-Etrinna voltou à clareira com duas pessoas que haviam acabado de chegar pela estrada. Usavam capas curtas e placas de metal presas ao peito. Um deles carregava um rolo de couro amarrado com tira amarela. O outro mantinha as mãos escondidas nas mangas e olhava os abrigos como quem contava mercadoria.
+Etrinna saiu ao ouvir alguém chamar da estrada e voltou com duas pessoas de capas curtas e placas de metal presas ao peito. Um deles carregava um rolo de couro amarrado com tira amarela. O outro mantinha as mãos escondidas nas mangas e examinava os abrigos.
 
 O primeiro parou diante da fogueira.
 
@@ -892,13 +890,13 @@ O homem abriu o rolo e mostrou a marca da Casa de Medidas.
 
 — A equipe terminou a demarcação da margem. A área foi incluída na concessão de canal e madeira da oficina. Vocês têm seis dias para sair.
 
-— Já sabemos da marcação — disse Etrinna. — O desenho usa o curso antigo do riacho. Vamos apresentar uma contestação.
+— A gente viu o registro hoje. Usaram o curso antigo do riacho. Vamos contestar.
 
 — Isso não suspende o prazo.
 
 A mulher que repartia o caldo parou com a colher no ar. Aldra se aproximou de Litara, que tinha deixado de sorrir. Sefter levantou-se do tronco e veio até a frente da cobertura.
 
-— E se a contestação mostrar que a linha está errada?
+— E se a gente provar que mediram errado?
 
 — O Conselho decide. Não fui enviado para discutir mapa.
 
@@ -908,21 +906,21 @@ O segundo homem tirou de dentro da capa outra tábua, menor, com duas colunas de
 
 Etrinna não tocou na tábua.
 
-— Não vamos assinar sem ler tudo.
+— Ninguém vai assinar isso hoje.
 
 — Ninguém está obrigando a assinar — respondeu o homem. — Podem sair.
 
 Sefter olhou em volta. Havia crianças dormindo, gente com ferimentos que ainda não podia viajar, a roda de uma carroça recém-consertada e o depósito onde guardavam o alimento para as próximas semanas. Se saíssem em seis dias, teriam de escolher o que abandonar. Se ficassem sob aquela conta, talvez nunca fossem embora.
 
-— E quem assina por quem não tem marca? — perguntou.
+— E se uma pessoa sem marca não quiser assinar? — perguntou Sefter, olhando para as tendas.
 
 O homem voltou o rosto para ele, examinou sua atadura e a túnica gasta.
 
-— Quem responde pelas tendas responde pela gente que mora nelas. É por isso que estamos perguntando o nome do responsável.
+— O responsável pelo grupo pode pôr o nome por todos os que moram aqui. É por isso que perguntamos quem responde pelas tendas.
 
 Etrinna deu um passo à frente.
 
-— Meu nome é Etrinna. E eu não assino por gente que não escolheu.
+— Meu nome é Etrinna. Respondo por este grupo, mas não vou assinar por quem não escolheu.
 
 O primeiro emissário fez uma marca no rolo. O segundo olhou novamente as tendas e contou em voz baixa os fogos acesos.
 
@@ -938,4 +936,4 @@ Abaixo das condições de trabalho havia uma coluna vazia, preparada para os nom
 
 Etrinna passou o dedo por ela uma vez, depois se virou para Sefter.
 
-— Amanhã a gente volta à cidade. Mas dessa vez não vai ser para pedir que olhem o desenho.
+— Amanhã a gente volta à cidade. Quero descobrir quem pode suspender esse prazo.

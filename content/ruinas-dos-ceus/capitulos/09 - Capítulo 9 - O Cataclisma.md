@@ -2,7 +2,7 @@
 
 O céu ainda tremia quando as pedras pararam de cair. Os ouvidos de Jokara zumbiam.
 
-Jokara olhava para o vazio onde antes houvera solo. E para o corpo ferido de Efepar, o corte no peito desenhando linhas vermelhas sobre a túnica manchada de poeira. Ele respirava com dificuldade, mas mantinha-se em pé, sem entender direito o que havia acontecido.
+Ela olhava para o vazio onde antes houvera solo e para o corpo ferido de Efepar. Uma lasca de pedra, atirada pela borda que desabava, tinha aberto um corte no peito dele, que desenhava linhas vermelhas sobre a túnica manchada de poeira. Ele respirava com dificuldade, mas mantinha-se em pé, sem entender direito o que havia acontecido.
 
 — O que está acontecendo? — murmurou Maletar, sem desviar os olhos da beira do abismo.
 
@@ -12,7 +12,7 @@ Jokara não hesitou.
 
 Ninguém em Etérea dizia aquilo em voz alta.
 
-Maletar engoliu em seco. Efepar não disse nada, apenas baixou os olhos e levou a mão ao ferimento no peito, que começava a enrijecer com o frio do Sopro do Silêncio.
+Maletar engoliu em seco. Efepar não disse nada, apenas baixou os olhos e levou a mão ao ferimento no peito, onde o sangue começava a secar.
 
 Desceram os degraus tortuosos da Ilha da Memória. Havia nuvens demais para tão pouco vento.
 
@@ -20,7 +20,7 @@ Jokara mancava com dificuldade. O bastão de sopro rangia a cada apoio. Pensava 
 
 Na curva da estrada, entre as espirais de pedra azul, três Oradores surgiram adiante, ocupando a largura da estrada. Suas vestes estavam sujas de poeira, e um deles trazia a manga rasgada até o cotovelo. Cada um carregava o bastão cerimonial, mas nenhum parecia estar ali para uma cerimônia.
 
-— A passagem para Nivelia está restrita — disse o mais velho. — Houve rachaduras na ponte superior. Estamos desviando o fluxo até sabermos quanto peso ela suporta.
+— A passagem para Nivelia está fechada — disse o mais velho. — A ponte de cima rachou. Estamos mandando todo mundo dar a volta até sabermos quanto peso ela aguenta.
 
 Jokara respirou fundo. Podia sentir o calor de Efepar ao seu lado e a tensão na mandíbula de Maletar atrás de si.
 
@@ -30,11 +30,11 @@ Jokara respirou fundo. Podia sentir o calor de Efepar ao seu lado e a tensão na
 
 Um dos companheiros de Maletar apontou para o caminho de onde vinham.
 
-— As terras de onde saímos foram arrastadas para Nadirion. Não é uma rachadura.
+— As terras de onde saímos caíram para Nadirion. Não é uma rachadura.
 
 O Orador mais jovem baixou os olhos. O mais velho respondeu:
 
-— Recebemos relatos de deslizamentos, tremores e falhas em algumas raízes de sustentação. Também recebemos relatos de ilhas estáveis. Ainda não sabemos se é a mesma coisa acontecendo em toda parte.
+— Chegaram notícias de deslizamentos, tremores, raízes de apoio cedendo. Também chegaram notícias de ilhas firmes no lugar. Ainda não sabemos se é a mesma coisa acontecendo em toda parte.
 
 Maletar bateu a palma calejada no próprio peito.
 
@@ -70,7 +70,7 @@ O Orador mais jovem finalmente falou:
 
 O mais velho virou-se para ele, surpreso por ter dito aquilo diante de todos.
 
-— Então vocês também estão com medo.
+— Então vocês também estão com medo — disse Jokara.
 
 Nenhum deles negou.
 
@@ -92,7 +92,7 @@ A rachadura atravessou a estrada entre eles.
 
 Jokara agarrou o braço de Efepar e avançou pela poeira. O bastão batia à frente do corpo, procurando chão firme antes de cada impulso. Maletar correu logo atrás, já desviando para o caminho que levava à própria casa. Os Oradores não tentaram detê-los. O mais novo começou a gritar para os que vinham atrás que usassem as passagens laterais, enquanto o mais velho batia o bastão contra a pedra para chamar atenção e organizar a travessia.
 
-Jokara e Efepar passaram pelas pontes de pedra negra, entre colunas enfeitadas com espirais de vidro azul, subindo os caminhos em direção a Ilha de Nivelia. Antes de avistarem o pórtico, ouviram: pontes se partindo, madeira de casas torcendo, a base da colina escorrendo como areia molhada.
+Jokara e Efepar passaram pelas pontes de pedra negra, entre colunas enfeitadas com espirais de vidro azul, subindo os caminhos em direção à Ilha de Nivelia. Antes de avistarem o pórtico, ouviram: pontes se partindo, madeira de casas torcendo, a base da colina escorrendo como areia molhada.
 
 Perto do pórtico, o caos havia engolido qualquer aparência de cerimônia. Alguns Oradores tentavam abrir passagem entre os feridos. Outros gritavam direções contraditórias para quem procurava Talyen. Mas, junto à base de uma coluna rachada, Yrisea permanecia sentada.
 
@@ -106,7 +106,7 @@ Jokara parou diante dela.
 
 A anciã abriu os olhos apenas por um instante. Não havia pânico neles. Também não havia a certeza de antes.
 
-— Você estava certa — disse Jokara.
+— Agora você vê? — perguntou Jokara.
 
 Yrisea observou uma rachadura atravessar a parede do pórtico e tornou a fechar os olhos.
 
@@ -140,7 +140,7 @@ Jokara continuou.
 
 Poucos passos depois, parou.
 
-— Não…— sussurrou.
+— Não… — sussurrou.
 
 A rua de casa estava logo adiante, e metade dela já não estava lá. Jokara mal sentia o chão. Efepar a amparava com o braço, o sangue seco marcando-lhe a túnica no peito.
 
@@ -160,11 +160,13 @@ O rosto de Efepar se contraiu. Ia insistir.
 
 Efepar soltou-lhe o braço com relutância, recuando três passos.
 
-— Se eu não sobreviver... que os ventos me perdoem por tudo que fiz, Jokara.
+Os dedos dele roçaram a flauta presa à cintura.
 
-Ela assentiu, já virando a esquina de pedra para o caminho de Enurial. Cada degrau exigia que fincasse o bastão e erguesse o corpo num único impulso. Passou pela rua estreita onde Nestira a fazia correr quando eram pequenas, pela parede onde o pai gravara símbolos de proteção com carvão do templo. A casa ainda estava de pé.
+— Se eu não voltar... me desculpa por não ter acreditado em você, Jokara.
 
-O portão de madeira rangia ainda mais do que o suporte de sua perna. Empurrou-o com o antebraço e entrou com o fôlego preso. A penumbra da casa era cortada por um único facho de luz que atravessava a pequena claraboia circular. E de joelhos, sob ele, estava Nestira, orando, as mãos juntas, os olhos fechados. Loutes estava ao lado dela, olhando para o chão.
+Ela assentiu, já virando a esquina de pedra para o caminho de casa. Cada degrau exigia que fincasse o bastão e erguesse o corpo num único impulso. Passou pela rua estreita onde Nestira a fazia correr quando eram pequenas, pela parede onde o pai gravara símbolos de proteção com carvão do templo. A casa ainda estava de pé.
+
+O portão de madeira rangeu. Empurrou-o com o antebraço e entrou com o fôlego preso. A penumbra da casa era cortada por um único facho de luz que atravessava a pequena claraboia circular. E de joelhos, sob ele, estava Nestira, orando, as mãos juntas, os olhos fechados. Loutes estava ao lado dela, olhando para o chão.
 
 Jokara parou na porta, arfando, o suor escorrendo pela nuca.
 
@@ -174,9 +176,9 @@ A irmã não se moveu. Continuou a orar. Lágrimas escorriam por baixo das pálp
 
 — Nestira. Está me ouvindo?
 
-— Estou — respondeu a outra, sem abrir os olhos. — É a espiral do silêncio, Jokara. Estou pedindo para que os ventos nos protejam.
+— Estou — respondeu a outra, sem abrir os olhos. — É a Espiral do Silêncio, Jokara. Estou pedindo para que os ventos nos protejam.
 
-Jokara cerrou os punhos.
+Jokara apertou a empunhadura do bastão.
 
 — Os ventos não vão ouvir ninguém. Os ventos nos abandonaram, Nestira.
 
@@ -184,7 +186,7 @@ Jokara cerrou os punhos.
 
 Jokara olhou para Loutes. Os olhos grandes e escuros estavam fixos nela. Ele não parecia assustado.
 
-— Você está dizendo que... Isso é minha culpa? — indagou a garota, incrédula.
+— Você está dizendo que... isso é minha culpa? — indagou a garota, incrédula.
 
 — É claro que é sua. Se não fosse por você, ainda teria sua perna, isso não estaria acontecendo, e o pai estaria vivo...
 
@@ -198,23 +200,23 @@ Nestira levou a mão à face. Depois olhou para as janelas, para o que acontecia
 
 — Onde está a mãe? — perguntou Jokara, a voz trêmula, quase já sabendo a resposta.
 
-— Ela foi ao mercado... no nível inferior da ilha... — murmurou Nestira.
+— Ela foi aos balcões de partilha... no nível inferior da ilha... — murmurou Nestira.
 
-Jokara não respondeu. Foi até o canto e pegou o planador que o Professor Taliver lhe dera.
+Jokara não respondeu. Foi até o canto, pegou o planador que o Professor Taliver lhe dera e passou as alças por um ombro.
 
-Os três saíram juntos. Jokara à frente, mancando, mas decidida, puxava a irmã pelo braço com uma força inesperada. Nestira vinha aos solavancos, a boca tremendo. Atrás delas, Loutes seguia sem dizer nada.
+Os três saíram juntos. Jokara ia à frente, apoiada no bastão, puxando a irmã pelo braço com uma força inesperada. Nestira vinha aos solavancos, a boca tremendo. Atrás delas, Loutes seguia sem dizer nada.
 
 As pedras da rua tremiam sob os pés. Os arcos soltavam poeira. Dos penhascos vinham estalos profundos, como ossos partindo. Em cada esquina havia gente sob blocos de pedra. Homens e mulheres tentavam correr, mas eram interrompidos pela queda súbita de colunas ou pelo desmoronar das passarelas suspensas. O grito de uma criança foi cortado no ar quando uma laje desceu sobre ela, e Nestira levou a mão à boca.
 
 Jokara não parou. Não olhou. Seguiu em frente com a mão firme na da irmã e o bastão golpeando a pedra à frente. Quando a ponta escorregava, Nestira segurava seu braço até que Jokara encontrasse apoio de novo. 
 
-Onde antes se amontoavam cestos de frutas e tecidos tingidos, agora havia um buraco. A borda de terra fresca terminava num vazio de nuvens.
+Desceram até o nível inferior. Onde antes os balcões de partilha amontoavam cestos de frutas e tecidos tingidos, agora havia um buraco. A borda de terra fresca terminava num vazio de nuvens.
 
 Jokara gritou o nome da mãe até a voz quebrar.
 
 Nestira caiu de joelhos na poeira, sem ar.
 
-Jokara a agarrou pelos ombros e a pôs de pé à força.
+Jokara firmou o bastão, agarrou a irmã pelo braço livre e a ajudou a se pôr de pé.
 
 — Levanta. Levanta, Nestira. Agora não.
 
@@ -238,15 +240,15 @@ Nestira tropeçou antes da porta, o corpo se rendendo ao pânico. Caiu de joelho
 
 — Eu... não consigo... — murmurou.
 
-Jokara se abaixou e tentou erguer a irmã à força, mas Nestira não se mexia. Loutes tocou o ombro dela com a mão pequena. Não disse nada. Nestira ergueu a cabeça, olhou para ele, e levantou-se, apoiando-se nele e em Jokara.
+Jokara apoiou-se no batente e tentou erguer a irmã pelo braço, mas Nestira não se mexia. Loutes tocou o ombro dela com a mão pequena. Não disse nada. Nestira ergueu a cabeça, olhou para ele, e levantou-se, apoiando-se nele e em Jokara.
 
 Empurraram a porta e encontraram Taliver no interior. Estava coberto de pó, sob a luz de uma lamparina que balançava. Havia livros espalhados pelo chão e pedras de estudo quebradas por toda parte.
 
-— Olá Jokara — disse. — O fim finalmente chegou. Achei que daria tempo de tentarmos...
+— Jokara — disse. — O fim finalmente chegou. Achei que daria tempo de tentarmos...
 
-Jokara não conseguiu responder ao cumprimento.
+Jokara não conseguiu nem cumprimentá-lo.
 
-— O mercado... caiu. A mãe estava lá. Nós a perdemos...
+— Os balcões de baixo... caíram. A mãe estava lá. Nós a perdemos...
 
 Taliver baixou os olhos por um instante.
 
@@ -258,7 +260,7 @@ Jokara ergueu o planador.
 
 Professor Taliver caminhou até ela, colocou a mão sobre o tecido dobrado e balançou a cabeça.
 
-— Este tecido não foi feito para quatro corpos. Nem para três adultos. Ele suporta dois, no limite. Mais que isso, despencariam todos.
+— Este tecido não foi feito para quatro corpos. Ele aguenta dois adultos no limite e, com sorte, uma criança leve. Mais que isso, despencariam todos.
 
 Nestira arregalou os olhos.
 
@@ -278,9 +280,9 @@ Professor Taliver se aproximou, com passos lentos, apesar do mundo desabando ao 
 
 As lágrimas de Jokara desceram sem controle.
 
-— Eu não lembro dele assim...
+— Ele nunca me disse isso...
 
-— Então lembre agora, por mim.
+— Então escute agora, de mim.
 
 Nestira soluçava, abraçada a Loutes, enquanto o teto da casa rangia e estalava. Professor Taliver olhou uma última vez para os três e forçou um tom mais firme, quase como ordem em sala de aula.
 
@@ -288,17 +290,17 @@ Nestira soluçava, abraçada a Loutes, enquanto o teto da casa rangia e estalava
 
 Jokara chorava, mas assentiu. Apertou a mão do professor contra o próprio rosto, num gesto breve, e depois se virou, puxando Nestira e Loutes. Não havia mais tempo.
 
-O caminho até o planalto de Talyen parecia interminável. Jokara mancava, o bastão de sopro preso com força nas mãos, os músculos latejando de dor. Nestira a sustentava de um lado, Loutes do outro. O chão tremia, abrindo fissuras que cuspiam poeira. Os telhados cediam. Gritos vinham de todos os lados, e eles não se viravam para ver de quem eram.
+O caminho até o planalto de Talyen parecia interminável. Jokara mancava, o bastão de sopro preso com força numa das mãos, os músculos latejando de dor. Nestira a sustentava de um lado, Loutes do outro. O chão tremia, abrindo fissuras que cuspiam poeira. Os telhados cediam. Gritos vinham de todos os lados, e eles não se viravam para ver de quem eram.
 
 Quando finalmente alcançaram a plataforma de pedra onde os planadores eram abertos, só restavam fragmentos. Metade da estrutura já havia caído, mas ainda havia um espaço seguro, estreito, de onde se podia saltar. Jokara, ofegante, abriu o planador do Professor Taliver. Loutes ajudou a segurar as hastes, e Nestira, mesmo em pranto, puxou as cordas até que o mecanismo estivesse pronto.
 
-Os três se alinharam na borda, de mãos dadas. Jokara nunca tinha completado um voo.
+Os três se alinharam na borda, de mãos dadas, com Jokara apoiada no bastão. Jokara nunca tinha completado um voo.
 
 Mas então, no último instante, Nestira soltou as mãos. Tinha visto alguma coisa adiante. Uma criança pequena, de cabelos claros, sozinha entre as pedras que desmoronavam. Liri.
 
 — Liri! — gritou Nestira.
 
-Antes que Jokara pudesse deter, a irmã correu em direção à menina. O chão tremeu. Uma fenda imensa se abriu sob os pés delas. Por um instante, Jokara viu as duas suspensas no ar, Nestira agarrada à menina. Depois não as viu mais.
+Antes que Jokara pudesse detê-la, a irmã correu em direção à menina. O chão tremeu. Uma fenda imensa se abriu sob os pés delas. Por um instante, Jokara viu as duas suspensas no ar, Nestira agarrada à menina. Depois não as viu mais.
 
 Não teve tempo de gritar. O chão sob ela e Loutes também começava a ceder. A pedra afundou sob a única perna que ainda sustentava seu peso e Jokara caiu de lado. O bastão escapou, deslizando alguns passos pela plataforma.
 
@@ -306,19 +308,19 @@ Não teve tempo de gritar. O chão sob ela e Loutes também começava a ceder. A
 
 Arrastou-se até ele enquanto outra rachadura se abria. Loutes alcançou a madeira primeiro e a empurrou de volta. Jokara a agarrou, usou-a para ficar de pé e prendeu o cabo sob o braço.
 
-Com o bastão numa mão e o planador na outra, lançou-se com Loutes para fora da plataforma, sentindo o tecido se abrir contra o ar. Não havia vento.
+Com a tira da empunhadura, amarrou o bastão atravessado nas costas. Enfiou os braços nas alças, esperou Loutes se agarrar à armação e lançou-se com ele para fora da plataforma, sentindo o tecido se abrir contra o ar. Não havia vento.
 
 O planador não flutuava. Caía. Jokara gritou.
 
 Forçou o corpo, inclinou as cordas, esticou os braços até os músculos queimarem. O tecido vibrou, e aos poucos o planador deixou de despencar em linha reta. Ainda caíam, mas agora ela escolhia para onde. Jokara chorava de boca aberta. Estava voando.
 
-Olhou para trás. Etérea inteira se despedaçava. As torres se inclinavam devagar e partiam ao meio. Os vitrais das Três Correntes caíam em pedaços que brilhavam por um instante e sumiam. A ilha das crianças, a ilha da memória, os bosques de Arion, a ponte de folhas… toda Nivelia caía.
+Olhou para trás. Etérea inteira se despedaçava. As torres se inclinavam devagar e partiam ao meio. Os vitrais das Três Correntes caíam em pedaços que brilhavam por um instante e sumiam. A Ilha dos Pequenos, a Ilha da Memória, os bosques de Arion, a ponte de folhas… toda Nivelia caía.
 
 O ar estava cheio de gritos. Jokara via gente caindo, longe demais para reconhecer. Podia ser qualquer um. A vizinha que lhe dava pão. A mulher que lhe trançava o cabelo quando era pequena.
 
 Fechou os olhos. Quando abriu de novo, não havia mais torres.
 
-Não via mais nenhum planador no céu. Só o dela, e Loutes agarrado à armação.
+Não via mais nenhum planador no céu. Só o dela, com Loutes agarrado à armação.
 
 Os gritos foram sumindo, um a um, até que não restou nenhum. Só o vento preso nas cordas do planador, e a respiração dos dois. Abaixo, as nuvens já tinham engolido Etérea inteira. O sol descia atrás do que restava das ilhas, pintando os cacos de pedra e vidro flutuante de um laranja que não deveria ser bonito, mas era. Loutes não dizia nada. Só respirava perto dela, o rosto virado para aquela luz.
 
@@ -344,7 +346,7 @@ Girava. Não sabia mais o que era cima. Os olhos ardiam de poeira. Pensou na mã
 
 A queda não acabava.
 
-Até que as nuvens se abriram. Embaixo delas não havia mais céu azul, mas um escuro salpicado de luzes distantes. E, mais embaixo ainda, alguma coisa.
+Até que as nuvens se abriram. Embaixo delas não havia mais céu azul, mas um escuro fundo, sem estrela nenhuma. E, mais embaixo ainda, alguma coisa.
 
 Uma floresta, vasta, negra, de árvores enormes. Mais adiante, um lago imenso refletindo o Sopro do Silêncio. Nadirion. Existia.
 

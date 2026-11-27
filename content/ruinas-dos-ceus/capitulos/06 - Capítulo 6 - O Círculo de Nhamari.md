@@ -1,6 +1,6 @@
 
 
-A alvorada seguinte chegou com um céu encoberto por tons de cinza amarelado. Jokara se levantou antes da irmã, vestiu um manto discreto de cor terrosa, e saiu de casa sem fazer ruído. O vento voltara a soprar, ora de um lado, ora de outro. Ela ia ver o lugar onde a mulher tinha sido pega.
+A alvorada seguinte chegou com um céu encoberto por tons de cinza amarelado. Jokara se levantou antes da irmã, vestiu um manto discreto de cor terrosa e saiu de casa sem fazer ruído. O vento voltara a soprar, ora de um lado, ora de outro. Ela ia ver o lugar onde a mulher tinha sido pega.
 
 Ela atravessou o caminho curvo da orla leste e seguiu as trilhas que levavam ao interior dos bosques de Arion, pisando com cuidado entre raízes expostas, tapetes de musgo e folhas longas que murmuravam ao toque dos pés. Não demorou a avistar a clareira adiante.
 
@@ -10,13 +10,13 @@ Homens e mulheres de mantos claros, ajoelhados ou de braços erguidos, agradecen
 
 Ela escondeu-se atrás de uma raiz curva, de onde podia observar sem ser vista.
 
-Procurou uma passagem entre eles e não achou. Havia Oradores por toda parte. Forçar a entrada só chamaria atenção, e Jokara tinha visto na véspera o que acontecia com quem chamava atenção demais. Voltaria outra hora.
+Procurou uma passagem entre eles e não achou. Havia Oradores por toda parte. Forçar a entrada só chamaria atenção, e Jokara tinha visto havia poucos sopros o que acontecia com quem chamava atenção demais. Voltaria outra hora.
 
 De volta a casa, sentou-se na varanda de madeira trançada, sob as plantas suspensas, e ficou ali sem fazer nada.
 
 Foi quando ouviu o som apressado de pés descalços cortando o musgo.
 
-— Viva aos ventos! A névoa se foi! — gritou uma voz aguda.
+— Vivam os ventos! A névoa se foi! — gritou uma voz aguda.
 
 Antes que pudesse reagir, Liri se jogou em seus braços. Algumas pétalas claras ainda estavam presas em seus cabelos, colocadas pela mãe quando regressara da Ilha dos Pequenos. Uma delas escorregara até a orelha, mas Liri parecia determinada a não deixá-la cair. Jokara girou-a com cuidado no ar, e as duas riram.
 
@@ -72,11 +72,11 @@ Liri tornou a olhar para os próprios dedos, desconfiada.
 
 Então deram-se as mãos. E entraram.
 
-Mirel mexia uma infusão quente feita de flores de cerco, os olhos marcados pelo cansaço dos que oram mais do que dormem, mas ainda assim acolhedores. Sobre a mesa, limpava uma pequena ave caída do ninho, com gestos lentos e cerimoniosos, quase sagrados.
+Uma infusão de flores de cerco esquentava no fogo. Mirel tinha os olhos marcados pelo cansaço dos que oram mais do que dormem, mas ainda assim acolhedores. Sobre a mesa, limpava uma pequena ave caída do ninho, com gestos lentos e cerimoniosos, quase sagrados.
 
 Nestira dobrava tecidos sobre o colo, sentada perto da abertura lateral. Os cabelos estavam presos em um nó alto, e os dedos ainda carregavam o cheiro doce de mel seco, vestígios de alguma oração feita sem palavras.
 
-— Bom sopro, Liri — disse Mirel, sem deixar de mexer a infusão. — Sua mãe sabe que está aqui?
+— Bom sopro, Liri — disse Mirel, sem tirar os olhos da ave. — Sua mãe sabe que está aqui?
 
 — Não — respondeu a menina, muito séria. — Mas o vento sabe.
 
@@ -84,7 +84,7 @@ Nestira dobrava tecidos sobre o colo, sentada perto da abertura lateral. Os cabe
 
 — É que ela vive nas nuvens — disse Jokara, sorrindo. — E aqui é o pouso temporário dela.
 
-Liri, com sua curiosidade sempre acesa, caminhou até a prateleira baixa onde repousavam objetos antigos: conchas petrificadas, penas pintadas, pequenos pedaços de vidro azul trazidos por comerciantes do sul. Pegava cada um, virava, devolvia.
+Liri, com sua curiosidade sempre acesa, caminhou até a prateleira baixa onde repousavam objetos antigos: conchas petrificadas, penas pintadas, pequenos pedaços de vidro azul trazidos das ilhas do sul. Pegava cada um, virava, devolvia.
 
 — Eu gosto da casa de vocês — disse. — Aqui até cada coisinha parece contar uma história diferente.
 
@@ -108,7 +108,7 @@ Jokara olhou para o chão.
 
 — Então conta logo a do Menino que Pesava.
 
-Jokara sorriu. O povo eterí, desde a semente, era embalado por histórias, como a de "A Asa Roubada" ou "A Menina Silenciosa", mas o conto favorito de Liri era sempre o mesmo.
+Jokara sorriu. O povo eterí, desde a semente, era embalado por histórias, como a de “A Asa Roubada” ou “A Menina Silenciosa”, mas o conto favorito de Liri era sempre o mesmo.
 
 Ela fingiu hesitar.
 
@@ -148,22 +148,19 @@ Levou o menino até a beira da ilha e pediu que colhesse uma folha qualquer. Ele
 
 — A mentira só pesa enquanto é guardada — disse o Orador. — E o perdão não precisa ser belo. Só precisa ser sincero.
 
-O menino fechou os olhos, contou a verdade ao Vazio e soltou a folha.
-
+O menino fechou os olhos, contou a verdade ao Vento e soltou a folha.
 
 Na manhã seguinte, não havia pedra alguma nos bolsos.
 
-Ele correu. Subiu. Riu. E sua vintela voou mais alto do que antes.
-
-Foi assim que aprendeu que uma mentira pequena pode pesar mais do que uma pedra, e que dizer a verdade às vezes é a única maneira de voltar a sentir o vento.”
+Ele correu. Subiu. Riu. E sua vintela voou mais alto do que antes.”
 
 Quando a história terminou, Liri ainda tinha os olhos arregalados, mas o corpo já pesava no colo de Jokara.
 
-— Ele ficou bem? — sussurrou, quase adormecida.
+— Ele ficou bem? — sussurrou Liri, de olhos quase fechados.
 
 — Ficou — respondeu Jokara, acariciando-lhe os cabelos. — Voltou a voar mais alto que todo mundo.
 
-— Os Ventos são maravilhosos — disse, com doçura.
+— Os Ventos são maravilhosos — disse, com doçura. — E tem os outros também. O vento das histórias, o vento dos sonhos...
 
 — Os Ventos são três, Liri — retrucou Nestira, firme. — Os outros não existem. Peso é acreditar nisso.
 
@@ -179,9 +176,9 @@ Nestira bufou.
 
 — Ele moldou os caminhos entre as ilhas.
 
-Liri bocejou, os olhos já semicerrados, mas antes que o sono a levasse, murmurou:
+Liri bocejou, os olhos já semicerrados, mas antes que o sono a levasse, ainda insistiu:
 
-— Mas o Menino que Pesava me lembra de mim — disse Liri, abraçando Jokara com força. — Ele era leve… e sonhava. E eu também sonho muito. Além disso, eu também tenho um peso às vezes. Mas… passa quando venho aqui.
+— Mas o Menino que Pesava me lembra de mim. — Ela abraçou Jokara com força. — Ele era leve… e sonhava. E eu também sonho muito. Além disso, eu também tenho um peso às vezes. Mas… passa quando venho aqui.
 
 Jokara não soube o que responder. Sorriu, e Liri não reparou que era um sorriso triste.
 
@@ -213,20 +210,9 @@ Mirel ajoelhou-se diante dela.
 
 — Então venha amanhã cedinho. Eu mesma passo mel em sua boca.
 
-A menina assentiu e levantou-se, bocejando mais uma vez. Mirel ajeitou seu manto fino e trançou de novo a pena azul que se soltara do cabelo.
+Liri assentiu. Antes de se levantar, tirou do bolso um dente-de-mor quase desfeito e soprou a flor em direção à janela. Pequenas sementes brancas espalharam-se pelo quarto.
 
-— Já está ficando tarde, é melhor seguir para casa. Os oradores já vão começar a patrulha — disse Mirel.
-
-— Tá bom — disse a pequena Liri. — Que o Vento te conduza, Joka. E a você também, Nestira.
-
-— E a ti também, minha vintela de penas.
-
-Jokara acariciou-lhe os cabelos.
-
-
-Liri tirou do bolso um dente-de-mor quase desfeito e soprou a flor em direção à janela. Pequenas sementes brancas espalharam-se pelo quarto.
-
-— Quantas coisas guarda nesse bolso?
+— Quantas coisas você guarda nesse bolso?
 
 Liri riu.
 
@@ -234,7 +220,13 @@ Liri riu.
 
 — Não posso contar. Senão o vento devolve.
 
-Jokara piscou para ela.
+Levantou-se, bocejando mais uma vez. Mirel ajeitou seu manto fino e trançou de novo a pena azul que se soltara do cabelo.
+
+— Já está ficando tarde, é melhor seguir para casa. Os oradores já vão começar a patrulha — disse Mirel.
+
+— Tá bom — disse a pequena Liri. — Que o Vento te conduza, Joka. E a você também, Nestira.
+
+— E você também, minha vintela de penas — respondeu Jokara, acariciando-lhe os cabelos.
 
 — Vá com cuidado ao atravessar as pontes, pequena dos céus — disse Mirel, enquanto Nestira a acompanhava até a porta.
 
@@ -242,7 +234,7 @@ Jokara piscou para ela.
 
 A casa voltou a aquecer-se com sons cotidianos. O cheiro da infusão de cerco misturava-se agora ao vapor do mingau de res, e Mirel mexia a panela devagar. Nestira arrumava as louças, e Jokara picava raízes sem prestar atenção no que fazia.
 
-— Ainda pensas na mulher? — perguntou Nestira, sem olhá-la.
+— Ainda está pensando na mulher? — perguntou Nestira, sem olhá-la.
 
 Jokara demorou a responder.
 
@@ -280,9 +272,9 @@ Ela cedeu.
 
 Loutes assentiu.
 
-Atravessaram o limite da aldeia por rotas menos iluminadas, trilhas que só os eterís antigos ainda conheciam bem. Jokara ia com o coração aos pulos. Não havia vento.
+Atravessaram o limite da aldeia por rotas menos iluminadas, trilhas que só os eterí antigos ainda conheciam bem. Jokara ia com o coração aos pulos. Não havia vento.
 
-Atravessaram as pontes de raízes entre as ilhas. A madeira viva rangia a cada passo. Jokara ia à frente, testando cada passo antes de seguir. Loutes ia atrás, sem fazer barulho. No Sopro do Silêncio, um pé mal colocado bastaria para lançá-los a nadírion.
+Seguiram pelas pontes de raízes entre as ilhas. A madeira viva rangia a cada passo. Jokara ia à frente, testando o apoio antes de avançar. Loutes a seguia sem fazer barulho. No Sopro do Silêncio, um pé mal colocado bastaria para lançá-los a Nadirion.
 
 Acima das ilhas, o céu era de um azul tão fundo que as estrelas pareciam suspensas em alturas diferentes. Havia milhares delas, espalhadas até onde Jokara conseguia olhar, e uma faixa de luz miúda atravessava a escuridão. Mais abaixo, as nuvens escondiam a superfície. Das aldeias distantes, viam-se apenas as luzes das casas entre os contornos negros das árvores.
 
@@ -304,7 +296,7 @@ Loutes assentiu. Estavam tão perto que sentiam o perfume das oferendas queimada
 
 Jokara observou por entre as frestas.
 
-Quatro Oradores guardavam a entrada de uma clareira, diante de pedras dispostas em espiral. No centro, uma árvore seca, quase morta, estava enfeitada com fios dourados e fitas esbranquiçadas. Ali, segundo sua mãe, era onde a mulher havia sido encontrada. O lugar era chamado de Círculo de Nhamari, um dos pontos mais sagrados de Etérea. Um lugar que, segundo a tradição, só os oradores em jejum podiam entrar, para escutar os ecos mais antigos das Correntes.
+Quatro Oradores guardavam a entrada de uma clareira, diante de pedras dispostas em espiral. No centro, uma árvore seca, quase morta, estava enfeitada com fios dourados e fitas esbranquiçadas. Eram os Limos de Arion. A Relva-das-Três-Mãos cobria as pedras em volta, a poucos passos de onde tinham encontrado Loutes. Ali dentro, segundo sua mãe, a mulher havia sido pega. Aquele coração dos Limos era o Círculo de Nhamari, um dos pontos mais sagrados de Etérea. Nem os Oradores entravam sem autorização, e a tradição mandava que só o fizessem em jejum, para escutar os ecos mais antigos das Correntes.
 
 Por que ela tentaria entrar ali?
 
@@ -344,27 +336,27 @@ Uma das figuras mostrava pessoas lançando oferendas ao ar, como na cerimônia e
 
 Jokara voltou à página aberta. Só então reparou na nuvem escura desenhada sobre Etérea. Na página anterior, o Círculo do Peso cercava uma mulher. Uma mulher sem um olho.
 
-Virou a página então para a página seguinte à da grande nuvem.
+Passou à página seguinte.
 
 Uma lua negra, sem brilho, pairava sobre um céu estrelado, com riscos finos ao redor, como rachaduras. Virou mais uma página.
 
-Ilhas partidas, pedras estavam separadas e pessoas caíam num abismo.
+Ilhas partidas, pedras separadas e pessoas caindo num abismo.
 
-— Não... — murmurou, o coração acelerado. Virou mais uma página.
+— Não... — murmurou, o coração acelerado. Virou outra.
 
-Estava em branco. E a outra também. A imagem das ilhas partidas era a última do livro. Então veio um estalo seco, em algum lugar acima.
+Estava em branco. Tentou a seguinte. Também em branco. A imagem das ilhas partidas era a última do livro. Então veio um estalo seco, em algum lugar acima.
 
-Jokara virou-se, os olhos arregalados.
+Jokara virou-se para o menino, os olhos arregalados.
 
-— Loutes? — chamou virando-se para o rapaz.
+— Loutes?
 
-Mas antes que o menino pudesse responder, o chão estremeceu. Uma pedra se desprendeu do teto, depois outra, depois uma maior, e antes que Jokara pudesse se mover, uma delas atingiu sua perna.
+Antes que o menino pudesse responder, o chão estremeceu. Uma pedra se desprendeu do teto, depois outra, e uma maior atingiu a perna esquerda de Jokara antes que ela conseguisse sair do lugar.
 
 O som foi tão claro quanto o grito que escapou da sua boca.
 
 — AAAAH!
 
-Ela caiu, a perna presa sob a rocha. O sangue escorria rápido pelo chão escuro. Tentou puxar a perna e a dor a cegou por um instante. O ar vinha aos solavancos.
+Ela caiu, a perna presa sob a rocha. O sangue escorria rápido pelo chão escuro. Tentou puxá-la e a dor a cegou por um instante. O ar vinha aos solavancos.
 
 Loutes a encarava, imóvel.
 

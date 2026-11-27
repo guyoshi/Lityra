@@ -360,7 +360,17 @@ Kaelina elevou a voz antes que ele pudesse dominar o momento:
 
 A Mão da Colheita ficou imóvel. A raiva em seu rosto era suficiente para matar, mas Kaelina não precisava que ela gostasse da proposta. Precisava apenas que odiasse mais a consequência de recusá-la. Nynestra olhou ao redor.
 
-Viu os Buldar feridos por flechas sendo arrastados para trás das carroças, homens que haviam marchado desde os campos agora cobertos pelo sangue de uma cidade que não poderiam plantar, os Tondrar diante dos portões, os Vendrar ausentes de suas formações porque muitos já estavam saqueando os anéis e os Glydar divididos entre o rio e a terra. Depois olhou para Kharvok.
+Viu os Buldar feridos por flechas sendo arrastados para trás das carroças. Algumas cargas de grão tinham sido retiradas para abrir lugar aos homens que não conseguiam andar. Os Tondrar continuavam diante dos portões, os Vendrar estavam ausentes de suas formações porque muitos já saqueavam os anéis, e os Glydar se dividiam entre o rio e a terra.
+
+Nynestra encarou Kaelina.
+
+— Não vou te levar como refém. Kharvok seguiria minhas carroças até Nyn-Harad para arrancar você delas. Mas quero tua palavra aqui, diante dos teus guardas e dos meus: nenhum cobrador Polar vai aos nossos campos antes de revermos aqueles acordos.
+
+— Nenhum cobrador irá antes da revisão — respondeu Kaelina. — E vocês terão testemunhas suas quando os registros forem examinados.
+
+— Registradores teus, testemunhas minhas — disse Nynestra. — Vou cobrar as duas coisas.
+
+Então olhou para Kharvok.
 
 — Os Buldar recuam.
 

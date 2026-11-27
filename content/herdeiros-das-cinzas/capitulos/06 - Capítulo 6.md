@@ -1,4 +1,4 @@
-Kedran tinha mandado que não parassem até encontrar pedra seca, mas Litara já não conseguia manter os olhos abertos e Nefestra sentia a mão dormente de tanto segurá-la pelo casaco. A menina vinha às vezes no colo dela, às vezes apertada contra o peito de Kedran, por cima do ombro que não carregava Sefter. Quando o terreno subia, voltava para Nefestra. Foi assim por quase toda a tarde, sem que ninguém combinasse as trocas. Bera caminhava ao lado da pequena e encostava o focinho no joelho dela quando a cabeça começava a pender.
+Kedran tinha mandado que não parassem até encontrar pedra seca, mas Litara já não conseguia manter os olhos abertos e Nefestra sentia a mão dormente de tanto segurá-la pelo casaco. A menina andara alguns trechos agarrada à sua manga e passara o resto da tarde em seu colo. Quando Nefestra precisava descansar, Kedran apoiava Sefter contra uma árvore e tomava a pequena por um instante. Bera caminhava junto delas e encostava o focinho no joelho de Litara quando a cabeça começava a pender.
 
 Klafres ainda andava sozinho. Nefestra sabia disso porque tinha contado os passos dele desde o rio. No começo eram quase iguais aos dos outros. Depois passou a arrastar uma bota a cada quatro passos, e mais adiante a cada dois. O pai se recusava a deixar Kedran vê-lo assim. Quando o sobrinho olhava para trás, ele endireitava as costas, mesmo que a mão voltasse depressa ao flanco.
 
@@ -14,15 +14,15 @@ Nefestra olhou ao redor. Uma pedra enorme protegia o lugar de cima, mas um dos l
 
 Ela quase respondeu que não precisava que lhe mostrassem até onde andar. Em vez disso, tirou a luva da mão boa com os dentes e tocou a testa de Litara. Estava fria, embora a menina tivesse chorado durante parte do caminho. Pôs a luva de volta, ajustou a gola dela e foi buscar casca-de-fogo onde a neve não alcançava o pé dos troncos.
 
-A casca que encontrava vinha úmida nas bordas. Nefestra arrancou as partes mais secas, uma tira de cada vez, e as levou dobradas contra o peito para poder usar a mão única na subida. Na volta, ouviu Kedran discutir com Klafres.
+A casca vinha úmida nas bordas. Nefestra arrancou as partes mais secas, uma tira de cada vez, e guardou-as por dentro do casaco para ter a mão livre na subida. Na volta, ouviu Kedran discutir com Klafres.
 
 — Deita, tio. Eu já vou olhar.
 
-— Você tem um irmão com a perna aberta e uma menina pequena. Não vai gastar sua última tira de couro comigo.
+— Olha a perna do seu irmão primeiro. Não vai gastar o último pano comigo.
 
-— Não pedi uma lista. Pedi pra deitar.
+— Já amarrei a perna dele, tio. Agora deita.
 
-— E eu ouvi. Só queria chegar até a pedra sem você me empurrar.
+— Me deixa chegar até a pedra pelo menos.
 
 Klafres se sentou antes de terminar de falar. A pedra tinha uma saliência baixa, boa para apoiar as costas, e ele encostou nela como quem finalmente alcança um banco depois de um dia inteiro de trabalho. Nefestra se ajoelhou junto dele e pousou as tiras de casca ao seu lado.
 
@@ -34,7 +34,7 @@ Ele olhou para baixo, devagar. O couro, antes castanho, estava quase preto do la
 
 — Não é meu.
 
-— Então melhor lavar quando a gente puder. Depois endurece e fica difícil de tirar.
+— Então lava quando a gente achar água. Depois endurece e não sai mais.
 
 Nefestra não gostou da resposta. A mãe costumava responder assim quando o pai fazia uma pergunta séria e ela estava ocupada demais para discutir. Pegou a beirada do casaco dele.
 
@@ -42,27 +42,27 @@ Nefestra não gostou da resposta. A mãe costumava responder assim quando o pai 
 
 — Seu primo vai cuidar. Você fica com a pequena.
 
-— Eu sei tirar pano.
+— Eu posso segurar o casaco pra ele.
 
 Klafres olhou para a mão dela, com as unhas partidas e uma risca de sangue seco entre dois dedos. A expressão mudou, mas ele só assentiu. Kedran trouxe a faca, cortou a costura da lateral do casaco e abriu o tecido suficiente para ver onde a flecha entrara. O pedaço da haste tinha quebrado perto da pele. A volta de pano que o tio improvisara no rio estava encharcada.
 
 — Não puxa isso — disse Klafres, antes que Kedran encostasse na madeira. — Vai sair sangue demais.
 
-— Eu sei.
+— Não vou puxar. Só preciso ver o corte.
 
-— Seu pai também sabia. Foi ele que me ensinou.
+— Foi seu pai que me ensinou a deixar a haste no lugar.
 
 Kedran prendeu o pano limpo com tiras de couro, por cima da roupa que conseguira afastar. Quando apertou, Klafres segurou o pulso dele com tanta força que Nefestra viu os dedos ficarem brancos. O pai não gritou. Esperou o sobrinho terminar e pediu água.
 
-O odre tinha menos da metade. Nefestra se lembrou dos dois odres que haviam separado na ravina e da conta de cargas que fizera naquela manhã. Um deles ficara lá. A panela também. A tábua de esfolar. O saco grande de raízes. Não era possível voltar para buscar tudo. Mesmo assim, ela se pegou procurando com os olhos um lugar onde pôr a panela no fogo.
+O odre tinha menos da metade. Nefestra se lembrou dos dois que haviam separado na ravina e da conta de cargas que fizera naquela manhã. Um deles ficara lá. A panela também, a tábua de esfolar e o saco grande de raízes. Tinham salvo uma tigela pequena de metal entre as coisas de Kedran. Mesmo assim, ela se pegou procurando com os olhos o lugar onde a mãe costumava pôr a panela.
 
 — Nefestra, a casca — chamou Kedran.
 
 Ela fez uma pilha pequena entre duas pedras, cobriu com fibras secas tiradas do lado de dentro de um tronco e tentou acender. As primeiras brasas morreram antes de pegar. Sefter, deitado com a perna estendida sobre uma pele, quis levantar o corpo para ajudar, mas Kedran o fez deitar de novo.
 
-— Se abrir esse corte, vou ter que amarrar tudo outra vez. Quer isso?
+— Se abrir o corte, vai sangrar de novo. Fica deitado, Sef.
 
-— Quero fazer alguma coisa.
+— Mas eu posso ajudar.
 
 — Então segura a Litara enquanto eu corto os galhos.
 
@@ -70,11 +70,11 @@ Sefter olhou para a menina, que estava junto de Bera, esfregando os olhos com a 
 
 — Dodói.
 
-— É. Mas já tá amarrado. Pode sentar do outro lado.
+— É. Já amarrei. Vem sentar do outro lado.
 
 — Caiu?
 
-Ele ficou com a mão estendida, sem achar resposta. Litara se acomodou na pele ao lado dele e pegou dois gravetos, que começou a alinhar sobre a própria bota. Empurrou um na direção de Sefter e, quando ele o fez andar de volta sobre o couro, soltou uma risadinha curta. Pôs o graveto na mão do irmão e esperou que ele fizesse de novo. Nefestra tornou a tentar o fogo e desta vez conseguiu. A casca-de-fogo demorou a pegar, mas, quando a primeira tira acendeu por dentro, segurou uma brasa pequena e teimosa. Kedran voltou com galhos de pinho que tinham secado embaixo de outra rocha e os colocou um por um, sem abafá-la.
+Ele ficou com a mão estendida, sem achar resposta. Litara se acomodou na pele ao lado dele e pegou dois gravetos, que começou a alinhar sobre a própria bota. Empurrou um na direção de Sefter e, quando ele o fez andar de volta sobre o couro, soltou uma risadinha curta. Pôs o graveto na mão do irmão e esperou que ele fizesse de novo. Nefestra tornou a tentar acender o fogo e conseguiu manter uma brasa na casca-de-fogo. Kedran voltou com galhos secos que encontrara sob outra rocha e os colocou um por um, sem abafá-la.
 
 O fogo mal aquecia as mãos. Perto dele, Nefestra viu um pedaço da manga do pai abrir e mostrar a camisa debaixo, empapada de sangue. Ela pensou na mãe lavando as roupas de todo mundo na água gelada. Pensou na voz dela dizendo para estender a camisa pelo avesso, senão não secava direito. A lembrança veio tão inteira que Nefestra virou a cabeça à procura dela.
 
@@ -86,29 +86,29 @@ Klafres estava com os olhos fechados, mas respondeu antes de Kedran.
 
 — Ficou na ravina, filha.
 
-— Eu sei que ficou. Estou perguntando se alguém vai buscar.
+— Eu sei. Mas a gente vai buscar ela, né?
 
 Kedran se abaixou junto ao fogo e deu um sopro curto na casca. Ficou um tempo olhando a brasa antes de falar.
 
-— Não dá pra voltar agora. Eles estão do outro lado e conhecem o vale. Se atravessarem por cima, vão esperar a gente perto da água.
+— Agora não dá, Nefe. Aquela gente ainda tá do outro lado. Podem dar a volta por cima do rio.
 
-— O tio disse que a gente voltava em três noites.
+— O senhor disse que a gente voltava — disse ela ao pai.
 
-— Eu disse que a gente volta quando eles forem embora — corrigiu Klafres. — Isso pode demorar.
+— Quando eles forem embora, filha. Não sei quando vai ser.
 
 — E se os bichos chegarem primeiro?
 
 O pai abriu os olhos. Nefestra continuou olhando para ele. Queria saber porque, se não soubesse, teria que imaginar a mãe no chão frio, com a neve entrando pelo colarinho, e os animais vindo cheirar. Era pior do que ter visto a faca.
 
-— Não sei — respondeu Klafres. — Queria poder dizer que não vão chegar.
+— Não sei, Nefe. Queria poder dizer que não vão chegar.
 
-Ela puxou a manga vazia para perto do corpo e ficou calada. Pela primeira vez desde que atravessaram o rio, não conseguiu encontrar nada que pudesse contar.
+Ela puxou a manga vazia contra o corpo e ficou olhando a brasa até Kedran chamá-la para comer.
 
 Mais tarde, Kedran repartiu o peixe seco. Havia pouca comida, e Nefestra recebeu uma tira tão fina que a luz do fogo passava pelas bordas. Klafres recusou a parte dele. Kedran insistiu duas vezes, até o tio segurar o peixe com a mão suja de sangue e pô-lo ao lado do corpo.
 
 — Se eu comer agora, vou pôr tudo pra fora. Guarda pra amanhã.
 
-Nefestra observou o pedaço de peixe. Ficou esperando que o pai reclamasse do sal ou dissesse que o homem do sal finalmente havia encontrado um jeito de cobrar por uma coisa sem peso. Klafres apenas fechou os olhos.
+Nefestra ficou esperando que o pai reclamasse do tamanho do peixe ou culpasse o homem do sal pelo preço de uma coisa tão pequena. Klafres apenas fechou os olhos.
 
 Bera se levantou quando a claridade começou a sumir. Foi até a abertura entre as pedras, cheirou a neve e voltou para perto de Litara, onde deitou o corpo curvado em volta das botas da menina. O pelo do focinho ainda tinha uma mancha escura da luta. Nefestra tentou limpá-la com um pouco de neve, mas a cátila virou a cabeça.
 
@@ -120,13 +120,13 @@ A noite veio de uma vez. Kedran estendeu a pele maior por cima de Litara e de Ne
 
 Klafres chamou Kedran quando já havia pouca luz.
 
-— Chega aqui, rapaz. Quero contar o que seu pai não conseguiu.
+— Chega aqui, rapaz. Lembra que falei que seu pai tinha uma coisa pra contar?
 
 Nefestra se levantou antes do primo, ainda segurando o cobertor com a mão. Aproximou-se do pai e percebeu que ele estava respirando pela boca. A pausa entre uma respiração e outra tinha ficado comprida.
 
-— Conta amanhã — disse Kedran. — Hoje você precisa descansar.
+— Conta amanhã, tio. Você precisa dormir.
 
-— Amanhã eu vou precisar descansar mais ainda. Senta um pouco.
+— Agora que vocês tão todos aqui. Senta um pouco.
 
 Kedran se sentou no chão, junto de Sefter, que se arrastou um pouco para ouvir. Nefestra ficou ao lado do pai, de joelhos, e ajeitou a pele que escorregava do ombro dele. Klafres esperou recuperar o fôlego.
 
@@ -134,7 +134,7 @@ Kedran se sentou no chão, junto de Sefter, que se arrastou um pouco para ouvir.
 
 — Elis — disse Nefestra.
 
-— Isso. Elis. Ela existiu. Não sei quanta coisa da história aconteceu do jeito que a velha contava, porque ela mudava até o vento. Mas a menina era de verdade. Era da nossa família.
+— Isso. A menina existiu. Não sei se foi tudo do jeito que a velha contava, que até o vento ela mudava. Mas a Elis era da nossa família.
 
 Sefter ergueu a cabeça do leito.
 
@@ -142,19 +142,19 @@ Sefter ergueu a cabeça do leito.
 
 — Sabia. Seu pai também. A gente tem uns nomes guardados de pai pra filho, e esse veio de muito longe. — Klafres tossiu, mas a tosse saiu curta e seca. — Kaeliran. Foi lá que Elis viveu. A cidade da cantiga.
 
-Nefestra olhou para o metal escondido debaixo da gola. A avó lhe dera uma lamparina tão pequena que mal servia para iluminar um caminho, e mandara que não a mostrasse a ninguém. O povo de casacos cinzentos vira o objeto e chamado por um nome que ela não conhecia direito. Desde então, a palavra Polar tinha começado a aparecer nas conversas, sem que ninguém dissesse claramente o que fazer com ela.
+Nefestra olhou para o metal escondido debaixo da gola. A avó lhe dera a pequena lamparina e mandara que não a mostrasse a ninguém. A mulher de casaco cinzento olhara para o objeto antes de começar o ataque. Desde a fuga, Nefestra ouvira a palavra Polar mais de uma vez, sem que ninguém explicasse o que tinha a ver com eles.
 
-— A cidade era mesmo tão grande? — perguntou.
+— Pai, a gente é da mesma gente que a Elis?
 
 Klafres respirou antes de responder.
 
-— A sua avó dizia que era. Eu nunca vi. Seu tio Maltaren sabia de onde vinha o nome, mas não tinha visto também. A gente ouviu a história quando era pequeno, de um velho que jurava que sabia mais do que todo mundo. Quando a sua avó chegava na parte dos tarraks, ele sempre dizia que eram menos. Ela brigava com ele toda vez.
+— Somos, filha. A sua avó dizia que a cidade era enorme. Eu nunca vi, nem seu tio Maltaren. A gente ouviu a história quando era pequeno, de um velho que jurava saber mais que todo mundo. Na parte dos tarraks ele sempre dizia que eram menos. Sua avó brigava com ele toda vez.
 
 Nefestra esperou a continuação, mas o pai havia parado para respirar. Kedran foi pôr mais lenha no fogo e voltou, de modo que o calor não alcançasse a roupa ensanguentada.
 
-— Por que o pai queria contar agora? — perguntou.
+— E por que o pai queria contar da Elis justo agora? — perguntou Kedran.
 
-— Porque passou a vida escondendo isso de vocês. A gente achava que bastava ensinar a fugir. E aí eles vieram, mesmo assim. — Klafres virou um pouco a cabeça, procurando o sobrinho. — Eu não sei quem ouviu o quê, Kedran. Não sei como aqueles homens chegaram lá sabendo o nome. Seu pai também não soube.
+— Não deu tempo de perguntar tudo a ele, rapaz. A gente passou a vida ensinando vocês a fugir e guardando os nomes. Agora a velha se foi. Seu pai e eu éramos os que ainda lembravam. — Klafres virou a cabeça para Kedran. — Não sei como aqueles homens chegaram lá sabendo o nome. Seu pai também não soube.
 
 Sefter apertou o tecido em volta da coxa.
 
@@ -166,11 +166,11 @@ Sefter apertou o tecido em volta da coxa.
 
 Kedran pousou a faca ao lado do fogo, sem olhar para o irmão.
 
-— Agora a gente cuida do que tá aqui. Depois pode procurar resposta.
+— Agora a gente precisa dormir e fechar esses cortes. Depois a gente conversa.
 
-Sefter abriu a boca, mas o pai o interrompeu com um movimento pequeno da mão.
+Sefter abriu a boca, mas Klafres o interrompeu com um movimento pequeno da mão.
 
-— Chega. Vocês dois já tão discutindo por uma pessoa que nem está aqui. O que eu tinha pra contar era isso. Elis, Kaeliran. Guarda os nomes. Só não vai atrás de cidade nenhuma antes de aprender a andar de novo, Sefter.
+— Chega. A moça nem tá aqui pra responder. Guarda os nomes, Sef. Elis, Kaeliran. E vê se aprende a andar de novo antes de sair procurando cidade.
 
 A última frase veio cansada, com um resto do tom que Nefestra conhecia, mas o pai nem tentou sorrir. Tornou a fechar os olhos. Kedran cobriu Sefter e foi para a passagem, onde o ar parecia ainda mais frio.
 
@@ -190,9 +190,9 @@ Ela tirou a mão de imediato.
 
 Nefestra continuou ajoelhada. O pai abriu os olhos outra vez.
 
-— O que foi?
+— Que foi, filha?
 
-— A mãe não voltou.
+— Eu não paro de ver a mãe lá na neve.
 
 Klafres olhou o fogo, que já queimava com pouca chama. Durante algum tempo Nefestra achou que ele tivesse adormecido. Então ele estendeu a mão para ela e a pousou sobre a manga vazia, no lugar onde o braço terminava.
 
@@ -200,11 +200,11 @@ Klafres olhou o fogo, que já queimava com pouca chama. Durante algum tempo Nefe
 
 — Eu queria ter ido até ela. O Kedran me puxou e eu fui. Eu nem tentei voltar.
 
-— Você tinha a Litara.
+— Você tava com a Litara.
 
-— O Kedran que mandou. Eu fiz porque ele mandou.
+— Eu podia ter tentado puxar a mãe também.
 
-— Fez bem em ouvir. A Mentesra pediu pra levarem vocês duas. Foi o último pedido que eu ouvi dela.
+— Ela pediu pro Kedran levar vocês duas. Eu ouvi, filha. Você fez o que ela queria.
 
 Nefestra encostou de novo a mão no rosto do pai. A pele estava fria, mesmo com o fogo perto. Klafres moveu a cabeça, buscando os dedos dela.
 
@@ -212,11 +212,11 @@ Nefestra encostou de novo a mão no rosto do pai. A pele estava fria, mesmo com 
 
 — A Litara lembra da vovó. Ontem perguntou dela duas vezes.
 
-— Então vai perguntar mais. — Ele engoliu em seco. — Conta da sua mãe quando ela era moça. Conta que ela ficava brava comigo porque eu trazia madeira torta e dizia que era assim que a árvore tinha nascido.
+— Então vai perguntar mais. — Ele engoliu em seco. — Conta da sua mãe. De quando eu trazia madeira torta e dizia que a culpa era da árvore.
 
 — Ela não gostava de madeira torta.
 
-— Não gostava de mim chegando com ela. — A voz se perdeu por um instante, e ele precisou tomar ar. — Você conta tudo. Se eu errar alguma coisa, pode corrigir.
+— Não gostava era de mim chegando com ela. — Ele precisou tomar ar. — E se eu contar errado, você me corrige, que nem fazia com a vovó.
 
 Nefestra assentiu, ainda com a mão na bochecha dele. Pensou na mãe sentada diante da panela, tirando as partes queimadas da raiz para que Litara pudesse comê-la. Pensou no pai tentando convencer a mesma menina de que assobiar por uma flauta quebrada era um jeito melhor de fazer música. Queria dizer que lembrava dos dois, que poderia contar, mas o pai já respirava com dificuldade.
 
@@ -232,7 +232,7 @@ Nefestra não tirou a mão do rosto do pai.
 
 Kedran buscou outra pele e a estendeu sobre os ombros dela. Sentou perto, sem pedir que se afastasse. Sefter tentou levantar a cabeça, e Kedran fez um sinal curto para que continuasse deitado. Litara acordou com o movimento, começou a chorar e procurou alguém entre as peles. Bera se ergueu e foi até ela.
 
-Nefestra ouviu a pequena chamar pela vovó, depois pela tia Mentesra. Ouviu Kedran pegar a menina e dizer que estava ali. Tudo parecia acontecer num lugar perto, mas separado pelo corpo do pai. Ela lhe ajeitou a gola, porque tinha uma dobra de tecido encostada na boca dele, e ficou ali até Kedran trazer uma tira de couro e perguntar se poderia cobri-lo.
+Nefestra ouviu a pequena chamar pela vovó e depois pela tia Mentesra. Kedran pegou a menina e disse que estava ali. Nefestra ajeitou a gola do pai, porque o tecido encostava na boca dele, e ficou ali até Kedran trazer uma tira de couro e perguntar se poderia cobri-lo.
 
 — Pode cobrir — disse Nefestra. — Mas não amarra o rosto.
 
@@ -260,23 +260,23 @@ Litara olhou para ela.
 
 — Quem?
 
-— A sua mãe. A Ilmara.
+— Sua mãe, a Ilmara.
 
 A menina tocou o próprio peito.
 
 — Mamãe?
 
-— É. Ela tinha o cabelo comprido. E sempre queria saber onde todo mundo ia.
+— É. Tinha o cabelo comprido. Sempre perguntava onde a gente ia.
 
 Litara pareceu considerar a notícia e apontou para os pinheiros.
 
 — Foi ali?
 
-— Não. Foi num lugar que a gente deixou pra trás.
+— Não, Li. Foi muito longe daqui.
 
-A pequena se virou para Kedran, pedindo com o corpo que ele a pusesse no chão. Assim que as botas tocaram a neve, correu três passos até Bera e voltou para perto das pedras. Nefestra ia chamá-la quando ouviu um som saindo do buraco raso, o gotejar de água sob a terra. O calor do corpo de Klafres tinha começado a derreter a neve que tocava a pedra de baixo.
+A pequena pediu com o corpo que Kedran a pusesse no chão. Correu três passos até Bera e voltou para perto das pedras. Nefestra ouviu o gotejar de água sob a terra e demorou a se afastar da cova.
 
-Kedran estendeu a mão para ajudá-la a levantar. Ela a recusou, não por raiva, mas porque precisava usar a própria mão para segurar a lamparina escondida sob a gola. O metal estava ali, pequeno e frio, sem que ninguém o tivesse levado.
+Kedran estendeu a mão para ajudá-la a levantar. Ela não a tomou. Apertou a lamparina por cima da gola, levantou-se e foi buscar Litara.
 
 Foram embora antes de clarear completamente. Kedran segurou Sefter pelo ombro até a primeira descida, depois deixou que ele se apoiasse num galho comprido, que cortara do pinhal. Litara andou um pouco e pediu colo. Nefestra a levantou com a mão e o quadril, do jeito que Mentesra lhe ensinara, e sentiu o braço restante doer desde o ombro. Quando a menina adormeceu, precisou passá-la para Kedran.
 

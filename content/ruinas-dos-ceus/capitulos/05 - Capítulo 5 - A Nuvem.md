@@ -8,7 +8,7 @@ Alguns Oradores disseram que era apenas uma brisa cansada. Outros evitaram o ass
 
 Na alvorada seguinte ao exílio da mulher de um olho, Jokara saiu cedo para caçar nuaris. Não tinha fome. Queria ficar longe de casa.
 
-Dirigiu-se à orla oeste, onde os ciprestes ventosos se inclinavam menos que o habitual, e os nuaris, costumavam descer para alimentar os filhotes em galhos curvos. Dali se ouviam as asas cortando o ar, um som de que ela gostava desde pequena.
+Dirigiu-se à orla oeste, onde as árvores se inclinavam menos que o habitual, e os nuaris costumavam descer para alimentar os filhotes em galhos curvos. Dali se ouviam as asas cortando o ar, um som de que ela gostava desde pequena.
 
 Vestia o manto leve de planície, com uma tira firme no cabelo.
 
@@ -38,21 +38,19 @@ Ficaram um tempo calados. Jokara observou um nuari planando acima, e por um mome
 
 Efepar notou o olhar parado dela.
 
-— Parece que alguma coisa aconteceu com a passarinha — disse. — Dormiu de mal jeito?
+— Parece que alguma coisa aconteceu com a passarinha — disse. — Dormiu de mau jeito?
 
 Ela demorou a responder.
 
 — Eu fui ao Círculo.
 
-— Hã? Ao Círculo?
-
-Ele franziu a testa.
-
-— O Círculo do peso. O lugar onde as pessoas são julgadas. Fui com minha mãe ver a mulher que exilaram ontem.
+— Hã? — Ele franziu a testa. — O Círculo do Peso? Onde as pessoas são julgadas?
 
 Ela assentiu. Não olhou para ele. Chutou uma pedrinha com a ponta da bota.
 
-— Você… presenciou a decisão dos oradores?
+— Fui com minha mãe ver a mulher que exilaram ontem.
+
+— Você viu os Oradores decidirem?
 
 Ela hesitou de novo. Depois disse, baixo:
 
@@ -64,11 +62,11 @@ Efepar riu, mas foi um riso curto, desconfortável.
 
 Jokara pensou se valia a pena. Efepar ouvia bem. O problema era quando abria a boca depois.
 
-— Ela disse… Algo sobre os ventos descansarem. Que a luz será escondida. E os filhos do céu serão engolidos.
+— Ela disse… algo sobre os ventos descansarem. Que a luz será escondida. E os filhos do céu serão engolidos.
 
 Efepar riu.
 
-— Jokara… ela foi exilada. Loucura ou culpa, não sei. Mas... você mesmo ouviu o que disseram. Ela violou e vandalizou um lugar sagrado, espalhou o caos na mente das crianças. Ela não batia bem da cabeça.
+— Jokara… ela foi exilada. Loucura ou culpa, não sei. Mas... você mesma ouviu o que disseram. Ela violou e vandalizou um lugar sagrado, espalhou o caos na mente das crianças. Ela não batia bem da cabeça.
 
 — Talvez — disse Jokara. — Ou talvez não.
 
@@ -98,11 +96,11 @@ Ele tentou rir e não conseguiu.
 
 Ela assentiu, olhando para o chão.
 
-— Os meus... — ele pigarreou. — Os meus pais só diziam coisas como "não pise no musgo seco" ou "cuidado com os nuaris ao voar". Não deixavam espaço pra frases bonitas.
+— Os meus... — ele pigarreou. — Os meus pais só diziam coisas como “não pise no musgo seco” ou “cuidado com os nuaris ao voar”. Não deixavam espaço pra frases bonitas.
 
 Jokara o olhou de lado e sorriu.
 
-— Meu pai me ensinou a sentir o vento. Não a ouvi-lo — a senti-lo. Ele dizia que o vento muda primeiro aqui — colocou a mão sobre o coração — antes de mudar lá fora.
+— Meu pai tentou me ensinar a sentir o vento. — Colocou a mão sobre o coração. — Dizia que ele muda primeiro aqui, antes de mudar lá fora.
 
 Efepar coçou a nuca.
 
@@ -110,11 +108,11 @@ Efepar coçou a nuca.
 
 Ela respirou fundo.
 
-— Eu queria que estivesse. Todos dizem que ele está nos ventos… mas eu não sinto isso. — Jokara hesitou antes de continuar — E se… for verdade, Efepar. E se houve alguma esperança dele… de todos os que caíram ainda continuarem vivos. E se a mulher estivesse querendo nos dizer isso.
+— Eu queria que estivesse. Todos dizem que ele está nos ventos… mas eu não sinto isso. — Jokara hesitou antes de continuar. — E se… for verdade, Efepar? E se houver alguma esperança de que ele… de que todos os que caíram ainda estejam vivos? E se a mulher estava querendo dizer isso pra gente?
 
 Efepar olhou para o horizonte. Pela primeira vez na manhã, pensou antes de falar.
 
-— E como ela saberia disso? Como ela teria certeza de algo que nem os oradores sabem? Por que os ventos a permitiriam ter esse saber sem poder compartilhá-lo? Não seria melhor todos saberem disso? Mas todo mundo tem um primo que jura ter ouvido a avó morta cochichar. É difícil, Jokara. Difícil separar o que é do mundo do que é da cabeça da gente. Por isso eu fico com o Verbo.
+— E como ela saberia disso? Como ela teria certeza de algo que nem os oradores sabem? Por que os ventos iam contar só pra ela? Não seria melhor todo mundo saber? Mas todo mundo tem um primo que jura ter ouvido a avó morta cochichar. É difícil, Jokara. Difícil separar o que é do mundo do que é da cabeça da gente. Por isso eu fico com o Verbo.
 
 Jokara virou o rosto. Queria dizer que o Verbo tinha sido escrito por mãos demais, uma linha de cada orador, e que mãos erravam. Não disse.
 
@@ -132,19 +130,21 @@ Em poucos segundos, o sino mais alto de Etérea tocou. Um som grave e longo. Log
 
 Sem uma palavra, os dois começaram a correr. Na volta, a trilha custava a terminar. Galgavam raízes, se equilibravam entre pedras curvas e se abaixavam para atravessar túneis de galhos antigos. O vento agora vinha de todos os lados ao mesmo tempo. Perto da aldeia suspensa, os sinos menores já tocavam, e as primeiras pessoas passavam correndo por eles.
 
-Os eterí se espalharam pelas passagens e começaram os preparativos que conheciam desde crianças. Vintelas de madeira fina eram abaixadas sobre as escadas, escotilhas de vento eram lacradas com barro e óleo, e panos rituais eram atados aos mastros. As crianças eram puxadas pelas mãos, e os mais velhos murmuravam fórmulas antigas enquanto andavam.
+Os eterí se espalharam pelas passagens e começaram os preparativos que conheciam desde crianças. Painéis de madeira fina eram abaixados sobre as escadas, escotilhas de vento eram lacradas com barro e óleo, e panos rituais eram atados aos mastros. As crianças eram puxadas pelas mãos, e os mais velhos murmuravam fórmulas antigas enquanto andavam.
 
-Por onde passavam, Jokara já ouvia o som dos eterís, os "Shhhhh" "Shhhh " das pessoas nas janelas, estendendo os braços e sacudindo as mãos de dentro para fora, para espantar a nuvem.
+Por onde passava, Jokara ouvia o mesmo chiado nas janelas. Os eterí sopravam “shhh, shhh”, estendiam os braços e sacudiam as mãos de dentro para fora, para espantar a nuvem.
 
-Jokara e Efepar se separaram, e ao se aproximar da casa onde vivia, a garota viu Nestira e a mãe já na janela, ambas com os braços erguidos, fazendo os mesmos gestos. A irmã a avistou e gritou por entre os sons dos sinos.
+Jokara e Efepar se separaram. Ao se aproximar de casa, ela viu Nestira e a mãe já na janela, ambas com os braços erguidos, fazendo os mesmos gestos. A irmã a avistou e gritou por entre os sons dos sinos.
 
-— Jokara! Ajuda-nos aqui! Fecha as passagens!
+— Jokara! Ajuda a gente aqui! Fecha as passagens!
 
 Ela parou diante da plataforma, olhando para a casa e para a nuvem que agora engolia parte do céu. As mãos ainda tremiam da corrida. “A luz será escondida”, dissera a mulher.
 
 Jokara assentiu para a irmã, mas não foi ajudar.
 
-Jokara não respondeu à segunda chamada de Nestira. Subiu até o quarto, fechou a porta com o ombro e foi direto às janelas. O ar úmido entrava por elas. Puxou as trancas, uma por uma, e se sentou na beira da cama. O arco da irmã escorregou de sua mão e bateu no chão.
+— Jokara! — chamou Nestira outra vez.
+
+Ela não respondeu. Subiu até o quarto, fechou a porta com o ombro e foi direto às janelas. O ar úmido entrava por elas. Puxou as trancas, uma por uma, e se sentou na beira da cama. O arco da irmã escorregou de sua mão e bateu no chão.
 
 Deitou-se sem trocar de roupa e ficou olhando o teto.
 
@@ -154,9 +154,9 @@ Queria acreditar que era só loucura.
 
 Quando a nuvem começou a se desfazer, Etérea voltou devagar. Nenhum sino anunciou o fim. Nenhum Orador disse que o perigo tinha passado. As pessoas saíam de casa falando baixo.
 
-A mãe de Jokara, sentada no chão da sala com as pernas cobertas por mantas finas, costurava pequenos símbolos de proteção nas bordas dos panos rituais que seriam reutilizados no próximo ciclo de sombra. Era seu hábito após uma nuvem densa: bordar traços de vento com linhas brancas em fundo escuro. Nestira, por sua vez, estava concentrada em amassar folhas secas de garvenina sobre uma tigela de cerâmica, preparando um banho de vapor para os pés da mãe.
+Mirel, sentada no chão da sala com as pernas cobertas por mantas finas, costurava pequenos símbolos de proteção nas bordas dos panos rituais que seriam reutilizados no próximo ciclo de sombra. Era seu hábito após uma nuvem densa: bordar traços de vento com linhas brancas em fundo escuro. Nestira, por sua vez, estava concentrada em amassar folhas secas de garvenina sobre uma tigela de cerâmica, preparando um banho de vapor para os pés da mãe.
 
-Loutes cochilava perto da lareira. Passava a maior parte do tempo deitado.
+Loutes cochilava perto da lareira. Cansado desde o festival, passava a maior parte do tempo deitado.
 
 Jokara desceu com passos leves, já sem o manto. O cabelo ainda estava preso pela tira azul que usava ao caçar. 
 
@@ -166,25 +166,25 @@ Jokara desceu com passos leves, já sem o manto. O cabelo ainda estava preso pel
 
 — A cidade inteira está fedendo a fumaça e medo — completou a mãe, dando um nó firme no canto do pano que bordava.
 
-— Mãe... o que exatamente aquela mulher fez?
+— Mãe... o que aquela mulher fez de verdade?
 
 A agulha da mãe parou no ar.
 
 Nestira a olhou rapidamente, surpresa pela pergunta.
 
-— Já disseram. Ela estava dizendo coisas que não devia. Estava em lugares que não tem autorização.
+— Você ouviu. Ela dizia o que não devia. Entrou onde não tinha autorização.
 
-— Eu sei disso — cortou Jokara. — Mas... qual foi a acusação? A palavra exata? Só estou curiosa... é estranho como ninguém sabe dizer direito.
+— Eu ouvi — cortou Jokara. — Profanação de áreas sagradas. Mas que áreas? O que ela fez lá? Só tô curiosa... é estranho ninguém explicar direito.
 
 A mãe voltou a costurar, mas com menos firmeza. Então Jokara se adiantou.
 
-— Se quer que eu ou Nestira não pesemos como ela, precisamos saber o que não fazer.
+— Se não quer que eu e a Nestira fiquemos pesadas como ela, a gente precisa saber o que não fazer.
 
 Isso pareceu tranquilizar a mãe.
 
 — Ela... invadiu um lugar sagrado — disse, por fim. — Foi pega nos Bosques de Arion.
 
-— Que parte dos bosques? — Jokara tentou parecer casual, pegando a tigela de vapor das mãos de Nestira e sentando-se ao lado da mãe. — Os bosques são imensos. Tem gente que mora perto deles e nem sabe que são sagrados.
+— Que parte dos bosques? — Jokara tentou parecer casual, pegando a tigela de garvenina das mãos de Nestira e sentando-se ao lado da mãe. — Os bosques são imensos. Tem gente que mora perto deles e nem sabe que são sagrados.
 
 — Não era uma parte comum — respondeu a mãe, franzindo a testa. — Era no limite onde ficam os Limos de Arion, perto das rochas onde cresce a Relva-das-Três-Mãos.
 
@@ -216,7 +216,7 @@ Ela encostou os dedos na testa de Jokara com ternura.
 
 Jokara sorriu, para não ter de responder. Pegou a agulha da mãe e continuou o símbolo de onde ela tinha parado.
 
-Durante o Sopro do Silêncio, os ventos se aquietaram. Jokara demorou a adormecer. Ouvia a respiração de Nestira no quarto ao lado, regular, e tinha inveja dela.
+Durante o Sopro do Silêncio, os ventos se aquietaram. Jokara demorou a adormecer. A expressão “Espiral do Silêncio”, usada pelos Oradores para tempos de ruptura, voltou-lhe à memória sem que soubesse por quê. Ouvia a respiração de Nestira no quarto ao lado, regular, e tinha inveja dela.
 
 No meio da madrugada, ouviu um estalo seco, de algo pequeno batendo contra a madeira. Depois outro. E mais um. Jokara se levantou.
 
@@ -226,10 +226,8 @@ Ela apertou os olhos, seguindo a curva da parede, depois ergueu o olhar para cim
 
 A escuridão escondia as bordas da ilha acima, mas ela podia ver o contorno tênue das vinhas que cresciam pelas raízes suspensas. Seriam os ventos ainda oscilando?
 
-Voltou para a cama tentando se convencer de que não havia motivo para alarme. Já vira pedrinhas espalhadas antes.
+Voltou para a cama tentando se convencer de que não havia motivo para alarme. Já vira pedras caírem antes. A que caíra de Erilan continuava sobre a mesa.
 
 Mas aquelas ainda estavam rolando.
-
-Jokara permaneceu acordada, escutando o teto. A expressão “Espiral do Silêncio”, usada pelos Oradores para tempos de ruptura, voltou-lhe à memória sem que soubesse por quê.
 
 

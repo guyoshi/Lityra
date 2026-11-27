@@ -30,15 +30,13 @@ Sefter tentou sentar de uma vez. A perna respondeu com uma pontada que lhe roubo
 
 Ela parecia não ter dormido. Havia sujeira escura embaixo das unhas da mão direita e uma marca de tecido apertado no ombro. Tinha usado a noite para manter o fogo vivo, trocar o pano úmido da menina e impedir que a pele de cobertura levantasse com o vento. A lamparina permanecia guardada sob a gola, pendendo do lado em que não tinha braço.
 
-— Quanto tempo? — perguntou Sefter.
+— Faz quanto tempo que a gente deixou o Ked lá?
 
-— Desde que paramos? A noite inteira. Você dormiu um pouco quando a febre dela baixou.
+Nefestra olhou a abertura do abrigo. A neve ainda caía forte.
 
-— Não tô falando disso.
+— Uma noite. Não sei mais que isso.
 
-Nefestra ajeitou a pele sobre Litara, sem responder de imediato.
-
-— Não sei.
+Ela ajeitou a pele sobre Litara.
 
 Ele olhou para a entrada. Durante a noite imaginara ouvir tarraks na estrada várias vezes. Em todas havia despertado e procurado a figura do irmão além do fogo, até lembrar que Kedran ficara atrás das pedras com Ravira.
 
@@ -48,11 +46,11 @@ Ele olhou para a entrada. Durante a noite imaginara ouvir tarraks na estrada vá
 
 Sefter esfregou o rosto com as duas mãos. O cordão de três cores raspou sua bochecha. Tinha o nó apertado no pulso desde a tarde em que Ravira o entregara, quando ele ainda achava que a pior coisa que poderia acontecer era o pai descobrir com quem falara.
 
-— Se eu tivesse ficado com a flecha na garganta...
+— Se eu tivesse ficado com ele na garganta...
 
-— Você não tinha flecha, Sef.
+— Você nem conseguia correr, Sef.
 
-— Eu podia ter pego uma das dele.
+— Podia ter pegado o arco.
 
 — E a Litara?
 
@@ -82,11 +80,11 @@ Litara pareceu aceitar. Virou o rosto para Nefestra e pediu água, tão baixinho
 
 Nefestra olhou para Sefter. Era a primeira vez desde a manhã anterior que ouviam aquele som.
 
-— Viu? — disse, sem querer sorrir antes da hora. — Ela ainda sabe rir da Bê.
+— Olha, Sef. Riu da Bê!
 
 Litara tentou tocar as orelhas da cátila. Bera se aproximou, farejou a mão e encostou a cabeça nela. A pequena manteve a palma aberta sobre o pelo, sonolenta. Sefter ficou observando até que a irmã tornou a fechar os olhos.
 
-Ele queria lembrar aquele instante. Não sabia por quê, apenas teve medo de que o frio o apagasse junto com todo o resto.
+Sefter ficou mais um pouco junto das duas, até a mão de Litara relaxar sobre o pelo de Bera.
 
 O dia não clareou completamente. Uma faixa de nuvens cobria o vale, e a neve que começara durante a fuga tornara-se mais espessa. Sefter mediu a abertura do abrigo com a própria bota. Se conseguisse cortar mais dois galhos grossos, poderia apoiar a pele sobre eles e fazer uma parede que não levantasse a cada rajada. Pegou a faca e o galho de caminhar.
 
@@ -98,9 +96,9 @@ Nefestra examinou sua perna.
 
 — Não vou sair da encosta.
 
-— É o que você disse ontem antes de voltar para ver o Kedran.
+— Ontem você também disse que ia ajudar. Voltou correndo pra garganta.
 
-Sefter abriu a boca, mas a resposta ficou presa. Sabia que ela tinha razão. Aquilo o irritava ainda mais porque era Nefestra quem havia carregado Litara enquanto ele tentava voltar. A prima tinha onze ciclos, uma mão só e um peso grande demais para o corpo. Mesmo assim fora ela quem o puxara para longe dos homens.
+Sefter abriu a boca, mas fechou. Tinha visto Nefestra carregar Litara com um braço enquanto ele tentava voltar. Não tinha como negar.
 
 — Vou ficar onde dá pra ver a entrada — disse por fim.
 
@@ -130,15 +128,15 @@ Havia um pedaço cozido, duro de frio, e algumas migalhas de pão.
 
 Sefter viu a raiz que ela guardava sob um pano. Nefestra percebeu o olhar dele e a colocou mais perto da menina.
 
-— Você precisa comer — disse ela.
+— Separa um pouco pra você também.
 
-— A gente precisa comer — respondeu Sefter.
+— E você vai comer o quê?
 
-— Eu sei.
+— Ainda não tô com fome.
 
 Ficaram algum tempo sem falar. Nefestra partiu a raiz com a mão boa, usando os dentes quando não conseguiu fazer o pedaço menor se soltar. Deu a Litara primeiro. A menina aceitou um pouco, mastigou devagar e parou. Nefestra guardou o restante para mais tarde, embora a parte exposta já estivesse amolecida pela saliva.
 
-Sefter ajudou a fixar os galhos novos. O abrigo ficou mais fechado, mas a fumaça começou a se acumular debaixo da pele, e ele precisou abrir uma fenda junto à pedra mais alta. O vento levou o excesso de fumaça e trouxe de volta pequenas partículas de neve. Não havia solução perfeita. Havia apenas um lugar em que era possível permanecer um pouco mais.
+Sefter ajudou a firmar os galhos. O abrigo ficou mais fechado, mas a fumaça começou a se acumular sob a pele. Ele abriu uma fenda junto à pedra mais alta. O vento levou a fumaça e trouxe pequenas partículas de neve.
 
 — Tem um brastel perto da subida — disse, quando terminou.
 
@@ -156,7 +154,7 @@ Nefestra olhou para ele.
 
 — Eu consigo atirar.
 
-— E depois vai carregar ele como? Sozinho? Com uma perna só?
+— E se acertar? Vai arrastar um bicho desse com essa perna?
 
 Sefter encarou o saco de comida. Imaginou a carne assando perto do fogo, Litara pedindo a parte mais macia, Nefestra podendo comer sem fingir que já estava satisfeita. Imaginou também Kedran olhando as marcas, escolhendo um lugar para esperar e dizendo que a caça se perdia quando o caçador confundia fome com pressa.
 
@@ -164,11 +162,11 @@ Sefter encarou o saco de comida. Imaginou a carne assando perto do fogo, Litara 
 
 Nefestra aproximou-se da entrada e olhou a neve caindo quase na horizontal.
 
-— Sef, se você não voltar antes do escuro, eu não tenho como procurar você e deixar a Litara aqui.
+— Sef, se escurecer e você não voltar, eu não posso sair atrás de você e deixar a Litara.
 
 — Volto.
 
-— Não me promete uma coisa que depende do vento.
+— Então não vai longe. Olha essa neve.
 
 A frase saiu mais triste do que zangada. Sefter ficou parado com o arco curto nas mãos. Era o mesmo que levara nas primeiras caçadas com o pai. Depois da ferida na coxa, mal conseguira puxar a corda sem se desequilibrar. Testou-a ali dentro, com o pé bom apoiado na pedra. Conseguiu chegar ao fim do movimento, embora a dor subisse pela perna.
 
@@ -198,9 +196,7 @@ O animal correu.
 
 Sefter disparou tarde demais. A flecha passou perto do flanco do brastel e atingiu um pinho. O som se perdeu sob o vento.
 
-Ele deveria ter voltado.
-
-Em vez disso, seguiu as marcas.
+Ele devia voltar para a árvore de casca arrancada. Em vez disso, seguiu as marcas.
 
 O brastel deixara um rastro fundo na neve nova, fácil de acompanhar nos primeiros passos. Sefter mancou entre os troncos, apoiando o arco como podia, até alcançar a borda de uma encosta onde o solo parecia firme. Viu a galhada ao longe, desaparecendo entre duas árvores, e tentou cortar caminho pela parte mais alta.
 
@@ -214,7 +210,7 @@ O arco estava preso acima, entre duas pedras. A perna ferida fora torcida por ba
 
 — Não... — murmurou.
 
-O vento enchia o espaço de neve fina. Sefter conseguiu sentar de lado, apoiando a mão boa na pedra e estendendo a perna até encontrar uma posição menos dolorosa. Havia uma saída por cima, onde a raiz se projetava sobre o vão, mas precisaria erguer o próprio peso com os braços. Acima dela a borda era coberta por gelo.
+O vento enchia o espaço de neve fina. Sefter conseguiu sentar de lado, apoiando a mão na pedra e estendendo a perna até encontrar uma posição menos dolorosa. Havia uma saída por cima, onde a raiz se projetava sobre o vão, mas precisaria erguer o próprio peso com os braços. Acima dela a borda era coberta por gelo.
 
 Tentou uma vez. A mão alcançou a raiz, o ombro suportou parte do corpo e a bota boa encontrou uma pequena saliência. Quando puxou a outra perna, a ferida abriu sob a atadura. Escorregou de volta, raspando o antebraço na pedra.
 
@@ -222,7 +218,7 @@ Ficou respirando com dificuldade, a testa encostada na parede fria.
 
 Lembrou do dia em que Kedran o tirara de uma água congelada, anos antes, segurando-o pela gola até que ambos tombassem na margem. Naquele tempo achara humilhante precisar da ajuda do irmão. Agora teria trocado qualquer coisa para ouvir a voz dele acima da pedra, dizendo que havia escolhido um lugar idiota para pisar.
 
-Tentou outra vez, dessa vez usando a tira de couro que carregava para prender a faca à raiz. O nó aguentou no começo. Quando ergueu o corpo, a parte ressecada se rompeu e ele caiu de lado, batendo a cabeça na rocha.
+Tentou outra vez, passando a tira de couro por uma raiz baixa para ter onde se apoiar. O nó aguentou no começo. Quando ergueu o corpo, o couro ressecado se rompeu e ele caiu de lado, batendo a cabeça na rocha.
 
 O céu clareou por um instante. Depois ficou escuro nas bordas.
 
@@ -256,7 +252,7 @@ Caminharam devagar. A cada rajada, Sefter precisava parar e esperar que a visão
 
 Nefestra veio até eles tão depressa que quase escorregou.
 
-— Eu mandei a Bera te procurar quando ouvi um barulho na encosta — disse. — Você demorou demais. Sef, sua boca tá roxa.
+— Mandei a Bera atrás de você quando começou a escurecer. Achei que não ia mais voltar. Sef, sua boca tá roxa!
 
 — Não trouxe nada.
 
@@ -266,13 +262,13 @@ Nefestra veio até eles tão depressa que quase escorregou.
 
 — Entra, Sefter.
 
-Ela não perguntou pelo arco. Segurou o braço dele com a mão boa e levou-o para dentro, apoiando-o na parte da parede que não recebia neve. A coxa tinha encharcado o pano novo. Nefestra tirou a tira úmida, colocou o último pedaço seco que restava entre as ataduras e cobriu a perna com uma pele.
+Ela segurou o braço dele e levou-o para dentro, apoiando-o na parte da parede que não recebia neve. A coxa tinha encharcado o pano. Nefestra tirou a tira úmida, colocou o último pedaço seco que restava entre as ataduras e cobriu a perna com uma pele.
 
 Sefter tremia sem conseguir parar. Nefestra trouxe uma tigela de água morna e a encostou em seus lábios.
 
 — Bebe devagar.
 
-Ele tentou segurar a tigela, mas os dedos não obedeceram. A prima manteve a borda apoiada até que ele conseguisse tomar alguns goles. Depois pegou um pano e começou a esfregar suas mãos para devolver-lhes calor.
+Ele tentou segurar a tigela, mas os dedos não obedeceram. A prima manteve a borda apoiada até que ele conseguisse tomar alguns goles. Depois envolveu as mãos dele num pano seco e aproximou a pele do fogo.
 
 — A Litara? — perguntou Sefter.
 
@@ -294,35 +290,35 @@ Sefter olhou para o nó de três cores. Tinha a marca da pele apertada embaixo, 
 
 A menina roçou o polegar na lã, mas não tentou puxá-la. Nefestra a acomodou melhor e foi buscar a última comida.
 
-Partiu o pedaço de raiz em porções tão pequenas que parecia estar contando grãos. Um pedaço foi para Litara, junto de água morna, para que conseguisse engolir. Sefter recusou o seu. Nefestra também não quis.
+Partiu o pedaço de raiz em porções minúsculas. Os grãos que sobravam já estavam de molho na água morna da tigela. Um pedaço foi para Litara, junto de água morna, para que conseguisse engolir. Sefter recusou o seu. Nefestra também não quis.
 
 — Você precisa comer — disse Sefter.
 
 — Você também.
 
-— Eu tava fora. Não gastei o dia tentando cuidar de dois.
+— Guarda pra você. Passou o dia cuidando dela e nem comeu.
 
 A prima olhou o rosto dele, arranhado pela pedra, e colocou a própria parte ao lado da menina.
 
 — Eu não tenho fome agora.
 
-Os dois sabiam que era mentira. Nefestra insistiu em guardar a menor porção, mas, quando Litara começou a chorar fraco por causa da tosse, desfez a raiz na água e a ofereceu de novo. A menina conseguiu engolir alguns pedaços antes de adormecer.
+Nefestra insistiu em guardar a menor porção, mas, quando Litara começou a chorar fraco por causa da tosse, desfez a raiz e o resto dos grãos já amolecidos na água morna e ofereceu à menina. Ela conseguiu engolir um pouco antes de adormecer.
 
 O saco ficou vazio.
 
 Sefter esperou que Nefestra terminasse de cobri-la.
 
-— Quando a nevasca parar, eu volto.
+— Quando a neve parar, eu volto lá.
 
 Ela continuou ajeitando a pele.
 
-— Pra caçar?
+— Lá onde você caiu?
 
 — Pra procurar o Kedran.
 
 Nefestra virou o rosto devagar. A expressão que tinha não era de surpresa. Era o cansaço de alguém que passara o dia inteiro esperando que ele dissesse aquilo.
 
-— Você não consegue nem caminhar até a árvore lá fora.
+— Você mal chegou vivo até aqui, Sef.
 
 — Consigo depois que a perna fechar.
 
@@ -332,7 +328,7 @@ Sefter sentiu o frio do vão de pedra voltar por dentro da roupa.
 
 — Eu preciso saber.
 
-— Eu também queria saber se a minha mãe teve tempo de olhar pra mim antes de cair. Não vou voltar até aquela ravina só porque não consigo parar de pensar nisso.
+— Eu também queria voltar pra buscar a minha mãe. Nem sei se ainda tá onde caiu. Mas olha pra Litara. Como vou levar ela até lá?
 
 Ele olhou para ela. Nefestra tinha os olhos vermelhos, mas não chorava. Falava enquanto dobrava o pano sujo para guardá-lo longe de Litara, o mesmo cuidado que Mentesra sempre tivera com roupas molhadas.
 
@@ -350,9 +346,9 @@ Sefter tentou se levantar, mais para fugir da conversa do que por necessidade. A
 
 Nefestra se agachou perto de Litara.
 
-— Eu não tô pedindo que você esqueça. Tô pedindo que olhe quem ainda tá aqui.
+— Não tô dizendo pra esquecer o Kedran. Só não me deixa sozinha com ela, Sef.
 
-A frase ficou entre eles. Sefter queria dizer que ela estava sendo cruel, que não entendia o que Kedran significava, que teria pensado diferente se tivessem levado o pai dela. Mas o corpo de Klafres ainda estava sob as pedras que Nefestra ajudara a carregar, e Mentesra permanecia na ravina, onde ninguém conseguira voltar por ela. A prima sabia o bastante sobre não poder escolher.
+Sefter olhou as pedras que seguravam a pele, lembrando das que Nefestra carregara para cobrir o pai. Ela ainda nem tinha conseguido voltar para buscar a mãe. Ele ficou calado.
 
 Ele puxou a manga sobre o cordão.
 
@@ -372,9 +368,9 @@ Ela olhou para a entrada.
 
 — O Kedran saberia por onde ir.
 
-— Ele ensinou o rumo pra você antes de a gente chegar lá. E o pai ensinou a ele.
+— Você ouviu ele explicar antes do posto. Lembra do lado que o sol nasceu?
 
-Sefter olhou para a pouca luz que entrava. De frente para o nascente, a direita indicava o sul. Não podia ver o sol naquela nevasca, mas lembrava a orientação da crista de antes das nuvens. Era pouco para escolher um futuro e o suficiente para não seguir em círculos.
+Sefter olhou para a pouca luz que entrava. Não via o sol naquela nevasca, mas lembrava a direção da crista de antes das nuvens. Quando o céu abrisse, poderia conferir o rumo.
 
 — Tá. A gente desce — concordou. — Mas não vai ser pela estrada daquela bandeira.
 
@@ -390,7 +386,7 @@ Bera saiu do abrigo e se pôs ao lado dela, farejando a trilha. A cátila não c
 
 A neve perto da entrada estava irregular por causa das idas e vindas do dia. Foi ali que ela viu uma lasca de madeira escura, fina, presa entre duas pedras que não se tocavam. Não estava coberta pelo gelo antigo. A face de cima trazia um desenho feito com uma lâmina estreita: uma linha central que se dividia em ramos curtos, todos nascendo da mesma base.
 
-Nefestra deixou a tigela no chão e pegou a peça com os dedos da mão direita. Virou-a de um lado para o outro, procurando outra marca. Não havia letras nem sinal de oficina. O desenho lembrava o que Jelatira mandava limpar no fundo da lamparina quando a gordura endurecia nas ranhuras do metal.
+Nefestra deixou a tigela no chão e pegou a peça com os dedos da mão direita. Virou-a de um lado para o outro, procurando outra marca. Não havia letras nem sinal de oficina. O desenho lembrava as linhas que ela contara no fundo da lamparina na noite em que Jelatira lhe dera o cordão.
 
 Ela levou a mão à gola. O objeto antigo estava ali, frio contra a pele.
 
@@ -410,7 +406,7 @@ Ele procurou a faca com a mão, mas Nefestra se sentou ao lado de Litara antes q
 
 — Não dá pra ir lá fora de novo. A Bera não foi atrás e eu também não vi caminho.
 
-Sefter ficou olhando a abertura por alguns instantes. Depois apoiou a faca ao alcance da mão e ajudou a trazer o fogo um pouco para dentro, longe do vento. A pele de cobertura estava úmida, e cada pedaço de lenha restante fazia mais fumaça do que chama. Nefestra procurou o punhado de casca-de-fogo que haviam guardado, mas o encontrara tão molhado que mal pegou fogo.
+Sefter ficou olhando a abertura por alguns instantes. Depois apoiou a faca ao alcance da mão e ajudou a proteger o fogo do vento com uma pedra. A pele de cobertura estava úmida, e cada pedaço de lenha restante fazia mais fumaça do que chama. Nefestra encontrou o punhado de casca-de-fogo molhado. Tentou acender uma ponta, mas a chama morreu.
 
 — Temos que secar isso — disse Sefter.
 
@@ -434,7 +430,7 @@ Sefter se ajoelhou ao lado das duas.
 
 — A gente ainda tem a erva — disse.
 
-— Tenho um pouquinho. Já preparei de manhã.
+— Tem um pouquinho. Usei quase tudo de manhã.
 
 Ele procurou a bolsa. Encontrou as folhas secas que restavam e uma tira de pano limpa demais para ser usada como curativo. Entregou tudo à prima, que separou o que precisava e deixou o restante longe da umidade.
 
@@ -442,7 +438,7 @@ Bera se aproximou e encostou o focinho na sola da bota de Litara. Nefestra tento
 
 — Cadê a Litara? — perguntou baixinho, puxando a ponta da coberta até cobrir os olhos da menina. — A Bê tá procurando.
 
-Costumava bastar aquilo. Mesmo cansada, Litara tirava a pele do rosto e respondia "aqui", às vezes só para poder se esconder de novo. Nefestra esperou.
+Costumava bastar aquilo. Mesmo cansada, Litara tirava a pele do rosto e respondia "aqui", às vezes só para se esconder de novo. Nefestra esperou.
 
 A pequena não puxou o cobertor.
 

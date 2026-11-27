@@ -130,7 +130,7 @@ Alex e o velho trocaram olhares.
 
 — Aquelas coisas são bem mais que espíritos.
 
-Então eles tinham perdido alguém, a mulher deles. Entendi, mais ou menos, o peso da voz dos dois e o porquê de tanta proibição. Só não ia admitir isso na frente deles.
+Então eles tinham perdido alguém, a mulher deles. Na estante, só um vasinho de calêndulas parecia receber algum cuidado, e o calendário na parede trazia um dia circulado em cada mês. Entendi, mais ou menos, o peso da voz dos dois e o porquê de tanta proibição. Só não ia admitir isso na frente deles.
 
 — Tá, entendi. Posso ir?
 

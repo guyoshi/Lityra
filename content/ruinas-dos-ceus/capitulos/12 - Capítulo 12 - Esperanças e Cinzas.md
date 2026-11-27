@@ -8,7 +8,7 @@ O riacho não ficava longe dali. Jokara filtrava a água com tecidos velhos de E
 
 Naquele sopro, a fome a levou além do hábito. Viu um animal pequeno, de pelo áspero e patas curtas, e foi atrás dele.
 
-Nos primeiros metros, conseguiu usar o bastão quase como uma terceira perna, lançando-o à frente, apoiando o peso e impulsionando a perna direita. Então o animal mudou de direção entre duas raízes. Jokara tentou fazer o mesmo, fincou a madeira num ponto coberto de folhas e a ponta deslizou.
+Nos primeiros metros, conseguiu usar o bastão como apoio para ganhar velocidade, lançando-o à frente, apoiando o peso e impulsionando a perna direita. Então o animal mudou de direção entre duas raízes. Jokara tentou fazer o mesmo, fincou a madeira num ponto coberto de folhas e a ponta deslizou.
 
 Caiu de lado.
 
@@ -30,7 +30,7 @@ O homem ergueu a cabeça, alerta. Ao vê-la, sorriu largo.
 
 As lágrimas vieram rápidas aos olhos de Jokara. Ela apertou o bastão contra o peito e riu entre soluços.
 
-— Você também achava? Eu pensei que só restávamos eu e… e uma criança. Que bom, ventos, que bom que há mais alguém.
+— Você também? Eu achei que só tinha sobrado eu e… e uma criança. Pelos ventos, que bom encontrar mais alguém.
 
 O homem nadou até a margem, mas não saiu da água. Ficou com metade do corpo dentro d'água. Os cabelos molhados caíam pelos ombros. Tinha olhos escuros, um cavanhaque cerrado e uma cicatriz pequena no maxilar.
 
@@ -56,7 +56,7 @@ Jokara assentiu, apertando o bastão contra o ombro.
 
 Jokara não respondeu.
 
-— E essa criança? — perguntou Gabasteri — Está com você ainda?
+— E essa criança? — perguntou Gabasteri. — Está com você ainda?
 
 — Sim. — Ela enxugou os olhos. — O nome dele é Loutes. Ele me salvou muitas vezes… e eu tento salvá-lo também.
 
@@ -68,7 +68,7 @@ Gabasteri riu, balançando a cabeça.
 
 O homem se aproximou mais da margem, apoiando-se nas mãos. A água escorria pelos braços fortes, de músculos secos de quem vivia do próprio corpo, cheios de cicatrizes. Algumas eram recentes.
 
-— Aqui embaixo tudo cobra rápido. Se não encontramos água, sentimos no mesmo sopro. Se não caçamos, a fome decide por nós. Se entramos numa trilha errada, talvez não haja uma segunda chance. — Sorriu de novo. — Você continua viva. Então já deve ter aprendido algumas coisas também.
+— Aqui embaixo, se você não acha água ou comida, sente no mesmo sopro. E é só errar uma trilha pra acabar na boca de algum bicho. — Sorriu de novo. — Você continua viva. Então já deve ter aprendido algumas coisas também.
 
 — Eu aprendi… muita coisa aqui embaixo — disse Jokara. — Achei… achei que nunca mais ouviria uma voz que não fosse a minha. — A voz dela quebrou. Lágrimas escorreram de novo. — Eu não sabia se poderia continuar. Mas agora… agora eu acho que posso.
 
@@ -102,15 +102,17 @@ Foi só quando ele saiu da água que se lembrou. Estava nu. Jokara corou e virou
 
 — Vamos? — disse, ajeitando a túnica puída sobre o ombro.
 
-No caminho, Jokara não parava de falar. Contou sobre a fome que nunca cessava, sobre a criatura do rio que não a deixava pescar, sobre a criatura enorme de olhos amarelos que encontrara três vezes na floresta. Contou até sobre o Sopro do Silêncio em que cantou para corpos eterianos mortos na casa.
+No caminho, Jokara não parava de falar. Contou sobre a fome que nunca cessava, sobre a criatura do rio que não a deixava pescar, sobre a criatura enorme de olhos amarelos que encontrara três vezes na floresta. Contou até sobre o Sopro do Silêncio em que cantou para os mortos na casa caída.
 
 Gabasteri ouvia com atenção, rindo aqui e ali quando ela descrevia suas trapalhadas, como a vez em que quase caiu de uma árvore atrás de frutos, ou quando o peixe lhe escapou por entre as mãos.
 
 — A criatura de olhos amarelos… já encontrei uma antes — disse ele. — Escapei porque aprendi quando correr e quando não correr.
 
-— Você realmente está aprendendo — disse ele, divertido. — Talvez sobreviva melhor do que pensa.
+— Eu ainda estou aprendendo a parte de não cair — disse Jokara.
 
-Jokara sorriu pela primeira vez em muitos sopros.
+— Mas ainda está de pé — disse ele, divertido. — Já é mais do que muita gente conseguiu.
+
+Jokara sorriu de novo.
 
 — Talvez. Mas… isso me dá esperanças… eu tinha uma irmã em Etérea. Se eu sobrevivi… talvez ela também tenha.
 
@@ -130,15 +132,13 @@ Gabasteri ergueu as sobrancelhas, mas não comentou nada. Jokara então devolveu
 
 Gabasteri respondeu sem perder o sorriso.
 
-— Nas margens de Enurial. Trabalhava no comércio de tecidos. — Balançou a cabeça, ainda sorrindo. — Nunca fui bom com vendas, mas sempre admirei as cores.
+— Nas margens de Enurial. Cuidava dos tecidos nos balcões de partilha. — Balançou a cabeça, ainda sorrindo. — Nunca levei jeito pra tingir nada, mas sempre admirei as cores.
 
-— Enurial era bem longe de casa. Eu nunca fui lá. Então você trabalhava com tecidos?
-
-— Sim — respondeu Gabasteri.
+— Nunca fui a Enurial. Era bem longe de casa.
 
 — Então deve ter caído envolto em mantos. — A piada soou engraçada apenas para ela, que riu sozinha.
 
-— Quem me dera. Caí como pedra. Ainda sinto os ossos gritar — disse, teatral, e riu alto.
+— Quem me dera. Caí como pedra. Ainda sinto os ossos gritarem — disse, teatral, e riu alto.
 
 Jokara riu também.
 
@@ -170,7 +170,7 @@ Jokara sorriu para Gabasteri, tentando quebrar o gelo:
 
 Gabasteri sentou-se perto da chama, à vontade. Ficou olhando para o menino um pouco mais do que precisava. Loutes encolheu os ombros e voltou a trabalhar na madeira, as mãos tremendo.
 
-Jokara apressou-se em buscar algo no cesto que haviam escondido entre pedras. Retirou um punhado de raízes torradas, alguns frutos menores e, por fim, um pequeno pedaço de pão seco, guardado como relíquia dos últimos suprimentos eterianos encontrados entre os destroços.
+Jokara apressou-se em buscar algo no cesto que haviam escondido entre pedras. Retirou um punhado de raízes torradas, alguns frutos menores e, por fim, um pequeno pedaço de pão seco, guardado como relíquia dos últimos suprimentos eterí encontrados entre os destroços.
 
 — Não é muito… mas é o que temos — disse, oferecendo. — Coma.
 
@@ -194,7 +194,7 @@ O menino recuou, sem tirar os olhos de Gabasteri.
 
 — Como sobreviveu à queda? — perguntou Jokara.
 
-— Eu… tive a sorte… de cair em um rio — disse Gabasteri.
+— Tive sorte… caí num rio — disse Gabasteri.
 
 — Eu também… na verdade… foi em um lago. E não me lembro como, mas… acordei na margem.
 
@@ -206,7 +206,7 @@ Gabasteri lambeu os dedos e perguntou:
 
 — Mas pelo menos está viva. Você e o garoto — disse Gabasteri.
 
-— Era para mais pessoas estarem… se eu tivesse… eu sabia que algo assim aconteceria… mas ninguém acreditou em mim… nem minha própria irmã — Jokara hesitou — No sopro do cataclisma, quando cheguei em casa, minha irmã estava orando aos ventos… dizia que os ventos a salvariam. Eu a puxei. Fugimos. Ela estava comigo… era para continuar comigo… mas ela caiu…
+— Era pra ter mais gente viva… Eu sabia que ia acontecer, mas ninguém acreditou em mim. Nem minha irmã. — Jokara hesitou. — No sopro do cataclisma, quando cheguei em casa, ela estava orando aos ventos. Dizia que eles iam salvá-la. Eu a puxei, a gente fugiu… Ela estava comigo, Gabasteri. Era pra ter continuado comigo. Mas caiu…
 
 Jokara não continuou. Gabasteri não insistiu. Loutes olhava para as chamas com os ombros duros.
 
@@ -218,13 +218,13 @@ O homem terminou de comer, limpou as mãos no tecido roto que usava e inclinou a
 
 Gabasteri sorriu.
 
-— É bondade sua. Mas eu não quero incomodar. Estou acostumado a seguir sozinho.
+— É bondade sua. Mas não quero incomodar.
 
 Jokara franziu o cenho.
 
 — Como assim, vai embora? Eu… pensei que iríamos ficar juntos. Que não precisaríamos mais enfrentar isso sozinhos.
 
-— Não quero atrapalhar — respondeu ele. — Vocês já têm pouco. Eu sigo melhor sem pesar os ombros de ninguém.
+— Vocês já têm pouco — respondeu ele. — Estou acostumado a me virar sozinho.
 
 — Não é peso! — ela insistiu. — Se ficarmos juntos, podemos sobreviver melhor. Eu tenho um abrigo, fogo… você tem experiência. Nós podemos nos ajudar!
 
@@ -256,16 +256,16 @@ Subiram a montanha com os olhos ardendo de fumaça. Lá atrás, o abrigo já nã
 
 No alto da encosta, pararam, ofegantes. Jokara apoiou-se no bastão, os pulmões ardendo, enquanto Loutes tossia sem parar. Lá embaixo, a encosta inteira queimava.
 
-Jokara caiu de joelhos. Uma espiral de trabalho.
+Jokara baixou-se até o chão, apoiada no bastão. Uma espiral de trabalho.
 
 
 No sopro seguinte, Jokara não quis acordar. Ficou deitada no chão frio da montanha, encolhida, de olhos fechados.
 
-“Então é isso Nadirion”, pensou. Talvez fosse assim que alguém virava um Vazio: parando de se mexer.
+“Então isso é Nadirion”, pensou. Talvez fosse assim que alguém virava um Vazio: parando de se mexer.
 
 Quando abriu os olhos, Loutes não estava. Ela não foi procurá-lo.
 
-Passou metade do sopro largada ali, pensando se os oradores estavam certos e ela errada. Eles não queriam alertar as pessoas para que não chegassem vivas ao nadírion. Para que definhassem antes, e se juntassem ao vento. Ela estava aos poucos se tornando um vazio… enquanto a irmã, a mãe, o professor Taliver, o pai, todos agora eram vento.
+Passou metade do sopro largada ali, pensando se os oradores estavam certos e ela errada. Eles não queriam alertar as pessoas para que não chegassem vivas a Nadirion. Para que definhassem antes, e se juntassem ao vento. Ela estava aos poucos se tornando um Vazio… enquanto a irmã, a mãe, o professor Taliver, o pai, todos agora eram vento.
 
 Então ouviu passos leves. Loutes voltava curvado pelo peso do que carregava: um monte de peixes ainda úmidos, dois animais pequenos amarrados por cipós, e raízes arrancadas da terra. O menino largou tudo diante dela e sorriu.
 

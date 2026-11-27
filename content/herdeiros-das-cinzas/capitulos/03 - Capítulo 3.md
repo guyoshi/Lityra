@@ -8,9 +8,9 @@ Litara apareceu no meio da manhã arrastando pela neve um galho do tamanho dela,
 
 A menina foi embora satisfeita, deixando um sulco largo na neve, que Bera farejou de ponta a ponta antes de voltar para dentro. Litara correu atrás da cátila, rindo e batendo as botas no chão para fazer barulho. Quando Bera virou a cabeça, a pequena se escondeu atrás da perna de Kedran, embora quase todo o casaco continuasse aparecendo. Kedran fingiu não vê-la até ela sair do esconderijo com um grito de vitória e abraçá-lo pelo joelho. Quando ela já não podia ouvir, Sefter perguntou baixo:
 
-— Ela tá pior?
+— A vovó tá pior?
 
-— Tá. — Kedran puxou uma tora do monte para refazer o lugar dela. — O pai saiu antes de clarear sem acordar ninguém. Pelo menos foi o que disse.
+— Tá. Nem conseguiu tomar o chá todo de manhã. — Kedran puxou uma tora do monte para refazer o lugar dela.
 
 Nos três últimos troncos Kedran pegou as pontas mais pesadas sem explicar, e Sefter, que sabia a razão, porque os dedos ainda respondiam devagar desde o gelo da curva e os dois sabiam disso, não agradeceu, que era o jeito de agradecer entre eles.
 
@@ -30,9 +30,9 @@ Jelatira abriu os olhos quando Sefter se agachou. Estavam turvos, mas achavam o 
 
 — Por isso mesmo que eu quero ir.
 
-— A água do balde está limpa. Eu esquento.
+— Eu esquento a água do balde. Tá limpa.
 
-— Água que se esquenta deixa de ser riacho, Mentesra.
+— Quero a do riacho, Mentesra. Só mais uma vez.
 
 Mentesra apertou a boca e olhou para a panela, e Sefter reconheceu aquele silêncio, que era o de quem está sendo vencida por alguém a quem deve demais para responder à altura.
 
@@ -46,11 +46,11 @@ Mentesra olhou para ele e depois, finalmente, para Sefter, por tempo suficiente 
 
 Pesava menos do que o casaco de sarnak encharcado. Foi o que Sefter pensou quando a levantou, com um braço sob os joelhos e outro nas costas, e a avó lhe passou os dela em volta do pescoço com a obediência de uma criança grande. Nos primeiros cem passos ele insistiu em deixá-la andar, porque o caminho descia pelo pinhal e a neve estava pisada, mas no fim da descida os pés dela já arrastavam, e ele a içou para as costas, com o bastão cruzado no peito, e continuou. A respiração dela lhe entrava pelo colarinho, curta e quente, e a cada quatro passos virava tosse e voltava a ser respiração.
 
-— Mais devagar — disse ela, no ouvido dele.
+— Mais devagar, menino — disse ela, no ouvido dele.
 
-— Estou devagar.
+— Já tô indo devagar, vovó.
 
-— Está devagar para você.
+— Pra você. Pra mim, tá correndo.
 
 Ele diminuiu o passo. Passaram pela pedra com a marca de fogo, onde o musgo tinha ficado preto de tantas fagulhas antigas, e pelo toco partido, e a mata foi fechando em volta com o ruído abafado de quem entra num lugar de que gosta. Jelatira começou a falar do tempo.
 
@@ -74,13 +74,13 @@ Ele ouviu. Sentiu que devia fazer alguma coisa com o rosto e não soube o quê, 
 
 — Isso.
 
-— O homem do sal diz que onde passa Polar sobra desgraça.
+— Então o homem do sal fala da gente quando diz que onde passa Polar sobra desgraça?
 
-— Diz.
+— Fala sem saber.
 
-— Então ele tem razão?
+— E se tiver razão?
 
-— O sal dele é bom. O resto ele fala por medo — disse Jelatira. — E tem gente que mata por medo, menino. É por isso que existe a regra. Perdemos a cidade faz muito tempo. Não podemos perder o que sobrou. Agora repete comigo, antes que essa tosse volte.
+— O sal dele é bom. O resto ele repete por medo — disse Jelatira. — E tem gente que mata por causa disso, menino. É por isso que existe a regra. Perdemos a cidade faz muito tempo. Não podemos perder o que sobrou. Escuta bem, antes que essa tosse volte.
 
 Tossiu antes de terminar a frase, e a tosse a dobrou sobre o próprio colo e a manteve ali por um tempo longo demais, enquanto Sefter se erguia sem saber para quê e se sentava de novo, com as mãos abertas sobre os joelhos. Quando ela se endireitou, tinha uma pontinha de sangue no canto do lábio, e a limpou com o dedo, sem olhar, como quem tira uma migalha.
 
@@ -100,15 +100,15 @@ O cordão da moça do rio coçou sob a manga, no lugar em que a lã o apertava. 
 
 Ele repetiu mais devagar. Ela escutou com os olhos fechados, os lábios se mexendo um pouco atrás dos dele, e quando ele acabou assentiu duas vezes, como assentia quando uma história saía na ordem em que tinha sido contada pela mãe dela.
 
-— A Nefestra e a Litara não sabem — disse Sefter.
+— E a Nefestra? Ela também não sabe, né?
 
-— A Litara só tem dois ciclos. A Nefestra... — A tosse chegou e foi embora mais curta. — Seu pai é quem decide quando contar. Não você. Nem porque gosta dela, nem porque acha que ela precisa saber. A hora dela vai chegar.
+— Não. E a Litara só tem dois ciclos. — A tosse chegou e foi embora mais curta. — Seu pai é quem decide quando contar. Não você. Nem porque gosta dela, nem porque acha que ela precisa saber.
 
 — A senhora vai morrer.
 
 Não era pergunta e ele ouviu que não era, e Jelatira o olhou com uma atenção cheia de afeto, a mesma com que olhava Kedran quando ele acertava um nó.
 
-— Vou, menino. Essa tosse e esses anos todos já decidiram. Só falta escolher o dia. — Estendeu a mão e passou os dedos pelo cabelo dele, que lhe caía sobre os olhos. — E esse cabelo? Seu pai corta o dele. Você não. Por isso ainda tem cara de menino.
+— Vou, menino. Essa tosse não me deixa nem dormir. — Estendeu a mão e afastou o cabelo dos olhos dele. — Olha só pra você. Seu pai corta o dele. Você deixa crescer até não enxergar mais nada.
 
 — Vovó...
 
@@ -124,19 +124,19 @@ O dia passou lento, no ritmo de uma casa que se concentra em não fazer barulho.
 
 — Vovó tá mimindo — disse, num segredo que se ouviu da entrada.
 
-— Está.
+— Tá cansada, Li. Deixa ela dormir.
 
 — Dome muito.
 
-— Está cansada.
+Nefestra ajeitou a menina no colo.
 
 — Canta depois?
 
-— Canta e depois dorme. — Nefestra afastou o cabelo da menina para trás da orelha, do lado da mecha. — Hoje também.
+— A gente pede pra ela cantar quando acordar.
 
 Litara pensou naquilo com a seriedade de quem recebe uma informação para guardar, e aceitou. Klafres e o tio Maltaren chegaram ao anoitecer, com neve acumulada nos ombros, e a resposta que Kedran perguntou com os olhos antes de os dois entrarem foi uma só e Klafres a deu em voz alta, para encerrar: nada. Nem marca, nem fumaça, nem a mancha de alguém contra o branco. O tio Maltaren tirou o capuz e ficou diante da cama, de pé, muito tempo, com a mão passando pela cicatriz do antebraço. A mãe dele abriu os olhos, e a boca dela se mexeu, e ele se curvou para ouvir. Nefestra não alcançou o que foi dito. Alcançou a cara do tio, que ouviu até o fim sem mudar, e depois foi sentar-se junto ao fogo e pegou a tigela que lhe passaram, e comeu de pé, depressa, e saiu para a primeira vigia sem olhar para trás. Ela entendeu que era mais fácil para ele vigiar a encosta do que ficar sentado diante da mãe.
 
-A sopa saiu rala e sem ânimo.
+A sopa saiu rala.
 
 — Ela não devia ter saído — disse Mentesra a Klafres, baixo, enchendo as tigelas, e Nefestra viu a mão de Sefter, que levava a dele à boca, parar a meio caminho. — Não com aquela tosse. E a neve já vinha chegando.
 
@@ -146,7 +146,7 @@ A sopa saiu rala e sem ânimo.
 
 Dizia, como sempre, sem dizer o nome. Sefter pôs a tigela no chão ao lado do joelho e não a pegou outra vez.
 
-Contou a família, como todas as noites, sem decidir contar: o pai, a mãe, o tio Maltaren lá fora, Kedran, Sefter, a avó, Litara e ela. Oito pessoas e uma cátila. A conta fechou.
+Nefestra contou a família, como todas as noites: o pai, a mãe, o tio Maltaren lá fora, Kedran, Sefter, a avó, Litara e ela. Oito pessoas e uma cátila. A conta fechou.
 
 Era hora da pele de dormir quando Jelatira a chamou. Falou baixo, e foi tão baixo que Nefestra se inclinou até sentir o cheiro de chá azedo na respiração dela.
 
@@ -164,27 +164,27 @@ Era menor do que a palma dela e mais pesada do que parecia, de um metal escuro q
 
 — O que é?
 
-— É da família. É o que eu tenho de antes.
+— Uma lamparina. É da família. Já era velha antes de eu nascer.
 
-— Antes de quê?
+— De quem era?
 
-— De mim.
+— Dos que vieram antes de mim.
 
 Nefestra esperou. A avó respirava com a boca entreaberta e o olhar fixo na pequena lamparina, e uma ou duas vezes a tosse subiu e ela a engoliu, com um esforço que lhe levantou os ombros.
 
 — Por baixo da roupa. Não tira nem para dormir. Não mostra a ninguém de fora, nem tira da gola para ver se ainda está ali, que isso também é mostrar.
 
-— E se alguém perguntar?
+— Mas se alguém vir mesmo assim?
 
-— Então é um enfeite velho de uma velha que morreu.
+— Diz que é um enfeite velho de uma velha que morreu.
 
-— Por que eu? — perguntou. Não era ciúme, era conta. — O Kedran é mais velho. O Sefter... — Parou, porque a frase que vinha depois do nome de Sefter era da mãe dela, e ela a sabia de cor. — Por que eu e não eles?
+— Por que eu? O Kedran é mais velho. O Sefter... — Parou antes de repetir o que a mãe costumava dizer sobre ele. — Por que não deu pra um deles?
 
 — Porque você conta tudo. Se ela sumir, vai perceber. E vai saber quando foi.
 
 Passou o cordão pela cabeça de Nefestra com as duas mãos, o couro arrastando nas tranças, e a lamparina caiu contra o peito dela, ainda morna do pescoço da avó. Pesava. O anel apertou a pele sob a clavícula. Nefestra levou a mão ao lugar para firmá-la e enfiou-a por baixo da gola, onde o metal se acomodou na cavidade do esterno, no lugar exato.
 
-— Pode perguntar uma coisa — disse Jelatira. — Uma só. Se eu souber, respondo.
+— Anda, pergunta. Tô vendo que tá cheia de perguntas. Uma só, antes que me falte o ar.
 
 Nefestra pensou. Tinha dezenas. A primeira era o que as linhas significavam, e a segunda por que o esmalte era azul, e a terceira por que a avó nunca a tinha mostrado, e a quarta se aquilo tinha a ver com a menina da história que descia com a luz. Escolheu a que mais lhe doía.
 
@@ -200,7 +200,7 @@ Os outros tinham ido parando. Klafres sentou-se de pernas cruzadas, com a flauta
 
 — Que a noite é longa — cantou Jelatira, e Litara, que lutava com as pálpebras, apoiou o queixo no braço dela e deixou os olhos fecharem. — E eu estou.
 
-A menina dormiu na palavra.
+Litara dormiu na palavra.
 
 Nefestra esperou o aqui. Era a palavra que ela tinha posto ali, na noite do sarnak, e que ela vinha dizendo por dentro, no fim de cada cantiga, enquanto a avó seguia só com a melodia, como quem repete uma coisa dita por outra pessoa para ver se ainda cabe na boca. Contou uma respiração. Contou duas. A mão de Jelatira estava aberta sobre o cabelo de Litara, e os dedos, que sempre se mexiam um pouco no fim, não se mexeram. Nefestra tinha a palavra inteira na boca, e não a disse.
 
@@ -246,37 +246,37 @@ Ninguém respondeu. Klafres virou a cara para a encosta. Mentesra apertou a meni
 
 Maltaren foi o primeiro a ir embora, desceu pela encosta em passos pesados sem olhar para ninguém, e Klafres foi atrás dele a uma distância curta, e as mulheres atrás deles, com Litara. Quando só restavam os dois, Kedran tirou as luvas e passou as costas das mãos no rosto, com raiva, e em seguida as calçou outra vez.
 
-— Ela te levou ao riacho — disse.
+— Lá no riacho... ela te contou da nossa gente?
 
-— Levou.
+Sefter assentiu.
 
 — Falou do tempo primeiro?
 
 — Da neve.
 
-— Comigo foi o vento — disse Kedran. Olhava o monte de pedras, não o irmão. — Disse que ia mudar de lado. E depois me contou.
+— Comigo foi o vento. — Kedran olhava o monte de pedras. — Disse que ia mudar de lado. Depois me contou.
 
 Sefter esperou que ele dissesse mais alguma coisa. O irmão apoiou a mão numa pedra do alto, a mão que não segurava nada, e fez pressão para testar a firmeza, e ela não se mexeu.
 
 — Não fala disso aqui. Nem perto da Nefestra, nem da Litara. E nem na entrada, que as duas escutam tudo. O pai escolhe a hora.
 
-— Ela disse.
+— Ela me fez repetir a regra.
 
-— Eu sei. Tô repetindo porque conheço essa sua cara. — Kedran passou por ele, parou um passo adiante, de costas, e não se virou. — Você levou ela até lá.
+— Eu sei. Tô repetindo porque conheço essa sua cara. — Kedran passou por ele, parou um passo adiante, de costas, e não se virou. — Você fez bem em levar ela até lá.
 
-— Ela pesava menos que a lenha.
+— Ela pesava menos que a lenha, Ked.
 
-— Eu sei — disse Kedran, e desceu.
+Kedran ficou parado mais um instante, depois desceu.
 
 Sefter ficou. A neve tinha começado de novo, fina, leve, e pousava nas pedras mais altas sem derreter. De cá de cima via-se a boca da ravina e, dentro dela, o fio de fumaça da casca-de-fogo subindo reto, e ouvia-se, muito distante, Bera chamar uma vez, curto, e depois nada. A regra estava ali, inteira, do jeito que a vovó a tinha posto, e ele a repetiu em voz baixa, sem querer, e parou no meio. O cordão da moça do rio roçou o pulso quando ele levantou a mão para limpar o rosto. Pensou, não sabia por quê, que a manga precisava ser puxada mais para baixo.
 
 — Sefter! — chamou Mentesra, do pé da encosta. — Desce. A sopa não vai esperar.
 
-Ele desceu. Na entrada do abrigo, ao lado da pele de sarnak, Nefestra o esperava com Litara pela mão. A menina agora arrastava um pedaço de pele pelo chão, e Nefestra tinha a outra mão, a única, enfiada por dentro do casaco, no peito, onde ele jamais a vira pôr, e uma expressão tranquila demais.
+Ele desceu. Na entrada do abrigo, ao lado da pele de sarnak, Nefestra o esperava. Litara se agarrava à barra do casaco dela, arrastando um pedaço de pele pelo chão, enquanto Nefestra mantinha a única mão enfiada por dentro da gola, sobre o peito, com uma expressão tranquila demais.
 
 — A vovó te contou uma história — disse.
 
-— Contou.
+— Contou, Nefe.
 
 — Qual?
 
@@ -284,8 +284,8 @@ Ele olhou para Litara, que arrastava a pele pelo chão e fingia não escutar, e 
 
 — A dos tarraks. Eram nove, e o vento era do sul.
 
-— Igual à última vez.
+— Igual à última vez?
 
-— Ela estava cansada.
+— Ela tava cansada.
 
-— A vovó nunca conta igual. — Nefestra ficou olhando para ele durante o tempo que levaria para contar até sete. Depois puxou Litara pela mão e entrou, e a pele da entrada caiu atrás das duas.
+— A vovó nunca conta igual. — Nefestra ficou olhando para ele durante o tempo que levaria para contar até sete. Depois soltou a gola, pegou Litara pela mão e entrou.

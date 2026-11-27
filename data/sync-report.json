@@ -4,7 +4,7 @@
   "sourceCommit": "5f29e8b72a142f5e4b7d5d60592deb6888118961",
   "status": "warning",
   "summary": {
-    "warnings": 49
+    "warnings": 74
   },
   "issues": [
     {
@@ -150,6 +150,156 @@
       "message": "Capa aprovada não encontrada; a capa publicada anteriormente foi mantida.",
       "bookId": "viajantes-dimensionais-2",
       "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto/02 - Assets/Capa/Capa com texto"
+    },
+    {
+      "area": "cover",
+      "message": "Capa aprovada não encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-1",
+      "item": "Spacetheft/1 - A Lenda da Aurora/02 - Assets/Capas/Spacetheft 1 Capa - Domongo corpo unico - luz vermelha.png"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "a-uniao-1",
+      "item": "A União/1 - A União"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "diario-sobrenatural-3",
+      "item": "Diário Sobrenatural/3 - O Limiar da Noite"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-2",
+      "item": "Spacetheft/2 - Livro 2"
+    },
+    {
+      "area": "cover",
+      "message": "Capa aprovada não encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-2",
+      "item": "Viajantes Dimensionais/2 - A Máscara do Contracanto/02 - Assets/Capa/Capa com texto"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "a-uniao-2",
+      "item": "A União/2 - Chamas da Noite"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "a-uniao-3",
+      "item": "A União/3 - Nova Era"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "a-uniao-4",
+      "item": "A União/4 - Livro 4"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "diario-sobrenatural-4",
+      "item": "Diário Sobrenatural/4 - A Convergência dos Profanos"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "diario-sobrenatural-5",
+      "item": "Diário Sobrenatural/5 - A Travessia dos Evanescentes"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "misterio-oculto-2",
+      "item": "Mistério Oculto/2 - Fábula de Fogo"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "misterio-oculto-3",
+      "item": "Mistério Oculto/3 - Cidade Crepúsculo"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "misterio-oculto-4",
+      "item": "Mistério Oculto/4 - Trilhos do Tempo"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "misterio-oculto-5",
+      "item": "Mistério Oculto/5 - Destino Disruptivo"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-3",
+      "item": "Spacetheft/3 - Livro 3"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-4",
+      "item": "Spacetheft/4 - Livro 4"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-5",
+      "item": "Spacetheft/5 - Livro 5"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "spacetheft-6",
+      "item": "Spacetheft/6 - Livro 6"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-3",
+      "item": "Viajantes Dimensionais/3 - O Observatório das Estrelas Ocultas"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-4",
+      "item": "Viajantes Dimensionais/4 - O Solstício Arcano"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-5",
+      "item": "Viajantes Dimensionais/5 - Livro 5"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "viajantes-dimensionais-6",
+      "item": "Viajantes Dimensionais/6 - Livro 6"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "edelin-lys-1",
+      "item": "Édelin Lys/1 - Promessas do Mar"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "edelin-lys-2",
+      "item": "Édelin Lys/2 - Memórias do Fogo"
+    },
+    {
+      "area": "cover",
+      "message": "Nenhuma capa aprovada encontrada; a capa publicada anteriormente foi mantida.",
+      "bookId": "edelin-lys-3",
+      "item": "Édelin Lys/3 - Segredos do Gelo"
     },
     {
       "area": "cover",

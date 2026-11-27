@@ -1,6 +1,6 @@
-Todos dormiam. Jokara, no entanto, fingia dormir.
+Todos pareciam dormir. Jokara fingia.
 
-Havia três Sopros do Silêncio que Jokara observava Gabasteri sair escondido. Ele esperava todos adormecerem, conferia o entorno do abrigo e desaparecia entre as árvores. Não dizia aonde ia.
+Já era o terceiro Sopro do Silêncio em que via Gabasteri sair escondido. Ele esperava todos adormecerem, conferia o entorno do abrigo e desaparecia entre as árvores. Não dizia aonde ia.
 
 Naquele Sopro do Silêncio, levou consigo o saco onde guardava parte dos alimentos, ferramentas e as armas que recolhia antes do descanso, inclusive a adaga de Jokara. Ela esperou alguns instantes antes de se erguer.
 
@@ -18,11 +18,11 @@ Os olhos dele se fecharam. Algum tempo depois, o ronco grave misturou-se aos son
 
 Ela se aproximou do saco. Procurava primeiro a própria adaga e, se pudesse, parte da comida. Não tinha ainda um plano inteiro. Queria apenas devolver ao grupo alguma possibilidade de escolha.
 
-Foi então que encontrou algo diferente. Entre as coisas havia um pequeno recipiente fechado por rosca. A tampa estava manchada de azul. Ao abri-lo, Jokara viu um pó muito fino, mais escuro do que o que se soltava naturalmente das flores, com resíduos prateados presos às bordas.
+A adaga dela estava logo ali. Prendeu-a à cintura e continuou procurando. Então encontrou algo diferente. Entre as coisas havia um pequeno recipiente fechado por rosca. A tampa estava manchada de azul. Ao abri-lo, Jokara viu um pó muito fino, mais escuro do que o que se soltava naturalmente das flores, com resíduos prateados presos às bordas.
 
 Não tocou.
 
-A lembrança veio inteira: Platisa mostrando o Beijo-da-Noite, explicando que os pelos irritavam olhos e garganta, mas que preparadores de Etérea também sabiam macerar e concentrar aquele pó até que uma quantidade pequena, ingerida, se tornasse muito mais perigosa.
+Lembrou-se de Platisa mostrando o Beijo-da-Noite e explicando a diferença entre o pó da flor e aquele que os preparadores de Etérea tornavam muito mais perigoso.
 
 Aquilo não parecia uma flor simplesmente esmagada. O material havia sido trabalhado e comprimido no recipiente.
 
@@ -38,7 +38,7 @@ Jokara ficou imóvel. Nenhuma daquelas coisas provava nada.
 
 Mas o pó azul em sua mão mudava o peso das perguntas. O ronco de Gabasteri cessou.
 
-Jokara ergueu os olhos. Ele estava de pé diante dela.
+Jokara ergueu os olhos. Ele já estava de pé.
 
 — Perdeu alguma coisa, Jokara? — perguntou, tranquilo.
 
@@ -62,7 +62,7 @@ O sorriso dele diminuiu.
 
 — Eu tirei aquela garota dali quando ela mal conseguia ficar em pé.
 
-— E ninguém viu o que aconteceu depois que você desapareceu com ela — respondeu Jokara. — Estou tentando descobrir quanto daquele azar você conhecia antes de nós.
+— E ninguém viu o que aconteceu depois. — Jokara apertou o recipiente. — Você sabia que a fera estava naquela região?
 
 Jokara destampou o recipiente. O pó azul concentrado apareceu sob a pouca luz.
 
@@ -70,19 +70,17 @@ Jokara destampou o recipiente. O pó azul concentrado apareceu sob a pouca luz.
 
 Pela primeira vez, os olhos de Gabasteri desceram até a mão dela.
 
-— Maletar adoeceu enquanto todos comíamos quase as mesmas coisas. Você cuidava da água muitas vezes. Agora eu encontro Beijo-da-Noite preparado para ser ingerido escondido entre suas coisas. Então me diga, Gabasteri: por quê?
+— Maletar ficou cada vez mais doente, mesmo comendo quase as mesmas coisas que nós. Você enchia o cantil dele. E agora encontro Beijo-da-Noite preparado e escondido entre suas coisas. Pra que você guarda isso, Gabasteri?
 
 Ele não respondeu.
 
 Jokara deixou um pouco do pó cair no chão.
 
-— Maletar era forte. Era útil. Pela sua própria lógica, deveria ser exatamente o tipo de pessoa que você queria manter viva. A menos que a força dele fosse um problema por outro motivo.
+— Maletar era forte. Era útil. Você devia querer alguém assim no grupo. A não ser que tivesse outro motivo pra querer se livrar dele.
 
 Gabasteri permaneceu parado.
 
 — Ele era o líder — continuou Jokara. — E ninguém obedecia a você enquanto ele estivesse vivo.
-
-Jokara continuou antes que ele pudesse desmontar a linha inteira.
 
 — Platisa conhecia plantas. Conhecia venenos. E desconfiava de você. Você conhecia aquela região melhor do que qualquer um de nós e escolheu o caminho mesmo assim.
 
@@ -106,7 +104,7 @@ Jokara apertou o recipiente na mão.
 
 Por um instante, o rosto de Gabasteri não mudou.
 
-Foi justamente isso que confirmou mais do que uma surpresa confirmaria.
+Jokara esperava uma surpresa, uma pergunta, qualquer coisa. Ele não lhe deu nada.
 
 — Você não caiu com Etérea — continuou Jokara. — Já estava aqui embaixo.
 
@@ -142,7 +140,7 @@ Jokara lembrou-se da frase de Mariv: um nome numa praça, um balão descendo.
 
 Algo endureceu no rosto dele.
 
-— Essa parte não muda nada do que veio depois.
+— Isso não interessa.
 
 Jokara percebeu que insistir não arrancaria dali uma história inteira. Talvez o silêncio fosse vergonha. Talvez fosse cálculo. Talvez fosse apenas mais uma coisa que Gabasteri considerava pertencente somente a ele. Ele continuou antes que ela perguntasse de novo.
 
@@ -178,7 +176,7 @@ Gabasteri ergueu os olhos.
 
 O silêncio que veio depois foi longo o bastante. Jokara não precisava que ele dissesse “sim”.
 
-Lembrou-se de Platisa desaparecendo nos braços dele e de Maletar enfraquecendo enquanto Gabasteri assumia o controle da água, da comida e da rota. Agora ouvira o homem tratar aquelas mortes como um cálculo.
+Lembrou-se de Platisa desaparecendo nos braços dele e de Maletar enfraquecendo enquanto Gabasteri assumia o controle da água, da comida e da rota. Agora ouvia a mesma frieza ao falar das pessoas que tinham sobrevivido com ele.
 
 Cinco ciclos explicavam as rotas, as feras, a água e as cicatrizes.
 
@@ -202,11 +200,11 @@ Ele soltou um riso curto.
 
 O sorriso desapareceu.
 
-— Não me compare a eles.
+— Não me compare a eles. — Os olhos dele foram do saco aberto até ela. — Foi para isso que veio?
 
-— Foi para isso que eu vim. Buscar o que é nosso e impedir que você volte para eles como se nada tivesse acontecido.
+— Vim buscar o que é nosso. E impedir que você volte pro acampamento como se nada tivesse acontecido.
 
-Gabasteri olhou para a adaga em sua mão.
+Gabasteri olhou para a adaga que Jokara havia recuperado.
 
 — Então veio pegar as coisas e fugir.
 
@@ -214,13 +212,13 @@ Gabasteri olhou para a adaga em sua mão.
 
 Nenhum dos dois acreditou nisso. Os olhos de Gabasteri desceram até a mão da garota, que segurava a adaga.
 
-— Você realmente acha que isso termina bem? — perguntou Gabasteri. — Eu mantive vocês vivos quando já não conseguiam manter nem comida seca. Ensinei Mariv a caçar melhor. Encontrei água. Dei a você um bastão que não afunda em lama. E agora você decide que sou o inimigo porque encontrou uma coisa que não entende por completo.
+— Você realmente acha que isso termina bem? — perguntou Gabasteri. — Eu mantive vocês vivos quando nem conseguiam guardar comida sem deixar estragar. Ensinei Mariv a caçar melhor. Encontrei água. Adaptei seu bastão pra não afundar na lama. E agora você decide que sou o inimigo porque encontrou uma coisa que não entende por completo.
 
 — Eu entendo o suficiente.
 
 — É o que todos dizem antes de destruir aquilo que os mantém de pé.
 
-Gabasteri retirou de suas vestes a adaga.
+Gabasteri ergueu a própria adaga.
 
 — Já vi grupos fazerem isso antes. Alguém começa a cochichar. Outro esconde comida. Outro decide que não precisa de regra nenhuma. Quando percebem, estão apontando armas uns para os outros e jurando que a culpa é de quem tentou colocar ordem.
 
@@ -254,7 +252,7 @@ Jokara baixou-se com cuidado, sem tocar nelas. Encaixou o bastão sob os caules 
 
 Gabasteri parou de imediato.
 
-— Jokara… Onde você está? 
+— Jokara… onde você está?
 
 Ele se aproximou devagar, a adaga na mão. Quando passou entre duas árvores grossas, Jokara saiu de trás de uma delas.
 
@@ -270,7 +268,7 @@ Jokara já se afastava para fora da nuvem, usando o bastão para ganhar distânc
 
 — Beijo-da-Noite. Platisa me ensinou a não respirar perto dela.
 
-Aquela exposição não era a preparação concentrada que encontrara no saco. Não o mataria. Mas olhos ardendo, tosse e falta de ar podiam tirar dele exatamente o que Jokara precisava: equilíbrio e tempo.
+Não era o mesmo pó que encontrara no saco. Jokara precisava apenas de tempo para escapar.
 
 Com a mão cobrindo o rosto, Gabasteri rugiu e tentou golpeá-la às cegas com a adaga. Jokara aparou o primeiro avanço com o bastão, mas ele chutou a madeira para longe e agarrou sua única perna. O mundo virou. Ela caiu, e ele rolou por cima, esmagando-a contra o chão.
 
@@ -282,13 +280,13 @@ A adaga de Gabasteri escapou da mão e rolou pelo chão, cintilando à distânci
 
 Jokara arranhou, bateu, chutou. O rosto já ficava roxo quando conseguiu girar o corpo e escapar por baixo dele.
 
-O ar voltou aos pulmões queimando. Ela se arrastou até a adaga, agarrou-a com mãos ensanguentadas e, quando Gabasteri investiu novamente, enfiou a lâmina com todas as forças na perna dele.
+O ar voltou aos pulmões queimando. Ela se arrastou até a adaga que Gabasteri deixara cair, agarrou-a com a mão ensanguentada e, quando Gabasteri investiu novamente, enfiou a lâmina com todas as forças na perna dele.
 
 Gabasteri gritou e tombou de lado, batendo o punho no chão.
 
 Jokara se arrastou alguns passos para trás. Sangrava pelo nariz e pela boca. Sorriu com o lábio partido.
 
-— Agora somos iguais… olha só. Ambos só temos uma perna forte.
+— Olha só… agora você também tem uma perna só pra se apoiar.
 
 Gabasteri tossia, os olhos ardendo e a respiração curta, mas ainda avançava.
 
@@ -300,17 +298,17 @@ Ela ergueu a adaga, pronta para atravessá-lo, quando uma voz cortou o Sopro do 
 
 Jokara virou a cabeça para a irmã. Foi só um instante.
 
-Gabasteri se voltou a cambaleios na direção de Nestira e Mariv.
+Gabasteri se virou, cambaleando, na direção de Nestira e Mariv.
 
 Jokara apoiou todo o peso no bastão e o usou como alavanca para lançar o corpo para a frente. Não precisava correr. Precisava alcançá-lo uma única vez. Bateu contra Gabasteri por trás. Os dois cambalearam na direção de uma encosta íngreme, escondida pelo emaranhado de folhas e raízes.
 
-Corpo contra corpo. O bastão escapou da mão de Jokara. Gabasteri agarrou o pulso que segurava a adaga e o torceu contra o ventre dela. Ao se debater, Jokara deixou cair a outra lâmina, aquela que havia recuperado do saco, perto do bastão.
+Corpo contra corpo. O bastão escapou da mão de Jokara. Gabasteri agarrou o pulso que segurava a adaga dele e o torceu contra o ventre dela. Na luta, a outra adaga, a de Jokara, soltou-se da cintura e caiu perto do bastão.
 
-Jokara sentiu alguma coisa entrar na barriga. Olhou para baixo e viu a lâmina. Gritou. Ainda conseguiu firmar a perna direita e empurrar Gabasteri com o peso do próprio corpo.
+Jokara sentiu a lâmina entrar na barriga. Olhou para baixo e viu a lâmina. Gritou. Ainda conseguiu firmar a perna direita e empurrar Gabasteri com o peso do próprio corpo.
 
-A perna ferida de Gabasteri cedeu. Ele escorregou pela borda e despencou entre raízes e pedras, quebrando galhos até parar vários metros abaixo. O grito que soltou se misturou à tosse. Mariv correu até a encosta com a lança erguida. Viu o homem tentar se levantar, mas a perna não o sustentava. Descer atrás dele significaria deixar as irmãs sem proteção. Mariv permaneceu à beira do barranco, vigiando. Nestira já estava correndo para Jokara.
+A perna ferida de Gabasteri cedeu. Ele escorregou pela borda e despencou entre raízes e pedras, quebrando galhos até parar vários metros abaixo. O grito que soltou se misturou à tosse. Mariv correu até a encosta com a lança erguida. Viu o homem tentar se levantar, mas a perna não o sustentava. Descer atrás dele significaria deixar as irmãs sem proteção. Mariv permaneceu à beira do barranco, vigiando. Nestira já corria para Jokara.
 
-— Não — sussurrou. Então gritou, correndo até a irmã: — Não!
+— Não! Não!
 
 Jokara tossiu sangue, procurando o rosto da irmã com os olhos já sem firmeza. Nestira chegou antes que ela tombasse de lado, passou um braço por trás de seus ombros e a puxou para longe de Gabasteri até poder deitá-la contra as próprias pernas.
 
@@ -322,7 +320,7 @@ A lâmina continuava cravada no abdômen. Nestira levou a mão até ela por inst
 
 Jokara tentou erguer a mão. Os dedos alcançaram o pulso da irmã.
 
-— Foi ele… — disse, e o sangue voltou à boca. Nestira limpou-o com a manga antes que escorresse pelo queixo. — Maletar… Platisa… foi ele. Fuja, Nestira. Fuja com Mariv.
+— Foi ele… — disse, e o sangue voltou à boca. Nestira limpou-o com a manga antes que escorresse pelo queixo. — Maletar… Platisa… foi ele. Foge, Nestira. Foge com o Mariv.
 
 — Cala a boca. — Nestira apertou o tecido contra a ferida com as duas mãos. Chorava tanto que mal enxergava o que fazia. — Você não vai me mandar embora. Eu vou tirar você daqui. A gente encontra água, eu faço um curativo, eu… eu sei fazer. Eu vi Platisa fazer. Eu consigo.
 
@@ -336,7 +334,7 @@ Jokara respirou curto, com esforço. Seus dedos ainda seguravam o pulso da irmã
 
 — Eu estou escutando. Estou aqui.
 
-Um galho se partiu no barranco. Mariv tornou a olhar para baixo, mantendo a lança pronta. Gabasteri se arrastava entre as raízes, procurando uma passagem por onde subir, mas ainda estava longe. Nestira não ouviu. Não conseguia tirar os olhos da irmã.
+Um galho se partiu no barranco. Mariv tornou a olhar para baixo, mantendo a lança pronta. Gabasteri se arrastava entre as raízes, procurando uma passagem por onde subir, mas ainda estava longe. Nestira não reagiu ao barulho. Não conseguia tirar os olhos da irmã.
 
 Jokara esperou até que a irmã a olhasse de verdade.
 
@@ -432,11 +430,11 @@ Ela apertou Jokara ainda mais.
 
 — Ele está subindo. Vai chegar aqui.
 
-— Eu não vou deixá-la!
+— Eu não vou deixar ela aqui!
 
 Mariv tentou puxá-la pelos ombros. Nestira se debateu, agarrando-se à roupa da irmã.
 
-— Ela odeia ficar sozinha! Solta! JOKARA!
+— Ela odeia ficar sozinha! Solta! Jokara!
 
 — Nestira! — Mariv segurou os dois braços dela e a obrigou a olhar para ele. A própria voz falhou antes que conseguisse continuar. — Ela morreu para você sair daqui.
 

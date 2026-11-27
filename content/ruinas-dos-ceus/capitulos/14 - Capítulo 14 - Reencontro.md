@@ -6,19 +6,17 @@ Ao Sopro do Silêncio, reuniam-se sob o teto molhado, partilhando frutos úmidos
 
 Em uma das tardes em que a chuva deu trégua, Jokara e Nestira se afastaram sozinhas do abrigo para procurar raízes entre as árvores. Caminharam por algum tempo sem falar, ouvindo apenas a água cair das folhas. Quando Nestira encontrou uma raiz larga junto a um tronco, ajoelhou-se para soltá-la da terra e falou sem olhar para a irmã.
 
-— Às vezes penso que mamãe pode ter saído do mercado antes de tudo cair. Que talvez estivesse em outra passagem quando chegamos lá.
+— Às vezes penso que mamãe pode ter saído dos balcões antes de tudo cair. Que talvez estivesse em outra passagem quando chegamos lá.
 
-Jokara conhecia aquela esperança. Também já imaginara Mirel deixando uma banca alguns instantes antes, tomando uma rua diferente, sendo empurrada pela multidão para longe da borda. Eram possibilidades pequenas, mas eram tudo o que tinham.
+Jokara conhecia aquela esperança. Também já imaginara Mirel deixando um balcão alguns instantes antes, tomando uma rua diferente, sendo empurrada pela multidão para longe da borda. Eram possibilidades pequenas, mas eram tudo o que tinham.
 
-— Eu penso nisso também. A gente viu o mercado cair, mas não viu mamãe.
+— Eu penso nisso também. A gente viu os balcões caírem, mas não viu mamãe.
 
 Nestira limpou a lama da raiz com os dedos, demorando mais do que precisava.
 
 — Se ela saiu, deve ter procurado por nós.
 
-— Deve ter tentado — respondeu Jokara.
-
-Jokara baixou os olhos para a raiz nas mãos de Nestira.
+Jokara assentiu, olhando para a raiz nas mãos de Nestira.
 
 Continuaram andando entre as árvores. Alguns passos depois, Nestira apertou a raiz contra o peito.
 
@@ -69,43 +67,37 @@ Jokara falou primeiro:
 
 Mariv assentiu devagar.
 
-— Talvez os ventos não guardassem as frutas…
+— Nestira também fala dos cestos — disse Mariv. — Quando a gente encontra uma fruta diferente, ela lembra de como sua mãe preparava.
 
-Jokara ergueu o olhar.
+Jokara apertou a alça do cesto com a mão livre.
 
-— Como assim?
+— Ela anda falando que estar aqui tem algum propósito. Foi você que pôs isso na cabeça dela?
 
-— Talvez guardassem a sua mãe pendurando os cestos. Por isso você ainda sente o cheiro.
-
-Jokara apertou o cesto nas mãos.
-
-— Você fala como se tudo tivesse propósito.
-
-— Talvez tenha — disse Mariv. — Estamos vivos. Isso é um propósito.
+— Não sei se tem um propósito — disse Mariv. — Mas, se estamos vivos, precisamos fazer alguma coisa com isso.
 
 Ela parou, virando-se para ele.
 
-— E todas as pessoas que morreram? E a pequena Liri? Qual foi o propósito de ela cair? De minha irmã perder uma criança nos braços?
+— E todas as pessoas que morreram? E a pequena Liri? Qual foi o propósito de ela cair? De a minha irmã perder uma criança nos braços?
 
 Mariv hesitou, mas não desviou o olhar.
 
-— Não tenho resposta pra isso. Só sei que, se ainda respiramos, há algo a aprender com a dor.
+— Eu também queria saber, Jokara. A Nestira chora pela Liri até dormindo. Eu só tento ajudar quando ela acorda.
 
-— Aprender? Você fala como se fosse um orador escondido atrás de frases bonitas!
+— E você acha que isso resolve? Parece um orador querendo achar sentido pra tudo!
 
 Falou mais alto do que queria.
 
 Mariv parou, firme, mas não revidou.
 
-— Eu só tento acreditar que não caímos à toa.
+— Eu não sei por que caímos. Só não quero que ela desista.
 
-— E é um idiota por pensar assim — respondeu Jokara, antes de pensar.
+— Idiota — respondeu Jokara, antes de pensar.
 
 Mariv não disse nada. Jokara baixou os olhos.
 
 — Me desculpe. Eu não devia…
 
-Foi então que um ruído quebrou o ar: galhos se partindo, passos calculados. Mariv ergueu a lança de imediato.
+Um ruído quebrou o ar: galhos se partindo, passos calculados. Mariv ergueu a lança de imediato.
 
 — Shhh…
 
@@ -121,15 +113,15 @@ De trás do tronco saiu um homem de braços fortes, o cavanhaque escorrido de or
 
 Ele se aproximou sorrindo.
 
-— E eu que pensei que nunca mais veria você, Jokara. Como está? — Seus olhos brilharam quando notaram Mariv — E pelo visto, não anda mais só com aquele rapaz…
+— E eu que pensei que nunca mais veria você, Jokara. Como está? — Seus olhos se voltaram para Mariv. — E pelo visto, não anda mais só com o menino…
 
 Mariv não baixou a lança. Jokara respondeu:
 
-— Estou viva, como pode ver. Achei que éramos os únicos, mas agora… — Fez um gesto para Mariv. — Este é Mariv. Encontramo-nos há alguns sopros.
+— Estou viva, como pode ver. Achei que éramos os únicos, mas agora… — Fez um gesto para Mariv. — Este é Mariv. A gente se encontrou há alguns sopros.
 
 Gabasteri inclinou a cabeça em cumprimento, o sorriso intacto.
 
-— Prazer. Todo sopro que une sobreviventes é uma vitória.
+— Prazer. É bom encontrar mais um dos nossos.
 
 Jokara não conseguia parar de sorrir.
 
@@ -159,15 +151,13 @@ Gabasteri tocou levemente a mão dela e curvou a cabeça.
 
 — Sua irmã foi muito gentil comigo. Nem sei como agradecê-la.
 
-Loutes se levantou devagar. Ao ver Gabasteri, congelou por um instante. Gabasteri, com naturalidade, ergueu o braço em cumprimento eteriano, traçando um gesto curto no ar.
+Loutes se levantou devagar. Ao ver Gabasteri, congelou por um instante. Gabasteri, com naturalidade, ergueu o braço em cumprimento eterí, traçando um gesto curto no ar.
 
 — É bom ver você outra vez, pequeno.
 
-Loutes não respondeu, apenas sentou-se de novo, os dedos mexendo nos gravetos. Jokara não percebeu, mas Mariv, que chegava por último, observou a cena com atenção, a mandíbula contraída.
+Loutes não respondeu, apenas sentou-se de novo, os dedos mexendo nos gravetos. Jokara abriu espaço junto à fogueira. Mariv, que chegava por último, ficou olhando para os dois, a mandíbula contraída.
 
-— Bom, e este que estava comigo a procura de frutas é Mariv — acrescentou Jokara.
-
-Gabasteri estendeu a mão para o rapaz, que apertou com firmeza, sem sorrir.
+Gabasteri voltou-se para Mariv, que tinha parado ao lado da fogueira, e estendeu a mão. O rapaz a apertou com firmeza, sem sorrir.
 
 — É muito bom encontrar mais sobreviventes — Gabasteri falou com naturalidade. — É uma dádiva dos ventos.
 
@@ -201,7 +191,7 @@ Jokara a olhou de lado, sem comentar.
 
 Gabasteri inclinou-se para frente, apoiando os cotovelos nos joelhos.
 
-— Não tiro a razão de sua irmã. Eu passei muito tempo sozinho porque achei que depender de alguém era abrir espaço para morrer pelo erro de outra pessoa.
+— Pode até haver uma razão pra estarmos juntos. Passei muito tempo sozinho porque não queria morrer pelo erro de outra pessoa.
 
 Gabasteri apontou para a mata com o graveto.
 
@@ -225,13 +215,13 @@ Gabasteri tornou a mexer o graveto no fogo.
 
 Jokara a segurou pelo braço. Conhecia bem demais aquele brilho no rosto da irmã.
 
-— Milagre ou não, ainda precisamos comer amanhã, então temos que ser firmes — Tentou rir, mas saiu duro.
+— Milagre ou não, a gente ainda precisa comer amanhã. — Tentou rir, mas saiu duro.
 
 Gabasteri não se incomodou.
 
 Mariv cruzou os braços, a voz baixa.
 
-— Ainda acho que devemos ter um número limite de integrantes em uma equipe.
+— Acho que tem que ter um limite. A comida já mal dá pra nós. E se aparecer mais gente?
 
 Jokara ergueu uma sobrancelha. Quase perguntou se ele queria sair para dar o lugar a Gabasteri. Por Nestira, ficou quieta.
 
@@ -251,9 +241,9 @@ Loutes levantou o olhar, fixando Gabasteri por um instante, antes de voltar aos 
 
 Gabasteri viu, e falou de novo:
 
-— Então, que este seja o começo. Não mais quatro sobreviventes separados, mas um grupo. Um sopro só, compartilhado.
+— Então estamos juntos. Cinco pessoas trabalhando pelo mesmo abrigo. É um bom começo.
 
-Nestira sorriu e inclinou a cabeça. Jokara sentiu alívio, um alívio quase infantil, de ter um adulto ali. Mariv olhava para o fogo.
+Nestira sorriu e inclinou a cabeça. Jokara sentiu um alívio quase infantil por ter um adulto ali. Mariv olhava para o fogo.
 
 O Sopro do Silêncio caiu. Nestira murmurava um cântico antigo.
 

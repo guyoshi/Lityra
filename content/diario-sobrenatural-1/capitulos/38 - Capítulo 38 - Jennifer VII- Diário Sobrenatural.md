@@ -88,7 +88,7 @@ Estava como eu lembrava dos dias bons: cabelo arrumado, roupa simples, sorriso t
 
 — Você tem um dom, filha — disse ela, a voz suave. — Sem ele, talvez vocês não tivessem conseguido.
 
-Ela falava do que a D. Maria chamara de Selifa, que para mim sempre fora só um incômodo permanente: ver o que os outros fingem que não existe.
+Ela falava do que a Luiza chamara de Selifa, que para mim sempre fora só um incômodo permanente: ver o que os outros fingem que não existe.
 
 — Sinto sua falta — falei.
 

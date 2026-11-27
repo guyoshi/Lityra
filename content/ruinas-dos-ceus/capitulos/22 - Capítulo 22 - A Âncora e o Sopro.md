@@ -1,8 +1,8 @@
 Sinos tilintavam. A brisa trazia um cheiro doce de frutas recém-colhidas misturado ao pó das madeiras secando ao sol. Jokara reconheceu a varanda: o chão em espiral, o corrimão tecido em cordas leves, as flores pendendo em jarros trançados pelas mãos da mãe.
 
-Avançou alguns passos, os pés roçando o chão gasto de tanto ser pisado por gerações. E então a viu. A si mesma, com oito ciclos, sentada no chão, as pernas cruzadas, os cabelos trançados caindo até os ombros. O rosto infantil franzido em curiosidade, as mãos inquietas demais para ficarem paradas.
+Avançou alguns passos, os pés roçando o chão gasto de tanto ser pisado por gerações. E então a viu. A si mesma, com oito ciclos, sentada no chão, as pernas cruzadas, os cabelos trançados caindo até os ombros. O rosto infantil franzido de curiosidade, as mãos inquietas demais para ficarem paradas.
 
-A pequena se levantou, contornou a varanda, e Jokara a seguiu. Ao virar a curva da casa, Jokara parou.
+A pequena se levantou, contornou a varanda, e Jokara a seguiu. Na curva da varanda, parou.
 
 Um homem de pele escura, o rosto marcado de sol, a barba curta já salpicada de pó de madeira. Os braços fortes, calejados, trabalhavam com paciência uma estrutura leve. Com a mão direita, segurava a seda de lemi, transparente. Com a esquerda, ajustava pequenas pedras lisas que brilhavam sob o sol da manhã.
 
@@ -16,9 +16,9 @@ O homem ergueu os olhos, mas não para ela. Era para a criança que se aproximav
 
 Ele sorriu de lado, entregou-lhe um dos encaixes da vintela.
 
-— Segure firme, mas não com força demais. O vento não gosta de pressa.
+— Segura firme, mas sem força demais. O vento não gosta de pressa.
 
-A menina apertou, a madeira rangeu e se partiu. A pequena Jokara ficou imóvel, o rosto ruborizado.
+A menina apertou. A madeira rangeu e se partiu. A pequena Jokara ficou imóvel, o rosto ruborizado.
 
 — Eu… eu quebrei… — gaguejou, encolhendo os ombros.
 
@@ -40,7 +40,7 @@ A pequena Jokara mordeu os lábios, tentando entender.
 
 Ele olhou para ela um bom tempo. Então apanhou uma das pedras lisas que usava de contrapeso e a pôs nas mãos da filha.
 
-— O que está sentindo? — perguntou.
+— O que você está sentindo? — perguntou.
 
 A pequena Jokara fechou os dedos ao redor. A pedra parecia puxar sua mão para baixo, fria e firme. Ela fez careta.
 
@@ -48,7 +48,7 @@ A pequena Jokara fechou os dedos ao redor. A pedra parecia puxar sua mão para b
 
 O homem assentiu.
 
-— Assim são as mentiras, as mágoas, o ego. Cada uma pesa em nós, nos arrasta para baixo. É por isso que os anciãos dizem que Etérea pesa quando o coração dos filhos do vento se enche de falsidade.
+— As mentiras, as mágoas, o orgulho… tudo isso pesa na gente e nos arrasta para baixo. É por isso que os anciãos dizem que Etérea pesa quando o coração dos filhos do vento se enche de falsidade.
 
 Esperou que ela o olhasse nos olhos.
 
@@ -68,11 +68,11 @@ A menina mordeu o lábio, ainda confusa.
 
 — Sim. — Ele se inclinou e encostou a testa na dela. — Mas é um peso diferente. Não é o que afunda. É o que prende o vento no caminho certo. É o que mantém a asa firme quando a tempestade vem.
 
-A pequena Jokara ficou apertando a pedra. A Jokara mais velha tinha esquecido aquela tarde. Esquecido a voz dele dizendo “filha”. A brisa balançou os sinos da varanda, e ela chorou sem fazer barulho.
+A pequena Jokara ficou apertando a pedra. A Jokara mais velha tinha esquecido aquele momento. Esquecido a voz dele dizendo “filha”. A brisa balançou os sinos da varanda, e ela chorou sem fazer barulho.
 
 O homem recolheu outro pedaço de seda e prendeu-o com delicadeza ao arco de madeira. A vintela recomeçava a tomar forma. A pequena Jokara o observava, ainda envergonhada pela peça quebrada.
 
-— Nestira não pesa — disse por fim, a pequena Jokara — ela nunca pesa. É tão leve que às vezes acho que ela pode voar sem planador.
+— Nestira não pesa — disse por fim a pequena Jokara. — Ela nunca pesa. É tão leve que às vezes acho que ela pode voar sem planador.
 
 Yoral se voltou para ela e sorriu.
 
@@ -98,7 +98,7 @@ A menina seguia cada gesto.
 
 A menina passou os dedos pelo tecido, depois pela pedra.
 
-Yoral deixou a pedra escorregar da palma da filha de volta para a sua, e então se inclinou até alcançar o tornozelo fino da menina. De sua mesa de trabalho, retirou um pequeno pedaço rígido: uma lasca da vintela quebrada, polida até virar uma espécie de amuleto.
+Yoral recolheu a pedra da mão da filha, e então se inclinou até alcançar o tornozelo fino da menina. De sua mesa de trabalho, retirou um pequeno pedaço rígido: uma lasca da vintela quebrada, polida até virar uma espécie de amuleto.
 
 Com um fio trançado de seda, amarrou-o firme no tornozelo de Jokara.
 
@@ -106,15 +106,15 @@ Com um fio trançado de seda, amarrou-o firme no tornozelo de Jokara.
 
 Ele deu um leve puxão no fio para mostrar que estava seguro.
 
-— Quando sentir leveza demais, lembre-se: ser dura às vezes, é necessário.
+— Quando sentir leveza demais, lembra: às vezes ser dura é preciso.
 
 A menina baixou os olhos para o tornozelo, tocando o amuleto com os dedos. Depois olhou para o pai e sorriu, tímida.
 
 Atrás dela, a Jokara adulta levou a mão ao espaço onde antes estivera a perna. O vazio latejou sob os dedos.
 
-Yoral se levantou, limpando as mãos do pó de madeira.
+Yoral se levantou e limpou o pó de madeira das mãos.
 
-— Tenho de terminar um trabalho, filha.
+— Preciso terminar um trabalho, filha.
 
 A menina o agarrou pela manga.
 
@@ -186,7 +186,7 @@ Loutes escapou.
 
 Correu.
 
-— LOUTES!
+— Loutes!
 
 Jokara foi atrás. O bastão afundava na terra úmida, a perna ardia e as raízes pareciam surgir diante dela apenas para derrubá-la. Nestira correu mais rápido e chegou a avistá-lo entre duas árvores.
 
@@ -234,7 +234,7 @@ Numa parada, Jokara apoiou o rosto no ombro da irmã. Pensou na pedra na mão do
 
 Nestira assentiu, sem soltar a mão dela. As duas voltaram pela floresta. Em alguns trechos acharam que haviam perdido o caminho, até avistarem uma pequena brasa entre as árvores. Quando chegaram ao acampamento, Gabasteri estava acordado, sentado perto da comida e das armas.
 
-— Andando sozinhas na floresta? É muito perigoso, ainda mais ao Sopro do Silêncio… e sozinhas… onde está o menino?
+— Saíram sozinhas pela floresta sem avisar ninguém? E o menino? Cadê ele?
 
 Jokara olhou para a escuridão atrás delas antes de responder.
 
@@ -292,8 +292,6 @@ Jokara puxou o fio rebelde, acertou a pequena trança com os dedos e a prendeu d
 
 Nestira tocou o cabelo, surpresa. Depois olhou para a irmã. As duas sorriram. Só por alguns instantes.
 
-Nestira manteve a mão sobre a trança da irmã por um instante. Depois alisou os fios uma última vez, com o cuidado de quem se recusava a deixar tudo desaparecer.
-
 Perto das brasas, Mariv permanecia acordado. Passou o polegar devagar pela marca no pescoço e continuou olhando para as chamas.
 
 — Eu lembrei.
@@ -302,11 +300,11 @@ Jokara ergueu os olhos.
 
 — Do quê?
 
-— De onde eu conheço o nome dele. Quando você disse “Gabasteri” pela primeira vez, eu falei que já tinha ouvido. Passei esse tempo todo tentando descobrir de onde vinha aquela sensação. Agora eu sei.
+— Do nome do Gabasteri. Lembra que eu disse que já tinha ouvido? Só agora lembrei de onde.
 
-Nestira ergueu o rosto. Mariv demorou alguns instantes, puxando a lembrança como quem tenta enxergar através de névoa.
+Nestira ergueu o rosto. Mariv demorou alguns instantes para continuar.
 
-— Eu era criança. Meus pais me levaram a uma praça onde havia muita gente reunida. Um Orador falou antes de um balão de exílio descer. Eu não lembro do rosto do condenado e não lembro o que ele tinha feito. Só lembro do nome porque achei estranho e fiquei repetindo depois para mim mesmo.
+— Eu era criança. Meus pais me levaram a uma praça cheia de gente. Um Orador anunciou o nome de um homem antes de mandá-lo num balão de exílio. Não lembro do rosto dele nem do que tinha feito. Mas achei o nome estranho e fiquei repetindo baixinho.
 
 Ele passou os dedos pela marca no pescoço.
 
@@ -314,7 +312,7 @@ Ele passou os dedos pela marca no pescoço.
 
 O fogo estalou.
 
-— Não sei se era ele. Não sei de onde aquele homem vinha. Mas um Gabasteri foi enviado para as Ilhas Baixas muitos ciclos antes da queda.
+— Não sei se era ele. Nem de onde aquele homem vinha. Mas mandaram um Gabasteri pras Ilhas Baixas muitos ciclos antes da queda.
 
 Jokara ficou imóvel.
 
@@ -330,15 +328,15 @@ E, se Mariv estivesse certo, já estava abaixo das nuvens muito antes de Etérea
 
 — Ele disse à Jokara que era de Enurial.
 
-— Pode ter sido — respondeu Mariv. — Ou pode ter mentido. É isso que me incomoda. Eu só tenho a lembrança do nome. O resto não vem.
+— Pode ser verdade — respondeu Mariv. — Só lembro do nome. Por mais que eu tente, não lembro de mais nada.
 
-Jokara olhou para a escuridão onde Gabasteri desaparecera e não respondeu. Outra lembrança surgira, mais silenciosa que a primeira: Maletar bebendo do cantil escuro, a tosse piorando de sopro em sopro, Gabasteri voltando com água e completando os recipientes, inclusive o de Maletar.
+Jokara olhou para o outro lado do acampamento, onde Gabasteri estava, e não respondeu. Outra lembrança surgira, mais silenciosa que a primeira: Maletar bebendo do cantil escuro, a tosse piorando de sopro em sopro, Gabasteri voltando com água e completando os recipientes, inclusive o de Maletar.
 
 Maletar estava ferido, cansado, exposto à chuva e à fome. Podia ter adoecido sem a intervenção de ninguém.
 
-Então pensou em Platisa, no zélon apertado contra o peito, no desconforto sempre que Gabasteri decidia uma rota e na forma como desaparecera com ele entre as árvores sem nunca voltar. Jokara baixou os olhos para o fogo.
+Então pensou em Platisa, no zélon apertado contra o peito, no desconforto sempre que Gabasteri decidia uma rota e em como ela sumira entre as árvores nos braços dele e nunca voltara. Jokara baixou os olhos para o fogo.
 
-Sem perceber, Jokara levou a mão ao tornozelo que já não existia. Por um instante, sentiu outra vez a pedra fria na palma e a seda leve dançando nos dedos. Não sabia ainda o que estava procurando.
+Sem perceber, Jokara levou a mão ao lugar onde a perna terminava. Por um instante, sentiu outra vez a pedra fria na palma e a seda leve dançando nos dedos. Não sabia ainda o que estava procurando.
 
 Sabia apenas que, pela primeira vez, não queria mais esperar que Gabasteri lhe desse uma explicação.
 

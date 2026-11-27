@@ -1,12 +1,12 @@
 
 
-Em Etérea, os sinos marcavam a passagem dos sopros. Ali, onde o vento não respondia, Jokara perdeu a conta dos dias. Só uma das duas luas, quando aparecia entre as copas, dizia que o tempo andava.
+Em Etérea, os sinos marcavam a passagem dos sopros. Ali, onde o vento não respondia, Jokara perdeu a conta dos sopros. Só uma das duas luas, quando aparecia entre as copas, dizia que o tempo andava.
 
 Ela moldou um tronco quebrado em lança, afiando-o contra pedras fendidas caídas de Etérea. Tentou a água, muitas vezes, afundando a lança atrás de peixes que escapavam sempre. Quando a presa cedia, era pequena, dura, e pouco sustentava. Outras vezes, buscava frutas escondidas nas sombras da floresta: polpas amargas, cascas grossas, algumas doces e raras. Subir nas árvores para pegá-las, com uma perna só, era outra história.
 
 Por vezes, um animal menor se deixava surpreender: uma criatura de pelo áspero, patas curtas e duas antenas finas que vibravam no ar, farejando o ambiente. Numa dessas caçadas, Loutes aproximou-se demais. A criatura cravou os dentes em sua perna, deixando duas marcas fundas e um corte rubro. Jokara golpeou-a com a lança até afastá-la, e o menino suportou a dor em silêncio. Nos sopros seguintes, a ferida fechou depressa, depressa demais. Jokara reparou, mas não disse nada.
 
-Duas vezes, a criatura que haviam visto na floresta retornou ao alcance de seus olhos. Uma sombra enorme movendo-se entre os troncos, a crista recortando as frestas de luar e os olhos amarelos cortando a escuridão. Em cada encontro, Jokara agarrou Loutes e o fez recuar em silêncio, escondendo-se sob raízes ou dentro de troncos ocos até que a besta se afastasse. Bastava ouvir a respiração profunda, quase um ronco preso na garganta, para Jokara parar de respirar.
+Duas vezes, a criatura que haviam visto na floresta retornou ao alcance de seus olhos. Uma sombra enorme movendo-se entre os troncos, a crista recortando as frestas de luar e os olhos amarelos cortando a escuridão. Em cada encontro, Jokara agarrou Loutes e o fez recuar em silêncio, escondendo-se sob raízes ou dentro de troncos ocos até que a besta se afastasse. Ao primeiro ronco profundo da besta, Jokara prendia a respiração.
 
 Emagreceram. Às vezes dividiam uma fruta pequena por sopro. Outras, nada.
 
@@ -26,19 +26,19 @@ Ainda caía. Às vezes por cansaço. Às vezes porque o corpo esquecia por um in
 
 A sede os levou a um riacho escondido entre pedras cobertas de musgo. A água corria lenta e cheirava a ferro. Jokara hesitou. Mas não havia outra.
 
-Lembrou-se então de um pedaço de tecido que encontrara sopros antes, um pano eteriano ainda preso a uma pedra caída do céu. Estendeu-o como véu sobre o fluxo, deixando que a água passasse por entre suas fibras. Não sabia se bastava. Encheu as mãos em concha, bebeu primeiro, e só depois ofereceu a Loutes.
+Lembrou-se então de um pedaço de tecido que encontrara sopros antes, um pano eterí ainda preso a uma pedra caída do céu. Estendeu-o como véu sobre o fluxo, deixando que a água passasse por entre suas fibras. Não sabia se bastava. Encheu as mãos em concha, bebeu primeiro, e só depois ofereceu a Loutes.
 
 Beberam com avidez. Loutes não conseguiu parar a tempo. No Sopro do Silêncio seguinte, o corpo dele queimava em febre. Jokara tocava-lhe a testa úmida e lembrava o que faziam em Etérea: cantavam baixo para que o sopro não se assustasse, deitavam o doente em folhas frias de selnara, ofereciam gotas de mel até que o vento levasse a febre embora. Ali, nada disso existia. Cantou para ele a canção da mãe, o Sopro do Silêncio inteiro. No terceiro sopro, Jokara encontrou a testa dele menos quente.
 
-Quando voltou ao rio, não era mais por sede. Havia fome demais, e os frutos já não sustentavam. Com a lança improvisada nas mãos, caminhou até a margem do lago.
+Quando voltou à água, não era mais por sede. Havia fome demais, e os frutos já não sustentavam. Com a lança improvisada nas mãos, caminhou até a margem do lago.
 
-Deixou o bastão ao alcance da margem e entrou devagar, usando a haste da lança também para sondar o fundo. A água subiu pela perna direita e alcançou o coto até gelar-lhe o ventre. Sem o apoio da madeira, cada mudança de profundidade alterava seu equilíbrio. Movia a lança como vira fazer os pescadores de Etérea, mas o fundo irregular ameaçava derrubá-la a cada passo.
+Deixou o bastão na margem, ao alcance, e entrou devagar, usando a haste da lança também para sondar o fundo. A água subiu pela perna direita e alcançou o coto até gelar-lhe o ventre. Sem o apoio da madeira, cada mudança de profundidade alterava seu equilíbrio. Movia a lança como vira fazer os pescadores de Etérea, mas o fundo irregular ameaçava derrubá-la a cada passo.
 
 Então se formaram ondas pequenas, sem vento. Alguma coisa se movia embaixo. Um vulto escuro deslizou sob a superfície, e logo emergiu.
 
 A criatura tinha escamas negras e o dorso alto e arqueado, com nadadeiras duras. Os olhos eram dois globos brancos, sem pupila, fixos nela. A boca, larga e oblíqua, abria-se em fileiras de dentes finos e curvos.
 
-Jokara ergueu a lança. Ainda não tinha pescado nada, e estava com fome demais para sair dali de mãos vazias.
+Jokara ergueu a lança. Naquele sopro ainda não tinha pescado nada, e estava com fome demais para sair dali de mãos vazias.
 
 — Os peixes são meus! Saia daqui!
 
@@ -56,11 +56,11 @@ Jokara se afastou com Loutes sem peixe e sem lança.
 
 Seguiram adiante, contornando o lago, até darem com uma montanha coberta de musgo e pedra rachada. Subiram. A perna direita e os braços de Jokara ardiam do esforço de empurrar o corpo com o bastão até alcançarem o topo.
 
-De lá, podiam ver toda a floresta, um mar de copas escuras estendendo-se até o horizonte. Ao longe, o lago em que haviam caído cintilava sob a luz. Jokara abriu os braços e gritou, chamando por vozes que não vinham. Só o eco respondeu.
+De lá, podiam ver toda a floresta, um mar de copas escuras estendendo-se até o horizonte. Ao longe, o lago em que haviam caído cintilava sob a luz. Jokara firmou o bastão, levou a mão livre à boca e gritou, chamando por quem pudesse ouvi-la. Só o eco respondeu.
 
 Aos pés da montanha, tomou uma decisão. Era hora de construir, de criar abrigo contra a hostilidade do chão. Com Loutes ao lado, começou a erguer uma estrutura simples: galhos entrelaçados em círculo, raízes fincadas no barro, folhas grandes servindo de teto. Trabalhavam todo sopro, até as mãos sangrarem. Jokara fez a entrada em espiral, como as portas de Nivelia.
 
-Jokara aprendeu a caminhar com os olhos sempre no chão, atentos a sinais de frutos caídos. Mas raros eram os que pertenciam de fato a ela. Muitos vinham escondidos em tocas, guardados por pequenas criaturas de pelo áspero que mostravam os dentes quando surpreendidas. Um sopro, ao encontrar um monte de frutos arredondados, percebeu tarde demais: não estavam ali por acaso. Eram parte do estoque de uma dessas feras menores. A luta foi breve, e Jokara conseguiu afastá-la com o bastão, mas saiu com os braços cortados. Trouxe os frutos a Loutes, e pela primeira vez em muitos sopros, comeram até saciar a fome.
+Jokara aprendeu a procurar frutos caídos enquanto caminhava. Mas raramente os encontrava sem dono. Muitos vinham escondidos em tocas, guardados por pequenas criaturas de pelo áspero que mostravam os dentes quando surpreendidas. Um sopro, ao encontrar um monte de frutos arredondados, percebeu tarde demais: não estavam ali por acaso. Eram parte do estoque de uma dessas feras menores. A luta foi breve, e Jokara conseguiu afastá-la com o bastão, mas saiu com os braços cortados. Trouxe os frutos a Loutes, e pela primeira vez em muitos sopros, comeram até saciar a fome.
 
 Outro sopro, na tentativa de alcançar frutos escondidos no alto, Jokara tentou escalar uma árvore colossal. As raízes serviam de degraus, mas o coto latejava e os dedos escorregaram. Foi Loutes quem a agarrou pelo braço e a segurou até ela firmar o pé.
 
@@ -70,21 +70,21 @@ Jokara atravessou a entrada quebrada. Havia sinos pendurados em um arco partido,
 
 Avançou alguns passos e, ao se virar, viu que Loutes tinha parado diante de alguma coisa. Escondido sob folhas úmidas, havia o corpo de uma mulher, caída de lado, pele escurecida pela podridão. Jokara cambaleou. Levou a mão à boca e obrigou-se a olhar.
 
-Mais adiante, mais dois corpos. Um homem e uma criança pequena, juntos, deitados uns sobre os outros como se o último instinto tivesse sido proteger. O menino estava preso nos braços do pai, a cabeça encostada em seu peito imóvel. Já não era possível reconhecer mais nada em seus corpos praticamente esqueléticos. Mas Jokara reconheceu imediatamente o adorno em seu pulso: um pequeno sino de cristal azul, amarrado com corda simples. Ela conhecia aquele brinquedo.
+Mais adiante, mais dois corpos. Um homem e uma criança pequena, juntos, deitados um sobre o outro como se o último instinto tivesse sido proteger. A criança estava presa nos braços do pai, com a cabeça encostada no peito imóvel dele. Os bichos e a umidade já tinham levado quase tudo, e dos rostos não sobrava o que reconhecer. Mas Jokara reconheceu imediatamente o adorno em seu pulso: um pequeno sino de cristal azul, amarrado com corda simples. Ela conhecia aquele brinquedo.
 
-— Oh… meus ventos… — murmurou, a voz falhando, a mão no rosto.
+— Pelos ventos… — murmurou, com a mão no rosto e a voz falhando.
 
 Aquele era o pequeno Darel. O menino que corria pela praça de Nivelia, perseguindo os sinos com risos soltos. Os pais eram antigos conhecidos de Yoral e costumavam conversar sobre os ventos e os estudos. Ria alto, o Darel. Os adultos mandavam ele falar baixo nos ritos.
 
 Jokara ajoelhou-se diante dos três, apoiando-se no bastão para não tombar. O cheiro era forte, mas ela não recuou. Inclinou-se sobre eles e entoou o cântico do vento. Era uma melodia antiga e suave, cantada em Levis. Falava sobre a morte ser uma transição para voar ainda mais alto. E era a mesma canção que cantaram quando seu pai partiu. A voz saiu trêmula.
 
-Enquanto cantava, seus olhos encontraram algo caído em um canto. Uma adaga eteriana, o punho gravado com inscrições do Verbo da Corrente. Jokara a pegou e prendeu na cintura.
+Enquanto cantava, seus olhos encontraram algo caído em um canto. Uma adaga eterí, o punho gravado com inscrições do Verbo da Corrente. Jokara a pegou e a prendeu na cintura.
 
-Então seus olhos desviaram para um cesto intacto, caído ao lado do corpo da mãe, entrelaçado com cuidado eteriano. Podia ver que havia algo dentro, e ao abrir, se deparou com frutos e legumes que ainda estavam frescos, junto a folhas secas e especiarias. Era o mesmo cheiro da cozinha da mãe durante os cantos do Sopro do Silêncio. Jokara fechou o cesto de novo, depressa.
+Então seus olhos desviaram para um cesto intacto, caído ao lado do corpo da mãe, trançado como se trançavam os cestos em casa. Podia ver que havia algo dentro, e ao abrir, se deparou com frutos secos e raízes de casca dura que ainda não tinham estragado, junto a folhas secas e especiarias. Era o mesmo cheiro da cozinha da mãe durante os cantos do Sopro do Silêncio. Jokara fechou o cesto de novo, depressa.
 
 Nesse Sopro do Silêncio, ela e Loutes aqueceram os frutos no fogo baixo. Polvilhou-os com as especiarias. Não tinha o mesmo gosto. Chorou mastigando, sem parar de comer.
 
-Uma espiral inteira já havia passado desde a queda. As bases do abrigo já tomavam forma quando a tempestade chegou. O céu, antes apenas breu, rompeu-se em trovões. A chuva caiu em torrentes, apagando o fogo, arrancando folhas, derrubando galhos. O abrigo não resistiu, desfez-se em pedaços, engolido pela lama. Jokara gritou com a chuva. Loutes a puxou com força, levando-a sob uma folha colossal que se curvava como teto improvisado.
+Uma espiral inteira já havia passado desde a queda. As bases do abrigo já tomavam forma quando a tempestade chegou. O céu, abafado fazia muitos sopros, rompeu-se em trovões. A chuva caiu em torrentes, apagando o fogo, arrancando folhas, derrubando galhos. O abrigo não resistiu. Desfez-se em pedaços, engolido pela lama. Jokara gritou com a chuva. Loutes a puxou com força, levando-a sob uma folha colossal que se curvava como teto improvisado.
 
 Encolhidos ali, viram uma ave branca pousar sob a mesma folha, fugindo da chuva. Jokara levou a mão à adaga em suas vestes. A fome ardia em seu estômago. A ave não se mexeu. Olhou para ela de lado.
 
@@ -94,9 +94,9 @@ Quando a tempestade cessou, a ave ergueu as asas e levantou voo, desaparecendo e
 
 A cada Sopro do Silêncio, Jokara cuidava primeiro do fogo. Aprendera a protegê-lo antes de sair em busca de comida. Construiu um círculo de pedras, criando um pequeno forno improvisado onde a chama podia queimar mesmo contra a chuva leve ou o vento, que ali embaixo era apenas traiçoeiro. Loutes recolhia os galhos secos e aprendeu a alimentar a chama sem abafá-la.
 
-Durante um Sopro do Silêncio, veio um zumbido ensurdecedor. Uma nuvem negra de insetos, milhares, mordendo pele, entrando nos olhos. Jokara tentou afastá-los com as mãos, mas era inútil. Só então empunhou um galho em chamas e o ergueu contra eles. A nuvem recuou na hora. Jokara ficou parada com o galho em chamas na mão, rindo sozinha.
+Durante um Sopro do Silêncio, um zumbido tomou conta do abrigo. Uma nuvem negra de insetos, milhares, mordendo pele, entrando nos olhos. Jokara tentou afastá-los com as mãos, mas era inútil. Só então empunhou um galho em chamas e o ergueu contra eles. A nuvem recuou na hora. Jokara ficou parada com o galho em chamas na mão, rindo sozinha.
 
-Sopros depois, Jokara e Loutes prepararam uma armadilha simples, cordas improvisadas com raízes e pedras posicionadas. Pela manhã, encontraram o chão revirado: a presa fugira, e a armadilha estava despedaçada. Só havia marcas fundas na lama. Jokara caiu de joelhos e socou a terra até as mãos doerem.
+Sopros depois, Jokara e Loutes prepararam uma armadilha simples, cordas improvisadas com raízes e pedras posicionadas. Pela manhã, encontraram o chão revirado: a presa fugira, e a armadilha estava despedaçada. Só havia marcas fundas na lama. Jokara baixou-se sobre o joelho direito e socou a terra até as mãos doerem.
 
 Nos sopros seguintes, os bichos se calaram. Um sopro inteiro sem um único grito, sem zumbido. Jokara começou a ouvir coisas no escuro, entre o sono e a vigília. E numa dessas noites, ouviu claramente seu nome.
 
@@ -107,7 +107,7 @@ A voz era baixa, mas nítida. Ela se ergueu, o coração disparado. Loutes dormi
 Podia ser a cabeça dela, cansada. Podia não ser.
 
 
-Alguns sopros depois, quando voltavam do rio, após tentar pegar mais alguns peixes e fracassarem mais uma vez devido à criatura da água, eles viram pegadas no barro. Não eram deles. Mais largas, mais fundas, e iam direto até o abrigo. Dentro, Jokara notou que o arranjo de galhos na entrada havia sido mexido. Algumas frutas que tinham colhido pela manhã tinham desaparecido.
+Alguns sopros depois, quando voltavam do rio, sem peixe por causa da criatura da água, viram pegadas no barro. Não eram deles. Mais largas, mais fundas, e iam direto até o abrigo. Dentro, Jokara notou que o arranjo de galhos na entrada havia sido mexido. Algumas frutas que tinham colhido pela manhã tinham desaparecido.
 
 Jokara olhou para as pegadas, depois para Loutes. Loutes olhava para as árvores.
 

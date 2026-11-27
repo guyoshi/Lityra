@@ -1,4 +1,4 @@
-Jokara permaneceu entre as pedras por quase meio sopro pleno. O vento não chegava ao buraco, e o frio subia pelo chão. O sangue secava ao redor da pedra que lhe atravessava a perna, formando uma crosta negra.
+Jokara permaneceu entre as pedras por um tempo que não soube medir. O vento não chegava ao buraco, e o frio subia pelo chão. O sangue secava ao redor da pedra que lhe atravessava a perna esquerda, formando uma crosta negra.
 
 Então luzes azuis dançaram na borda da abertura, carregadas por mãos trêmulas. Sersi vinha à frente, acompanhada de Nestira e Mirel. Jokara tentou erguer os olhos, mas tudo girava.
 
@@ -19,7 +19,7 @@ Jokara tentou se erguer e gemeu.
 
 Efepar se adiantou.
 
-— Lá fora. Não saiu do lado de fora desde que trouxeram você.
+— Lá fora. Não saiu de perto da porta desde que trouxeram você.
 
 Ela fechou os olhos. Lembrou-se dos passos dele sumindo caverna acima.
 
@@ -29,15 +29,15 @@ Nestira segurou sua mão, firme.
 
 — Não, irmã. Foi ele quem nos chamou. Mas não conseguíamos entender.
 
-— Demoramos muito para entender — completou Efepar, a voz arrastada. — Ele ficou... tentando mostrar. Desenhando no chão. Pulando. Apontando.
+— Demoramos muito para entender — completou Efepar, falando devagar. — Ele ficou... tentando mostrar. Desenhando no chão. Pulando. Apontando.
 
 — Se não fosse por ele, talvez o vento tivesse cessado em você — disse Nestira.
 
-Nestira esperou um pouco antes de perguntar:
+A irmã esperou um pouco antes de perguntar:
 
-— O que você fazia no círculo de Nhamari?
+— O que você fazia no Círculo de Nhamari?
 
-— Irmã… eu fui ver o que a mulher exilada tinha visto. Segui por baixo, por entre as raízes do templo. Encontrei um buraco... e uma escada antiga. Lá embaixo, uma sala... e um livro. Um livro antigo, vivo, que tem toda a história, toda a nossa história.
+— Irmã… eu fui ver o que a mulher exilada tinha visto. Atrás da árvore seca tem uma fenda. Dentro, uma caverna que vai descendo. Lá embaixo, um salão... e um livro. Um livro antigo, vivo, que tem toda a história, toda a nossa história.
 
 Nestira recuou levemente.
 
@@ -51,7 +51,7 @@ Efepar arregalou os olhos, confuso.
 
 — O passado... o presente... e talvez o fim. Tinha todos os registros de tudo que já aconteceu e o que acontecerá. Vi os nuaris que caíram seis espirais atrás, vi a nuvem que avançou para nós... e vi a mulher do Círculo que foi exilada. E por fim… eu vi… uma lua escura… e na última página… — Jokara parou. — vi Etérea sendo destruída.
 
-— Você... cometeu um peso enorme — disse Nestira, tentando conter a emoção. — Você invadiu uma área sagrada. Nem os Oradores podem ir até lá sem a permissão dos ventos…
+— Joka... isso é um peso enorme — disse Nestira, tentando conter a emoção. — Você invadiu uma área sagrada. Nem os Oradores podem ir até lá sem a permissão dos ventos…
 
 — Está com medo da sua irmã? — cortou Jokara. — Ou com medo do que descobri?
 
@@ -59,25 +59,25 @@ Nestira não respondeu de imediato.
 
 — Eu temo pelo que isso pode significar. Jokara, você violou algo que não era para ser tocado. E, às vezes, quando se mexe demais nas raízes, o vento pode achar que… que estamos pesados demais para continuar nos céus.
 
-— Chega dessa conversa de peso, Nestira. Etérea está quebrando — murmurou Jokara — e os Oradores estão silenciosos quanto a isso. A mulher de um olho… ela falava a verdade. E o que fizeram com ela?
+— Chega dessa conversa de peso, Nestira. Etérea está quebrando — murmurou Jokara —, e os Oradores estão silenciosos quanto a isso. A mulher de um olho… ela falava a verdade. E o que fizeram com ela?
 
 Ninguém respondeu. O véu de vento oscilava sobre suas cabeças.
 
 Jokara cerrou os punhos.
 
-— Eu preciso contar a todos... eles precisam saber. Isso não pode ficar entre véus e sussurros. O que vi muda tudo. As Correntes estão mentindo — disse, tentando erguer o tronco, afastar o cobertor leve que a cobria. — Eu preciso ir até o Alto Véu... até...
+— Eu preciso contar a todos... eles precisam saber. Isso não pode ficar entre véus e sussurros. O que vi muda tudo. As Correntes estão mentindo — disse, tentando erguer o tronco e afastar o cobertor leve que a cobria. — Eu preciso falar com os Oradores... agora...
 
 Tentou mover-se, e o corpo tombou para o lado esquerdo, sem apoio. Uma dor aguda subiu pela coxa.
 
 A manta tinha caído.
 
-Onde antes existia perna, havia um coto envolto em bandagens cor de cinza, grossas, encharcadas de resina. Terminava onde antes ficava o joelho, em carne apertada e costurada.
+Onde antes existia perna, havia um coto envolto em bandagens cor de cinza, grossas, encharcadas de resina. Terminava onde antes ficava o joelho, e, por baixo do tecido, ela sentia a carne apertada, costurada.
 
 Jokara ficou olhando. Lá fora, os sinos de vento continuavam tocando.
 
 Abriu a boca e não saiu som nenhum.
 
-— Não... não... — balbuciava, sem força.
+— Não... não... — balbuciou, sem força.
 
 Tentou se arrastar para trás na cama.
 
@@ -113,8 +113,6 @@ Jokara demorou a responder.
 
 — Na perna que não está mais aqui.
 
-— Não há vento que cure isso, Nestira — disse depois, olhando para o alto.
-
 
 Durante muitos sopros, Jokara permaneceu entre os corredores de cura e a casa. Quando tentou se levantar sozinha pela primeira vez, o corpo repetiu um hábito antigo: jogou o peso para a esquerda. Não encontrou chão. Caiu de ombro antes que alguém pudesse segurá-la.
 
@@ -124,7 +122,7 @@ Depois aprendeu a usá-lo.
 
 Cravava a ponta antes de mover o corpo. Transferia parte do peso para o braço e o ombro. Só então avançava a perna direita. No começo eram três movimentos separados e lentos. Bastão. Pé. Corpo. Bastão. Pé. Corpo.
 
-Caiu mais vezes. Uma delas porque esqueceu que uma raiz baixa que antes passaria entre as pernas agora exigia que ela a contornasse. Outra porque o bastão escorregou numa passagem úmida e ela bateu o quadril na madeira da parede. As palmas criaram bolhas. Nestira enrolou uma tira de tecido na empunhadura para que ela pudesse continuar.
+Caiu mais vezes. Uma delas porque esqueceu que uma raiz baixa que antes passaria entre as pernas agora exigia que ela a contornasse. Outra porque o bastão escorregou numa passagem úmida e ela bateu o quadril na madeira da parede. Surgiram bolhas nas palmas das mãos. Nestira enrolou uma tira de tecido na empunhadura para que ela pudesse continuar.
 
 A dor também aprendia a enganá-la. Às vezes o pé ausente coçava. Em outras, a panturrilha que já não existia parecia arder ou contrair. Jokara fechava os olhos, respirava e esperava passar.
 
@@ -140,7 +138,7 @@ Recusava as frutas, os chás, os convites para subir às passarelas do entardece
 
 Eram textos antigos, enrolados em fibras e guardados como relíquias. Muitos deles eram lidos apenas por oradores ou anciãos, mas ela sempre fora curiosa, e sua irmã a ajudara a conseguir acesso ao acervo mais profundo. Procurava qualquer coisa que explicasse o livro da caverna. Encontrava crônicas pela metade, nomes riscados, e uma quantidade estranha de passagens sobre o chão, sobre descer, sobre plataformas. Os estudiosos diziam que eram alegorias. Quanto mais lia, menos Jokara acreditava nisso. E se as ilhas nem sempre tivessem flutuado?
 
-Numa dessas tardes, ouviu passos na entrada principal. Curtos e rápidos. Não eram de adulto.
+Numa dessas tardes, ouviu passos curtos e rápidos na entrada principal. Não eram de adulto.
 
 — Eu não quero ser perturbada agora — murmurou Jokara, sem erguer os olhos do texto. 
 
@@ -180,9 +178,9 @@ Liri assentiu, com um brilho de expectativa.
 
 — Quero. Mas só se for aquele do céu partido e da flor que esperou mil ciclos.
 
-Jokara sorriu. Pegou um dos pergaminhos mais antigos e começou a ler. Na metade, a voz tropeçou. Liri não percebeu. Já estava com os olhos pesados, e adormeceu com a cabeça no colo dela.
+Jokara sorriu. Pegou um dos pergaminhos mais antigos e começou a ler. Na metade, a voz tropeçou. Liri não percebeu. Já estava com os olhos pesados e adormeceu com a cabeça no colo dela.
 
-Jokara leu o conto até o fim mesmo assim, baixinho, a flor que ficou aberta mil ciclos esperando que alguém a visse.
+Jokara continuou a ler baixinho, até o fim do conto da flor que ficou aberta mil ciclos esperando que alguém a visse.
 
 Quando o céu do entardecer tingiu de dourado os vitrais da casa, Jokara fechou o pergaminho com delicadeza e balançou de leve a menina.
 
@@ -192,9 +190,9 @@ Liri abriu os olhos devagar e perguntou, num sussurro:
 
 — Você não quer que eu fique?
 
-— Quero — respondeu Jokara com sinceridade —, mas o mundo também precisa de ti. E o Sopro do Silêncio já se ergueu.
+— Quero — respondeu Jokara com sinceridade —, mas o mundo também precisa de você. E o Sopro do Silêncio já vai se erguer.
 
-A menina levantou-se sonolenta e caminhou em direção à porta. Ao virar-se por um instante, disse com ternura:
+A menina levantou-se sonolenta. Mirel já a esperava à porta, de manto nos ombros, para levá-la em casa antes do toque de recolher. Liri virou-se por um instante:
 
 — Você tá menos triste, Jokara. Quando eu crescer, quero ter olhos de flor também.
 
@@ -220,7 +218,7 @@ Nestira franziu o cenho.
 
 Jokara se manteve serena.
 
-— Irmã, eu preciso... orar um pouco — mentiu com doçura — Em silêncio. Respirar o ar do centro. Sentir os ventos de perto. — Ela fez uma pausa. — Se for pela minha cura... por favor.
+— Irmã, eu preciso... orar um pouco. — A mentira saiu doce. — Em silêncio. Respirar o ar do centro. Sentir os ventos de perto. — Ela fez uma pausa. — Se for pela minha cura... por favor.
 
 Nestira hesitou. Fazia muitos sopros que Jokara não pedia para orar.
 
@@ -242,13 +240,13 @@ Antes que Jokara continuasse, uma figura deixou o semicírculo dos Oradores. Yri
 
 Jokara apertou o bastão de sopro.
 
-— Porque estou mentindo?
+— Por quê? Porque estou mentindo?
 
 — Eu não disse isso.
 
 Yrisea olhou para as pessoas reunidas antes de voltar os olhos para ela.
 
-— Você viu uma pedra cair. Encontrou registros que não compreende por inteiro. Viu imagens antigas e ouviu uma mulher condenada interpretá-las como fim. Tudo isso merece ser ouvido. Mas dizer a uma praça inteira que o céu vai cair é outra coisa.
+— O que você contou na Estação da Leveza já chegou até nós. Você viu uma pedra cair. Encontrou registros que não compreende por inteiro. Viu imagens antigas e ouviu uma mulher condenada interpretá-las como fim. Tudo isso merece ser ouvido. Mas dizer a uma praça inteira que o céu vai cair é outra coisa.
 
 — E se for verdade?
 
@@ -266,13 +264,13 @@ Jokara quase aceitou. Então se lembrou de Yndra descendo sozinha para as Ilhas 
 
 A mão de Yrisea permaneceu estendida por mais um instante, depois baixou devagar.
 
-— Os oradores dizem que o Equilíbrio é eterno. Que Etérea jamais cairá. Mas e se não for assim? E se o mundo estiver a ruir, e nós simplesmente fecharmos os olhos para não ver? — A voz de Jokara agora crescia. O povo se aproximava.
+— Os oradores dizem que o Equilíbrio é eterno. Que Etérea jamais cairá. Mas e se não for assim? E se o mundo estiver ruindo, e nós simplesmente fecharmos os olhos para não ver? — A voz de Jokara agora crescia. O povo se aproximava.
 
 — Estive numa caverna, no bosque, e vi um livro que mostra o que ainda vai acontecer. Uma lua escura e a queda do nosso mundo. — Procurava um rosto que acreditasse nela e não achava.
 
-Foi então que os murmúrios se transformaram em acusações.
+Os murmúrios viraram acusações.
 
-— Está contaminada pelo Peso — disse uma mulher idosa, cobrindo os ouvidos. — Perdeu o Vento da Sanidade.
+— Está contaminada pelo Peso — disse uma mulher idosa, cobrindo os ouvidos. — Perdeu o rumo dos ventos.
 
 — Não são palavras do Firmamento. São ecos do Abismo — sussurrou um orador ao fundo.
 
@@ -290,11 +288,15 @@ Nestira, já em prantos, tentou puxar Jokara pela cintura, pedindo para que para
 
 O tumulto crescia. Crianças eram puxadas pelas mães. Alguns se afastavam, outros se aproximavam para ver melhor.
 
-Foi então que um homem, de voz forte e mãos marcadas pelo trabalho, apontou para ela:
+Um homem de voz forte e mãos marcadas pelo trabalho apontou para ela:
 
 — Nosso mundo jamais cairá, menina sem fé. Mas você... você já caiu. Está pesada demais para caminhar entre nós. Seu coração arrasta poeira. Seu sopro virou pedra.
 
-Alguém riu, nervoso. Outros gritaram junto.
+Alguém riu, nervoso.
+
+— Arrastada! — veio do fundo da praça.
+
+Outros gritaram junto.
 
 Jokara ainda tentou falar, mas já não se ouvia a própria voz.
 
@@ -308,7 +310,7 @@ Dois oradores cerimoniais aproximaram-se, mas Yrisea fez um gesto para que baixa
 
 Nestira abraçou a irmã com força. Jokara já não resistia. Chorava.
 
-Os oradores as deixaram na porta de casa e foram embora sem dizer nada. Jokara sentou-se no primeiro degrau da escada, o bastão atravessado nos joelhos.
+Os oradores as deixaram na porta de casa e foram embora sem dizer nada. Jokara sentou-se no primeiro degrau da escada, o bastão atravessado no colo.
 
 Ouviu um passo. Era Loutes, em pé, olhando para ela com os olhos grandes e silenciosos de sempre. Ele não se aproximou de imediato, apenas ficou parado à porta.
 

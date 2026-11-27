@@ -50,7 +50,7 @@ Ele veio até mim e, quando me virei, puxou a touca com um movimento rápido.
 
 — O que aconteceu, filha? Quem fez isso com você?
 
-Por um momento pensei em culpar diretamente o Agouro, mas duvidava que ele aceitasse “demônio” como resposta.
+Por um momento pensei em culpar diretamente a Entidade, mas duvidava que ele aceitasse “demônio” como resposta.
 
 — Não aconteceu nada. Eu estava com o Junior…
 

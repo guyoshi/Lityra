@@ -4,7 +4,7 @@ Em casa, ninguém falava da praça. Até que Mirel entrou pela porta da frente s
 
 — Não posso continuar a protegê-la de tudo, Jokara. Passei parte do sopro na Câmara das Vozes. Consegui impedir que levassem o que aconteceu na praça ao Conselho dos Ventos, mas querem que você pare de falar durante ritos e reuniões públicas. Dizem que suas palavras estão espalhando medo.
 
-Jokara não respondeu. Permaneceu sentada no canto da sala, os olhos no vitral quebrado.
+Jokara não respondeu. Permaneceu sentada no canto da sala, os olhos presos no vitral.
 
 — Não entende? — continuou Mirel, com os olhos cheios d'água. — Já foi chamada de amaldiçoada. Há quem diga que sua perna foi levada pelos próprios ventos como punição. Eu sei que isso é crueldade. Yrisea também sabe. Mas você acha que está salvando alguém e há gente levando crianças para longe das passarelas porque acredita que tudo pode despencar a qualquer instante. Está assustando pessoas que não sabem o que fazer com esse medo.
 
@@ -20,9 +20,9 @@ Antes que Mirel respondesse, o sino da porta tocou uma vez.
 
 Yrisea entrou sozinha.
 
-Não trazia o manto cerimonial da praça, apenas uma veste cinza clara presa por uma faixa azul e as sandálias nas mãos. Como fazia desde antes de Jokara nascer, deixou-as junto à entrada antes de pisar no piso de madeira viva. Mirel não se curvou diante dela. Yrisea também não esperou que o fizesse. As duas haviam dividido ciclos demais entre a Câmara das Vozes e os círculos de escuta para transformar aquela visita em cerimônia.
+Não trazia o manto cerimonial da praça, apenas uma veste cinza clara presa por uma faixa azul e as sandálias nas mãos. Como fazia desde antes de Jokara nascer, deixou-as junto à entrada antes de pisar na madeira viva. Mirel não se curvou diante dela. Yrisea também não esperou que o fizesse. As duas haviam dividido ciclos demais entre a Câmara das Vozes e os círculos de escuta para transformar aquela visita em cerimônia.
 
-A anciã sentou-se diante de Jokara com alguma dificuldade. Recusou a mão de Mirel para ajudá-la, ajeitou o manto sobre os joelhos e esperou até que a jovem a encarasse.
+A anciã sentou-se diante de Jokara com alguma dificuldade. Recusou a mão de Mirel para ajudá-la, ajeitou a veste sobre os joelhos e esperou até que a jovem a encarasse.
 
 — Vim porque você disse que não está sendo ouvida.
 
@@ -46,7 +46,7 @@ Jokara inclinou o corpo para a frente.
 
 — Eu vi Etérea destruída.
 
-— Você viu uma imagem de Etérea destruída. O Círculo de Nhamari guarda linguagem ritual, memória, medo e advertência misturados. Há escritos ali que Oradores mais antigos do que eu discordaram durante ciclos. Yndra decidiu que tudo devia ser lido de uma única maneira. Você decidiu o mesmo.
+— Você viu uma imagem de Etérea destruída. O Círculo de Nhamari guarda linguagem ritual, memória, medo e advertência misturados. Há escritos ali sobre os quais Oradores mais antigos do que eu discordaram durante ciclos. Yndra decidiu que tudo devia ser lido de uma única maneira. Você decidiu o mesmo.
 
 Yrisea continuou:
 
@@ -60,19 +60,19 @@ Yrisea demorou a responder.
 
 Jokara abriu a boca e não encontrou resposta.
 
-— Colocaria milhares de pessoas em planadores? Mandaria idosos e crianças para Nadirion, um lugar que ninguém sabe sequer se é chão ou morte? Esvaziaria as casas e encheria as pontes ao mesmo tempo? — Yrisea inclinou a cabeça. — Uma verdade sem caminho pode produzir uma tragédia antes da tragédia que tenta evitar.
+— Colocaria milhares de pessoas em planadores? Mandaria idosos e crianças para Nadirion, um lugar que ninguém sabe sequer se é chão ou morte? Esvaziaria as casas e encheria as pontes ao mesmo tempo? — Yrisea inclinou a cabeça. — E se uma ponte cair com todos em cima, a tragédia vai chegar antes daquela que você quer evitar.
 
 Mirel permaneceu junto à janela. Jokara não tinha resposta, e odiava isso.
 
 — O mundo está mudando — insistiu.
 
-— Eu sei. — Yrisea pousou as mãos sobre o bastão. — Por isso estamos olhando. Mas olhar leva tempo, e medo não espera.
+— Eu sei. — Yrisea pousou as mãos sobre o bastão. — Por isso estamos olhando.
 
 Jokara não respondeu. Pela primeira vez, pensou que talvez estivesse enxergando no livro só o que já tinha ido procurar.
 
 Yrisea levantou-se devagar.
 
-— Você ainda pode consultar os textos comuns. O acesso ao Círculo de Nhamari será fechado por enquanto, e peço que não volte à Praça da Raiz para anunciar novas revelações. Se quiser falar, fale comigo. Com Mirel. Com os estudiosos. Não com uma multidão que pode correr para uma ponte sem saber para onde está correndo.
+— Você ainda pode consultar os textos comuns. O acesso ao Círculo de Nhamari será fechado por enquanto e peço que não volte à Praça da Raiz para anunciar novas revelações. Se quiser falar, fale comigo. Com Mirel. Com os estudiosos. Não com uma multidão que pode correr para uma ponte sem saber para onde está correndo.
 
 Era uma proibição, dita com educação.
 
@@ -89,7 +89,7 @@ Ninguém a tratava como ameaça. Tratavam-na como alguém que precisava ser prot
 
 Tentou conversar com Loutes, sopros depois, quando o viu sentado perto da estufa, mexendo em uma pequena hélice feita de folhas de arli. Aproximou-se devagar.
 
-— No Sopro do Silêncio… em que eu fui à praça — murmurou — Você disse algo, não disse?
+— Naquele sopro… em que eu fui à praça — murmurou. — Você disse algo, não disse?
 
 Loutes girou a hélice de folhas entre os dedos, sem erguer os olhos para ela.
 
@@ -107,11 +107,11 @@ Jokara não respondeu. Taliver entrou mesmo assim, com um sorriso torto no rosto
 
 Ela continuou calada, mas virou o rosto para ele.
 
-— Sabe, quando eu era mais novo, tentei voar. — Ele mordeu uma fruta seca com prazer. — Fiz umas asas de papel torcido e pulei do telhado do templo. Quebrei três costelas e perdi um pedaço do orgulho. Mas naquele segundo no ar... eu juro que quase acreditei que os ventos estavam comigo.
+— Sabe, quando eu era mais novo, achava que nada me derrubava. — Ele mordeu uma fruta seca com prazer e deu um tapinha no apoio da perna direita. — Até o sopro em que quis passar por cima de uma Corrente virada. Desci um bom trecho girando, deixei esta perna numa saliência e perdi um pedaço do orgulho. Mas um segundo antes... eu juro que quase acreditei que os ventos estavam comigo.
 
 Jokara desviou os olhos, mas o canto da boca se mexeu.
 
-— Depois disso, aprendi a voar com ideias. Com teorias. E de vez em quando, uma ideia te carrega mais longe do que o próprio corpo poderia ir. — Taliver a olhou, com calma. — E algumas ideias... causam vertigem nos outros.
+— Depois disso, passei a voar mais com ideias do que com asas. Com teorias. E de vez em quando, uma ideia te carrega mais longe do que o próprio corpo poderia ir. — Taliver a olhou, com calma. — E algumas ideias... causam vertigem nos outros.
 
 Jokara virou-se de lado. Encarava agora o teto de madeira entrelaçada.
 
@@ -123,7 +123,7 @@ Ela o encarou.
 
 — Como assim?
 
-— Desde o último sopro, os ventos não vêm mais do oeste. Estão oscilando. Irregulares. Há regiões onde eles simplesmente param — e não voltam. — Ele se aproximou. — E não é só isso. Eu... vi. Vi uma ilha distante. Estava observando com a luneta do observatório antigo. Um pedaço de rocha enorme... se desprendeu. Como casca de fruta podre.
+— Desde o último sopro, os ventos não vêm mais do oeste. Estão oscilando. Irregulares. Há regiões onde eles simplesmente param e não voltam. — Ele se aproximou. — E não é só isso. Eu... vi. Vi uma ilha distante. Estava observando com a luneta do observatório antigo. Um pedaço de rocha enorme... se desprendeu. Como casca de fruta podre.
 
 Jokara fechou os olhos.
 
@@ -133,7 +133,7 @@ Jokara fechou os olhos.
 
 Taliver olhou para a janela.
 
-— Há sopros, eu estava no observatório. Deixei cair um pedaço de mineral sobre a madeira da varanda. Uma pedra simples de estudo, do tipo que uso para avaliar as composições das ilhas. O som que ela fez ao tocar o chão... foi estranho. Mais abafado. E por alguma razão, demorou mais do que eu esperava para cair.
+— Há alguns sopros, eu estava no observatório e deixei cair um pedaço de mineral sobre a madeira da varanda. Uma pedra simples de estudo, do tipo que uso para avaliar as composições das ilhas. O som que ela fez ao tocar o chão... foi estranho. Mais abafado. E por alguma razão, demorou mais do que eu esperava para cair.
 
 Jokara franziu o cenho.
 
@@ -143,11 +143,11 @@ Jokara franziu o cenho.
 
 Ele se inclinou.
 
-— E não foi só isso. Tenho precisado respirar mais fundo para subir a escada do observatório. As pedras que uso para gravar anotações parecem mais pesadas. Cada coisa sozinha não quer dizer nada.
+— E não foi só isso. No alto do observatório, o ar anda pesado, abafado, e meus ouvidos vivem tapando. As pedras que uso para gravar anotações parecem mais leves. Cada coisa sozinha não quer dizer nada.
 
 — O que isso quer dizer? — perguntou Jokara, agora sentada mais ereta.
 
-— Juntas... — Ele baixou a voz. — O tempo de queda aumenta. O peso aumenta. O ar fica mais ralo. Os ventos mudam de direção ou param. Se eu estiver certo, tudo isso tem a mesma causa.
+— Juntas... — Ele baixou a voz. — O tempo de queda aumenta. O peso diminui. O ar fica mais denso. Os ventos mudam de direção ou param. Se eu estiver certo, tudo isso tem a mesma causa.
 
 Jokara não disse nada.
 
@@ -171,7 +171,7 @@ Jokara baixou os olhos.
 
 Professor Taliver suspirou.
 
-— Os Oradores não vão aceitar essa conclusão sem resistência. Talvez acreditem mesmo que estão protegendo Etérea do pânico. Mas proteção demais também pode virar cegueira, Jokara. Ainda assim... precisamos fazer as pessoas perceberem que algo está mudando. Antes que nosso tempo acabe.
+— Os Oradores não vão aceitar essa conclusão sem resistência. Talvez acreditem mesmo que estão protegendo Etérea do pânico. Mesmo assim... precisamos fazer as pessoas perceberem que algo está mudando. Antes que nosso tempo acabe.
 
 Ela olhou para ele.
 
@@ -195,23 +195,23 @@ Ela engoliu em seco.
 
 Ele hesitou. Depois, balançou a cabeça com um leve sorriso irônico.
 
-— Não acredito muito nisso. Nadirion sempre me pareceu mais uma invenção dos oradores do que uma geografia real. Mas talvez... talvez haja terra, sim. Embaixo de tudo isso. Talvez não o paraíso prometido, mas um lugar real. Sólido. Habitável.
+— No Nadirion que os Oradores contam, feito de peso e castigo, eu não acredito muito. Mas existe uma superfície lá embaixo. Terra, talvez. Um lugar sólido. Quem sabe habitável.
 
 — Uma nova terra... — repetiu Jokara, quase sem voz.
 
 Professor Taliver pousou a mão sobre a dela.
 
-— E talvez, dessa vez, não cometamos os mesmos erros ao construir algo sobre ela.
+— E quem sabe a gente erre menos quando for construir alguma coisa em cima dela.
 
 Jokara acompanhou o Professor Taliver até a porta. O vento do Sopro do Silêncio mal se mexia.
 
-Taliver deu dois passos para fora e parou tão de repente que Jokara quase esbarrou nele. Uma das luas permanecia clara entre as estrelas. A outra ainda estava lá também, mas alguma coisa parecia ter avançado sobre sua face. Uma curva escura cobria quase todo o disco, deixando apenas uma faixa pálida na borda. Não havia nuvens nem névoa. A sombra tinha um contorno nítido.
+Taliver deu dois passos para fora e parou tão de repente que Jokara quase esbarrou nele. As duas luas ainda estavam entre as estrelas, mas alguma coisa avançava sobre elas. Uma curva escura cobria quase todo o disco da maior, deixando apenas uma faixa pálida na borda. A menor, mais adiante, já não passava de um risco. Não havia nuvens nem névoa. A sombra tinha um contorno nítido.
 
 Jokara sentiu o estômago apertar.
 
 Era o desenho do livro.
 
-Não exatamente. O livro mostrava uma lua inteiramente negra. Aquela ainda conservava um filete de luz. Mas, enquanto observava, Jokara teve a impressão de que até esse filete diminuía.
+Não exatamente. O livro mostrava uma lua inteiramente negra. Aquelas ainda conservavam um filete de luz. Mas, enquanto observava, Jokara teve a impressão de que até os filetes diminuíam.
 
 Taliver apoiou uma mão no batente e ergueu o rosto, completamente desperto agora.
 
@@ -225,7 +225,7 @@ Ele demorou a responder.
 
 Era a primeira vez que Jokara ouvia aquilo dele sem uma teoria logo depois.
 
-Lá fora, as portas começavam a se abrir. Pessoas surgiam nas varandas e nas passarelas, primeiro em silêncio, depois em murmúrios que corriam de casa em casa. Uma mulher puxou os dois filhos para perto e fez sobre a testa deles o sinal das Três Correntes. Mais adiante, um homem repetia que a lua estava pesada e que os Ventos tinham começado a retirar sua luz. Alguém respondeu que era apenas uma prova de Arion. Outro mandou todos pararem de dizer aquilo em voz alta.
+Lá fora, as portas começavam a se abrir. Pessoas surgiam nas varandas e nas passarelas, primeiro em silêncio, depois em murmúrios que corriam de casa em casa. Uma mulher puxou os dois filhos para perto e fez sobre a testa deles o sinal das Três Correntes. Mais adiante, um homem repetia que as luas estavam pesadas e que os Ventos tinham começado a retirar a luz delas. Alguém respondeu que era apenas uma prova de Arion. Outro mandou todos pararem de dizer aquilo em voz alta.
 
 — A luz está sendo tomada — sussurrou uma velha numa varanda próxima.
 
@@ -241,13 +241,13 @@ Taliver desceu um degrau sem tirar os olhos do céu.
 
 Jokara mal o ouviu. As palavras de Yndra haviam voltado inteiras:
 
-"Quando os ventos descansarem…
+“Quando os ventos descansarem…
 
 A luz será escondida…
 
-A harmonia será quebrada…"
+A harmonia será quebrada…”
 
-Olhou novamente para a lua quase apagada e depois para a outra, intacta ao lado dela. O contraste tornava tudo pior.
+Procurou a lua menor e não achou. Da maior restava um fio. Enquanto olhava, o fio também se apagou.
 
 No livro, depois da lua negra, vinham as ilhas partidas.
 
@@ -259,11 +259,9 @@ Taliver já começava a descer as escadas, ainda olhando para cima, como se prec
 
 Jokara quis pedir que ficasse, mas ele já atravessava a passagem entre as casas. Ao redor, Etérea inteira parecia ter saído para olhar a mesma coisa.
 
-A porta ficou aberta, e o frio do Sopro do Silêncio entrou pelo lado onde antes ficava sua perna esquerda. Jokara fechou-a devagar e permaneceu encostada nela, com a imagem da lua quase negra ainda presa nos olhos.
+A porta ficou aberta, e o frio do Sopro do Silêncio entrou pelo lado onde antes ficava sua perna esquerda. Jokara fechou-a devagar e permaneceu encostada nela, com a imagem do céu sem luas ainda presa nos olhos.
 
-Jokara fechou a porta devagar e ficou encostada nela.
-
-No Sopro do Despertar seguinte, a primeira luz filtrava-se pelas rendas translúcidas da janela, Jokara despertou devagar, sem saber se tinha dormido de verdade.
+No Sopro do Despertar seguinte, a primeira luz filtrava-se pelas rendas translúcidas da janela quando Jokara despertou devagar, sem saber se tinha dormido de verdade.
 
 Ao sair da cama, o reflexo foi mais rápido que a memória. Jokara tentou apoiar o pé esquerdo no chão.
 
@@ -281,7 +279,7 @@ No céu claro da manhã, não havia sinal das luas. As aves matinais cruzavam o 
 
 Alguém bateu na porta.
 
-— Jokara? — era a voz de Efepar. — Sou eu.
+— Jokara? — Era a voz de Efepar. — Sou eu.
 
 Ela não respondeu logo. Pensou em fingir que não estava. Desde o sopro na praça, evitava todo mundo. Até com Nestira falava pouco.
 
@@ -305,11 +303,11 @@ Ele respirou fundo, mas não recuou.
 
 — Ninguém está com vontade de nada ultimamente.
 
-Ela cruzou os braços. Nunca tinha ouvido Efepar falar naquele tom.
+Apoiou-se no batente. Nunca tinha ouvido Efepar falar naquele tom.
 
 — Por que veio aqui? Ficou com pena?
 
-— Vim porque me importo. Porque... é minha amiga.
+— Vim porque me importo. Porque... você é minha amiga.
 
 Jokara olhou para o chão.
 
@@ -317,7 +315,7 @@ Jokara olhou para o chão.
 
 — Eu sei — respondeu ele, mais suave agora. — Mas talvez se cansar lá fora seja melhor que se cansar aqui dentro.
 
-Ela o encarou por um instante. Depois suspirou, deu meia-volta, pegou o bastão e ajeitou os cabelos com os dedos.
+Ela o encarou por um instante. Depois suspirou, firmou o bastão e ajeitou os cabelos com a mão livre.
 
 — Só não fale demais.
 
@@ -345,9 +343,9 @@ Ela suspirou e então virou-se de frente para ele, segurando o bastão com forç
 
 — Efepar... você disse que iria me ouvir. Então me ouça.
 
-Ele assentiu, e ela começou. Contou aos pedaços, voltando atrás, pulando partes. O que havia visto no bosque. As pedras caindo. A mulher de um olho. E por fim, a conversa com Professor Taliver e a lua que escurecera diante dos dois.
+Ele assentiu, e ela começou. Do livro ele já sabia o que ouvira na Estação da Leveza. Agora ela contou o resto, aos pedaços, voltando atrás, pulando partes. O que havia visto no bosque. As pedras caindo. A mulher de um olho. E por fim, a conversa com Professor Taliver e as luas que tinham sumido diante dos dois.
 
-Enquanto falava, olhava para Efepar de vez em quando, esperando que ele dissesse alguma coisa, mesmo tendo pedido que só ouvisse. Ele andava ao lado, calado.
+Enquanto falava, olhava para Efepar de vez em quando, esperando que ele dissesse alguma coisa, mesmo tendo pedido que só ouvisse. Ele ouvia encostado nas pedras, calado.
 
 Até que, de repente, ela parou e olhou para ele.
 
@@ -361,9 +359,9 @@ Efepar virou-se rápido demais.
 
 Efepar parou de sorrir.
 
-— Eu... só não sei o que pensar. É muito assustador. Pensar nisso.
+— É que... é muito assustador. Pensar nisso.
 
-— Eu sei que é. Mas e se os sinais não forem apenas histórias? Sabe o que me assusta mais? Não é o mundo cair. É todo mundo ver os sinais e continuar fingindo que está tudo bem. Como se uma das luas não tivesse quase apagado diante de todo mundo. Como se os ventos não estivessem errados. Como se as pedras não estivessem rachando!
+— Eu sei que é. Mas e se os sinais não forem apenas histórias? Sabe o que me assusta mais? Não é o mundo cair. É todo mundo ver os sinais e continuar fingindo que está tudo bem. Como se as luas não tivessem sumido diante de todo mundo. Como se os ventos não estivessem errados. Como se as pedras não estivessem rachando!
 
 Ele desviou o olhar.
 
@@ -379,21 +377,21 @@ Ele abriu a boca para dizer que acreditava, e fechou de novo.
 
 — Eu também não sei — ela respondeu, já mais contida. — Mas isso não me impede de ver.
 
-Voltaram a andar pela trilha entre as árvores, sem conversa. O céu estava limpo, mas as folhas se agitavam sem vento que as explicasse.
+Deixaram o mirante e seguiram pela trilha entre as árvores, sem conversa. O céu estava limpo, mas as folhas se agitavam sem vento que as explicasse.
 
-— Eu preciso de ajuda — ela disse. E assim que Efepar olhou para ela com um misto de cansaço e pena no rosto, ela continuou: — Preciso que me ajude a provar isso para as pessoas.
+— Eu preciso de ajuda — ela disse. E assim que Efepar olhou para ela, cansado e com aquela expressão de pena, continuou: — Preciso que me ajude a provar isso para as pessoas.
 
-— Provar o que, Jokara? — perguntou Efepar, parecendo sem paciência — que os ventos estão mentindo para nós?
+— Provar o que, Jokara? — perguntou Efepar, já sem paciência. — Que os ventos estão mentindo para nós?
 
-Um estalo seco cortou o ar, diferente de qualquer galho partido. Jokara parou. Outro estalo, mais alto. Então veio o tremor.
+Jokara parou ao ouvir um estalo seco, diferente de qualquer galho partido. Veio outro, mais alto, e o chão tremeu.
 
 — Efepar...?
 
-Não houve tempo. Um rugido surdo emergiu das profundezas, e o solo tremeu sob seus pés. A trilha adiante rachou, e a fenda correu na direção deles. Jokara perdeu o equilíbrio. O bastão escorregou de sua mão, e ela tombou para a borda.
+Não houve tempo. Um rugido surdo emergiu das profundezas, e o solo tremeu debaixo deles. A trilha adiante rachou, e a fenda correu na direção deles. Jokara perdeu o equilíbrio. O bastão escorregou de sua mão, e ela tombou para a borda.
 
 — Jokara! — gritou Efepar, lançando-se para a frente.
 
-Ele a agarrou pelo braço no último instante, as pernas firmes numa pedra ainda intacta. Jokara gritou com o vazio sob o pé. Efepar puxou com força, rangendo os dentes, até trazê-la de volta. Os dois rolaram para o lado seguro, ofegantes, os rostos cobertos de poeira e folhas.
+Ele a agarrou pelo braço no último instante, as pernas firmes numa pedra ainda intacta. Jokara gritou com o vazio sob o pé. Efepar puxou com força, rangendo os dentes, até trazê-la de volta. Os dois rolaram para o lado seguro, ofegantes, os rostos cobertos de poeira e folhas. Uma lasca de pedra rasgou a túnica de Efepar no peito.
 
 O barulho era ensurdecedor. Atrás deles, o meio da ilha começou a ceder. Árvores se inclinavam devagar. O chão rachava em várias direções, e um pedaço inteiro da encosta se desprendeu.
 
@@ -405,7 +403,7 @@ Efepar, ajoelhado ao lado dela, encarava tudo com os olhos arregalados.
 
 — Que tal essa prova? — murmurou Jokara, trêmula.
 
-Ele assentiu, devagar.
+Ele assentiu devagar. Jokara viu o bastão caído entre as pedras, ainda ao alcance, e o recuperou.
 
 A alguns metros dali, quatro figuras também observavam. Um grupo que havia saído cedo para colher ervas entre as colinas. Um deles era Maletar, o teceltro, o homem que cuidava das fundações das pontes e das ancoragens das ilhas de Nivelia, as mãos sempre cobertas de poeira de pedra.
 

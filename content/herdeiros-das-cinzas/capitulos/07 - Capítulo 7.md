@@ -10,7 +10,7 @@ A terceira armadilha ficava na descida para o riacho, entre raízes grossas de p
 
 Parou.
 
-Bera vinha atrás, farejando o caminho. Ergueu a cabeça e mostrou os dentes na direção de um amontoado de ramos junto da margem. Kedran tirou a faca e apontou o arco para o espaço entre os galhos.
+Bera vinha atrás, farejando o caminho. Ergueu a cabeça e mostrou os dentes na direção de um amontoado de ramos junto da margem. Kedran armou o arco e apontou para o espaço entre os galhos.
 
 — Sai daí. Vi onde você mexeu. Não vou chegar mais perto pra cair em cima de outra armadilha.
 
@@ -18,7 +18,7 @@ O monte de ramos não se moveu.
 
 Kedran deu um passo de lado para manter a margem do riacho à vista. A água corria debaixo de um gelo fino e soltava um barulho baixo, constante. Se alguém estivesse escondido ali, não teria muito para onde fugir. Não sem atravessar a água.
 
-— Eu tô vendo a bota — disse. — Se quer comida, sai e pede. Se quer me pegar pelas costas, escolheu um lugar ruim.
+— Tô vendo sua bota. Sai daí devagar. Não quero ter que atirar.
 
 Uma voz de mulher respondeu do meio dos ramos.
 
@@ -34,13 +34,13 @@ Bera rosnou outra vez, mas a moça olhou para a cátila e perdeu um pouco da for
 
 Kedran manteve a flecha apontada.
 
-— Conhece a minha cátila?
+— De onde conhece a Bera?
 
-— Vi ela no rio. Tava com a criança pequena e com um garoto que não escutava nada do que eu dizia. — A moça respirou fundo, e Kedran viu que isso lhe doía. — Você deve ser o irmão dele.
+— Vi ela no rio, com a pequena e um garoto que não escutava nada do que eu dizia. — A moça respirou fundo, e Kedran viu que isso lhe doía. — Você deve ser o irmão dele.
 
 Kedran sentiu um frio diferente daquele que vinha do chão.
 
-— E você deve ser a moça que deu o cordão.
+— Foi você que deu o cordão pro Sefter?
 
 Ela olhou para a própria mão esquerda e fechou os dedos.
 
@@ -58,9 +58,9 @@ Era a primeira vez que Kedran ouvia o nome. Sefter falara da moça do rio e da c
 
 Kedran avançou um passo. Ravira recuou até bater a perna na pedra, e o rosto se contorceu.
 
-— Não fala o nome do meu irmão. Você não tem esse direito.
+— Não fala o nome dele. Não depois do que aconteceu na ravina.
 
-— Eu só perguntei porque vi gente do meu clã indo atrás de vocês. Depois não achei mais ninguém.
+— Eu vi gente do meu clã saindo atrás de vocês. Depois não achei mais ninguém.
 
 — Você viu os homens que foram pra nossa casa?
 
@@ -68,33 +68,33 @@ Ela olhou para o arco, para a faca na cintura dele e depois para Bera, que se ap
 
 — Vi os casacos saindo do acampamento — disse. — Não tava com eles.
 
-— O casaco que você usa é igual. O nó também era igual. Minha tia morreu com gente dessas cores em cima dela.
+— Tavam vestidos igual a você. Até o nó era igual. Minha tia morreu na frente de gente com esse casaco.
 
 Ravira levou a mão boa à testa, mas interrompeu o movimento antes de tocar o ferimento.
 
 — Eu sei que você não vai acreditar em mim.
 
-— Ainda nem ouvi o que você veio dizer.
+— Então fala.
 
-— Eu não vim falar nada. Tinha cheiro de isca no caminho e achei que pudesse ter comida. — Ela olhou para a armadilha desmontada, com irritação cansada. — Se fosse um bicho pequeno, ia passar por baixo desse laço. Se fosse um maior, ia arrancar tudo. Você tem que prender mais baixo.
+— Nem sabia que você tava aqui. Senti cheiro de isca e achei que podia ter comida. — Ela olhou para a armadilha desmontada. — O laço tava alto demais. Um bicho pequeno passa por baixo e um grande arranca tudo. Tem que prender mais baixo.
 
 Kedran acompanhou a direção do olhar dela. A correção fazia sentido. Ele havia armado o laço às pressas, antes de clarear, porque Litara acordara chorando de fome e Nefestra lhe pedira que procurasse qualquer coisa.
 
 — Vai me ensinar a caçar?
 
-— Não preciso. Já vi que você sabe. Só fez isso correndo.
+— Você sabe caçar. Só fez esse laço correndo.
 
-A resposta o irritou mais do que uma desculpa teria irritado. Era o tipo de coisa que Sefter diria ao vê-lo errar um nó, para depois tentar consertá-lo. Kedran guardou a lembrança e voltou à pergunta que importava.
+A resposta o irritou. Era o tipo de coisa que Sefter diria ao vê-lo errar um nó, para depois tentar consertá-lo. Kedran olhou para o ferimento na testa dela.
 
-— O que aconteceu com a sua gente?
+— Se não tava com os outros, como acabou desse jeito?
 
 Ravira se apoiou na pedra. Os dedos da mão direita tremiam, e ela os escondeu sob a barra do casaco.
 
-— Me mandaram falar quem era aquele garoto do rio. Eu disse que não ia levar ninguém até ele. A Mais Velha perguntou de novo. Eu disse a mesma coisa. — Ela parou para engolir em seco. — Tiraram minha corda. Agora, se eu aparecer onde estiver gente nossa, vão me matar.
+— Me mandaram dizer quem era o garoto do rio. Eu não quis levar ninguém até ele. A Mais Velha perguntou de novo e eu disse que não ia. — Ela parou para engolir em seco. — Tiraram minha corda. Se eu aparecer perto da minha gente agora, vão me matar.
 
 — Por quê?
 
-— Porque eu desobedeci. E porque eu disse que eles não tinham o direito de fazer aquilo.
+— Desobedeci à Mais Velha. E disse na cara dela que não tinha direito de fazer aquilo.
 
 Kedran olhou a marca no pulso. Não podia saber quem havia tirado a corda, nem se a ferida na testa vinha de um ataque ou de uma queda. O casaco continuava sendo o mesmo que os outros usavam. A palavra dela era tudo o que tinha.
 
@@ -114,9 +114,9 @@ Kedran esperou. Ela também esperou, e o que havia no rosto dela era cansaço e 
 
 — Eu não sei. Ninguém me disse.
 
-— Você quer que eu acredite que fizeram tudo aquilo e nem falaram com você?
+— E depois que eles saíram do acampamento? Ninguém veio falar com você?
 
-— Falaram. Perguntaram. Eu não respondi o que queriam. Não sei o que foram procurar depois. — Ravira apertou os olhos, incomodada com a própria voz. — O seu irmão me ajudou no rio. Só isso. Eu devia uma a ele.
+— Não me disseram onde tinham ido, nem o que tinham achado. Só queriam saber do seu irmão. — Ravira apertou os olhos. — Ele me ajudou no rio. Eu devia uma a ele.
 
 Kedran olhou de novo para a marca vazia do pulso. Sefter carregava o cordão sob a manga, e Maltaren dissera que deveriam queimá-lo longe dali. O pai não conseguira cumprir a ordem. Agora a moça estava sem corda nenhuma, e o irmão dele continuava com uma que não lhe pertencia.
 
@@ -124,15 +124,15 @@ Kedran olhou de novo para a marca vazia do pulso. Sefter carregava o cordão sob
 
 — Vi dois quando saí. Um deles tinha um arco. Depois ouvi vozes mais acima e me escondi. Passei a noite debaixo de uma pedra. — Ravira ergueu o queixo para o caminho por onde Kedran chegara. — Se esses dois ainda tão procurando, não vão gostar de me encontrar perto de vocês.
 
-— Isso é ameaça?
+— Tá dizendo que vão seguir você até aqui?
 
-— É o que vai acontecer se me acharem aqui. Não sei o que você pretende fazer comigo.
+— Se não perderam o rastro, vão. Não sei o que você pretende fazer comigo.
 
 Kedran já começara a puxar a corda do arco quando ela terminou. De repente lhe ocorreu que a moça não tinha comida, não tinha abrigo e talvez não tivesse dormido desde o ataque. Podia estar mentindo. Também podia morrer naquela encosta sem que ele precisasse fazer nada.
 
 Tirou a flecha da corda.
 
-— Levanta a mão direita. Devagar. Quero ver se tem faca.
+— Tira a mão de perto da cintura. Devagar. Quero ver se tem faca.
 
 Ravira obedeceu. Havia um pequeno gancho de osso preso à cintura, igual ao que Sefter descrevera, e uma faca curta na bota. Kedran tomou os dois e os guardou no próprio cinto. Ela não protestou. Foi então que ele viu o sangue na parte de trás do casaco e percebeu que parte do esforço dela para ficar em pé vinha do ferimento na perna.
 
@@ -142,11 +142,11 @@ Ravira obedeceu. Havia um pequeno gancho de osso preso à cintura, igual ao que 
 
 — Até um lugar onde ninguém vai ver você de longe. Depois eu decido.
 
-— Se for pra me entregar, prefere fazer isso perto do fogo?
+— E o que vai fazer comigo lá?
 
-— Se eu fosse entregar você, já tinha amarrado suas mãos. Vem. E anda na minha frente.
+— Se fosse pra amarrar você, já tinha amarrado aqui. Vem. Anda na frente.
 
-Ravira passou por ele e seguiu a trilha que ele apontou, arrastando uma bota de vez em quando. Bera farejou sua perna, soltou um som curto e foi à frente, mas se mantinha voltando para conferir a moça. Kedran sabia que a cátila a conhecia. Isso não o tranquilizou. Bera também conhecia o cheiro de Sefter, e ninguém o teria deixado guardar sozinho um segredo importante.
+Ravira passou por ele e seguiu a trilha, arrastando uma bota de vez em quando. Bera farejou sua perna, soltou um som curto e foi à frente, mas voltava para conferir a moça. Kedran sabia que a cátila a conhecia. Isso não bastava para confiar nela.
 
 Na primeira subida Ravira precisou se segurar num tronco. Kedran esperou, sem ajudá-la. Ela limpou o sangue que recomeçara a escorrer da sobrancelha e apontou com o queixo para a direção das árvores.
 
@@ -184,7 +184,7 @@ Sefter olhou para Kedran.
 
 — Encontrei no riacho. Diz que o povo dela tá caçando ela também.
 
-— E você trouxe pra cá? — Sefter tentou se levantar. O peso caiu na perna ferida e ele agarrou o galho para não tombar. — Ked, foi a única pessoa de fora que ouviu. Você sabe. O pai mandou a gente sair dali por causa dela.
+— E trouxe ela pra cá? — Sefter tentou se levantar. A perna cedeu e ele agarrou o galho. — Ked, só ela sabia. O pai mandou a gente sair por causa disso.
 
 Ravira fechou a boca. A mão esquerda continuava apertada contra o ventre, mas a direita saiu debaixo do casaco e ficou aberta ao lado do corpo.
 
@@ -192,13 +192,13 @@ Ravira fechou a boca. A mão esquerda continuava apertada contra o ventre, mas a
 
 Sefter deu um passo, arrastando o galho.
 
-— Eles mataram a Mentesra. Você não viu? O rapaz enfiou a faca nela na minha frente.
+— Eles mataram a tia Mentesra. Eu tava lá! Vi o rapaz enfiar a faca nela.
 
 — Sefter, a perna — disse Kedran.
 
-— Não fala da minha perna! — O irmão ergueu o galho, mas não na direção de Ravira. Apontou para a entrada. — Eu devia ter cortado aquela corda no dia em que ela me deu. O pai falou pra tirar. Eu fiquei andando com ela feito besta.
+— Não fala da minha perna! — Sefter apontou o galho para a entrada. — Eu devia ter cortado essa corda quando ela me deu. O pai falou pra tirar e eu fiquei andando com ela feito besta.
 
-— Você me ajudou — disse Ravira. — Era pra eu pagar. Não sabia que dar a corda ia causar isso tudo.
+— Eu não sabia que iam atrás de você por causa de uma dívida, Sefter.
 
 — Então por que os seus sabiam? Como acharam a nossa casa?
 
@@ -208,25 +208,25 @@ A pergunta ficou entre os dois. Ravira passou a língua nos lábios rachados, ol
 
 Ele soltou uma risada curta, que fez Nefestra se encolher.
 
-— É tudo que você sabe falar? Não sei, não sei. Minha tia morreu, meu pai morreu, seu povo veio lá e você não sabe nada.
+— Minha tia morreu! Meu pai ficou lá com aqueles homens! E você não sabe nada?
 
 Ravira demorou a responder. A voz saiu mais baixa.
 
-— Se eu soubesse, tinha dito pra eles não irem.
+— Se eu soubesse onde iam, tinha tentado impedir.
 
-— Se soubesse? Você quer dizer que só soube depois?
+— Você nem sabia que eles tavam indo pra nossa casa?
 
-— Foi isso que eu disse.
+— Não. Vi eles saírem, mas não sabia onde ficava a casa de vocês.
 
 Sefter tentou dar outro passo, mas Kedran ficou entre os dois. O irmão olhou para ele com tanta surpresa que a raiva pareceu recuar um instante.
 
 — Tá defendendo ela?
 
-— Tô impedindo você de abrir a coxa de novo. Não consigo carregar você mais uma vez pelo gelo, Sef. Senta.
+— Tô tentando impedir você de abrir a coxa de novo. Senta, Sef. Não dá pra carregar você toda vez que quiser brigar.
 
 — Você ouviu tudo. Não tem como acreditar nela.
 
-— Eu ouvi. E tô vendo que ela mal consegue ficar em pé. Vou tratar o ferimento e depois a gente conversa.
+— Ouvi. Também tô vendo que ela mal fica de pé. Vou fechar esse corte antes que piore. Não quer dizer que eu acreditei nela.
 
 Sefter ficou olhando o rosto do irmão. Kedran conhecia aquela cara. Era a mesma de quando tinham brigado na neve e Sefter ficara por cima dele, certo de que ganhara, até perceber que Litara tinha sumido. O irmão ainda achava que, se dissesse a coisa certa com força suficiente, tudo poderia voltar ao lugar.
 
@@ -234,7 +234,7 @@ Sefter ficou olhando o rosto do irmão. Kedran conhecia aquela cara. Era a mesma
 
 — Fica de olho sentado. É o máximo que você vai fazer hoje.
 
-Nefestra não havia dito uma palavra. Quando Kedran olhou para ela, a menina segurava Litara com a mão sobre a nuca e os olhos presos em Ravira. Não parecia interessada em perguntar como a moça chegara ali.
+Nefestra não dissera uma palavra. Estava com Litara apoiada no quadril, a única mão segurando a pequena junto ao corpo e os olhos presos em Ravira.
 
 — Não põe ela perto da Litara — disse.
 
@@ -244,7 +244,7 @@ Nefestra não havia dito uma palavra. Quando Kedran olhou para ela, a menina seg
 
 — Eu vi, Nefe.
 
-— Você viu ela cair. Eu vi antes. — A voz de Nefestra falhou, mas ela continuou. — Eu vi o rapaz chegar perto dela. A mãe me empurrou. Eu sei como era a roupa dele.
+— Eu vi o rapaz chegar perto. A mãe me empurrou antes da faca. — A voz falhou. — Ele tinha uma roupa igual à dela.
 
 Ravira baixou o rosto para a própria roupa. O mesmo tecido de faixas ferrugem e cinza cobria seus ombros. Por um momento, pareceu querer arrancá-lo. Em vez disso, abriu os dedos e deixou que Kedran lhe apontasse um lugar junto da entrada.
 
@@ -252,11 +252,11 @@ Ravira baixou o rosto para a própria roupa. O mesmo tecido de faixas ferrugem e
 
 Ela se sentou com dificuldade e tirou a bota esquerda. Havia uma ferida na parte de trás da perna, um corte comprido que atravessava a meia grossa e tornara o pano rígido de sangue. Kedran examinou de longe primeiro, procurando sinais de que a moça escondesse outra lâmina. Depois trouxe água do odre e um pano limpo. Sefter acompanhava tudo com os olhos estreitos.
 
-— Tem algum pedaço de flecha aí? — perguntou Kedran.
+— Foi uma flecha?
 
 — Não. Foi numa pedra quando caí da margem. O resto é só sujeira.
 
-— Se fosse só sujeira, você tava andando melhor. Vou limpar. Se quiser reclamar, reclama agora, porque não tenho pano pra gastar duas vezes.
+— Vou tirar essa sujeira. Vai arder. Se tiver que reclamar, reclama, mas fica quieta com a perna.
 
 Ravira encostou a cabeça na parede e estendeu a perna. Quando a água tocou o corte, ela apertou a madeira ao lado com as duas mãos, mas só soltou o ar depois que Kedran terminou. Ele percebeu que o tremor da mão esquerda piorava a cada movimento.
 
@@ -266,9 +266,9 @@ Ravira encostou a cabeça na parede e estendeu a perna. Quando a água tocou o c
 
 Kedran puxou o saco de comida. Havia raiz cozida o suficiente para a noite, se todos comessem pouco. Partiu uma das menores e a ofereceu a Ravira. Ela olhou para a comida e para a expressão de Sefter antes de aceitar.
 
-— Você vai tirar da parte da criança — disse.
+— E a pequena? Não vai faltar pra ela?
 
-— Não vou tirar da parte de ninguém. Eu ainda tenho outra armadilha. Come.
+— A parte dela tá separada. Come.
 
 Ravira deu uma mordida pequena. Nefestra acompanhou o movimento, depois pegou o próprio pedaço e o entregou a Litara, que já começara a chamar pela comida. A menina levou a raiz à boca, mastigou pouco e a devolveu.
 
@@ -282,7 +282,7 @@ Kedran passou o odre a Nefestra. A prima o segurou entre os joelhos para tirar a
 
 Só quando a tarde já tinha caído um pouco Sefter voltou a falar.
 
-— Cadê sua corda?
+— Foi a Mais Velha que tirou sua corda?
 
 Ravira levantou a cabeça e mostrou o pulso nu.
 
@@ -292,19 +292,19 @@ Sefter puxou a manga até o cotovelo. O cordão trançado de três cores apareci
 
 — Você ainda tá usando?
 
-— Meu pai mandou queimar na primeira fogueira longe da ravina. A gente fugiu antes. — Sefter passou o polegar pelo nó. — Não consegui tirar.
+— Meu pai mandou queimar longe da ravina. Depois que ele ficou lá, eu tentei desfazer e não saiu. — Sefter passou o polegar pelo nó. — Tinha faca. Não consegui cortar.
 
 Ravira olhou para Kedran, como se pedisse autorização para responder. Ele não disse nada. Ela voltou para o rapaz.
 
 — Se puxar a ponta azul, aperta mais. Tem que soltar por baixo da cinza e fazer a ferrugem passar pelo meio. Foi assim que amarrei.
 
-Sefter olhou para o nó, mas não tocou na parte que ela indicara.
+Sefter olhou para o nó, mas cobriu a ponta indicada com a outra mão.
 
-— Você acha que vou deixar encostar?
+— Não vou fazer o que você manda.
 
-— Não pedi pra encostar.
+— Então pede pro seu irmão. É só soltar por baixo.
 
-— Nem precisa.
+Sefter puxou a manga até os dedos.
 
 Kedran sabia desfazer outros nós. Aquele estava feito de um jeito que ele nunca aprendera, e havia algo humilhante em ver o irmão preferir ficar com a corda apertando o pulso a aceitar a explicação de quem a colocara ali. Ao mesmo tempo, entendia. A lã tinha passado pela mão de alguém do mesmo povo que matara seu pai. Ele próprio se obrigava a olhar Ravira sem imaginar a Mais Velha no lugar dela.
 
@@ -334,11 +334,11 @@ Ela olhou para a mata. O fim da tarde deixava os troncos quase pretos, e havia u
 
 Ravira abaixou a cabeça. Kedran pensou que talvez tivesse sido cruel demais, mas não procurou outra frase. Estava cansado de medir as próprias palavras para que os outros não caíssem por causa delas.
 
-— O Sefter gostava de falar de você — disse Ravira, depois de um tempo. — Quando a gente se encontrou no rio, contou do nó que você ensinou. Disse que não soltava por nada. Ele parecia muito orgulhoso.
+— No rio, quando o Sefter amarrou minha corda, falou do nó que você ensinou. Disse que nunca tinha visto soltar.
 
-— Ele costuma exagerar.
+— Ele fala demais quando acerta alguma coisa.
 
-— Não tava se gabando. Falava de você.
+— Mas falou de você, não dele.
 
 Kedran se sentou na outra ponta do tronco, deixando espaço entre os dois. Tinha visto o irmão fazer coisas que ele próprio não teria coragem de fazer. Voltara pelo gelo por Bera, carregara Litara quando os outros estavam ocupados e guardara sozinho o nome Polar até não conseguir mais. Também revelara esse nome à mulher sentada ao seu lado. O pior era que Kedran conhecia as duas partes do irmão, e nenhuma delas apagava a outra.
 
@@ -348,7 +348,7 @@ Ravira não respondeu de imediato.
 
 — Eu fui. Voltei porque devia. Lá na minha gente, se alguém deve e não paga, fica marcado. Não soube o que fazer quando ele disse que não queria nada. — Ela esfregou as mãos, tentando tirar o frio. — Acho que esse foi o começo do problema.
 
-— Talvez. Não sei se teve um começo só.
+— Talvez. Eu não sei como souberam da ravina.
 
 Uma ave soltou um chamado curto entre os pinheiros e logo se calou. Kedran se levantou, preocupado com o tempo que estavam fora. Ravira também tentou ficar de pé, mas a perna ferida cedeu, e ele segurou seu antebraço antes que caísse. Ela endireitou o corpo com a ajuda dele e afastou a mão tão depressa quanto pôde.
 
@@ -360,7 +360,7 @@ Entraram juntos. Sefter estava no mesmo lugar, com o olhar fixo na entrada, e Ne
 
 — Não mexe, Ked! — reclamou Litara.
 
-— Então para de ficar doente só de birra — disse Kedran, tentando fazê-la mostrar a boca para ver se tinha alguma coisa que a incomodava.
+— Então me mostra a língua, pequena. Quero ver se tá doendo aí dentro.
 
 Ela fechou a boca com tanta força que os lábios sumiram. Nefestra não insistiu. Ajustou a coberta, depois se virou para Ravira.
 
@@ -368,7 +368,7 @@ Ela fechou a boca com tanta força que os lábios sumiram. Nefestra não insisti
 
 — Se seu primo deixar.
 
-— Não põe suas coisas junto das nossas. A mãe não gostava de misturar roupa molhada com roupa seca.
+— Deixa suas coisas longe das nossas. Roupa molhada não fica junto da seca.
 
 Ravira olhou para a manga ensanguentada e para o canto de chão que Kedran lhe indicara.
 
@@ -384,11 +384,11 @@ Sefter estava calado desde que os dois haviam voltado. Quando Kedran passou pert
 
 Kedran olhou para Ravira, que tentava achar uma posição em que a perna ferida não encostasse no chão gelado.
 
-— Não sei. Ela diz que fugiu do povo dela. Se for mentira, a gente descobre quando alguém vier procurar. Até lá, ela dorme perto da entrada e eu fico com o arco.
+— Não sei, Sef. Se ela ficar perto da entrada e eu vigiar, pelo menos consigo ver o que faz. Amanhã olho a trilha de novo.
 
 — E se vierem por causa dela?
 
-— A gente sai antes. Vou olhar os rastros quando clarear.
+— Se eu vir rastro novo, a gente sai.
 
 Sefter soltou o casaco, insatisfeito.
 
@@ -396,9 +396,9 @@ Sefter soltou o casaco, insatisfeito.
 
 Kedran passou a mão pelos cabelos, que o vento tinha deixado duros de gelo.
 
-— Nosso pai também não ia deixar você sair sozinho pra pescar depois daquela história da laje. Mas foi o que você fez. Ele não tá aqui pra mandar na gente, Sef.
+— Nosso pai não ia deixar um monte de coisa que a gente tá tendo que fazer agora. Ele não tá aqui, Sef.
 
-A frase saiu mais dura do que pretendia. Sefter recuou contra a parede e apertou a boca. Kedran ficou esperando que o irmão devolvesse alguma coisa, talvez uma acusação, talvez a lembrança de que a culpa começara no rio. Ele apenas puxou a pele sobre a perna e virou o rosto.
+A frase saiu mais dura do que pretendia. Sefter recuou contra a parede, puxou a pele sobre a perna e virou o rosto. Kedran quase chamou por ele, mas ficou onde estava.
 
 Kedran foi até a entrada e apoiou as duas tábuas contra o vão. Deixou uma fresta para ver a neve do lado de fora e um espaço por onde Bera pudesse passar sem empurrar tudo. Ravira estava deitada perto dali, de costas para o fogo. Ele guardara a faca e o gancho de osso dela na própria bolsa, e ela não havia pedido nenhum dos dois de volta.
 
@@ -406,6 +406,6 @@ No fundo do abrigo, Nefestra começou a cantar tão baixo que as palavras mal pa
 
 Kedran permaneceu junto da entrada com o arco apoiado nos joelhos. O fogo estalava atrás dele, e de tempos em tempos Ravira mudava de posição para poupar a perna. Sefter estava acordado. Kedran sabia porque podia ver os olhos do irmão brilharem quando a chama se movia.
 
-Mais tarde, Bera levantou a cabeça e escutou o vento do lado de fora. Ravira também ergueu o rosto. Os dois ficaram olhando para a mesma fresta entre as tábuas, e Kedran demorou um instante antes de perceber que havia apertado a corda do arco com os dedos. A cátila voltou a deitar, mas Ravira permaneceu acordada, de frente para a entrada.
+Mais tarde, Bera levantou a cabeça e escutou o vento do lado de fora. Ravira também ergueu o rosto. As duas ficaram olhando para a mesma fresta entre as tábuas, e Kedran demorou um instante antes de perceber que havia apertado a corda do arco com os dedos. A cátila voltou a deitar, mas Ravira permaneceu acordada, de frente para a entrada.
 
 Kedran não apagou o fogo.

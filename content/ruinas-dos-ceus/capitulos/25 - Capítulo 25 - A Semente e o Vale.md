@@ -1,4 +1,4 @@
-Mariv permaneceu ajoelhado ao lado dela. Não tentou tirá-la do osso.
+Mariv permaneceu ajoelhado ao lado dela. Ajeitou um pedaço de tecido dobrado sob a cabeça de Nestira para ter uma mão livre. Não tentou tirá-la do osso.
 
 A mão que pressionava o tecido ao redor da ferida já estava encharcada. Ele trocou o pano por outro pedaço da própria roupa, apertando ao redor da perfuração com cuidado demais para alguém cujas mãos tremiam daquele jeito.
 
@@ -46,7 +46,7 @@ Ele ficou em silêncio.
 
 — Mais velho… — continuou ela. — Tinha uma criança nos braços. Uma casa no chão… gente entrando e saindo. E uma mulher linda ao seu lado.
 
-Mariv a observava sem compreender para onde ela queria chegar. O medo parecia ocupar todo o espaço que havia entre uma frase e outra.
+Mariv a observava sem entender. A cada pausa, temia que ela não voltasse a respirar.
 
 — Você sorria — disse Nestira.
 
@@ -56,7 +56,7 @@ Ela precisou parar. A respiração falhou no meio e voltou num som pequeno, dolo
 
 — Tinha mais crianças. Depois… outras pessoas. — Os olhos dela perderam o foco por um instante, como se voltasse a enxergar a visão. — Seus filhos. Depois os filhos deles. Um mundo diferente daqui. Vivo.
 
-Mariv apertou a mão dela entre as suas, ainda esperando, ainda assustado demais com a maneira como ela falava para pensar no que aquilo significava. Nestira tornou a fitá-lo.
+Sem deixar de pressionar o pano, Mariv segurou a mão dela com a outra, assustado demais para pensar no que aquilo significava. Nestira tornou a fitá-lo.
 
 — Mas aquela mulher… não era eu.
 
@@ -70,7 +70,7 @@ Ela apertou os dedos dele com o pouco de força que ainda tinha.
 
 Mariv balançou a cabeça.
 
-— Você viu errado. Ou o cristal mostrou uma coisa que não aconteceu ainda. A gente muda.
+— Você viu errado. Ou isso ainda nem aconteceu. A gente pode mudar as coisas.
 
 Nestira tentou sorrir.
 
@@ -114,7 +114,7 @@ A mão começou a escorregar. Mariv a segurou antes que caísse e a apertou cont
 
 — Eu vou. Está ouvindo? Eu vou ser. Só… fica comigo mais um pouco.
 
-A cabeça de Nestira cedeu levemente para o lado, repousando contra a mão que ele mantinha atrás dela. Os olhos continuaram entreabertos, mas já não procuravam nada.
+A cabeça de Nestira cedeu levemente para o lado, repousando sobre o pano dobrado atrás dela. Os olhos continuaram entreabertos, mas já não procuravam nada.
 
 Mariv ainda pressionava o tecido ao redor da ferida. Esperou a próxima respiração.
 
@@ -130,13 +130,11 @@ Ele disse o nome dela outra vez, mais baixo.
 
 Só então deixou a testa encostar na dela e permaneceu assim, segurando a mão que já não o segurava de volta.
 
-Mariv permaneceu ajoelhado por um tempo que não soube medir.
+Ficou ajoelhado por um tempo que não soube medir.
 
 Só depois conseguiu olhar para o osso que ainda a prendia à carcaça.
 
-Agora não havia mais vida a proteger da hemorragia.
-
-Quebrou a parte apodrecida do esqueleto o mais próximo possível da base e, com as mãos tremendo, libertou o corpo de Nestira. Só então pôde erguê-la nos braços. Ela pareceu leve demais.
+Com as mãos tremendo, quebrou a parte apodrecida do esqueleto perto da base e libertou o corpo de Nestira. Pôde enfim erguê-la nos braços. Ela pareceu leve demais.
 
 Mariv a carregou para longe das carcaças. Não procurou o rio primeiro.
 
@@ -166,23 +164,23 @@ Cobriu-a aos poucos, primeiro as pernas, depois as mãos e o peito. Quando resto
 
 A clareira estava silenciosa, exceto pelo rio e pelas folhas.
 
-— Maletar ficou debaixo de uma árvore também — disse, sem saber por que precisava contar aquilo a ela. — Acho que ele não ficaria bravo de você ficar perto de uma.
+— Maletar ficou debaixo de uma árvore também — disse, sem saber por que precisava contar aquilo a ela. — Acho que ele ia gostar desta também.
 
 A voz falhou.
 
 Mariv deixou os dedos repousarem por um instante na raiz.
 
-— Permanece. Nem que seja aqui.
+— Fica. Nem que seja aqui.
 
 Só então cobriu o rosto dela. Deixou a palma pousada sobre a terra úmida por algum tempo, até conseguir afastar a mão.
 
 Quando terminou, juntou pequenas pedras ao redor da terra recém-remexida e deixou uma das raízes expostas atravessando o centro. Escolheu uma pedra clara e a pousou junto ao tronco. Ficou olhando para ela sem saber o que mais fazer.
 
-Mariv permaneceu sentado diante dela até o sol nascer entre as copas. O rio continuava passando a poucos passos e o vento seguia movendo as folhas acima, enquanto a raiz permanecia onde estava.
+Mariv permaneceu sentado diante da sepultura até o sol aparecer entre as copas. O rio continuava passando a poucos passos e o vento seguia movendo as folhas acima, enquanto a raiz permanecia onde estava.
 
-Talvez fosse isso que restasse a um polar quando o outro já não podia caminhar ao seu lado: continuar carregando o peso sem impedir que o sopro seguisse. No primeiro sopro sozinho, Mariv quase voltou.
+Talvez fosse isso que restasse a um polar quando o outro já não podia caminhar ao seu lado: continuar carregando o peso sem impedir que o sopro seguisse.
 
-Mariv sabia que Nestira não voltaria. Ainda assim, cada passo para longe da árvore custava mais do que o anterior. Parou várias vezes e olhou para trás.
+No primeiro sopro sozinho, Mariv quase voltou. Sabia que Nestira não voltaria. Ainda assim, cada passo para longe da árvore custava mais do que o anterior. Parou várias vezes e olhou para trás.
 
 A floresta escondia rapidamente o caminho por onde viera. Em pouco tempo, a clareira, a sepultura e o rio deixaram de existir aos olhos. Restaram apenas árvores. Mariv apertou a lança.
 
@@ -198,7 +196,7 @@ Ao encontrar um riacho, Mariv ajoelhou-se para beber e parou antes de tocar a á
 
 Lembrou-se de Jokara falando sobre febre. Procurou primeiro marcas de animais, observou a corrente, escolheu um ponto onde a água se movia mais depressa. Ainda assim, não bebeu imediatamente. Recolheu o líquido e aqueceu pedras no fogo, do modo que vira Jokara fazer.
 
-Enquanto esperava, um estalo soou atrás dele. Mariv se levantou de imediato, com a lança pronta, e ficou alguns instantes vasculhando as árvores, atento a qualquer movimento entre os troncos. Nada apareceu. Quando finalmente soltou o ar que nem percebera estar prendendo, pensou em Jokara e em como ela provavelmente reclamaria que a floresta gostava de assustar quem ainda não aprendera a diferenciar perigo de barulho. A lembrança quase arrancou um sorriso dele. Só então Mariv tornou a se sentar e esperou a água esfriar antes de beber.
+Enquanto esperava, um estalo soou atrás dele. Mariv se levantou de imediato, com a lança pronta, e ficou alguns instantes vasculhando as árvores, atento a qualquer movimento entre os troncos. Nada apareceu. Quando baixou a lança, pensou em Jokara e em como ela provavelmente reclamaria que a floresta gostava de assustar quem ainda não aprendera a diferenciar perigo de barulho. A lembrança quase arrancou um sorriso dele. Só então Mariv tornou a se sentar e esperou a água esfriar antes de beber.
 
 Naquele Sopro do Silêncio, tentou erguer abrigo entre duas raízes. O primeiro teto cedeu assim que a chuva começou. Mariv ficou parado sob a água, olhando as folhas desabadas.
 
@@ -208,7 +206,7 @@ Então desmontou tudo.
 
 Na segunda tentativa, apoiou os galhos como vira o teceltro fazer, cruzando os maiores antes de cobrir as frestas. O resultado continuava feio, mas resistiu.
 
-Sentado sob o pequeno teto, Mariv percebeu que estava aprendendo com mortos, e a constatação doeu de um jeito que não soube explicar. Antes de dormir, separou a comida em duas porções por puro hábito e ficou olhando para elas por alguns instantes, esperando quase sem perceber que alguém ocupasse o espaço ao seu lado. Quando entendeu o que havia feito, empurrou as duas porções para o mesmo lado. Não havia mais ninguém com quem dividir.
+Sentado sob o pequeno teto, Mariv percebeu que estava aprendendo com mortos, e a constatação doeu de um jeito que não soube explicar. Antes de dormir, separou a comida em duas porções por puro hábito. Ficou olhando para elas, esperando que alguém se sentasse ao seu lado. Quando entendeu o que havia feito, empurrou as duas porções para o mesmo lado. Não havia mais ninguém com quem dividir.
 
 Mariv acordou várias vezes procurando a respiração de Nestira. Em uma delas, chegou a estender a mão para o espaço ao lado antes de lembrar. Não voltou a dormir.
 
@@ -228,11 +226,11 @@ Só então comeu.
 
 Continuou caminhando.
 
-Quando Mariv encontrou pegadas largas perto de um trecho fechado da floresta, soube pelo espaçamento que o animal era grande. Não precisou vê-lo. Mudou de direção. O conhecimento veio acompanhado de uma lembrança amarga.
+Quando Mariv encontrou pegadas largas perto de um trecho fechado da floresta, soube pelo espaçamento que o animal era grande. Não precisou vê-lo. O conhecimento veio acompanhado de uma lembrança amarga.
 
 Gabasteri tinha sido quem o obrigara a observar rastros até aprender a distinguir tamanho e direção. Mariv odiou perceber que a morte daquele homem não apagava aquilo que aprendera com ele. Mesmo assim, mudou de direção.
 
-Ao cair da tarde, Mariv encontrou marcas antigas de madeira entre as árvores. Não pareciam uma casa inteira, apenas fragmentos de alguma estrutura eteriana caída e quase engolida pelas raízes. Retirou de lá uma tira de tecido ainda aproveitável e amarrou-a em torno da mão ferida.
+No fim do sopro, Mariv encontrou marcas antigas de madeira entre as árvores. Não pareciam uma casa inteira, apenas fragmentos de alguma estrutura eterí caída e quase engolida pelas raízes. Retirou de lá uma tira de tecido ainda aproveitável e amarrou-a em torno da mão ferida.
 
 Não sabia se a visão de Nestira tinha sido verdade ou apenas alguma coisa em que ela se segurara no fim. Ficou alguns instantes parado numa clareira banhada pelo sol, os dedos apertando a faixa recém-amarrada, e depois tornou a caminhar.
 
@@ -252,7 +250,7 @@ Mariv sentiu o peito apertar.
 
 Piscou. Não havia ninguém. Só as árvores e a neblina.
 
-Mariv permaneceu sobre a pedra por mais alguns instantes. Antes de descer, ergueu os olhos uma última vez. O céu estava limpo e vasto, sem ilhas. Não procurou nada nele. Apenas ficou olhando pelo tempo de uma respiração, até baixar os olhos novamente para o vale.
+Mariv ficou sobre a pedra mais um pouco. Antes de descer, ergueu os olhos uma última vez. O céu estava limpo e vasto, sem ilhas. Não procurou nada nele. Apenas ficou olhando pelo tempo de uma respiração, até baixar os olhos novamente para o vale.
 
 Uma rajada atravessou a encosta e fez o capim ondular lá embaixo. Pequenas sementes se soltaram das hastes mais altas, rodopiando no ar antes de se espalharem pelo terreno. Uma delas caiu perto da bota de Mariv e ficou presa à terra úmida.
 

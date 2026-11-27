@@ -4,13 +4,13 @@ Havia um nome que não se pronunciava. Talvez por tabu ou superstição, talvez 
 
 Nadirion significa literalmente “onde o sopro não sobe”. Era ali que, segundo os Oradores Noturnos, habitavam os Vazios, espíritos desalinhados das Correntes, errantes, puxados pelas marés do esquecimento. Diziam que os que caem tornam-se parte deles. Que perdem o sopro, e com ele, o rumo. E que quem olha o abismo tempo demais acaba vendo olhos lá embaixo, olhando de volta.
 
-Mas naquela tarde, nadírion era o assunto que o povo menos queria saber. A cidade espiralava em alegria. Tecidos coloridos dançavam ao vento entre as varandas, sinos tilintavam, e os corredores vivos da Ilha de Nivelia estavam tomados por aromas doces, sons de flautas e o calor de muitas vozes entrelaçadas.
+Mas naquela tarde, Nadirion era o assunto de que o povo menos queria falar. A cidade espiralava em alegria. Tecidos coloridos dançavam ao vento entre as varandas, sinos tilintavam, e os corredores vivos da Ilha de Nivelia estavam tomados por aromas doces, sons de flautas e o calor de muitas vozes entrelaçadas.
 
 Era Sopro Brando: uma celebração que ocorria a cada três espirais, quando as Correntes passavam mais suaves sobre as ilhas. Ninguém trabalhava muito nesses sopros.
 
 Jokara caminhava entre as pessoas com Loutes ao seu lado, ainda um pouco encabulado com o movimento ao redor.
 
-— Jokara! — chamavam algumas vozes — Que bela túnica!
+— Jokara! — chamavam algumas vozes. — Que bela túnica!
 
 — Loutes, está mais forte, hein? — dizia outra, enquanto um velho com sobrancelhas enormes oferecia a ele um doce de raiz envolto em pétalas.
 
@@ -22,7 +22,7 @@ Crianças corriam pelas espirais, segurando suas vintelas, pipas feitas de folha
 
 Ao longe, alguém tocava uma flauta em ritmo saltitante, e dois Oradores mais jovens dançavam em círculos, imitando o movimento das Correntes com os braços. Havia gente rindo por toda parte.
 
-Não muito longe dali, em meio à agitação de um pequeno grupo que se aglomerava em volta de um Orador mais velho, Nestira observava, um sorriso discreto em seus lábios. O Orador, com seus dedos grossos e acostumados a objetos maiores, tentava sem sucesso refazer o nó de uma vintela de criança que se desfizera, enquanto o pequeno proprietário do brinquedo esperava, impaciente. Foi então que Mariv, um jovem de ombros levemente curvados, se aproximou. Sem dizer uma palavra, tomou a vintela das mãos do Orador, refez o nó em poucos gestos e a entregou à criança, que saiu correndo. Depois voltou para a sombra de uma das pilastras mais distantes. O olhar de Nestira o acompanhou até lá.
+Não muito longe dali, Jokara avistou a irmã na beira de um pequeno grupo que se aglomerava em volta de um Orador mais velho. Nestira observava, com um sorriso discreto. O Orador, com seus dedos grossos e acostumados a objetos maiores, tentava sem sucesso refazer o nó de uma vintela de criança que se desfizera, enquanto o pequeno proprietário do brinquedo esperava, impaciente. Foi então que Mariv, um jovem de ombros levemente curvados, se aproximou. Sem dizer uma palavra, tomou a vintela das mãos do Orador, refez o nó em poucos gestos e a entregou à criança, que saiu correndo. Depois voltou para a sombra de uma das pilastras mais distantes. O olhar de Nestira o acompanhou até lá.
 
 Jokara guiou Loutes pela festa sem soltar a mão dele. O menino queria olhar tudo.
 
@@ -40,17 +40,17 @@ Loutes se escondeu um pouco atrás dela, mas olhou o velho com atenção.
 
 A casa era uma bagunça. Frascos de névoa em diferentes tonalidades ocupavam as prateleiras, dividindo espaço com mapas dobrados em espiral, lunetas desmontadas, bússolas de sopro, diários de vento, pergaminhos costurados com fios de celvra, instrumentos de medição solar e algumas vintelas desbotadas penduradas no teto.
 
-Professor Taliver era um dos cientistas mais respeitados da Câmara das Correntes e dedicara muitos ciclos ao estudo das nuvens, dos ventos, das estrelas e do comportamento atmosférico de Etérea. Na juventude, também fora um excelente voador, até uma queda parcial deixar-lhe a necessidade daquele apoio discreto na perna direita. Nem por isso deixara de subir torres ou acompanhar experimentos quando alguma pergunta o incomodava.
+Professor Taliver era um dos cientistas mais respeitados da Câmara das Correntes e dedicara muitos ciclos ao estudo das nuvens, dos ventos, das estrelas e do comportamento atmosférico de Etérea. Na juventude, também fora um excelente voador, até uma queda parcial deixá-lo com um apoio discreto preso à perna direita, que rangia quando ele se agachava. Nem por isso deixara de subir torres ou acompanhar experimentos quando alguma pergunta o incomodava.
 
 Conhecera Mirel na antiga Estação de Rastros Celestes e voara muitas vezes com Yoral. Para Jokara, era algo entre um tio distraído e um professor que preferia perguntas a respostas prontas. Até seus registros do tempo evitavam números quando podiam: “o sopro mais frio antes da luz”, “o silêncio entre duas brisas”.
 
-Depois de aceitar alguns bolinhos de lemados do professor Taliver, que colocava a água para esquentar para prepará-los uma infusão, Jokara olhou para trás, onde Loutes observava tudo em silêncio, sentando-se numa almofada, com os olhos ainda arregalados diante de tantas coisas novas.
+Enquanto o professor punha água para esquentar para uma infusão, Jokara aceitou alguns bolinhos de lemados e olhou para trás. Sentado numa almofada, Loutes observava tudo em silêncio, com os olhos ainda arregalados diante de tantas coisas novas.
 
-— Professor… — ela se virou para Professor Taliver — o senhor acha que ele veio de alguma ilha distante?
+— Professor… — Jokara se virou para ele. — O senhor acha que ele veio de alguma ilha distante?
 
 Professor Taliver aproximou-se do garoto e se agachou devagar, buscando contato visual. Tentou falar com ele em três ou quatro idiomas antigos, alguns já quase esquecidos. Nada.
 
-Até que o menino finalmente disse algo.
+Até que o menino disse algo que ninguém ali lhe havia ensinado.
 
 As palavras saíram num ritmo estranho, ásperas. Jokara franziu a testa.
 
@@ -66,7 +66,7 @@ O professor demorou para responder.
 
 — E isso quer dizer…?
 
-Professor Taliver engoliu seco.
+Professor Taliver engoliu em seco.
 
 — Superfície. É um dos nomes para Nadirion.
 
@@ -84,21 +84,21 @@ O professor ficou mais um tempo na janela. Depois voltou-se para ela.
 
 Abaixou-se com cuidado e puxou debaixo de um banco um embrulho comprido e fino, envolto em linho azul, bordado com símbolos antigos.
 
-—...tinha algo pra ti.
+— ...tinha algo pra ti.
 
 Jokara se endireitou, surpresa.
 
 — Pra mim?
 
-— Aham. — Ele desfez o embrulho com cuidado revelando um planador. A madeira curva estava polida com óleo de flor-da-névoa, e a seda, mesmo antiga, estava inteira, sem um remendo.
+— Aham. — Ele desfez o embrulho com cuidado, revelando um planador. A madeira curva estava polida com óleo de flor-da-névoa, e a seda, mesmo antiga, estava inteira, sem um remendo.
 
-Jokara abriu a boca e colocou as mãos sobre ela, surpresa.
+Jokara abriu a boca e colocou as mãos sobre ele.
 
-— Este — disse ele, erguendo o planador — era do meu pai. Um dos melhores voadores de Talyen. Bom… sou um homem que prefere estudar os céus a viajar por eles, e como não tive filhos… acho que ele servirá melhor com você.
+— Este — disse ele, erguendo o planador — era do meu pai. Um dos melhores voadores de Talyen. Bom… hoje sou um homem que prefere estudar os céus a viajar por eles, e como não tive filhos… acho que ele servirá melhor com você.
 
 — Professor, eu... não sei o que dizer.
 
-— Diz obrigada. E voa com ele. Pratica. Em poucos sopros terá mais uma chance. E não importa se caiu uma vez. Ninguém lembra do primeiro tombo... só do primeiro voo que foi livre.
+— Diz obrigada. E voa com ele. Pratica. Sua próxima chance vem aí. E não importa se caiu uma vez. Ninguém lembra do primeiro tombo... só do primeiro voo que foi livre.
 
 Ela pegou o planador com as duas mãos. Era mais leve do que o dela.
 
@@ -114,15 +114,15 @@ E parou.
 
 O professor Taliver forçou um sorriso, e continuou:
 
-— Se seu pai estivesse aqui… ele com certeza estaria voando consigo por cima das ilhas. Ele era um excelente planador. Pelos ventos, como ele voava.
+— Se seu pai estivesse aqui… ele com certeza estaria voando com você por cima das ilhas. Ele era um excelente voador. Pelos ventos, como ele voava.
 
 — Mesmo assim… ele caiu… — lamentou-se Jokara.
 
-— Ser excelente não te impede de cometer erros, menina — explicou-lhe o professor — se ele caiu, foi porque os ventos quiseram levá-lo.
+— Ser excelente não impede ninguém de errar, menina — explicou o professor. — Se ele caiu, foi porque os ventos quiseram levá-lo.
 
 Jokara baixou os olhos, pressionando o planador contra o peito. Então fechou os olhos… e as imagens vieram.
 
-Naquele Sopro do Silêncio, o céu estava limpo. Ele planava alto, sorrindo, gritando de alegria enquanto perseguia o brilho rarefeito de um nuari, e ela, ao lado de Nestira, olhava do mirante com olhos cheios de luz. Ele ainda ria quando a primeira rajada veio. Então o céu escureceu.
+Naquele fim de tarde, o céu estava limpo. Ele planava alto, sorrindo, gritando de alegria enquanto perseguia o brilho rarefeito de um nuari, e ela, ao lado de Nestira, olhava do mirante com olhos cheios de luz. Ele ainda ria quando a primeira rajada veio. Então o céu escureceu.
 
 A tempestade surgiu do nada, e ele tentou descer. Ficou muito tempo lutando contra o vento, os pés balançando, as mãos agarradas às alças, até que soltou. Não gritou. O planador seguiu sozinho, como uma folha, enquanto elas gritavam o nome dele até perder a voz. Depois só se ouviam as vintelas penduradas no mirante, batendo com o vento.
 
@@ -132,9 +132,9 @@ Jokara voltou a si quando sentiu os olhos do professor sobre ela.
 
 Ela não completou. Não precisou.
 
-— Não, Jokara. Não vale a pena pensar nisso. Seu pai foi levado pelos ventos. Ele não está em nadírion. Nadirion é uma terra amaldiçoada, um lugar onde nenhum eterí merece estar. Seu pai… é o vento que sopra todos os sopros o seu rosto.
+— Não, Jokara. Não vale a pena pensar nisso. Seu pai foi levado pelos ventos. Ele não está em Nadirion. Nadirion é uma terra amaldiçoada, um lugar onde nenhum eterí merece estar. Seu pai… é o vento que sopra no seu rosto todos os sopros.
 
-— Mas eu não consigo sentir isso — disse ela — eu não o sinto comigo. Eu só sinto… vento. Frio e gelado. E a cada vez que bate em meu rosto… ele leva mais um pedaço de mim pelos ares.
+— Mas eu não consigo sentir isso — disse ela. — Eu não o sinto comigo. Eu só sinto… vento. Frio e gelado. E a cada vez que bate em meu rosto… ele leva mais um pedaço de mim pelos ares.
 
 Professor Taliver não disse nada. Aproximou-se devagar e a abraçou.
 
@@ -146,7 +146,7 @@ Loutes observava-os com curiosidade, distante, sem entender o que acontecia ali.
 
 O festival seguiu até o Sopro Pleno, quando os sinos silenciaram conversas, instrumentos e até as crianças por três cantos inteiros. Depois, Nivelia voltou a encher-se de música, comida e vintelas.
 
-Nestira, porém, reparava em quem não disputava o centro da festa. Seu olhar acompanhou Mariv e depois Maletar, um homem corpulento de mãos grossas que passava de grupo em grupo ajudando no que fosse preciso.
+Do outro lado da rua, Jokara viu a irmã reparar em quem não disputava o centro da festa. O olhar de Nestira acompanhou Mariv e depois Maletar, um homem corpulento de mãos grossas que passava de grupo em grupo ajudando no que fosse preciso.
 
 
 No terceiro sopro após a visita de Jokara ao Professor Taliver, Mirel pediu que a filha a acompanhasse a uma cerimônia incomum. Era o Círculo do Peso, um dos mais antigos ritos eterí, raramente presenciado por jovens e quase nunca realizado em público. Pelas passagens de Nivelia, o nome da acusada corria acompanhado de rumores. Alguns diziam que Yndra apenas entrara onde não devia. Outros juravam que ela escutava os Vazios em vez das Correntes e que se reunia com um culto secreto dedicado aos Sopros perdidos. Ninguém sabia onde esse culto se encontrava, quem pertencia a ele ou se realmente existia.
@@ -155,7 +155,7 @@ Na tradição, quem precisava do Círculo ficava no centro, cercado pela comunid
 
 Desta vez, Jokara participaria como aprendiz, observadora em silêncio, para aprender os gestos, os símbolos e os cantos ancestrais. Era um convite importante, e ela não tinha a menor vontade de ir.
 
-— Cantar para aliviar a culpa dos outros não me parece algo que vá me ajudar a voar — dissera à mãe.
+— Cantar pra aliviar a culpa dos outros não vai me ajudar a voar — dissera à mãe.
 
 Mirel, como sempre, apenas sorriu.
 
@@ -167,19 +167,11 @@ Raízes pendiam das árvores como véus trançados à mão. Pedras ocas, dispost
 
 Um murmúrio correu entre os presentes. Depois veio o cheiro: úmido, vegetal, de tronco podre aberto ao meio. E uma mulher magra caminhou até o centro.
 
-Andava curvada, embora não fosse velha. Os cabelos, endurecidos de barro, pareciam raízes arrancadas. A pele estava marcada por poeira, lama, arranhões e crostas. Alguém atrás de Jokara sussurrou que aquilo era sujeira das Ilhas Baixas. O comentário correu entre os presentes como explicação suficiente. Tudo o que cheirava a terra úmida parecia vir de lá. Jokara, porém, fitava seu rosto.
-
-Jokara estremeceu e apertou os lábios, contendo o espanto. O lado esquerdo do rosto da mulher era liso como pedra lascada. Onde deveria haver um olho, havia uma órbita funda e vazia. Jokara tentou desviar o olhar e não conseguiu.
+Andava curvada, embora não fosse velha. Os cabelos, endurecidos de barro, pareciam raízes arrancadas. A pele estava marcada por poeira, lama, arranhões e crostas. Alguém atrás de Jokara sussurrou que aquilo era sujeira das Ilhas Baixas. O comentário correu entre os presentes como explicação suficiente. Tudo o que cheirava a terra úmida parecia vir de lá. Jokara, porém, fitava seu rosto. Estremeceu e apertou os lábios, contendo o espanto. O lado esquerdo do rosto da mulher era liso como pedra lascada. Onde deveria haver um olho, havia uma órbita funda e vazia. Jokara tentou desviar o olhar e não conseguiu.
 
 A mulher sentou-se no centro do círculo sem dizer nada e correu o olho que lhe restava pelos rostos, um a um, sem pressa.
 
 — Yndra — anunciou uma das Oradoras.
-
-— Também é acusada de oferecer palavras aos Vazios e procurar aqueles que recusaram as Correntes.
-
-Yndra ergueu o único olho para a Oradora.
-
-— Acusam-me de muitas coisas quando não conseguem responder às minhas perguntas.
 
 As acusações foram lidas devagar. Profanação de áreas sagradas. Destruição de inscrições antigas. Heresias sussurradas às crianças durante as aulas abertas da Ilha das Histórias.
 
@@ -189,27 +181,25 @@ Ninguém na multidão dizia nada. Jokara ouvia as acusações e nenhuma parecia 
 
 Jokara conhecia o Pilar. Todos conheciam. Um dos monumentos mais antigos, onde os nomes dos ancestrais estavam gravados. Dizer que ele apodrecia… era como declarar que o passado inteiro havia sido uma mentira.
 
+— Também é acusada de oferecer palavras aos Vazios e procurar aqueles que recusaram as Correntes — disse a Oradora.
+
+Yndra ergueu o único olho para ela.
+
+— Acusam-me de muitas coisas quando não conseguem responder às minhas perguntas.
+
 Outras vozes se somaram:
 
-— Ela tentou espalhar o caos entre os eterís.
+— Ela tentou espalhar o caos entre os eterí.
 
 — Tentou acabar com a paz.
 
-— Afanou objetos sagrados dos oradores.
+— Furtou objetos sagrados dos Oradores.
 
 Jokara olhava, sem saber o que pensar. A mulher de um olho não protestava, não chorava, não franzia o rosto. Isso assustava mais do que se tivesse gritado.
 
 E então, no meio do Círculo, quando o último cântico estava prestes a terminar, ela gritou.
 
-— Quando os ventos descansarem...
-
-A luz será escondida,
-
-A harmonia será quebrada,
-
-E os filhos do céu, cegos por sua própria leveza,
-
-Serão engolidos pelo que jamais ousaram ver!
+— Quando os ventos descansarem... a luz será escondida, a harmonia será quebrada, e os filhos do céu, cegos por sua própria leveza, serão engolidos pelo que jamais ousaram ver!
 
 O cântico parou no meio. Depois todos falaram ao mesmo tempo.
 
@@ -219,13 +209,15 @@ O Conselho dos Ventos decidiu ali mesmo. Os membros se entreolharam, e nenhum pr
 
 Exílio.
 
+Jokara procurou a mãe. O Círculo existia para ajudar quem estava no centro. Mirel não respondeu ao olhar, mas já não cantava.
+
 Não seria morte, isso contrariaria as Correntes. Mas também não haveria retorno.
 
 Yndra ouviu o veredito sem pestanejar.
 
 O público começou a se dispersar. Primeiro os mais jovens, em passos rápidos e nervosos. Depois os anciãos, murmurando preces de proteção entre dentes cerrados. Jokara permaneceu. Mesmo quando Mirel a puxou suavemente pelo braço, ela ainda lançou um último olhar para o centro do círculo. Yndra a olhava de volta. Não parecia zangada.
 
-Naquele Sopro do Silêncio, Etérea não dormiu. Havia música em algumas casas, mas ninguém dançava. Até os pássaros noturnos ficaram quietos.
+Naquele Sopro do Silêncio, Etérea não dormiu. Em algumas casas, alguém tocava baixinho, mas ninguém dançava. Até os pássaros noturnos ficaram quietos.
 
 Deitada em sua cama trançada com fios de luz dourada, Jokara fitava o teto translúcido, por onde as duas luas se arrastavam devagar. Quando se aproximavam uma da outra, as famílias enchiam as varandas com frutas e flautas para celebrar a lua dupla. Naquele Sopro do Silêncio, estavam afastadas.
 
@@ -244,7 +236,7 @@ O sopro seguinte amanheceu sob um céu lúgubre, apesar do sol presente. As corr
 
 Jokara acordou antes do cântico dos sinos. Vestiu-se em silêncio e saiu pela sacada de casa. Lá embaixo, na Praça dos Olhares, os preparativos estavam em curso. Yndra seria levada às Ilhas Baixas.
 
-As Ilhas Baixas ficavam muito abaixo das rotas comuns de Etérea, onde as Correntes chegavam fracas e o vento quase não encontrava espaço para correr. Era para lá que iam os exilados. Segundo as histórias ensinadas desde cedo, havia ilhas de pedra pesada, casas presas às encostas e fogueiras que mal conseguiam respirar. Os enviados para baixo encontravam outros que haviam descido antes deles e passavam a viver longe das Correntes altas.
+As Ilhas Baixas ficavam muito abaixo das rotas comuns de Etérea, onde as Correntes chegavam fracas e o vento quase não encontrava espaço para correr. Era para lá que iam os exilados. Havia ilhas de pedra pesada, casas presas às encostas e fogueiras que mal conseguiam respirar. Os enviados para baixo encontravam outros que haviam descido antes deles e passavam a viver longe das Correntes altas.
 
 O retorno era proibido. Exílio significava justamente isso: continuar vivendo, mas fora de Etérea, onde o vento já não carregava seu nome de volta. Jokara nunca tinha pensado muito nisso.
 
@@ -264,7 +256,7 @@ Jokara sentia o frio da manhã. Havia sussurros antigos, jamais ditos em voz alt
 
 Então a mulher falou:
 
-— Os arrastados ainda sussurram. Eles nunca nos deixaram de verdade. Há correntes abaixo da Corrente. E ninguém quer escutar.
+— Os Arrastados ainda sussurram. Eles nunca nos deixaram de verdade. Há correntes abaixo da Corrente. E ninguém quer escutar.
 
 Quando passou diretamente sob Jokara, ela olhou para cima.
 

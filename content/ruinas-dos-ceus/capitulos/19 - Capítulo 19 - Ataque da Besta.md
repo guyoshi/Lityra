@@ -1,10 +1,10 @@
 
 
-No sopro seguinte, caiu uma chuva grossa que desfez as costuras de folhas do abrigo. Todos se levantaram cedo e se agruparam debaixo das folhas pesadas do abrigo.
+No sopro seguinte, caiu uma chuva grossa que desfez as costuras de folhas do abrigo. Todos se levantaram cedo e se agruparam debaixo do que ainda restava de pé.
 
 Maletar ergueu-se diante do grupo reunido, o corpo ereto, a voz firme como se tentasse abafar o som da tempestade.
 
-— Não podemos mais permanecer aqui. O abrigo não resiste, a floresta não nos dá sustento. É hora de decidirmos se ficamos… ou se buscamos outro lugar.
+— O abrigo não aguenta mais chuva e tá cada vez mais difícil achar comida. Temos que decidir. Ficamos ou procuramos outro lugar?
 
 Nestira encolheu os ombros, apertando as mãos contra o peito.
 
@@ -12,11 +12,11 @@ Nestira encolheu os ombros, apertando as mãos contra o peito.
 
 Mariv interveio, impaciente.
 
-— Eu acho que escolher ficar é escolher morrer devagar. Se não for hoje, será amanhã. Demos sorte ao pegar aqueles peixes antes de ontem… alimento o qual nos foi tirado. Mas todos sabemos que exploramos o suficiente dessa terra. Cada vez que vamos buscar frutas, temos que nos afastar mais. Aqui embaixo, sobreviver exige mais do que esperança.
+— Se a gente ficar, vai morrer de fome. Demos sorte com aqueles peixes há uns sopros, e até isso tiraram da gente. Cada vez que saio pra buscar fruta, tenho que ir mais longe. Não tem muito mais o que procurar por aqui.
 
 Jokara assentiu, a mão sobre o ombro da irmã.
 
-— Talvez tenhas razão. Mas levar Platisa pode ser arriscar a vida dela. E deixá-la para trás… não é escolha. Se deixarmos alguém para trás, o que vai restar de nós?
+— Talvez você tenha razão. Mas olha pra Platisa. Mal consegue ficar de pé. Se a gente for, precisa dar um jeito de levar ela também.
 
 Platisa, pálida, apoiada em Jokara, levantou os olhos com esforço.
 
@@ -38,7 +38,7 @@ Ninguém tinha energia para discutir caminhos.
 
 O abrigo foi abandonado à chuva.
 
-O caminho foi penoso. Platisa cambaleava, sustentada por Jokara e Nestira. O lodo prendia os pés.
+O caminho foi penoso. Platisa cambaleava entre Nestira e Jokara. Nestira sustentava a maior parte do peso, enquanto Jokara avançava com o bastão. O lodo prendia os pés.
 
 Mariv afastou-se por um instante, subindo com agilidade pelo tronco molhado de uma árvore alta. Sumiu entre as folhas. Ouviram galhos estalando e um bater de asas.
 
@@ -62,11 +62,11 @@ Mariv pousou a ave no centro. Era pequena demais para tanta gente.
 
 Jokara se ergueu no bastão.
 
-— Não somos animais, Gabasteri! Somos eterís! Nossa força vem de cuidar uns dos outros, não de roubar o sopro dos mais fracos.
+— Não somos animais, Gabasteri! Somos eterí! Nossa força vem de cuidar uns dos outros, não de roubar o sopro dos mais fracos.
 
-— O próximo alimento é de vocês — disse Gabasteri, mas Jokara não terminou:
+— O próximo alimento é de vocês — disse Gabasteri, mas Jokara ainda não tinha terminado:
 
-— Se você tivesse o mínimo de inteligência, saberia que priorizar quem está mais fraco faz com que o grupo inteiro continue forte.
+— Se os mais fracos morrerem de fome, quem vai fazer o resto do trabalho? Já pensou nisso?
 
 — Quer priorizar Platisa com carne, então? — perguntou Gabasteri.
 
@@ -80,35 +80,35 @@ Maletar virou-se para Mariv:
 
 Mariv balançou a cabeça.
 
-— Não. De forma alguma. Jokara, Nestira, Loutes e Platisa, podem dividir.
+— Claro que não. Podem dividir.
 
 Jokara apertou o ombro dele. Platisa, porém, ergueu os olhos, febris.
 
-— Eu não irei comer. O ciclo do vento não se alimenta da dor de outra vida. Minha fome não é desculpa para quebrar a corrente.
+— Eu não vou comer. O ciclo do vento não se alimenta da dor de outra vida. Minha fome não é desculpa para quebrar a corrente.
 
 Jokara lembrou-se do nuari na Ilha da Memória e dos três filhotes no ninho. Não disse nada.
 
 Gabasteri fez uma careta, mas não discutiu. Recuou e ficou olhando.
 
-Jokara, Nestira e Loutes dividiram a ave. Comeram crua, até os ossos, e continuaram com fome.
+Jokara, Nestira e Loutes dividiram a ave. Comeram a carne crua e continuaram com fome.
 
-Foram três sopros de caminhada, quase sempre seguindo as correções de Gabasteri quando a mata fechava ou o terreno se dividia. O corpo de cada um pesava mais do que as poucas provisões que carregavam. Atravessaram um campo de flores, e Jokara viu beijos-da-Sopro do Silêncio azuis aqui e ali.
+Foram três sopros de caminhada, quase sempre seguindo as correções de Gabasteri quando a mata fechava ou o terreno se dividia. O corpo de cada um pesava mais do que as poucas provisões que carregavam. Atravessaram um campo de flores, e Jokara viu beijos-da-noite azuis aqui e ali.
 
 Maletar seguia à frente, os passos firmes. Atrás dele vinham Mariv e Loutes. Jokara e Nestira sustentavam Platisa, que pesava cada vez menos. Gabasteri ia por último.
 
-Naquela tarde, Maletar ergueu a mão e ordenou pausa. Parecia bem cansado. Estavam numa clareira de chão coberto por pedras lisas e negras, que brilhavam com a chuva fina.
+Mais adiante, Maletar ergueu a mão e ordenou pausa. Parecia bem cansado. Estavam numa clareira de chão coberto por pedras lisas e negras, que brilhavam com a chuva fina.
 
 Perto da borda, Jokara viu três sulcos fundos numa das pedras e um osso antigo meio enterrado na lama. Olhou por um instante, mas Maletar já chamava todos para perto da árvore central e ela continuou andando. No centro havia uma árvore solitária, de tronco torcido, com os galhos pendendo até o chão. Ali não se ouvia bicho nenhum.
 
 Todos se sentaram, deixando os músculos repousarem sobre as pedras mornas. Jokara conduziu Platisa até uma raiz caída, ajudando-a a se apoiar. A Ecoante fechou os olhos. Respirava curto.
 
-Maletar sentou-se mais distante, escorado em uma pedra, e puxou o Cantil do Teceltro para si, bebendo lentamente. Em um dos goles, engasgou-se e tossiu duas vezes. Jokara voltou-se para Platisa, que mal conseguia erguer a cabeça.
+Maletar sentou-se mais distante, escorado numa pedra, e puxou o cantil para beber. Em um dos goles, engasgou-se e tossiu duas vezes. Jokara voltou-se para Platisa, que mal conseguia erguer a cabeça.
 
 — Está muito fraca… — murmurou Jokara, ajeitando os panos sobre os ombros dela.
 
 Platisa sorriu.
 
-— Não te preocupes comigo.
+— Não se preocupa comigo.
 
 Jokara apertou-lhe a mão. Só havia osso.
 
@@ -116,9 +116,9 @@ Jokara apertou-lhe a mão. Só havia osso.
 
 Ficaram um tempo assim. Então Jokara lembrou-se de uma coisa.
 
-— No sopro em que Nestira se feriu… você disse que queria falar algo para mim. Mas eu… eu não ouvi. Só pensava nela. O que era que ia me dizer?
+— No sopro em que Nestira se feriu… você disse que queria falar algo para mim. Mas eu… eu não ouvi. Só pensava nela. O que você ia me dizer?
 
-Platisa demorou a responder. Olhou para o grupo: Maletar sentado mais distante, Mariv distraído afiando uma lança, Nestira cuidando da perna. E então… seu olhar pousou em Gabasteri.
+Platisa demorou a responder. Olhou para o grupo: Maletar sentado mais distante, Mariv distraído afiando uma lança, Nestira massageando a têmpora. E então… seu olhar pousou em Gabasteri.
 
 Mordeu o lábio. Falou quase num sussurro:
 
@@ -126,19 +126,19 @@ Mordeu o lábio. Falou quase num sussurro:
 
 Jokara franziu o cenho, surpresa.
 
-— Como é? De propósito?
+— Puxou? De propósito?
 
 — Sim. — A mão de Platisa apertou o zélon contra o peito.
 
-— Mas por que ele faria isso? Por que iria querer o seu zélon? — indagou Jokara.
+— Pra quê? O que ele queria com seu zélon?
 
 — Ele não parecia que queria roubá-lo.
 
 Ela desviou o olhar para o chão.
 
-— Foi estranho. Quando ele puxou… eu me desestabilizei. Perdi o equilíbrio, atrapalhei a todos. E então… o animal fugiu. Talvez não tenha significado nada, mas não consigo esquecer.
+— Foi estranho. Quando ele puxou… perdi o equilíbrio e esbarrei em vocês. E então… o animal fugiu. Talvez não tenha significado nada, mas não consigo esquecer.
 
-Jokara olhou para a irmã, deitada ao lado de Mariv. Depois de novo para Platisa.
+Jokara olhou para a irmã, que descansava ao lado de Mariv. Depois, voltou-se para Platisa.
 
 Platisa olhava para Gabasteri. Ele se virou, e ela baixou os olhos.
 
@@ -154,15 +154,13 @@ Platisa apertou o zélon contra o peito.
 
 Jokara olhou uma vez para Gabasteri, que conversava com Maletar perto da fogueira. Depois voltou a atenção à amiga.
 
-— Então não vamos transformar dúvida em certeza.
+— Vamos ficar de olho. Mas ainda não sabemos o que aconteceu.
 
 Platisa assentiu, mas não pareceu aliviada.
 
 Ao Sopro do Silêncio, a chuva parou, e acenderam a fogueira no centro da clareira, perto da árvore torta.
 
-Foi Nestira quem perguntou:
-
-— E Loutes? — perguntou, olhando em volta. — Onde ele está?
+— E Loutes? — perguntou Nestira, olhando em volta. — Onde ele está?
 
 As cabeças se ergueram. Jokara franziu o cenho.
 
@@ -182,7 +180,7 @@ Ele estendeu a bolsa para eles.
 
 Comeram em volta da fogueira, depressa, o suco escorrendo pelos dedos. Platisa comeu de olhos fechados. Era a primeira refeição dela em sopros.
 
-Foi então que Gabasteri falou.
+Então Gabasteri falou.
 
 — Estranho, não é? — murmurou, olhando a fruta na mão. — Tanta doçura… num lugar como este. Um lugar onde o vento não sopra.
 
@@ -202,9 +200,9 @@ Platisa ficou rígida. Os olhos se encheram d'água.
 
 Platisa não teve forças para responder. Apertou o zélon contra o peito.
 
-Jokara levantou-se de súbito, no bastão, entre Platisa e ele.
+Jokara firmou o bastão e se levantou entre Platisa e ele.
 
-— Basta! Chega de palavras venenosas. Não vai culpar uma garota que nunca, em nenhum sopro, pensou em si mesma.
+— Chega! Chega desse veneno. Não vai culpar uma garota que nunca, em nenhum sopro, pensou em si mesma.
 
 Gabasteri não respondeu. Deixou-a falar.
 
@@ -212,15 +210,15 @@ Gabasteri não respondeu. Deixou-a falar.
 
 Antes que Gabasteri respondesse, um ronco subgrave atravessou a mata. Veio baixo, distante, seguido pelo estalo de galhos grossos cedendo sob algum peso. Então o chamado se abriu de verdade: o fundo gutural vibrou nas pedras sob os pés de Jokara e terminou num grito aviano capaz de cortar a chuva.
 
-Ela conhecia aquele som. O corpo se lembrou antes da cabeça: os dentes tortos entre as árvores, o cheiro de sangue, a primeira noite em Nadirion.
+Ela conhecia aquele som. O corpo se lembrou antes da cabeça: os dentes tortos entre as árvores, o cheiro de sangue, o primeiro Sopro do Silêncio em Nadirion.
 
 Todos se levantaram quase ao mesmo tempo e agarraram as lanças. Maletar fez sinal para que se fechassem, e o grupo formou um círculo irregular em torno de Platisa, deitada junto à fogueira.
 
 — O que é isso? — murmurou Nestira.
 
-Jokara apertou a haste da lança até os dedos doerem.
+Jokara prendeu o bastão sob o braço e apertou a haste da lança até os dedos doerem.
 
-— Uma coisa que vocês não querem ver.
+— Eu e o Loutes já vimos essa fera. — Olhou para o menino. — É a mesma.
 
 O chamado não se repetiu. Os insetos tinham parado de cantar. O fogo estalou às costas de Jokara, alto demais naquele silêncio, e alguém respirava pela boca perto dela. Jokara tentou descobrir de onde viria o ataque, mas cada tronco parecia esconder alguma coisa.
 
@@ -258,13 +256,13 @@ Gabasteri não esperou resposta. Passou um braço sob as pernas de Platisa, outr
 
 Mariv voltou para a luta.
 
-Foi a última vez que Jokara viu Platisa. Gabasteri já se afastava com ela entre as árvores quando Nestira e Loutes conseguiram pôr Jokara de pé. Sem o bastão, ela dependia dos dois para avançar. Fugiram aos tropeços, com Jokara saltando e arrastando a perna direita entre eles sempre que o terreno permitia, enquanto os bramidos partidos por gritos avianos e o choque de madeira e metal continuavam atrás.
+Foi a última vez que Jokara viu Platisa. Gabasteri já se afastava com ela entre as árvores quando Nestira e Loutes conseguiram pôr Jokara de pé. Sem o bastão, ela dependia dos dois para avançar. Fugiram aos tropeços, com Jokara saltando na perna direita entre eles sempre que o terreno permitia, enquanto os bramidos partidos por gritos avianos e o choque de madeira e metal continuavam atrás.
 
 Só pararam numa encosta distante, sem ar. Os chamados ainda chegavam abafados pela floresta. Nestira andava em círculos.
 
 — Eles ficaram lá… eles ficaram lá…
 
-Jokara tentou falar, e a irmã não ouviu. Por fim, Nestira desabou em lágrimas. Jokara a puxou contra o peito, abraçando-a com força. Loutes permaneceu afastado, os olhos fixos na escuridão.
+Jokara tentou falar, e a irmã não ouviu. Por fim, Nestira desabou em lágrimas. Nestira se agarrou a Jokara, que a abraçou, ainda apoiada nela. Loutes permaneceu afastado, os olhos fixos na escuridão.
 
 Então vieram passos pesados, quebrando o mato. Nestira ergueu a lança, tremendo.
 
@@ -280,7 +278,7 @@ Maletar deitou Mariv no chão e precisou apoiar as mãos nos joelhos para recupe
 
 Olhou para Mariv antes de continuar.
 
-— Ele voltou para me ajudar. Feriu uma das patas da criatura e conseguimos abrir espaço para correr. Mais adiante havia uma passagem estreita entre duas pedras. Nós passamos. Ela não. — Maletar respirou fundo. — Mariv aguentou enquanto conseguiu. Depois tive que carregá-lo.
+— Ele voltou para me ajudar. Feriu uma das patas da criatura e conseguimos abrir espaço para correr. Mais adiante havia uma passagem estreita entre duas pedras. Nós passamos. A fera não coube. — Maletar respirou fundo. — Mariv aguentou enquanto conseguiu. Depois tive que carregá-lo.
 
 Mariv assentiu com dificuldade.
 
@@ -308,4 +306,4 @@ Gabasteri não respondeu de imediato.
 
 — Ela não resistiu.
 
-Ninguém perguntou mais nada. Jokara se lembrou de Platisa apertando o zélon contra o peito e evitando olhar para Gabasteri naquela tarde. Estava cansada demais para pensar no que aquilo significava.
+Ninguém perguntou mais nada. Jokara se lembrou de Platisa apertando o zélon contra o peito e evitando olhar para Gabasteri na clareira. Estava cansada demais para pensar no que aquilo significava.

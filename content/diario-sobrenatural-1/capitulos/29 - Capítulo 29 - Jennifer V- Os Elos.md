@@ -10,7 +10,7 @@ Abri os olhos depois de alguns segundos. Nada, sem vultos, sem rostos tristes, s
 
 — Claro — resmunguei. — Quando eu não quero, vocês aparecem. Quando eu preciso, somem. Ótimo.
 
-Fechei os olhos outra vez e tentei me forçar a pensar só naquilo, nas almas, na casa, nos Marques, no Agouro, nos Elos. Minha cabeça, que sempre foi um lugar bagunçado, ficou estranhamente silenciosa. Um minuto. Dois. Quando abri os olhos, o quarto continuava ali, mas o ar estava mais frio, e reparei na porta do banheiro entreaberta, com um vapor branco saindo de dentro, como se alguém tivesse acabado de tomar banho quente. Eu não tinha tomado, e o chuveiro estava em completo silêncio. Algo estava errado, e eu já estava cansada de fingir que não estava.
+Fechei os olhos outra vez e tentei me forçar a pensar só naquilo, nas almas, na casa, nos Marques, na Entidade, nos Elos. Minha cabeça, que sempre foi um lugar bagunçado, ficou estranhamente silenciosa. Um minuto. Dois. Quando abri os olhos, o quarto continuava ali, mas o ar estava mais frio, e reparei na porta do banheiro entreaberta, com um vapor branco saindo de dentro, como se alguém tivesse acabado de tomar banho quente. Eu não tinha tomado, e o chuveiro estava em completo silêncio. Algo estava errado, e eu já estava cansada de fingir que não estava.
 
 Empurrei a porta e o frio me acertou como um soco. O azulejo gelado sob os pés sumiu e senti algo fofo e irregular, e quando olhei para baixo quase não vi meus pés, enterrados em neve. Quando procurei a porta atrás de mim, só vi neve. Uma floresta enorme, toda branca, me cercava, a neve caía forte, o vento assobiava entre as árvores levantando redemoinhos de gelo que cortavam o rosto, e a cada respiração saía uma nuvem de vapor da minha boca. Procurei qualquer trilha, qualquer marca de passos, qualquer coisa que dissesse “por aqui”, e só havia árvores, neve e vento. Enfiei os braços diante do rosto e comecei a andar, empurrando a neve com dificuldade.
 
@@ -104,7 +104,7 @@ Abri a boca e fechei de novo. Não tinha pensado nessa parte.
 
 — Eu odeio isso. Odeio estar sempre cercada de gente morta. É horrível.
 
-— E é quem você é — retrucou, sem dó. — Você é uma médium, Jennifer. Na verdade, é como eu: uma Selifa, alguém que consegue caminhar entre os dois mundos e fazer a ponte entre eles.
+— E é quem você é — retrucou, sem dó. — Você é uma médium, Jennifer. Talvez algo mais que isso. Os antigos tinham um nome para isso: Selifa. Mas esse assunto fica para outro dia.
 
 — Eu não quero ser isso. Não quero ter mais contato com alma nenhuma.
 
@@ -156,15 +156,15 @@ No mesmo instante a lareira se apagou. O calor sumiu como se alguém tivesse pux
 
 Gritei e caí para trás. Estava de volta à minha cama, as pernas dobradas, o coração disparado, o corpo todo tremendo como depois de uma maratona no gelo. Só que o frio ainda estava lá. Ao mexer a perna, senti algo gelado no lençol. Neve. Passei os dedos pelos cabelos, úmidos e frios, e fiquei um bom tempo olhando para a palma da mão.
 
-Levantei num pulo, fui direto ao computador, liguei o monitor, esperei a CPU engatar e abri o navegador. Pesquisei “demônios dos sentidos” e encontrei textos esquisitos, teorias e fóruns antigos. Vários misturavam crenças diferentes, sem chegar a um nome que eu pudesse reconhecer. Digitei também “Agouro demônio”, mas o pouco que apareceu era ainda mais confuso. Abri uma discussão que parecia trazer alguma coisa útil:
+Levantei num pulo, fui direto ao computador, liguei o monitor, esperei a CPU engatar e abri o navegador. Pesquisei “demônios dos sentidos” e encontrei textos esquisitos, teorias e fóruns antigos. Vários misturavam crenças diferentes, sem chegar a nada que eu pudesse confirmar. Digitei também “Agouro demônio”, mas o pouco que apareceu era ainda mais confuso. Abri uma discussão que parecia trazer alguma coisa útil:
 
 O texto misturava lendas sobre demônios dos sentidos, espíritos presos e uma alma viva capaz de abrir uma passagem por vontade própria. Parecia repetir Luiza, quase palavra por palavra. Não sabia se aquilo era uma confirmação ou só mais uma história de internet. Mais abaixo havia imagens, algumas do diabo clássico de sempre, com chifres, cauda e pele vermelha, e uma que chamou minha atenção, um rascunho a lápis de uma criatura negra e sem rosto. Algo naquele desenho mexeu comigo de forma nojenta. Era a sombra dos meus sonhos, só que, no desenho, os olhos eram vermelhos, e os meus pesadelos preferiam branco. Branco demais. O ar ao redor ficou frio outra vez e ouvi aquele sussurro arranhado que já conhecia, então puxei o fio da tomada e desliguei o computador no susto, corri para a cama e me enfiei debaixo das cobertas, como se isso impedisse algum demônio do Apocalipse. O quarto ficou em silêncio, só a minha respiração nervosa e o relógio.
 
-Agouro. Então era esse o nome do demônio por trás de tudo, a tal força de que a D. Maria Marques falava. Se ele precisava de alguém que se entregasse por vontade própria, era um de nós. Pensei em cada um. O Junior era certinho demais para vender a alma, o Pedro não tinha motivo, a Kelly e a Priscila tinham a vida que sempre quiseram, casa boa, pais com dinheiro, futuro, e muito a perder. Talvez o Vini. Na última vez que conversei com ele, senti que gostara de dar fim àqueles moleques, e não só alívio, prazer. Se percebesse que com o Agouro poderia fazer isso com qualquer um que o incomodasse… Sacudi a cabeça. Estava começando a pensar como os demônios pensam, medindo o valor das pessoas pelas sombras.
+Era o mesmo nome que Luiza tinha dito: Agouro, o demônio por trás de tudo, a tal força de que a D. Maria Marques falava. Se ele precisava de alguém que se entregasse por vontade própria, era um de nós. Pensei em cada um. O Junior era certinho demais para vender a alma, o Pedro não tinha motivo, a Kelly e a Priscila tinham a vida que sempre quiseram, casa boa, pais com dinheiro, futuro, e muito a perder. Talvez o Vini. Na última vez que conversei com ele, senti que gostara de dar fim àqueles moleques, e não só alívio, prazer. Se percebesse que com o Agouro poderia fazer isso com qualquer um que o incomodasse… Sacudi a cabeça. Estava começando a pensar como os demônios pensam, medindo o valor das pessoas pelas sombras.
 
 Para derrotar o Agouro, não bastava adivinhar qual amigo se venderia primeiro. Eu precisava destruir os Elos que prendiam os espíritos aos demônios dos sentidos, e para isso precisava das cinzas dele e de fogo. Mas antes, descobrir o que eram os Elos: talvez algum objeto antigo ligado a cada espírito, algo que tivesse ficado no mundo dos vivos. Pensei nos seis: o pai, a mãe, a avó, a Ingrid, o Suéten e o cão. Cão. “Eu nunca tinha ouvido falar que cães tinham alma”, pensei, com aquela ironia automática, “mas aparentemente têm, porque um deles tenta me matar há anos.”
 
-Desci ao quarto da minha mãe. O guarda-roupa estava lá, silencioso, exatamente onde ela aparecera para me matar, e a lembrança me revirou o estômago, mas eu não tinha mais o luxo de evitar esse tipo de coisa. Abri. No fundo estava a coleira, a mesma que eu tocara antes da visão do Vinicius morrendo na casa. O metal estava enferrujado, o pingente gasto, mas ainda dava para ler o nome: IBLISO. O nome do cachorro. A coleira, o Elo dele. Mas por que raios aquilo estava nas coisas da minha mãe?
+Desci ao quarto da minha mãe. O guarda-roupa estava lá, silencioso, exatamente onde ela aparecera para me matar, e a lembrança me revirou o estômago, mas eu não tinha mais o luxo de evitar esse tipo de coisa. Abri. No fundo estava a coleira, a mesma que eu tocara antes da visão do Vinicius morrendo na casa. O metal estava enferrujado, o pingente gasto, mas ainda dava para ler o nome: IBLISO. O nome do cachorro. Foi ao tocá-la que eu vira o cão entre os espíritos, na escadaria. Se cada Elo era mesmo um objeto ligado a um espírito, aquela podia ser a dele. Ou só uma coleira velha com um nome gravado. Mas por que raios aquilo estava nas coisas da minha mãe?
 
 Desci com ela à sala, onde meu pai assistia ao jornal como se o mundo lá fora fosse só mais um telejornal distante. Em alguns minutos sairia para trabalhar.
 
@@ -212,7 +212,7 @@ Ele fechou os olhos por alguns segundos, vasculhando.
 
 — Alex. Se não era Alex, era algo muito parecido.
 
-O nome acertou minha cabeça como um estalo. A Priscila comentara que o filho do velho Francis se chamava Alex. Se ele colocou a coleira ali, sabia o que fazia, e provavelmente conhecia os outros Elos. Eu precisava ir até ele. Mas não iria sozinha.
+O nome acertou minha cabeça como um estalo. A Priscila comentara que o filho do velho Francis se chamava Alex. Se ele colocou a coleira ali, sabia o que fazia. E, se aquilo era mesmo um Elo, talvez conhecesse os outros. Eu precisava ir até ele. Mas não iria sozinha.
 
 Na escola, no dia seguinte, vi o Pedro sentar no fundo, afastado, como se desenhasse uma cerca invisível entre ele e a turma. Só de olhar me lembrei de que combinara de ir ao baile com ele e não fui. Não sabia se estava magoado, mas pela cara estava, e se eu aparecesse pedindo um favor levaria um “não” na testa. Pensei então na Kelly, esperei a aula começar, vi a Vani Marisa fechar a porta, esperei mais um pouco, e a Kelly não apareceu. Droga. Sobrou o Junior. Notei que durante as três aulas inteiras o Pedro e o Junior não trocaram uma única palavra, sem piadinhas, bilhetes ou olhares, algo completamente anormal.
 
@@ -232,13 +232,13 @@ Junior suspirou. Os olhos dele estavam vermelhos, como se não tivesse dormido o
 
 Às vezes é melhor ir direto ao ponto.
 
-— Descobri o que são os Elos e como destruir.
+— Acho que descobri o que são os Elos e como destruir.
 
-Descemos para o pátio enquanto eu contava tudo: a floresta de neve, Luiza, Agouro, as cinzas, o Agouro, o nome do eletricista, a coleira no guarda-roupa da minha mãe.
+Descemos para o pátio enquanto eu contava tudo: a floresta de neve, Luiza, o Agouro, as cinzas, o nome do eletricista, a coleira no guarda-roupa da minha mãe.
 
-— Então pode ser que o Alex saiba onde estão os outros Elos — concluiu Junior, segurando a coleira.
+— Então, se isso for mesmo um Elo, o Alex pode saber onde estão os outros — concluiu Junior, segurando a coleira.
 
-— Não são só coleiras. Cada Elo é um objeto que pertenceu a um dos espíritos, e a coleira é do Ibliso. Mas você pode estar certo numa coisa: se o Alex colocou essa na minha casa, sabia o que fazia. Talvez porque soubesse que eu podia descobrir como destruí-la.
+— Não são só coleiras. Se eu estiver certa, cada Elo é um objeto que pertenceu a um dos espíritos, e essa seria a do Ibliso. Mas você pode estar certo numa coisa: se o Alex colocou essa na minha casa, sabia o que fazia. Talvez porque soubesse que eu podia descobrir como destruí-la.
 
 Junior ficou alguns segundos em silêncio, o rosto mais pesado, como se uma lembrança puxasse outra por trás.
 
@@ -272,7 +272,7 @@ Olhei para o chão. Eu queria a minha mãe de volta com uma força que doía. Ma
 
 — Vou comer alguma coisa — disse Junior, quebrando o silêncio. — Depois a gente fala mais.
 
-Fiquei parada esperando o sinal, organizando as peças. Na volta para casa, ainda pensando no melhor horário para chamar o Junior para irmos ver o Alex, vi alguém conhecido deitado na calçada, encostado num muro. Vini. O rosto sujo, os olhos fundos, como se tivesse envelhecido cinco anos numa noite. Você já sabe o que aconteceu dali em diante. Mostrei a ele a coleira, expliquei que nós conseguíamos lembrar melhor dos demônios, contei tudo sobre Luiza, o Agouro e o Alex, e no fim ele concordou em subir comigo até a colina perto do shopping, onde o velho e o filho moravam.
+Fiquei parada esperando o sinal, organizando as peças. Na volta para casa, ainda pensando no melhor horário para chamar o Junior para irmos ver o Alex, vi alguém conhecido deitado na calçada, encostado num muro. Vini. O rosto sujo, os olhos fundos, como se tivesse envelhecido cinco anos numa noite. Você já sabe o que aconteceu dali em diante. O que não ficou claro ali foi o resto que contei a ele: Luiza, o Agouro, o que eu achava que eram os Elos e o eletricista que deixou a coleira na minha casa. No fim ele concordou em subir comigo até a colina perto do shopping, onde o velho e o filho moravam.
 
 Subimos uma estrada de terra antiga, quase esquecida, nos arredores da cidade, sob um céu completamente nublado, cinzento e pesado, que combinava com o resto da minha vida. O ar era frio, mas não do tipo sobrenatural, só o clima colaborando com o ambiente. Chegamos a uma casa solitária com um cercado baixo, cheia de mato e madeira velha, daquele tipo que qualquer pessoa normal evitaria por instinto, e batemos.
 
@@ -324,7 +324,7 @@ O olhar de Alex mudou. A curiosidade apareceu, ainda que disfarçada.
 
 — E quantos Elos vocês já encontraram?
 
-— Só um até agora. Viemos perguntar se vocês sabem quais são os outros.
+— Só um, se é que é isso mesmo. Viemos perguntar se vocês sabem quais são os outros.
 
 — Não sabemos.
 
@@ -354,25 +354,25 @@ Na parede notei um quadro preto e branco de um homem de uniforme militar, com a 
 
 No topo de uma estante vi uma foto da família Marques, e de repente tudo ficou claro.
 
-— Você era um deles. Um dos militares que mataram a família. O homem que matou o filho da Maria. Você é o Francis.
+— Você era um deles. Um dos militares que invadiram a casa da D. Maria Marques. O homem que matou o filho dela. Você é o Francis.
 
 — Meu pai nunca matou ninguém, deixa de ser malu… — começou Alex, mas o velho o interrompeu.
 
 — Sim. Fui eu.
 
-E começou a contar. O Regime Militar, o trabalho de “eliminar” opositores, o garoto na floresta, o Carnam Marques, o cachorro morto na entrada, a mulher morta na cama, o porão, a filha, o sangue, a pele arrancada viva. Quando terminou, o silêncio na sala pesava mais que qualquer farda.
+Ele não acrescentou mais nada. Não pediu desculpa, não tentou se explicar. O silêncio na sala pesava mais que qualquer farda.
 
-— Vocês fizeram coisas horríveis, S. Francis — falei, sem levantar a voz. — Tiraram a vida de um garoto. Arrancaram a pele de um homem vivo. — Parei por um segundo. — Ainda assim, sinto muito pela sua esposa.
+— O senhor matou o filho dela — falei, sem levantar a voz. — Um garoto, na frente da mãe.
 
-Ele fechou os olhos, como se essa parte doesse mais do que qualquer acusação.
+— Foi há muito tempo — respondeu ele, sem me encarar. — Eu cumpria ordens.
 
-— Vamos destruir os Elos e acabar com tudo isso, os espíritos, os demônios, o Agouro. Já sabemos como.
+— Não viemos aqui por causa do passado. Vamos destruir os Elos e acabar com tudo isso, os espíritos, os demônios, o Agouro. Já sabemos como.
 
-— Não — disse o velho, firme. — Se fizerem isso, eu nunca mais vou vê-la. Alex nunca mais vai ver a mãe. Anos depois que a perdi, descobri o demônio Agouro. Ele se interessou pela minha alma, disse que eu tinha um desejo forte e podia realizá-lo em troca de um pacto. Eu aceitei. O Alex também aceitou fazer parte do pacto. Em troca, Agouro nos deixaria ver a Calêndula. Cumpriu, pelo menos uma vez por mês. Prometeu que, quando concluísse seus planos, não precisaríamos mais nos despedir dela.
+— Não — disse o velho, firme. — Se fizerem isso, eu nunca mais vou ver a minha mulher. Alex nunca mais vai ver a mãe. Anos depois que a perdi, descobri o demônio Agouro. Ele me ofereceu um pacto: um favor em troca de poder ver a Calêndula. Cumpriu, pelo menos uma vez por mês. Prometeu que, quando concluísse seus planos, não precisaríamos mais nos despedir dela.
 
 — E o que ele pediu em troca? — perguntou Vini.
 
-— Há pouco mais de duas semanas, um garoto bateu à nossa porta — contou Alex. — Disse que estava na hora de pagar o favor. Tinha os endereços de vocês. Mandou levar alguns objetos para perto dos moradores daquelas casas. Nós não escolhemos ninguém. E não fomos encarregados de mexer em todos os Elos.
+— Não foi pessoal — contou Alex, sem tirar os olhos do pai. — Há pouco mais de duas semanas, um garoto bateu à nossa porta. Disse que estava na hora de pagar o favor. Tinha os endereços de vocês. Mandou levar alguns objetos para perto dos moradores daquelas casas. Nós não escolhemos ninguém. E não fomos encarregados de mexer em todos os Elos.
 
 — Mas por que as nossas casas? — perguntei.
 

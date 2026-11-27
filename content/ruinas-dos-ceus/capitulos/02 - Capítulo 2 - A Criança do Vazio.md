@@ -2,29 +2,29 @@
 
 O planalto de Talyen, onde se realizava o Primeiro Voo, era um campo suspenso entre quatro ilhotas que recebia sempre a primeira luz no Sopro do Despertar. O sol nascia entre as pedras flutuantes. A luz atravessava os vitrais vivos da Ilha dos Tecelões e tingia o céu de rosa e dourado. Raízes curvas mantinham a plataforma unida ao restante da ilha, mas, à frente, havia apenas o precipício e o abismo macio de nuvens.
 
-Ali, cada jovem recebia seu planador: uma estrutura de seda-das-alturas tensionada por ossos de nuari, dobrada em espiral e marcada com o símbolo da Corrente predominante do seu nascimento. O de Jokara trazia a Corrente Arion, o vento cantante, o que nunca sopra duas vezes igual.
+Ali, cada jovem recebia seu planador: uma estrutura de seda-das-alturas tensionada por ossos de nuari, dobrada em espiral e marcada com o símbolo da Corrente predominante do seu nascimento. O de Jokara trazia a Corrente Arion, o vento cantante, o que nunca sopra duas vezes igual. Para os eterí, Xar, Livia e Arion eram mais que nomes de vento: eram as três grandes Correntes, invocadas em preces, juramentos e ritos.
 
-Os Oradores atribuíam aquela Corrente nos primeiros sopros de vida, durante o ritual em que observavam qual vento tocava a criança. Alguns eterís passavam a vida reconhecendo-se naquela leitura. Outros cresciam desconfiando de que os ventos haviam sido interpretados depressa demais. Jokara ainda se perguntava se Arion a escolhera de fato. Gravaram-lhe o símbolo muito antes que aprendesse a falar.
+Os Oradores atribuíam aquela Corrente nos primeiros sopros de vida, durante o ritual em que observavam qual vento tocava a criança. Alguns eterí passavam a vida reconhecendo-se naquela leitura. Outros cresciam desconfiando de que os ventos haviam sido interpretados depressa demais. Jokara ainda se perguntava se Arion a escolhera de fato. Gravaram-lhe o símbolo muito antes que aprendesse a falar.
 
 — O planador é apenas um lembrete — dissera seu pai, ciclos antes. — Não é ele que te faz voar. É o sopro em ti que reconhece o do mundo.
 
 Mas naquela manhã, nenhum sopro parecia reconhecê-la.
 
-Vestia o manto branco com as linhas prateadas costuradas por sua avó. As trancas estavam presas em duas espirais, como era o costume. Os dedos tremiam, embora tentasse escondê-los apertando os punhos. Olhou para o espelho, notando a pele vazia, sem as tintas de orvalho e resina que Nestira usava com orgulho. As pinturas sagradas eram de quem já tinha voado.
+Vestia o manto branco com as linhas prateadas costuradas por sua avó. As tranças estavam presas em duas espirais, como era o costume. Os dedos tremiam, embora tentasse escondê-los apertando os punhos. Olhou para os próprios braços, a pele ainda vazia, sem as tintas de orvalho e resina que Nestira usava com orgulho. As pinturas sagradas eram de quem já tinha voado.
 
-Efepar, mais acima na colina, assistia tudo com um sorrisinho cínico e os braços cruzados.
+Efepar, mais acima na colina, assistia a tudo com um sorrisinho cínico e os braços cruzados.
 
 — Vai querer que eu empurre? — gritou, debochado.
 
-Era alto, cabelos crespos e curtos, com olhos escuros e vivos demais para se esconderem. Trazia a flauta presa à cintura e uma pena azul de nuari presa ao cabelo desalinhado.
+Era alto, cabelos crespos e curtos, com olhos escuros e vivos demais para se esconderem. Trazia a flauta à cintura e uma pena púrpura de nuari entre os cabelos desalinhados.
 
 Jokara fingiu não ouvir, mas ficou contente de vê-lo ali.
 
 Nestira, ao contrário, já estava em postura de meditação, olhos fechados, entoando silenciosamente uma oração da Corrente. A pena de Xar brilhava presa ao manto, e seu semblante sereno fazia os outros parecerem despreparados. E em seus braços e rosto, linhas finas de pinturas sagradas traçavam espirais de Xar, sinal de que havia completado o Primeiro Voo.
 
-Jokara admirava a irmã, mas também se irritava com aquela paz tão fácil. Nestira dizia ouvir o vento desde pequena. Jokara nunca ouvira nada. Quem não as conhecia costumava tomar Nestira pela caçula, por causa do rosto miúdo e liso que nenhuma vigília parecia cansar, e ela nunca se dava ao trabalho de corrigir.
+Jokara admirava a irmã, mas também se irritava com aquela paz tão fácil. Nestira dizia ouvir o vento desde pequena. Jokara nunca ouvira nada. Aos vinte e um ciclos, Nestira tinha dois a mais que ela, mas quem não as conhecia costumava tomá-la pela caçula, por causa do rosto miúdo e liso que nenhuma vigília parecia cansar, e ela nunca se dava ao trabalho de corrigir.
 
-— Quando o vento tocar seus ombros, confie. Ele não leva quem não está pronto — disse seu pai. Mas Jokara não sentia toque algum.
+— Quando o vento tocar seus ombros, confie. Ele não leva quem não está pronto — dissera seu pai. Mas Jokara não sentia toque algum.
 
 O Mestre dos Voos, um Orador antigo, de manto cinza esvoaçante e cabelos tecidos em longas cordas de prata, caminhava entre os jovens sem pressa. Já vira centenas de partidas e apenas algumas quedas. Costumava dizer que não se ensina ninguém a voar. Ensina-se a ouvir o vento.
 
@@ -118,7 +118,7 @@ Jokara virou o rosto devagar, procurando alguma coisa para ferir. Mas Nestira es
 
 — Ou porque eu simplesmente não estava preocupada se iria passar ou não.
 
-— Você sempre foi boa em fingir que ouve o vento — respondeu Jokara — diz que ele canta pra você… que ele te responde… mas para mim só existe silêncio.
+— Você sempre foi boa em fingir que ouve o vento — respondeu Jokara. — Diz que ele canta pra você… que ele te responde… mas pra mim só existe silêncio.
 
 — O silêncio também é uma forma do vento se expressar para…
 
@@ -144,21 +144,21 @@ Jokara não respondeu. Deitou-se lentamente e respirou fundo. Não se levantou m
 
 Já era de madrugada, e Jokara não dormia. O vento assobiava pela fresta da janela.
 
-Foi então que um som surgiu pela janela. Rústico. Levemente desafinado. A flauta curva de Efepar. Não tocava nenhuma melodia tradicional. Tropeçava nas notas como um nuari aprendendo a voar.
+Até que um som subiu lá de fora. Rústico. Levemente desafinado. A flauta curva de Efepar. Não tocava nenhuma melodia tradicional. Tropeçava nas notas como um nuari aprendendo a voar.
 
-A garota se moveu até a janela e viu o garoto parado com a curandeira Sersi lá. Efepar fez uma careta engraçada, e isso fez Jokara sorrir. Apenas com um canto da boca, mas ela sorriu.
+Jokara foi até a janela e viu Efepar ao lado da curandeira Sersi. Ele fez uma careta. Ela sorriu de canto.
 
 Levantou-se sem pressa, vestiu o manto de seda com preguiça cerimonial e desceu.
 
 Lá fora, na entrada, Efepar e Sersi esperavam. Ele girava a flauta entre os dedos. Sersi trazia um bastão de raízes entrelaçadas e um lenço preso à testa.
 
-— Olha só — disse Efepar, inclinando a cabeça —, então essa flauta invocadora de Jokara que comprei funciona mesmo.
+— Olha só — disse Efepar, inclinando a cabeça —, então a minha flauta de chamar Jokara funciona mesmo.
 
 Jokara bufou, mas os olhos não eram mais hostis.
 
 — Você ainda toca como se tivesse duas asas esquerdas.
 
-— E você ainda fala como se precisasse provar que sabe mais do que sente.
+— Duas asas esquerdas, e mesmo assim você desceu.
 
 Ela não respondeu. Mas se aproximou. Desceu os últimos degraus com o manto mal ajustado, os cabelos presos às pressas. Efepar a observou de soslaio, satisfeito. Sersi a cumprimentou com um aceno.
 
@@ -172,13 +172,13 @@ Jokara aceitou, mais por cortesia do que por crença. Sorveu um gole e tossiu le
 
 Sentaram-se na varanda sem dizer nada por um tempo, o vento passando entre os sinos. Ali fora era mais fácil respirar.
 
-— O que estão fazendo aqui a essas horas? Certamente não vieram apenas me trazer chá — indagou Jokara — Além de ser perigoso andar no escuro, sabem que é proibido circular e levantar a voz durante o Sopro do Silêncio. Os Oradores Noturnos podem aparecer a qualquer momento.
+— O que vocês estão fazendo aqui a essa hora? — perguntou Jokara. — Não vieram só me trazer chá. E é perigoso andar no escuro. Ninguém pode circular nem falar alto no Sopro do Silêncio. Os Oradores Noturnos podem aparecer a qualquer momento.
 
-— Jokara, o Sopro do Silêncio já acabou — disse Efepar. — Olha o céu.
+— Jokara, o Sopro do Silêncio tá acabando — disse Efepar. — Olha o céu.
 
 Jokara não tinha reparado, mas de fato, o céu começava a ficar azul, e no horizonte, podia ver uma claridade querendo surgir.
 
-— Bom. Vim lhe ver — disse ele — como está minha amiga quebrada.
+— Bom, vim te ver — disse ele. — Como é que tá minha amiga quebrada?
 
 — Não quero falar sobre isso — disse Jokara, sem olhar para ninguém. — Não quero ninguém tentando me consertar.
 
@@ -200,7 +200,7 @@ Jokara não respondeu. Ninguém a apressou.
 
 Efepar se recostou na viga de madeira, girando algo entre os dedos.
 
-— Sua irmã falou com a gente ontem ao Sopro do Silêncio.
+— Sua irmã foi falar com a gente ontem, antes do Sopro do Silêncio.
 
 Jokara franziu o cenho, sem responder.
 
@@ -214,9 +214,9 @@ Jokara levantou os olhos, surpresa. Não esperava que Nestira lembrasse daquilo.
 
 — Ela disse que você quase caiu, que o vento te resgatou por um triz. Mas você sorriu como se tivesse vencido o céu. E que ela... nunca esqueceu aquilo.
 
-Jokara apertou os dedos no tecido do manto. A lembrança lhe voltou com cores vivas: o susto, o frio, o riso.
+Jokara apertou os dedos no tecido do manto. Lembrou-se do susto, do frio e do riso.
 
-Efepar então puxou algo do bolso: uma pena prateada, pequena, levemente curva: a mesma que ela resgatara do pai. Ela sabia que Nestira ainda tinha várias coisas do pai guardadas, mas aquela pena…
+Efepar então puxou algo do bolso: uma pena prateada, pequena, levemente curva: a mesma que Jokara fora buscar no Vão das Estrelas. Ela sabia que Nestira ainda tinha várias coisas do pai guardadas, mas aquela pena…
 
 — Acho que é sua — disse. — Ela pediu pra te entregar.
 
@@ -228,7 +228,7 @@ Passos leves na porta. Era Nestira.
 
 — Os garotos vão aos bosques? — perguntou.
 
-— Jokara vai — respondeu Efepar, antes que a irmã pudesse abrir a boca.
+— Jokara vai — respondeu Efepar, antes que Jokara pudesse abrir a boca.
 
 Jokara olhou para ele, depois para Nestira, e não o desmentiu.
 
@@ -260,11 +260,11 @@ Nestira olhou para a passagem lateral. Efepar fez uma careta, mas ninguém conte
 
 O grupo então tomou o caminho alternativo. A trilha cedeu espaço para um descampado irregular, coberto por musgo acinzentado e pequenas flores murchas. O ar cheirava a coisa parada.
 
-O olhar de Jokara se perdia entre as árvores. Ela nunca tinha seguido por aquele caminho. Mas sabia que dariam uma boa volta. Foi então que, entre duas pedras semiocultas por folhas e raízes, Jokara reparou em algo.
+Jokara olhava entre as árvores. Nunca tinha seguido por aquele caminho, mas sabia que dariam uma boa volta. Entre duas pedras semiocultas por folhas e raízes, reparou em algo.
 
 — Ei. Tem alguém ali! — exclamou.
 
-Jokara correu antes que os outros reagissem. Encontrou um menino encolhido no chão. As vestes dele estavam rasgadas, sujas de terra e folhas, como se tivesse rolado por colinas inteiras. Os cabelos grudavam na testa e havia pequenos arranhões pelos braços e pernas. Seus olhos enormes olhavam sem foco.
+Jokara correu antes que os outros reagissem. Encontrou um menino encolhido no chão. As vestes dele estavam rasgadas, sujas de terra e folhas, como se tivesse rolado por colinas inteiras. Os cabelos grudavam na testa e havia pequenos arranhões pelos braços e pernas. Seus olhos enormes pareciam não se fixar em nada.
 
 Ele estava acordado, mas não falava. Nem se movia com clareza. Apenas olhava. Jokara se ajoelhou com cuidado, e o menino recuou.
 
@@ -334,12 +334,12 @@ Nestira estendeu a mão.
 
 — Eu posso tentar fazê-lo entender.
 
-O menino não se moveu, mas não tirava os olhos dela.
+O menino permaneceu imóvel, sem tirar os olhos dela.
 
 Jokara ainda queria dizer que era loucura. Não sabiam quem era, nem de onde vinha. Então as folhas em volta se mexeram. O vento tinha voltado, bem ali.
 
 — Tá bom — murmurou. — Vamos levá-lo.
 
-O menino olhou para os dedos de Nestira por um momento e, enfim, deu o primeiro passo com eles.
+O menino olhou para os dedos de Nestira por um momento. Enfim, segurou-os e deu o primeiro passo.
 
 

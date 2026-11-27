@@ -18,7 +18,7 @@ Certo sopro, o grupo caminhava pela encosta em busca de lenha seca. Platisa, que
 
 Gabasteri apenas lançou um olhar para ela e desviou a trilha sem dizer nada. Mariv, por sua vez, inclinou a cabeça.
 
-— O que te fez perceber?
+— Como você percebeu?
 
 Platisa se agachou sem encostar na planta. Com a ponta de um galho, ergueu uma das folhas e mostrou a parte inferior.
 
@@ -38,15 +38,15 @@ Outro sopro, ao amanhecer, o vento trouxe uma chuva fina e interminável. O abri
 
 Ao Sopro do Silêncio, o grupo retornou com uma presa pequena, mal suficiente para alimentar todos. Mariv comentou, quase sorrindo:
 
-— Talvez devêssemos armar armadilhas maiores.
+— Talvez a gente consiga pegar mais com armadilhas maiores.
 
-E Gabasteri, sem erguer a cabeça do fogo, respondeu:
+E Gabasteri, sem tirar os olhos do fogo, respondeu:
 
 — Talvez. Mas enquanto pensamos em talvez, continuamos fracos.
 
 Jokara se virou. Mariv e Nestira riam juntos, conversando. Até Loutes prestava atenção neles.
 
-— Tem razão, Gabasteri — disse Jokara — algumas pessoas passam tempo demais conversando, ao invés de focar no que é importante.
+— Tem razão, Gabasteri — disse Jokara. — Tem gente que passa tempo demais conversando em vez de cuidar do que importa.
 
 Todos se viraram para ela, e Jokara percebeu que tinha falado alto demais.
 
@@ -61,7 +61,7 @@ Veio outro, mais perto. E outro, de outro lado.
 
 Loutes ergueu o rosto para as copas. Jokara seguiu o olhar dele.
 
-Ali, entre as ramagens encharcadas, algo se movia. Uma criatura pendia de um galho, balançando-se devagar. O corpo era musculoso, coberto de pelo molhado. O rosto era comprido e torto, com olhos fundos que refletiam as fagulhas da fogueira. Tinha um rabo longo e flexível, que se enrolava nos galhos como um braço extra, sustentando-o com facilidade.
+Ali, entre as ramagens encharcadas, algo se movia. Uma criatura pendia de um galho, balançando-se devagar. O corpo era musculoso, coberto de pelo molhado. O rosto era comprido e torto, com olhos fundos que refletiam as fagulhas da fogueira. Tinha um rabo longo e flexível, que se enrolava nos galhos como um braço extra, sustentando o animal com facilidade.
 
 Outro apareceu. E mais outro. Os gritos vinham de todos os lados agora. Estavam cercados.
 
@@ -71,7 +71,7 @@ Platisa correu até a fogueira, arrancou um galho e acendeu a ponta. A chama est
 
 Então começou a garoar. Primeiro pingos soltos, depois um chuvisco fino e contínuo. O fogo começou a chiar.
 
-— Rápido! — Platisa sussurrou, agachando-se para proteger a chama.
+— Rápido! Me ajuda aqui! — Platisa se agachou para proteger a chama.
 
 Loutes caiu de joelhos ao lado dela, tentando abrigar a fogueira com as mãos e folhas molhadas. Não adiantou. A chama se apagou, e a clareira ficou escura.
 
@@ -81,11 +81,11 @@ Um dos animais desceu da árvore com movimentos lentos, arrastando as mãos de d
 
 Nas árvores ao redor, os outros tinham parado de gritar. A mudança foi pior do que o barulho. Restaram apenas a chuva fina batendo nas folhas, a respiração pesada das criaturas e o chiado fraco das últimas brasas morrendo atrás de Jokara.
 
-Ela firmou as duas mãos na lança. A madeira estava escorregadia. Tentou recuar meio passo, mas o bastão afundou no barro e seu corpo levou um instante a reencontrar o equilíbrio. O animal acompanhou o movimento com os olhos. Parou também. O rabo deixou de bater.
+Prendeu o bastão sob o braço e firmou as duas mãos na lança. A madeira estava escorregadia. Tentou recuar meio passo, mas o bastão afundou no barro e seu corpo levou um instante a reencontrar o equilíbrio. O animal acompanhou o movimento com os olhos. Parou também. O rabo deixou de bater.
 
 Jokara sentiu o peito prender antes mesmo de entender por quê. Os ombros da criatura baixaram, os dedos se abriram contra a terra e os músculos das pernas se contraíram sob o pelo encharcado.
 
-Então ela saltou.
+A criatura saltou.
 
 Jokara ainda tentou erguer a lança, mas o impacto a jogou para trás. A arma escapou de sua mão e rodopiou pelo chão molhado. As costas bateram no barro, o ar fugiu de seus pulmões e as garras rasgaram seu rosto antes que ela conseguisse proteger a cabeça. O sangue quente escorreu para os olhos e para a boca.
 
@@ -93,7 +93,7 @@ Jokara gritou. Ergueu os braços, protegendo a garganta, empurrando o peso feroz
 
 Nas árvores, os outros voltaram a gritar todos juntos, e o barulho era ensurdecedor.
 
-Loutes não se mexia. Os braços tremiam. Platisa, ao contrário, gritou e ergueu a perna num chute desesperado. Os pés descalços acertaram as costelas peludas do monstro sobre Jokara, mas não lhe arrancaram mais que um urro curto.
+Loutes não se mexia. Os braços tremiam. Platisa, ao contrário, gritou e ergueu a perna num chute desesperado. O pé descalço acertou as costelas peludas do monstro sobre Jokara, mas não lhe arrancaram mais que um urro curto.
 
 Outros desciam das árvores, uns devagar, outros saltando. Um caiu sobre Platisa, esmagando-a contra o chão. Dois agarraram Loutes, puxando-o para baixo. O menino caiu de costas e se debatia sem soltar um som.
 
@@ -105,11 +105,11 @@ Outro animal caiu sobre ele. O homem o agarrou pelo braço peludo, rodou o corpo
 
 Foi até Loutes e Platisa. Um golpe, depois outro. Não hesitava. Parecia já ter feito aquilo antes.
 
-Depois ergueu acima da cabeça o corpo morto de uma das criaturas e gritou para as árvores. Um urro rouco, comprido, que Jokara nunca ouviu sair de um eterí.
+Depois ergueu acima da cabeça o corpo morto de uma das criaturas e gritou para as árvores. Um urro rouco, comprido, que Jokara nunca tinha ouvido sair de um eterí.
 
 Os outros monstros responderam em coro. Não recuaram de imediato, gritaram de volta, um desafio ecoando entre os galhos. Depois, aos poucos, foram subindo, um a um, e os gritos se afastaram até sobrar só a chuva pingando das folhas.
 
-Jokara arfava. O sangue escorria pelo rosto e ardia. Moveu-se de lado, cambaleando até ver Loutes no chão. Ele estava arranhado, os braços riscados de vermelho, mas respirava. Platisa tremia, os cabelos grudados no rosto, os braços cobertos de cortes.
+Jokara arfava. O sangue escorria pelo rosto e ardia. Arrastou-se pelo barro até ver Loutes no chão. Ele estava arranhado, os braços riscados de vermelho, mas respirava. Platisa tremia, os cabelos grudados no rosto, os braços cobertos de cortes.
 
 E então, finalmente, o homem voltou os olhos para Jokara.
 
@@ -123,11 +123,11 @@ Ele respirava pesado, a lâmina pingando na mão.
 
 Jokara, arfando, levou a mão ao rosto ensanguentado. Assentiu com a cabeça, sem conseguir dizer muito.
 
-— S-sim… — Platisa conseguiu responder, a voz trêmula, segurando o braço arranhado. — Graças a você… obrigada.
+— Sim… obrigada. — Platisa mal conseguia falar e segurava o braço arranhado.
 
 Maletar inclinou a cabeça. Limpou o sangue da lâmina na perna da própria calça encharcada.
 
-— Eu estava ali perto… ouvi seus gritos. — Seus olhos voltaram para Jokara. — Cheguei a tempo.
+— Estava ali perto. Ouvi os gritos. — Seus olhos voltaram para Jokara.
 
 Ele apontou com o queixo para a clareira.
 
@@ -135,13 +135,13 @@ Ele apontou com o queixo para a clareira.
 
 Jokara hesitou. Já eram gente demais para pouca comida. Mas sem ele estariam mortos naquela lama.
 
-— Não… — disse, por fim. — Há mais três. Estão caçando no momento.
+— Não… — disse, por fim. — Há mais três. Saíram pra buscar comida e água.
 
 Maletar assentiu lentamente, o rosto sério.
 
 Platisa foi até Loutes. Suas mãos ainda tremiam quando retirou do zélon o elvara, as folhas translúcidas que já havia usado para aliviar a dor. Molhou o maço na chuva e começou a aplicá-lo sobre os arranhões do garoto. Primeiro limpou o sangue com um pedaço de tecido gasto, depois pressionou as folhas úmidas contra os cortes.
 
-Quando terminou, virou-se para Jokara.
+Quando terminou, recolheu o bastão de Jokara, que havia caído no barro, e foi até ela.
 
 — Agora você.
 
@@ -163,17 +163,17 @@ Platisa não respondeu. Apenas começou a limpar os próprios braços.
 
 Maletar observava em silêncio, até que franziu o cenho e disse:
 
-— Reconheço isso. Se parece muito com o naravel de Etérea.
+— Reconheço isso. Parece muito com a elvara de Etérea.
 
 Platisa ergueu o olhar, surpresa, e sorriu de leve.
 
-— Naravel… sim. Eu também pensei o mesmo quando encontrei. A textura, o cheiro… funciona da mesma forma. É como reencontrar um sopro antigo.
+— Sim, eu reconheci pela textura e pelo cheiro. E olha só, funciona do mesmo jeito. Até parece um pedaço de casa.
 
 Maletar se ajoelhou ao lado.
 
-— Uma vez apliquei naravel em um corte que tive na perna. Estava infeccionado. Melhorei em poucos sopros.
+— Uma vez apliquei elvara num corte que tive na perna. Estava infeccionado. Melhorei em poucos sopros.
 
-— Então conhece bem o poder dele — disse Platisa, ainda pressionando as folhas no braço de Loutes. — Na primeira vez que usei, não sabia se ia funcionar.
+— Então já conhece a planta — disse Platisa, recolhendo as folhas que sobraram. — Na primeira vez que usei esta aqui, nem sabia se ia funcionar.
 
 — E funcionou — disse Maletar.
 
@@ -181,15 +181,15 @@ Os dois sorriram.
 
 Jokara não conseguia parar de ver Maletar com o bicho morto erguido acima da cabeça. Por fim, perguntou:
 
-— Você é Maletar, não é? Nos vimos pouco antes do cataclisma, lembra-se.
+— Você é Maletar, não é? A gente se viu pouco antes do cataclisma, lembra?
 
-— Sim menina, claro que me lembro. Você talvez não me conhecia bem, mas eu e Yoral tínhamos história — disse ele — seu pai, quero dizer.
+— Claro que lembro, menina. Conhecia bem o Yoral. Seu pai, quero dizer.
 
 — Conheceu meu pai? — perguntou Jokara.
 
 Maletar riu.
 
-— Ele me pediu para construir a casa de vocês. E em Etérea todo mundo conhecia todo mundo. As ilhas são pequeninas — então se virou para Platisa — posso não saber seu nome, mas já a vi diversas vezes frequentando os jardins serenos em seu treinamento para se tornar uma oradora.
+— Foi ele quem me pediu pra construir a casa de vocês. As ilhas são pequenas, menina. Todo mundo se conhecia. — Virou-se para Platisa. — Não lembro seu nome, mas já vi você nos jardins serenos, se preparando pra ser Oradora.
 
 Platisa sorriu.
 
@@ -225,7 +225,7 @@ Os olhos dele se estreitaram ao ver Maletar.
 
 Gabasteri olhou para Jokara, Platisa e Loutes, todos feridos, e sorriu de leve.
 
-— É o que falo para vocês. Se não se esforçarem para caçar, não se alimentarão, e sem alimento não terão forças para se defender.
+— É disso que eu falo. Sem comida, vocês não vão ter força nem pra se defender.
 
 Maletar virou-se para ele devagar.
 
@@ -247,9 +247,9 @@ Maletar o encarou sem piscar.
 
 Gabasteri forçou um sorriso, os dentes à mostra.
 
-— Calma, amigo, não me entenda mal. Não foi uma crítica. Só acho que devemos pensar no grupo. Ninguém aparece do nada para salvar ninguém. Eu penso no grupo primeiro. Não apenas em sobreviverem, mas em se manter fortes.
+— Calma, amigo. Não me entenda mal. Foi bom você aparecer. Só preciso pensar no grupo. Não quero que a gente dependa de ser salvo por alguém toda vez que um bicho atacar.
 
-— Ninguém aqui precisa de lições de como ser forte. Cada um sabe a força que tem dentro de si — respondeu Maletar, seco.
+— Esses três acabaram de sobreviver a um ataque. Não precisam de sermão agora — respondeu Maletar, seco.
 
 Jokara teve vontade de rir. Alguém finalmente tinha dito.
 
@@ -259,7 +259,7 @@ Mariv desviou o olhar, escondendo um meio sorriso de aprovação. Nestira, ao co
 
 Gabasteri ergueu as mãos, em falsa rendição.
 
-— Claro, Nestira. Vamos comer. — E olhou de novo para Maletar — Se não se importa, vamos jantar agora.
+— Claro, Nestira. Vamos comer. — Olhou de novo para Maletar. — Se não se importa, vamos jantar agora.
 
 Antes que Maletar respondesse, Platisa perguntou:
 
@@ -283,7 +283,7 @@ Jokara encarou Maletar.
 
 E olhou para Nestira.
 
-— Etérea acabou — disse Mariv. — E eu não quero continuar acordando sem saber quem decide o quê quando alguma coisa dá errado.
+— Eu tô cansado de acordar sem saber quem manda em quê — disse Mariv. — Quando alguma coisa dá errado, a gente só discute.
 
 Fez uma pausa, observando Maletar por alguns instantes.
 
@@ -291,7 +291,7 @@ Fez uma pausa, observando Maletar por alguns instantes.
 
 Seu olhar passou brevemente por Gabasteri antes de voltar a Maletar.
 
-— Se alguém tiver que coordenar o grupo por enquanto… prefiro que seja você.
+— Se a gente precisa de alguém pra organizar as coisas… prefiro que seja você.
 
 Gabasteri sorriu de canto.
 
